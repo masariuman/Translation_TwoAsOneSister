@@ -1,36 +1,37 @@
-Hari itu, saya naik bus larut malam kembali ke rumah orang tua saya.
+Hari itu, Aku naik bus larut malam untuk pulang ke rumah orang tuaku.
 
-Alangkah baiknya jika saya bisa tidur sampai saya berhenti, tetapi saya belum terbiasa melakukannya. Jadi meski dalam kegelapan, saya tidak bisa tidur nyenyak dan saya pikir saya hanya menatap kosong ke angkasa pada saat itu.
+Alangkah baiknya jika Aku bisa tidur sampai Tujuan, tetapi aku belum terbiasa melakukannya. Jadi meski dalam kegelapan, aku tidak bisa tidur nyenyak dan aku hanya menatap kosong ke atas pada saat itu.
 
-Karena itu, saya mengingatnya.
+Karena itu, aku mengingatnya.
 
-Sensasi melayang yang tiba-tiba, dampak yang tak tertahankan.
-Perasaan sakit yang membuatnya repot bahkan untuk mengangkat satu jari. Erangan kesakitan di sekitarku.
+Sensasi melayang yang tiba-tiba, rasa yang tak tertahankan.
 
-Saya kemudian berpikir, 'Seandainya hal terakhir yang saya dengar adalah suara seseorang bernyanyi ...' dan saat itu, saya mati.
+Perasaan sakit yang bahkan susah untuk mengangkat satu jari. Erangan kesakitan di sekitarku.
+
+Aku kemudian berpikir, 'Seandainya hal terakhir yang aku dengar adalah suara seseorang bernyanyi ...' dan saat itu, aku mati.
 
 ◇◇◇
 
-Namun, tepat ketika saya mengira saya sudah mati, karena suatu alasan, saya bangun.
+Namun, tepat ketika aku mengira aku sudah mati, karena suatu alasan, aku bangun.
 
-Dan tiba-tiba, terasa dingin. Udaranya sendiri terasa dingin, semua yang menyentuhku terasa sama dinginnya, bahkan suara dentingan yang kudengar pun terasa dingin. Semua yang indra saya rasakan hanyalah dingin yang mutlak.
+Dan tiba-tiba, semuanya terasa dingin. Udaranya sendiri terasa dingin, semua yang menyentuhku terasa sama dinginnya, bahkan suara dentingan yang kudengar pun terasa dingin. Semua yang indra kurasakan hanyalah dingin yang mutlak.
 
-Dan meskipun saya dalam situasi ini, saya tidak dapat bersuara, tubuh saya tidak bergerak, dan bahkan mata saya tidak dapat melihat apa pun.
+Dan meskipun aku dalam situasi ini, aku tidak dapat bersuara, tubuhku tidak bergerak, dan bahkan mataku tidak dapat melihat apa pun.
 
-Apakah saya ditutup matanya dan diikat pada sesuatu?
+Apakah mataku ditutup dan diikat dengan sesuatu?
 
-Meski begitu, saya harus bisa menggerakkan jari saya.
+Meski begitu, aku harus bisa menggerakkan jariku.
 
-Saya yakin saya harus bisa menggerakkan kepala dan meninggikan suara saya. Namun, saya pasti bisa merasakan tubuh saya, tetapi saya tidak bisa menggerakkan apa pun.
+Aku yakin aku bisa menggerakkan kepala dan meninggikan suaraku. tapi, walaupun aku bisa merasakan tubuhku, aku tidak bisa menggerakkan apa pun.
 
-Saya pasti harus mati, jadi apakah ini neraka?
+Aku pasti mati, jadi apakah ini neraka?
 
-Apakah saya akan disiksa seperti ini, tidak dapat melakukan apapun, selamanya? Akankah tubuh saya dibakar, terkelupas, dan terkoyak dengan indera saya yang utuh?
+Apakah aku akan disiksa seperti ini, tidak dapat melakukan apapun, selamanya? Akankah tubuhku dibakar, terkelupas, dan terkoyak?
 
-Semakin saya memikirkannya, semakin banyak pikiran saya muncul dengan jawaban yang mengerikan. Dan meskipun tubuhku harus menggigil, meskipun jantungku harus berdebar kencang, meskipun setidaknya aku harus mengeluarkan keringat dingin; fakta bahwa tidak satupun dari ini terjadi benar-benar menakutkan bagiku.
+Semakin aku memikirkannya, semakin banyak pikiranku muncul dengan jawaban yang mengerikan. Dan meskipun tubuhku harus menggigil, meskipun seharusnya jantungku berdebar kencang, meskipun seharusnya setidaknya aku mengeluarkan keringat dingin; fakta bahwa tidak satupun dari ini terjadi benar-benar menakutkan bagiku.
 
-Saya bertanya-tanya berapa lama waktu telah berlalu?
+Aku bertanya-tanya berapa lama waktu telah berlalu?
 
-Tidak ada yang terjadi sejak saat itu, jadi saya berhasil menenangkan diri sedikit.
+Tidak ada yang terjadi sejak saat itu dan aku berhasil menenangkan diriku sedikit.
 
-Meskipun saya tidak dapat melihat apa pun atau bahkan menggerakkan jari, karena saya masih sadar, saya mencoba memahami situasi saya saat ini. Dan ketika saya berpikir untuk melakukannya, penglihatan saya tiba-tiba menjadi jelas.
+Meskipun aku tidak dapat melihat apa pun atau bahkan menggerakkan jari, karena aku masih sadar, aku mencoba memahami situasiku saat ini. Dan ketika aku berpikir untuk melakukannya, penglihatanku tiba-tiba menjadi jelas.
