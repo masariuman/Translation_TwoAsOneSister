@@ -214,60 +214,80 @@ Menu makan malam mirip dengan beberapa makanan yang terlihat di Jepang; roti put
 
 Kami diberitahu untuk meninggalkan piring di luar pintu setelah makan tetapi untuk memulainya, Aku ragu apakah ini benar-benar baik untuk dimakan. Aku merasa kasihan pada Ciel, tapi aku harus membuatnya menahan diri untuk tidak makan untuk saat ini.
 
-"Maaf merepotkan saat kamu akan makan tapi jika memungkinkan, maukah kamu belum memakannya?"
-"...... Kenapa begitu?"
+a"Maaf merepotkan saat kamu akan makan tapi jika memungkinkan, maukah kamu tidak memakannya?"
 
-Tidak seperti biasanya, Ciel menjawab dengan nada tidak senang. Karena dia cenderung berharap untuk makan sejak dia menemukan makanan yang layak, ini sama sekali tidak mengherankan.
-Di catatan lain, kecuali saat pertempuran, Aku tidak pernah menghentikan tarian Ciel. Meskipun Aku tidak tahu bagaimana Ciel akan bereaksi jika Aku menghentikannya, ada hal-hal yang lebih baik tidak diketahui.
+c"...... Mengapa?"
+
+Tidak seperti biasanya, Ciel menjawab dengan nada tidak senang. Karena dia berharap untuk makan karena dia menemukan makanan yang layak, ini sama sekali tidak mengherankan.
+
+Di sisi lain, kecuali saat pertempuran, Aku tidak pernah menghentikan tarian Ciel. Meskipun Aku tidak tahu bagaimana Ciel akan bereaksi jika Aku menghentikannya, ada hal-hal yang lebih baik tidak diketahui.
 
 Kembali ke topik.
 
-Setelah menjawab "Mungkin ada semacam obat yang dicampur." Ke Ciel yang kesal, dia dengan enggan memelototi roti putih.
-Pil tidur dan obat mati rasa mungkin terjadi dan sementara Aku tidak bisa mengatakan hal yang sama untuk yang pertama, Aku mungkin tidak dapat melakukan apa pun jika yang terakhir. Karena itu, karena kita harus meninggalkan peralatan makan di luar, aku harus melakukan sesuatu tentang makan malam kita.
+Setelah menjawab "Mungkin ada semacam obat yang dicampur didalamnya." Ke Ciel yang kesal, dia dengan enggan memelototi roti putih.
 
-"Aku ingin mencoba beberapa hal agar bisa dimakan, jadi maukah Kamu mengganti Ciel?"
-"Silakan."
+Pil tidur dan obat mati rasa mungkin bisa saja ada didalamnya dan Aku tidak bisa mengatakan kedua obat itu sama sama karena Aku mungkin tidak dapat melakukan apa pun jika itu obat mati rasa. karena kami harus meninggalkan peralatan makan di luar, aku harus melakukan sesuatu tentang makan malam kami.
+
+a"Aku ingin mencobanya agar bisa dimakan, jadi maukah Kamu berganti denganku, Ciel?"
+
+c"baiklah."
 
 Aku tidak ingin makan makanan portabel ketika kami sudah memiliki makanan yang layak tepat di depan kami juga, jadi Aku harus mencoba yang terbaik.
-Meski begitu, yang paling bisa kulakukan adalah membuat penghalang yang berfungsi seperti filter.
-Seperti yang dinyatakan sebelumnya, Aku dapat membatasi apa yang melewati penghalang Aku. Memanfaatkan itu, ini akan menjadi percobaan apakah mungkin mengisolasi zat beracun atau tidak.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+Meski begitu, yang paling bisa kulakukan adalah membuat penghalang(pelindung/barier) yang berfungsi seperti filter.
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
+Seperti yang kukatakan sebelumnya, Aku dapat membatasi apa yang melewati penghalangku. Memanfaatkan itu, ini akan menjadi percobaan apakah mungkin dapat memisahkan zat beracun atau tidak.
 
 Untuk mengujinya, Aku membuat penghalang yang tidak bisa dilewati "Narkoba", lalu mencoba memasukkan roti putih ke dalamnya, tetapi tidak ada perubahan yang terjadi.
+
 Demikian juga, "Racun" juga tidak berpengaruh.
-Selanjutnya, Aku mencoba "Niat jahat" dan "Malice" dan kemudian roti tidak bisa melewati penghalang lagi.
+
+Selanjutnya, Aku mencoba "Niat jahat" dan "Niat Membunuh" dan kemudian roti tidak bisa melewati penghalangnya.
+
 Aku kemudian mencoba menjatuhkannya di atas penghalang berbentuk meja dan itu dengan sempurna berada di atasnya, jadi tidak salah lagi.
-Dengan kata lain, roti ini adalah segumpal niat buruk dan kebencian.
-Aku juga mencoba hal-hal lain yang terlintas di pikiran Aku, tetapi tidak ada hasil yang baik.
-Juga, ini menggunakan cukup banyak kekuatan sihir, jadi sepertinya aku tidak bisa terus bereksperimen tanpa henti.
+
+Dengan kata lain, roti ini adalah segumpal niat buruk dan Niat Membunuh.
+
+Aku juga mencoba hal-hal lain yang terlintas di pikiranku, tetapi tidak ada hasil yang baik.
+
+ini juga menggunakan cukup banyak kekuatan sihir, jadi sepertinya aku tidak bisa terus bereksperimen tanpa henti.
 
 Di sisi lain, ketika Aku mencoba membuat penghalang yang hanya memungkinkan roti untuk lewat, itu menembus tanpa ada tanda-tanda perlawanan.
-Meskipun secara praktis Aku yakin ada sesuatu yang tercampur di dalam roti ini, karena masih mengalir tanpa meninggalkan apa pun, Aku rasa obat tersebut sudah menjadi komponen yang tidak dapat dipisahkan sebagai roti.
 
-With that being the case, my last resort was a barrier that would allow only the bread’s ingredients to pass through. Wheat flour, salt, butter, yeast, eggs…… what else were there besides that…
-I’ve never made bread before and, to begin with, I’m not sure if they’re even made with these same ingredients here.
-Anyhow, since it’s fine as long as I exclude the drug, I enumerated every ingredient I could think of, and as the white bread went through, some white powder remained on the barrier.
-This should be sleeping powder or something. I’d hate to inhale it by accident, so I made a box with the barrier and sealed it inside a jar.
+Meskipun Aku yakin ada sesuatu yang tercampur di dalam roti ini, karena masih lewat tanpa meninggalkan apa pun, Aku rasa obat tersebut sudah menjadi komponen yang tidak dapat dipisahkan dari roti.
 
-Setelah melangkah sejauh ini, Aku mulai mempertanyakan apa sebenarnya penghalang itu, tetapi semua yang Aku lakukan harus berada dalam batas yang diketahui.
-Bagaimanapun, karena itu berjalan dengan baik, Aku harus memberi tahu Ciel.
+Dengan demikian, pilihan terakhirku adalah penghalang yang hanya memungkinkan bahan roti untuk melewatinya. Tepung terigu, garam, mentega, ragi, telur ... yang ada selain itu...
 
-"Dengan ini, roti putih seharusnya aman untuk dimakan, kurasa."
-"Ain, kamu bisa memakannya, tahu?"
-"Aku akan meninggalkan makan untukmu, Ciel. Tetap saja, penghalang ini membutuhkan cukup banyak usaha, jadi mohon tahan dengan ini dan steaknya. "
-" Aku sudah senang makan bahkan beberapa ini.
-Selain itu, akan agak sulit bagiku untuk menyelesaikan semua ini. "
+aku tidak pernah membuat roti sebelumnya dan pada dasarnya, aku tidak yakin apakah itu dibuat dengan bahan yang sama di sini.
 
-Poin yang bagus. Bagaimanapun, sementara Ciel suka makan, dia tidak bisa makan sebanyak itu.
-Setelah mendetoksifikasi (?) Steak, Aku beralih dengan Ciel.
-Ciel mengambil roti pertama, merobek seteguk, dan memakannya.
-Ya. Ini enak. Meskipun rasanya sudah lembut, Aku masih bisa merasakan manisnya gandum, dan teksturnya yang lembut sama sekali tidak buruk. Meskipun, karena sayangnya Aku mengambil terlalu banyak waktu, roti yang dulu baru dipanggang sekarang menjadi dingin, dan setelah dengan paksa mengeluarkan bagian yang berbahaya selama detoksifikasi, roti juga terasa berlubang.
+Bagaimanapun juga, karena tidak apa-apa selama aku mengecualikan obatnya, aku menyebutkan setiap bahan yang dapat aku pikirkan, dan saat roti putih habis, beberapa bubuk putih tetap ada di penghalang.
 
-Adapun steak, bagaimana Aku harus mengatakan ini, itu memiliki rasa daging yang kuat.
-Hampir tidak ada lemak, hampir semua daging tanpa lemak. Ini memiliki rasa dasar yang lebih baik dibandingkan dengan daging sapi.
+Ini pasti bubuk tidur atau semacamnya. aku tidak ingin menghirupnya secara tidak sengaja, jadi aku membuat kotak dengan penghalang dan menyegelnya di dalam stoples.
+
+Setelah melangkah sejauh ini, Aku mulai mempertanyakan apa sebenarnya penghalang itu, tetapi semua yang Aku lakukan pasti berada dalam batas yang diketahui.
+
+karena itu berjalan dengan baik, Aku harus memberi tahu Ciel.
+
+a"Dengan ini, roti putih seharusnya aman untuk dimakan, kurasa."
+
+c"Ain, kamu bisa memakannya lho..."
+
+a"Aku akan membiarkanmu untuk makan, Ciel. Tetap saja, penghalang ini membutuhkan cukup banyak usaha, jadi mohon tahanlah dengan ini dan steaknya."
+
+c"Aku sudah senang makan bahkan dengan ini saja. Selain itu, akan agak sulit bagiku untuk menghabiskan semua ini."
+
+benar juga. Bagaimanapun juga, Ciel suka makan tapi dia tidak bisa makan sebanyak itu.
+
+Setelah mendetoksifikasi Steak, Aku berganti dengan Ciel.
+
+Ciel mengambil roti pertama, merobek, dan memakannya.
+
+Ya. Ini enak. Meskipun rasanya sudah lembut, Aku masih bisa merasakan manisnya gandum, dan teksturnya yang lembut sama sekali tidak buruk. karena Aku mengambil terlalu banyak waktu, roti yang baru dipanggang sekarang menjadi dingin, dan setelah dengan paksa mengeluarkan bagian yang berbahaya selama detoksifikasi, roti juga terasa berlubang.
+
+untuk steak, bagaimana ya, itu memiliki rasa daging yang kuat.
+
+Hampir tidak ada lemak, hampir semua daging tanpa lemak. steak ini memiliki rasa dasar yang lebih baik dibandingkan dengan daging sapi.
+
 Singkatnya, enak.
 
 Tampak puas juga, Ciel terlihat sangat bahagia.
