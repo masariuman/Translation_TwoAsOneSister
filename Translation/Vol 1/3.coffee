@@ -46,40 +46,53 @@ a"Yah terima kasih untuk itu, kekuatan sihir kita meningkat cukup banyak."
 c"iya."
 
 a"Ngomong-ngomong, haruskah kita pergi ke depan dan menginap ditempat yang kenalkan untuk kita?"
------------------
-"Ummm ...... jika aku bilang aku mau karena Aku ingin tahu, apakah Kamu akan marah?"
 
-"Aku tidak akan. Tapi itu hanya ... mungkin agak berbahaya."
+c"Ummm ...... jika aku bilang aku mau karena Aku penasaran, apakah Kamu akan marah?"
 
-"Kalau begitu, aku akan siap kabur kapan saja."
+a"tidak akan. Tapi itu hanya ... mungkin agak berbahaya."
 
-Mengingat Ciel sudah memiliki tekad, seharusnya tidak masalah untuk mencobanya.
+c"Kalau begitu, aku akan siap kabur kapan saja."
+
+Mengingat Ciel sudah bertekad, seharusnya tidak masalah untuk mencobanya.
+
 Ciel tampaknya memiliki alasannya sendiri dan sangat tidak biasa baginya untuk mengatakan hal-hal seperti itu juga.
-Saat Aku terus mengobrol dengan Ciel sambil membiarkan cerita Anicet keluar dari telinga Aku yang lain, kami berhenti di depan sebuah bangunan yang memiliki keindahan porselen putih.
-Meskipun terlihat seperti penginapan yang mahal, sepertinya tidak ditujukan untuk para bangsawan. Tampaknya menargetkan rakyat jelata yang ingin berbelanja secara royal.
 
-"Benar, benar, ini penginapannya. Aku berteman dengan pemilik di sini, Kamu paham? Biasanya akan mahal untuk tinggal di sini, tetapi jika hanya satu malam, mereka harus membiarkan Kamu tinggal secara gratis. "
-" Itu luar biasa. Meskipun itu penginapan yang luar biasa. "
-"Hahaha. Agak. Pokoknya, masuk ke dalam sekarang. "
+Saat Aku terus mengobrol dengan Ciel sambil membiarkan cerita Anicet keluar dari telinga Aku yang lain, kami berhenti di depan sebuah bangunan yang memiliki keindahan porselen putih.
+
+Meskipun terlihat seperti penginapan yang mahal, sepertinya tidak ditujukan untuk para bangsawan. Tampaknya menargetkan rakyat jelata yang ingin berbelanja secara mewah.
+
+"Benar, benar, ini penginapannya. Aku berteman dengan pemilik di sini. Biasanya akan mahal untuk tinggal di sini, tetapi jika hanya satu malam, mereka bisa membiarkan Kamu tinggal secara gratis."
+
+c" Itu luar biasa. Meskipun itu penginapan yang luar biasa. "
+
+"Hahaha. seperti itulah. yaah, masuklah ke dalam sekarang."
 
 Didorong dari belakang, kami didorong ke penginapan. Dengan interior kelas atas, sebagian besar berwarna putih, sulit untuk menyebut tempat ini untuk masyarakat umum.
+
 Mengingat biasanya kami memilih tempat yang tidak terlalu murah atau terlalu mahal, penginapan ini terasa jauh di luar budget kami.
-Tempat yang murah tentu saja keluar karena alasan keamanan, sementara di sisi lain, tinggal di tempat yang sangat mahal akan berisiko kita dianggap sebagai anak yang punya uang.
-Terutama dalam kasus Ciel, karena penampilannya, sudah umum bagi Ciel untuk disalahartikan sebagai bangsawan dan dilihat sebagai anak bangsawan tanpa pendamping menjadikannya sasaran empuk untuk penculikan.
 
-Meskipun kami bukan tipe yang akan diculik tanpa perlawanan; jika keadaan menjadi serius, akan ada kemungkinan menonjol, jadi Aku ingin menghindarinya sebisa mungkin.
-Juga, Ciel tidak suka kalau beban kerja Aku meningkat.
-Meskipun sudah terlambat menurut pendapat Aku, mengingat Aku mengoperasikan penghalang sepanjang waktu untuk melindungi Ciel, tampaknya sikap Ciel adalah bahwa dia ingin Aku beristirahat sedikit lagi.
+Tempat yang murah tentu saja karena alasan keamanan, sementara di sisi lain, tinggal di tempat yang sangat mahal akan berisiko kita dianggap sebagai anak yang punya uang.
 
-"Hei, sudah lama. Gadis ini adalah seorang VIP , Kamu tahu. Jika memungkinkan, bisakah Kamu memberinya layanan? "
+Terutama dalam kasus Ciel, karena penampilannya, sudah umum bagi Ciel untuk disalahartikan sebagai bangsawan dan dilihat sebagai anak bangsawan tanpa pendamping dan menjadikannya sasaran empuk untuk penculikan.
+
+Meskipun kami bukan tipe yang akan diculik tanpa perlawanan; jika keadaan menjadi serius, akan ada kemungkinan kami akan menonjol, jadi Aku ingin menghindarinya sebisa mungkin.
+
+Juga, Ciel tidak suka kalau beban kerjaku meningkat.
+Meskipun sudah terlambat menurut pendapatku, mengingat Aku memakai pelindung(barier) sepanjang waktu untuk melindungi Ciel, sepertinya Ciel ingin Aku beristirahat sedikit.
+
+"Hei, sudah lama ya. Gadis ini adalah seorang VIP. Jika memungkinkan, bisakah Kamu memberinya beberapa layanan?"
 
 Sesampainya di meja resepsionis, Anicet berbicara dengan seorang wanita yang duduk dengan mata tertutup yang terlihat hampir seusianya.
+
 Memiliki perasaan yang agak dingin padanya, wanita itu menatapku dengan tatapan tajam sebelum menutup matanya lagi dan mengangguk.
 
-"Jika itu masalahnya, sebagai VIP Anicet- sama , kami dapat menawarkan uji coba satu malam di kamar khusus ."
-"Kalau begitu, ayo lakukan itu."
-"Nona muda, apakah Kamu baik-baik saja? "
-" Selama Aku bisa tinggal gratis ...... "
+"kalau begitu, sebagai VIP Anicet-sama , kami dapat menawarkan uji coba satu malam di kamar khusus."
+
+"Kalau begitu, ayo kita coba itu."
+
+"Nona muda, apakah Kamu baik-baik saja?"
+
+c"Selama Aku bisa tinggal gratis ......"
 
 Bukannya Aku benar-benar memikirkan itu bahkan sedikit pun. Kami sama sekali tidak punya masalah dengan uang.
 Sebaliknya, tas ajaib yang kami dapat dari Carol- san mulai penuh, jadi Aku ingin menggunakan uang kami.
