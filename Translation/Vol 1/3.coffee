@@ -3,6 +3,8 @@ Ch 3 : Ibukota Kerajaan, Penginapan, dan Narkoba
 Catatan :
 a = Ainz (Karakter Utama)
 c = Ciel (Pemilik Tubuh Utama)
+
+untuk yang bingung, seperti ch sebelumnya, jadi si MC semacam jadi roh pendamping ciel, ya si mc bisa merasuki ciel juga... anggep aja numpang ngendalikan tubuh...
 --------------------------------------------------
 
 didunia ini, Ibukota kerajaan Memiliki jumlah orang yang luar biasa.
@@ -13,11 +15,11 @@ ini hampir malam, jadi aku tidak bisa melihatnya dengan baik.
 
 di ibu kota, kami melihat Milea-san pergi setelah dia memarkir kereta kudanya di toko mereka, sebelum Anicet memandu kami ke penginapan.
 
-c"Jadi Kamu punya toko sendiri?"
+a"Jadi Kamu punya toko sendiri?"
 
 "ada Tapi kecil. anak perempuan kami sedang menunggu kami di sana."
 
-c"He ~ eh , kamu punya anak ya."
+a"He ~ eh , kamu punya anak ya."
 
 "yaaaah, dia bukan pada umur untuk kamu sebut bocah. Dia berusia 18 tahun ini. Dia juga cukup cerdas dan populer di distrik orang biasa, kamu tahu... "
 
@@ -63,7 +65,7 @@ Meskipun terlihat seperti penginapan yang mahal, sepertinya tidak ditujukan untu
 
 "Benar, benar, ini penginapannya. Aku berteman dengan pemilik di sini. Biasanya akan mahal untuk tinggal di sini, tetapi jika hanya satu malam, mereka bisa membiarkan Kamu tinggal secara gratis."
 
-c" Itu luar biasa. Meskipun itu penginapan yang luar biasa. "
+a"Itu luar biasa. Meskipun itu penginapan yang luar biasa. "
 
 "Hahaha. seperti itulah. yaah, masuklah ke dalam sekarang."
 
@@ -92,85 +94,124 @@ Memiliki perasaan yang agak dingin padanya, wanita itu menatapku dengan tatapan 
 
 "Nona muda, apakah Kamu baik-baik saja?"
 
-c"Selama Aku bisa tinggal gratis ......"
+a"Selama Aku bisa tinggal gratis ......"
 
 Bukannya Aku benar-benar memikirkan itu bahkan sedikit pun. Kami sama sekali tidak punya masalah dengan uang.
-Sebaliknya, tas ajaib yang kami dapat dari Carol- san mulai penuh, jadi Aku ingin menggunakan uang kami.
-Sebenarnya, mungkin kita harus mendapatkan dompet yang berbeda untuk digunakan untuk koin senilai perak ke bawah.
 
-"Nah, Aku akan pergi sekarang. Kami ada dalam hutangmu, nona kecil. "
-" Jangan sebutkan itu, aku juga merasakan hal yang sama. "
-" Sekarang, izinkan aku untuk membawamu ke kamarmu. "
+Sebaliknya, tas ajaib yang kami dapat dari Carol-san mulai penuh, jadi Aku ingin menggunakan uang kami.
+
+Sebenarnya, mungkin kami harus mendapatkan dompet yang berbeda untuk digunakan untuk koin senilai perak ke bawah.
+
+"Nah, Aku akan pergi sekarang. aku berhutang padamu, nona kecil."
+
+a"Jangan berkata seperti itu, aku juga merasakan hal yang sama."
+
+"Sekarang, izinkan aku untuk membawamu ke kamarmu."
+
 Selesai check-in, Anicet meninggalkan penginapan. Sepertinya dia tidak tinggal di sini.
+
 Dia mungkin tidak punya cukup uang untuk tinggal di sini dan karena dia punya toko, Aku kira dia menuju ke sana.
 
-"Nama Kamu, Aku harus memanggil Kamu apa?"
-"Aku tidak punya nama untuk ditawarkan kepada tamu kami."
+a"Namamu, Aku harus memanggilmu apa?"
 
-Aku mencoba menanyakan itu di jalan, tetapi dia hanya membalas jawaban singkat itu.
-Bukannya dia memiliki label nama seperti yang dilakukan karyawan di Jepang modern, meskipun mungkin ada beberapa orang yang tidak ingin memberikan nama mereka juga.
+"Aku tidak punya nama untuk diberikan kepada tamu kami."
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+Aku mencoba menanyakan itu, tetapi dia hanya membalas jawaban singkat itu.
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+yaah dia tidak memiliki label nama seperti yang dilakukan  karyawan di Jepang modern, meskipun mungkin ada beberapa orang yang tidak ingin memberikan nama mereka juga.
 
-"Saya tidak bisa menahan perasaan curiga tapi Aku bertanya-tanya apakah Aku terlalu skeptis?"
-"Tapi Ain, Kamu tidak waspada, kan?"
-"Itu karena tidak ada gunanya waspada. Selain itu, jika dia memperhatikan bahwa kita sangat tegang, kita mungkin tidak punya waktu untuk istirahat. Namun, alangkah baiknya jika Aku hanya terlalu khawatir. "
-" Jadi masalahnya apakah kita bisa istirahat atau tidak? "
-" Itu karena Aku ingin mandi. "
-" Ain benar-benar suka mandi. . "
+a"Aku tidak bisa menahan perasaan curiga tapi Aku bingung apakah Aku terlalu skeptis?"
+
+c"Tapi Ain, Kamu tidak waspada, kan?"
+
+a"Itu karena tidak ada gunanya waspada. Selain itu, jika dia memperhatikan bahwa kita sangat tegang, kita mungkin tidak punya waktu untuk istirahat. alangkah baiknya jika Aku hanya terlalu khawatir."
+
+c"Jadi masalahnya apakah kita bisa istirahat atau tidak?"
+
+a"Itu karena Aku ingin mandi."
+
+c"Ain benar-benar suka mandi.."
 
 "Ini akan menjadi kamar Kamu."
-"Terima kasih banyak."
-"Kami akan mengantarkan makanan ke kamar Kamu, jadi silakan bersantai dan melepas lelah."
 
-Kamar yang kami tunjukkan ternyata sangat luas. Perabotan yang ada hanyalah tempat tidur, meja, kursi, dan rak pakaian, ukurannya dua kali lipat dari kamar penginapan biasa.
+a"Terima kasih banyak."
+
+"Kami akan mengantarkan makanan ke kamarmu, jadi silakan bersantai dan melepas lelah."
+
+Kamar yang diberikan kepada kami ternyata sangat luas. Perabotan yang ada hanyalah tempat tidur, meja, kursi, dan rak pakaian, ukurannya dua kali lipat dari kamar penginapan biasa.
+
 Tempat tidurnya juga lebih besar, dengan seprai putih bersihnya tidak memiliki satu lipatan pun.
-Kamar mandi dan bak mandi juga luas, jadi jika bukan karena kekhawatiran Aku, ini akan menjadi kamar yang sempurna.
 
-"Karena kita berada di kamar kita sekarang, Aku akan mengembalikan tubuh Kamu, oke?"
-"Ain, tidak apa-apa menggunakannya lebih lama, Kamu tahu?"
-"Saya sudah banyak menggunakannya untuk hari ini ...... Apakah apa Aku ingin mengatakannya, tetapi Aku mungkin akan memiliki kesempatan untuk meminjamnya lagi segera, jadi Aku akan menggunakannya nanti. "
-" Dimengerti. Lalu bagaimana kalau kita mandi sekarang? "
-" Sungguh! "
-" Tentu saja, itu membuat Ain sangat bahagia. "
+Kamar mandi dan bak mandi juga luas, jadi jika bukan karena kekhawatiranku, ini akan menjadi kamar yang sempurna.
 
-Ciel terkikik ketika dia mendengar Aku senang, tetapi Aku harap dia tidak akan keberatan Aku merasa seperti ini.
-Lagipula, sebagai mantan orang Jepang, hanya ketika Aku bisa mandi setelah sepuluh tahun tidak bisa melakukannya, kali ini karena Aku bahkan tidak yakin apakah Aku bisa mandi atau tidak karena gaya hidup kita saat ini.
+a"Karena kita berada di kamar kita sekarang, Aku akan mengembalikan tubuhmu, oke?"
+
+c"Ain, tidak apa-apa menggunakannya lebih lama lho?"
+
+a"Aku sudah banyak menggunakannya untuk hari ini ...... bisa kukatakan, Aku mungkin akan memiliki kesempatan untuk meminjamnya lagi segera, jadi Aku akan menggunakannya nanti."
+
+c"Baiklah. Lalu bagaimana kalau kita mandi sekarang?"
+
+a"Serius!"
+
+c"Tentu saja, itu membuat Ain sangat bahagia."
+
+Ciel terkikik ketika dia mendengarku senang, tetapi Aku harap dia tidak akan keberatan Aku merasa seperti ini.
+
+Lagipula, sebagai mantan orang Jepang, hanya ketika Aku bisa mandi setelah sepuluh tahun tidak bisa melakukannya, kali ini, Aku bahkan tidak yakin apakah Aku bisa mandi atau tidak karena gaya hidup kita saat ini.
+
 Aku bisa menahannya. Aku bisa menahannya, tapi aku tetap ingin mandi.
 
-Ciel melepas pakaiannya, melepaskannya dari kulitnya yang seperti sutra. Tubuhnya sekarang lebih sehat daripada sebelumnya. Dia terlalu kurus di masa lalu, dia pasti masih langsing sampai sekarang.
+Ciel melepas pakaiannya, melepaskannya dari kulitnya yang seperti sutra. Tubuhnya sekarang lebih sehat daripada sebelumnya. Dia terlalu kurus di masa lalu, dia masih langsing sampai sekarang.
+
 Meskipun dia mendapatkan beberapa otot karena sering menari, dia masih memiliki kelembutan feminin pada tubuhnya.
+
 Aku selalu berbicara tentang kecantikan dan kesehatannya, jadi melihat Ciel tetap cantik terasa sangat memuaskan.
 
 Memasuki kamar mandi, Ciel membasuh kepala dan tubuhnya, lalu merendam dirinya di bak mandi.
+
 Meskipun merendam rambut dalam air biasanya tidak baik, rambut putih bersih Ciel yang terurai di air panas sangat indah untuk dilihat.
-Padahal, satu-satunya alasan Aku mengizinkan ini adalah karena Aku menggunakan penghalang Aku.
+
+satu-satunya alasan Aku mengizinkan ini adalah karena Aku menggunakan pelindungku(barier).
+
 Tetap saja, pemandangan rambutnya yang menempel di lengannya saat dia mengangkatnya dari bak mandi tampak hampir seperti sebuah karya seni.
 
 ◇
-Saat keluar dari kamar mandi, aku meminta Ciel bersamaku dan mengeringkan rambutnya.
-Itu sihir yang bisa dilakukan Ciel tetapi mengingat keselamatannya, yang terbaik adalah aku melakukannya.
 
-"Kita harus segera beralih secara tak terduga."
-"Aku lupa fakta bahwa kita beralih saat mengeringkan rambut."
-"Haruskah kita tetap seperti ini untuk hari ini?"
-"Sejujurnya, itu bukan ide yang buruk tetapi Kamu harus mengistirahatkan tubuh, Ciel. Karena jika terjadi sesuatu, mengingat Aku tidak memiliki kemampuan menyerang, Aku akhirnya harus bertukar dengan Kamu. "
-" Kalau begitu, maukah Kamu setidaknya meluangkan waktu untuk ini, Ain?
-Saat ini ketika Ain mengeringkan rambut Aku untuk Aku, Aku sangat suka jujur. "
-" Dimengerti. Namun, melakukan ini terlalu lama juga tidak akan baik, jadi Aku akan berhenti setelah kering, oke? "
-" Tentu saja, Aku tidak ingin Ain membenci Aku. After
-"Saya tidak akan membenci Kamu hanya karena itu, Kamu tahu? "
-"Fufu.Ain, Terima kasih. "
-" Jangan khawatir, dengan senang hati. "
+Saat keluar dari kamar mandi, aku meminta Ciel berganti tubuh denganku dan mengeringkan rambutnya.
+
+Itu sihir yang bisa dilakukan Ciel tetapi mengingat keselamatannya, akan lebih baik aku melakukannya.
+
+c"Kita harus siap berganti tubuh secara tak terduga segera."
+
+a"Aku lupa fakta bahwa kita berganti saat mengeringkan rambut."
+
+c"Haruskah kita tetap seperti ini untuk hari ini?"
+
+a"Sejujurnya, itu bukan ide yang buruk tetapi Kamu harus mengistirahatkan tubuh, Ciel. Karena jika terjadi sesuatu, mengingat Aku tidak memiliki kemampuan menyerang, Aku akhirnya harus berganti denganmu."
+
+c"Kalau begitu, maukah Kamu setidaknya meluangkan waktu untuk ini, Ain? Saat ini ketika Ain mengeringkan rambutku untukku, jujur Aku sangat menyukainya jujur."
+
+a"Baiklah. Namun, melakukan ini terlalu lama juga tidak baik, jadi Aku akan berhenti setelah kering, oke?"
+
+c"Tentu saja, Aku tidak ingin Ain membenciku."
+
+a"Aku tidak akan membencimu hanya karena itu kok."
+
+c"Fufu... Ain, Terima kasih."
+
+a"Jangan khawatir, dengan senang hati."
 
 Saat Aku mengeringkan rambutnya, Ciel memang tampak lebih santai, atau lebih tepatnya, mengantuk.
-Dan bahkan pada saat dia berterima kasih padaku, dia terdengar hampir setengah tertidur menurutku.
+
+Dan bahkan pada saat dia berterima kasih padaku, dia terdengar hampir setengah tertidur.
+
 Jika itu membuatnya bahagia, maka dengan senang hati aku akan melakukannya. Meskipun, bahkan jika Ciel tertidur, aku mungkin tidak akan keberatan.
 
-Pada saat rambutnya kering, ada ketukan dari pintu kami, dan Miss No-name-to-offer dari meja resepsionis membawakan kami makan malam.
-Menu makan malam mirip dengan beberapa makanan yang terlihat di Jepang; roti putih, rusa berkaki besar — ​​saya diberitahu bahwa itu benar-benar rusa berkaki besar — ​​serta sup berisi sayuran dan, juga, salad. Dihadapkan pada makanan yang jarang terlihat di tempat lain, mata Ciel mulai berbinar.
+Pada saat rambutnya kering, ada ketukan dari pintu kami, dan nona tanpa nama dari meja resepsionis membawakan kami makan malam.
+
+Menu makan malam mirip dengan beberapa makanan yang terlihat di Jepang; roti putih, rusa berkaki besar — aku diberitahu bahwa itu benar-benar rusa berkaki besar — ​​serta sup berisi sayuran dan, juga, salad. Dihadapkan pada makanan yang jarang terlihat di tempat lain, mata Ciel mulai berbinar.
+
 Kami diberitahu untuk meninggalkan piring di luar pintu setelah makan tetapi untuk memulainya, Aku ragu apakah ini benar-benar baik untuk dimakan. Aku merasa kasihan pada Ciel, tapi aku harus membuatnya menahan diri untuk tidak makan untuk saat ini.
 
 "Maaf merepotkan saat kamu akan makan tapi jika memungkinkan, maukah kamu belum memakannya?"
@@ -184,7 +225,7 @@ Kembali ke topik.
 Setelah menjawab "Mungkin ada semacam obat yang dicampur." Ke Ciel yang kesal, dia dengan enggan memelototi roti putih.
 Pil tidur dan obat mati rasa mungkin terjadi dan sementara Aku tidak bisa mengatakan hal yang sama untuk yang pertama, Aku mungkin tidak dapat melakukan apa pun jika yang terakhir. Karena itu, karena kita harus meninggalkan peralatan makan di luar, aku harus melakukan sesuatu tentang makan malam kita.
 
-"Saya ingin mencoba beberapa hal agar bisa dimakan, jadi maukah Kamu mengganti Ciel?"
+"Aku ingin mencoba beberapa hal agar bisa dimakan, jadi maukah Kamu mengganti Ciel?"
 "Silakan."
 
 Aku tidak ingin makan makanan portabel ketika kami sudah memiliki makanan yang layak tepat di depan kami juga, jadi Aku harus mencoba yang terbaik.
