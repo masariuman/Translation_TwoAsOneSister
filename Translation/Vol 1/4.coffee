@@ -144,11 +144,11 @@ sekarang adalah jam makan seperti biasanya, rasa jijik yang seperti biasanya jug
 
 Tetapi pada hari itu, sebelum memberi makan anak itu, pria itu berbicara agak lama dengannya.
 
-Di suatu tempat dalam pikiranku aku berharap, mungkin waktu makan yang menjijikkan ini akhirnya akan berakhir hari ini. Namun, itu tidak terjadi, dan pria itu merobek pakaian gadis itu dan mengacungkan pisaunya ke perut putih mulus gadis itu.
+Di suatu tempat dalam pikiranku aku berharap, mungkin waktu makan yang menjijikkan ini akhirnya akan berakhir hari ini. Namun, itu tidak terjadi, dan pria itu merobek pakaian anak itu dan mengacungkan pisaunya ke perut putih mulus anak itu.
 
 Kamu akan berpikir bahwa aku akan terbiasa terluka cukup dalam hingga aku dapat melihat organ-organnya setelah mengalaminya setiap hari, tetapi aku tidak dapat membantu untuk membalasnya.
 
-Setelah menuangkan cairan ke dalam lukanya, dan menyembuhkan gadis itu seperti biasa, lelaki itu dengan bersemangat memindahkan tangannya ke kaki gadis itu.
+Setelah menuangkan cairan ke dalam lukanya, dan menyembuhkan anak itu seperti biasa, lelaki itu dengan bersemangat memindahkan tangannya ke kaki anak itu.
 
 Biasanya dia akan mendandaninya dan pergi, jadi aku curiga dia berencana menggunakan obat aneh lagi. Saat itu juga, dia mengambil wadah lain yang dia bawa dan menuangkan cairan berlendir ke tubuh bagian bawah dan jarinya.
 
