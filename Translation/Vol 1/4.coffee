@@ -59,127 +59,167 @@ Aku tidak tahu seberapa besar ancaman tikus di dunia ini, tetapi mereka tampakny
 
 Bahkan anak ini sedang digigit sekarang, tapi karena penghalangku melindunginya, tidak ada masalah untuk saat ini. Satu-satunya hal yang berkurang adalah kekuatan sihirku.
 
-------------
-
 Setelah beberapa saat, tikus-tikus itu mulai saling menggigit.
-Karena anak itu tertidur, sepertinya aku tidak bisa melihat, tapi mungkin karena aku menggunakan sihir pendeteksi, aku akhirnya mengetahui semua detail dari apa yang terjadi.
+
+Karena anak itu tertidur, bukannya aku bisa melihat, tapi mungkin karena aku menggunakan sihir pendeteksi, aku akhirnya mengetahui semua detail dari apa yang terjadi.
+
 Lebih buruk lagi, bau daging dan darah melayang ke seluruh ruangan.
-Tambahkan jeritan tikus yang sekarat, ini seperti pemandangan dari neraka. Tidak terlalu bagus untuk kewarasan Aku.
+
+dan juga jeritan tikus yang sekarat, ini seperti pemandangan dari neraka. Tidak terlalu bagus untuk diriku.
 
 Setelah beberapa saat, tikus-tikus itu tiba-tiba menghilang. Ini mungkin karena sihir juga, tapi saat ini itulah yang terbaik yang bisa aku tebak.
-Itu jauh lebih membuat stres daripada yang Aku harapkan, tetapi Aku senang dia tidak bangun.
 
-Sambil berpikir demikian, kesadaran Aku perlahan mulai tertidur.
+ini jauh lebih membuat stres daripada yang Aku harapkan, tetapi Aku senang dia tidak bangun.
+
+Sambil berpikir demikian, kesadaranku perlahan mulai tertidur.
 
 ◇◇◇
+
 Pada hari lain, larva kumbang besar dikirim masuk.
-Tidak seperti tikus, mereka tidak benar-benar menggigit. Tetap saja, melihat hanya satu dari mereka adalah hal lain, tetapi gambaran kerumunan dari mereka yang menggeliat kemungkinan cukup untuk membuat beberapa orang pingsan.
+
+Tidak seperti tikus, mereka tidak benar-benar menggigit. Tetap saja, melihat hanya satu saja tidak masalah, tetapi gambaran kerumunan dari mereka yang menggeliat kemungkinan cukup untuk membuat beberapa orang pingsan.
+
 Dan terlebih lagi, sepertinya mereka mencoba mencari ruang sempit untuk menggeliat, dan mereka semakin menggeliat ke bawah.
-Jika Kamu memasukkan seseorang ke dalam kerumunan ini, mereka mungkin akan merangkak lebih dari sekadar mulut mereka; dan jika itu perempuan, sudah jelas apa yang akan mereka lakukan. Sungguh, aku tidak bisa mengatakan apakah dia licik atau hanya jahat, tapi aku sangat senang bisa menggunakan penghalang.
+
+Jika Kamu memasukkan seseorang ke dalam kerumunan ini, mereka mungkin akan masuk lebih dari sekadar mulut mereka; dan jika itu perempuan, sudah jelas apa yang akan mereka lakukan. Sungguh, aku tidak bisa mengatakan apakah dia licik atau hanya jahat, tapi aku sangat senang bisa menggunakan penghalang.
 
 Tetapi suatu hari, sesuatu terjadi.
-Itu adalah salah satu dari sekian banyak banjir yang terjadi. Aku merasa seperti sedang mengembangkan trypophobia dan sekarang Aku ingin mendorong semua jenis serangga menuju kepunahan.
-Sepertinya kali ini, dengan melihat benda-benda berkaki delapan seukuran telapak tangan yang melompat-lompat, dia pergi dengan laba-laba.
 
-Mereka datang dengan tergesa-gesa ke sel dan menggigit di mana-mana seperti tikus, tetapi jika hanya sebanyak ini, tidak apa-apa. Namun, melihat bagaimana beberapa dari mereka terlihat seperti sedang meleleh, mereka mungkin berbisa.
-Karena aku merasuki anak itu sekarang, aku tidak bisa melihat apapun; jadi jika aku bisa menahan rasa jijik yang mendidih dalam diriku, itu akan baik-baik saja. Atau begitulah yang Aku pikirkan ketika cahaya tiba-tiba bersinar melalui mata Aku.
+Itu adalah salah satu dari sekian banyak kerumunan yang terjadi. Aku merasa seperti sedang mengembangkan trypophobia dan sekarang Aku ingin memusnahkan seluruh serangga.
 
-Tiba-tiba di bidang penglihatan Aku, Aku melihat kakinya yang berbulu, matanya yang merah, dan tubuhnya yang sakit.
+kali ini, dengan melihat benda-benda berkaki delapan seukuran telapak tangan yang melompat-lompat, dia menggunakan laba-laba.
+
+Mereka datang pergi dengan cepat ke ruangan dan menggigit seperti tikus. tetapi jika hanya sebanyak ini, tidak apa-apa. Namun, melihat bagaimana beberapa dari mereka terlihat seperti sedang meleleh, mereka mungkin berbisa.
+
+Karena aku merasuki anak itu sekarang, aku tidak bisa melihat apapun; jadi jika aku bisa menahan rasa jijik yang mendidih dalam diriku, itu akan baik-baik saja. Atau begitulah yang Aku pikirkan ketika cahaya tiba-tiba bersinar melalui mataku.
+
+Tiba-tiba di penglihatanku, Aku melihat kaki yang berbulu, mata yang merah, dan tubuh yang terluka.
+
 Kemudian Aku mendengar suara yang tidak menyenangkan.
-Beberapa dari mata itu mengalihkan pandangannya ke arah kami dan mulai mendekat. Karena mereka terhalang oleh penghalang, Aku tidak dapat merasakan sentuhan mereka dan Aku tahu bahwa tidak apa-apa, tetapi menyadari apa yang terjadi pada kami sekali lagi, Aku tiba-tiba merasa mual ke intinya.
 
-Ada sebanyak ini di depan mataku. Aku yakin ada seribu lebih dari mereka merayap di sekujur tubuhnya.
+Beberapa dari mata itu mengalihkan pandangannya ke arah kami dan mulai mendekat. Karena mereka terhalang oleh penghalang, Aku tidak dapat merasakan sentuhan mereka dan Aku tahu bahwa tidak apa-apa, tetapi menyadari apa yang terjadi pada kami sekali lagi, Aku tiba-tiba merasa mual sekali.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
-
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Ada banyak sekali di depan mataku. Aku yakin ada seribu lebih dari mereka merayap di sekujur tubuh ini.
 
 Aku merasa sakit.
 Aku merasa sakit.
 Aku merasa sakit.
 
-Baik atau buruk, anak itu mungkin merasa jijik dan segera menutup matanya, tapi sekarang dia gemetar ketakutan.
-Untuk sedikit mengalihkan perhatiannya, Aku mulai membuai dia untuk tidur. Tetapi fakta bahwa Aku menyanyikan lagu pengantar tidur sambil ditutupi laba-laba hanya semakin mengurangi kewarasan Aku.
+anak itu mungkin merasa jijik dan segera menutup matanya, tapi sekarang dia gemetar ketakutan.
+
+Untuk sedikit mengalihkan perhatiannya, Aku mulai membuai dia untuk tidur. Tetapi fakta bahwa Aku menyanyikan lagu pengantar tidur sambil ditutupi laba-laba hanya semakin mengurangi kewarasanku.
 
 ◇◇◇
+
 anak itu sekarang telah tumbuh menjadi seperti anak berusia lima tahun.
+
 Setiap hari, Aku menyediakan waktu untuk bernyanyi dan mencoba berkomunikasi dengannya dan akhir-akhir ini, dia pasti ikut menari.
-Bagaimanapun, dia pasti memiliki ritme. Dan melihat bagaimana dia mengubah tariannya agar sesuai dengan perubahan lagu, dia mungkin cukup berbakat.
+
+dia pasti memiliki ritme. Dan melihat bagaimana dia mengubah tariannya agar sesuai dengan perubahan lagu, dia mungkin cukup berbakat.
+
 Aku mungkin terdengar terlalu menyayanginya, tapi melihat seorang anak muda yang manis menari mengikuti irama laguku membuatku bahagia dan menggemaskan.
 
-Di sisi keajaiban, Aku juga telah tumbuh dengan baik.
-Kali ini Aku fokus pada penghematan penggunaan kekuatan sihir dan sekarang, bahkan jika Aku terus-menerus menggunakan sihir pendeteksi, Aku tidak kehabisan sihir. Dan selama penghalang Aku tidak sepenuhnya hancur, Aku bisa memperbaikinya lagi dan lagi.
+Di sisi sihir, Aku juga telah berkembang dengan baik.
+Kali ini Aku fokus pada penghematan penggunaan kekuatan sihir dan sekarang, bahkan jika Aku terus-menerus menggunakan sihir pendeteksi, Aku tidak kehabisan energi. Dan selama penghalangku tidak sepenuhnya hancur, Aku bisa memperbaikinya lagi dan lagi.
+
 Berkat itu, akhir-akhir ini kecenderunganku untuk kehilangan kesadaran karena terlalu banyak menggunakan sihir telah menurun drastis.
 
-Aku cukup berbakat jika Aku mengatakannya sendiri. Tetapi di sisi lain, Aku merasa seperti Aku sama sekali tidak dapat menggunakan sihir penyembuhan.
-Sulit untuk dijelaskan, tetapi Aku curiga Aku telah menuangkan semua bakat magis Aku untuk menggunakan penghalang dan deteksi. Meskipun memikirkan tentang apa yang telah terjadi sampai sekarang, Aku tidak melihatnya sebagai masalah.
+Aku cukup berbakat juga. Tetapi di sisi lain, Aku merasa seperti Aku sama sekali tidak dapat menggunakan sihir penyembuhan.
 
-Namun, fakta bahwa tidak peduli seberapa kuat Aku memperkuat pertahanan Aku, Aku benar-benar tidak dapat membela dia dari luka yang diberikan pria kepadanya benar-benar buruk bagi kesehatan mental Aku.
+Sulit untuk dijelaskan, tetapi Aku curiga Aku telah menuangkan semua bakat sihirku untuk menggunakan penghalang dan deteksi. Meskipun memikirkan tentang apa yang telah terjadi sampai sekarang, Aku tidak melihatnya sebagai masalah.
+
+Namun, fakta bahwa tidak peduli seberapa kuat Aku memperkuat pertahananku, Aku benar-benar tidak dapat membela dia dari luka yang diberikan pria kepadanya dan itu benar-benar buruk bagi kesehatan mentalku.
+
 Karena dia mengandalkan cairan misterius untuk nutrisi bahkan sekarang, Aku tidak punya pilihan. Dan meskipun dia menyembuhkannya dengan cara yang tidak meninggalkan luka, itu tetap menjengkelkan.
+
 Pertama-tama, mungkin akan merepotkan bagi pria untuk terus memberinya makan seperti ini.
 
-Kecuali itu, semuanya mungkin baik-baik saja. Aku berpikir begitu mungkin karena harga diri Aku sendiri.
+Kecuali, semuanya mungkin baik-baik saja. Aku berpikir begitu mungkin karena harga diriku sendiri.
+
 Saat itulah, kejadian itu terjadi begitu saja.
 
 Suatu hari, bersama dengan cairan misterius yang biasa, pria tersebut membawa wadah yang berbeda dengan cairan yang berbeda dari biasanya.
-Itu adalah waktu makan yang biasa, rasa jijik yang biasa. Dan karena indera kita terhubung, Aku merasakan sakit yang biasa juga.
+
+sekarang adalah jam makan seperti biasanya, rasa jijik yang seperti biasanya juga. Dan karena indera kita terhubung, Aku merasakan sakit yang biasa juga.
+
 Tetapi pada hari itu, sebelum memberi makan anak itu, pria itu berbicara agak lama dengannya.
 
-Somewhere in my mind I hoped, maybe this disgusting feeding time will finally end today. That didn’t happen, however, and the man tore the girl’s clothes off and brandished his knife on her smooth, white stomach.
-You would think that I’d be used to getting cut deep enough almost to the point where you can see the organs after experiencing it every day, but I just couldn’t help to scowl in pain.
-After pouring the fluid into the wound, and healing the girl as usual, the man excitedly moved his hand to the girl’s leg.
+Di suatu tempat dalam pikiranku aku berharap, mungkin waktu makan yang menjijikkan ini akhirnya akan berakhir hari ini. Namun, itu tidak terjadi, dan pria itu merobek pakaian gadis itu dan mengacungkan pisaunya ke perut putih mulus gadis itu.
+
+Kamu akan berpikir bahwa aku akan terbiasa terluka cukup dalam hingga aku dapat melihat organ-organnya setelah mengalaminya setiap hari, tetapi aku tidak dapat membantu untuk membalasnya.
+
+Setelah menuangkan cairan ke dalam lukanya, dan menyembuhkan gadis itu seperti biasa, lelaki itu dengan bersemangat memindahkan tangannya ke kaki gadis itu.
 
 Biasanya dia akan mendandaninya dan pergi, jadi aku curiga dia berencana menggunakan obat aneh lagi. Saat itu juga, dia mengambil wadah lain yang dia bawa dan menuangkan cairan berlendir ke tubuh bagian bawah dan jarinya.
-Memiliki firasat buruk tentang ini, aku akan melindungi anak itu; tetapi karena pria itu menyentuh tubuhnya, Aku takut dia akan mengetahui tentang Aku dan ragu-ragu.
 
-Itu hanya sesaat dari keraguan. Tetapi bagi pria yang bersemangat itu untuk mengambil tindakan, itu cukup lama.
+Memiliki firasat buruk tentang ini, aku akan melindungi anak itu; tetapi karena pria itu menyentuh tubuhnya, Aku takut dia akan mengetahui tentangku dan ragu-ragu.
 
-At the same time as I felt something entering from below, pain assaulted me.
-It was a pain different from the sharp cut of the knife I’ve felt so far. It was like my organs were being gouged out and I almost screamed in pain. Even when I tried to use magic, my mind blanked out and I couldn’t activate it.
-The intruder that was the man’s hand entered deep without any resistance. And with excitement, he began collecting the flowing red, the proof of pain, in a test tube-like container from his pocket.
-I dazedly thought this is his handcrafted hell, as I felt madness from the man looking lovingly at the flow of fresh blood.
+Itu hanya keraguan sesaat. Tetapi bagi pria yang bersemangat itu, itu cukup lama.
 
-Segera setelah itu, pria itu mendandaninya dan dengan tergesa-gesa bergegas keluar dari sel.
+Pada saat yang sama ketika aku merasakan sesuatu masuk dari bawah, rasa sakit menyerangku.
+
+Sakitnya berbeda dengan luka tajam pisau yang aku rasakan selama ini. Rasanya seperti organ tubuhku dicungkil dan aku hampir menjerit kesakitan. Bahkan ketika aku mencoba menggunakan sihir, pikiranku kosong dan aku tidak dapat mengaktifkannya.
+
+Penyusup yang merupakan tangan pria itu masuk tanpa perlawanan. Dan dengan semangat, dia mulai mengumpulkan darah merah yang mengalir, bukti rasa sakit, dalam wadah seperti tabung reaksi dari sakunya.
+
+Aku mengira ini adalah neraka buatan, karena aku merasakan kegilaan dari pria yang menatap dengan senang pada aliran darah segar.
+
+Segera setelah itu, pria itu mendandaninya dan dengan tergesa-gesa bergegas keluar dari ruangan.
+
 Tertinggal, anak itu melihatnya pergi tanpa emosi di matanya. Namun, Aku tidak memiliki ketenangan untuk mengkhawatirkannya sekarang.
-Pikiran Aku yang linglung dan kosong mulai bekerja dan sekarang, Aku segera mengerti apa yang baru saja terjadi.
-Pada saat yang sama, fakta bahwa Aku tidak dapat melindunginya mulai dengan cepat membebani hati nurani Aku.
+
+Pikiranku yang linglung dan kosong mulai bekerja dan sekarang, Aku segera mengerti apa yang baru saja terjadi.
+
+Pada saat yang sama, fakta bahwa Aku tidak dapat melindunginya mulai dengan cepat membebani hati nuraniku.
+
 Melihat ke belakang, alasan pria itu berbicara sebentar sebelum memberinya makan mungkin untuk memberitahunya tentang ini.
 
 Dengan kata lain, jika Aku hanya mengerti sedikit saja dari bahasa dunia ini, Aku mungkin bisa menghindari ini.
-Pertama-tama, jika Aku tidak ragu-ragu sebelumnya, ini jelas tidak akan terjadi.
-Aku tidak bisa melindunginya. Fakta satu-satunya ini sangat membebani Aku.
 
-Saat ini, anak itu mungkin terlihat baik-baik saja, tetapi itu karena dia masih anak-anak. Untuk seseorang seperti dia yang mengalami rasa sakit setiap hari dalam hidupnya, diragukan apakah dia mengerti apa arti rasa sakit ini.
+Pertama-tama, jika Aku tidak ragu-ragu sebelumnya, ini jelas tidak akan terjadi.
+
+Aku tidak bisa melindunginya. Fakta ini sangat membebaniku.
+
+Saat ini, anak itu mungkin terlihat baik-baik saja, tetapi itu karena dia masih anak-anak. Untuk seseorang seperti dia yang mengalami rasa sakit setiap hari dalam hidupnya, apakah dia mengerti apa arti rasa sakit ini?
+
 Begitu dia mengetahui apa artinya ini di masa depan, apakah dia akan putus asa? Hanya memikirkannya saja membuatku cemas.
 
-Pada saat yang sama, bagian yang tenang di suatu tempat di dalam pikiran Aku mulai berbicara kepada Aku.
+Pada saat yang sama, bagian yang tenang di suatu tempat di dalam pikiranku mulai berbicara kepadaku.
 
--Gelisah? Kamu hanya tidak ingin dia menyalahkan Kamu.
-–Anda hanya mengabaikan fakta bahwa kesalahan Kamu menyebabkan ini.
+-Gelisah? Kamu hanya tidak ingin dia menyalahkanmu.
+
+–Kamu hanya mengabaikan fakta bahwa kesalahanmu menyebabkan ini.
+
 –Kenapa kamu tidak pernah belajar? Mengapa Kamu ragu?
+
 –Hanya karena kamu bisa menggunakan sedikit sihir, bukankah kamu menjadi terlalu sombong?
+
 –Jika ini menyebabkan dia mendapat masalah di masa depan, ini semua salahmu.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
-
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
-
 Aku tahu. Aku tahu, tapi aku tidak bisa menghentikannya.
+
 Aku tidak bisa melakukan apa-apa, Aku tidak melakukan apa-apa, Aku tidak ingin melihat kenyataan.
+
 Bahkan jika Aku minta maaf, kesuciannya tidak akan pernah kembali. Dan jika dia mulai takut pada laki-laki karena kejadian ini, dia akan takut pada separuh dunia.
 
 Jika akan ada kedamaian untuknya, seseorang seperti Aku yang dulunya seorang pria tidak akan pernah tahu.
-Dan tepatnya karena Aku tidak tahu, bahwa Aku ingin melindunginya sejak awal.
+
+Dan tepatnya karena Aku tidak tahu, Aku ingin melindunginya sejak awal.
 
 Pikiranku berputar-putar, mengutukku setiap saat.
 
 "Maafkan Aku."
 
-Dengan suara yang hanya bisa didengarnya, aku meminta maaf padanya. Meskipun Aku tahu itu tidak ada artinya, meskipun Aku tahu itu hanya untuk ego Aku sendiri, Aku tidak tahan.
+Dengan suara yang hanya bisa didengarnya, aku meminta maaf padanya. Meskipun Aku tahu itu tidak ada artinya, meskipun Aku tahu itu hanya untuk egoku sendiri, Aku hanya tidak dapat menahannya.
+
 Karena aku, yang bahkan tidak punya tubuh, bahkan tidak bisa menangis.
+
 Jadi Aku terus meminta maaf.
 
 Maafkan Aku. Maafkan aku. Lain kali, aku pasti akan melindungimu.
+
 Aku yakin dia tidak mengerti Aku berbicara dalam bahasa Jepang.
+
 Meski begitu, Aku tetap meminta maaf. Sampai-sampai bahkan Aku lupa kepada siapa Aku meminta maaf.
-Ratapan Aku berlanjut sampai Aku kehilangan kesadaran.
+
+Ratapanku berlanjut sampai Aku kehilangan kesadaran.
