@@ -1,3 +1,7 @@
+Mulai dari chapter ini, untuk nama skill / jrus saya akan menggunakan bahasa inggris dan kapital semua yak, karena terkadang terjemahannya bisa memiliki arti lebih.. seperti contoh guard bisa berarti berlindung dan cover juga bisa berlindung... dan cover juga bisa melindungi/menghalang... biar kedepannya tidak bingung.. dan tenang saja, saya juga akan memberikan penjelasan apabila ada skill baru yang muncul.. jadi jangan takut bingung :)  
+
+SELAMAT MEMBACAA ~~~
+
 CH 4 : Pembunuhan, Insiden, Dan Ratapan
 
 anak ini sudah tumbuh dan akhirnya bisa berjalan.
@@ -16,7 +20,7 @@ dan juga, tidak ada cedera langsung padanya hingga saat ini, tapi belakangan ini
 
 Segera setelah Aku melihat seseorang memasuki ruangan tepat ketika anak itu tertidur, pisau terbang, sihir api mulai berkobar, dan hal seperti itu terus-menerus terjadi dalam hidupnya. Anggap saja karena kejadian ini Aku tidak dapat mempelajari bahasanya.
 
-yaaah, sihir pendeteksi selalu aktif dan penghalang(barier) tampaknya berfungsi dengan baik, jadi kalau hanya sebanyak ini tidak akan menjadi masalah.
+yaaah, sihir pendeteksi selalu aktif dan +BARRIER tampaknya berfungsi dengan baik, jadi kalau hanya sebanyak ini tidak akan menjadi masalah.
 
 Aku yakin bahwa kekerasan ini dimulai karena dia melihatku menggunakan sihir, tapi ada cukup jarak waktu antara aku menggunakan sihir di depannya dan dimulainya upaya pembunuhan, jadi itu tidak ada hubungannya dengan itu... Mungkin .
 
@@ -52,7 +56,7 @@ Jelas, mereka semua bergegas ke ruangan kami. Aku menduga bahwa ini hanyalah sal
 
 benda itu mendekat, mencicit dengan nada tinggi sambil bergegas ke arah kami.
 
-Aku curiga dari suara mereka, tetapi setelah mengonfirmasi dengan deteksi, itu pasti segerombolan tikus. Seperti gelombang, mereka membanjiri ruangan dan mulai menggigit semua yang ada di dalamnya tanpa pandang bulu.
+Aku curiga dari suara mereka, tetapi setelah mengonfirmasi dengan +DETECTION, itu pasti segerombolan tikus. Seperti gelombang, mereka membanjiri ruangan dan mulai menggigit semua yang ada di dalamnya tanpa pandang bulu.
 Tempat tidur batu, dinding, lantai, jeruji, rantai, belenggu, dan tentu saja... anak ini juga.
 
 Aku tidak tahu seberapa besar ancaman tikus di dunia ini, tetapi mereka tampaknya tidak cukup kuat untuk menggigit batu dan baja. tapi, mereka tampaknya bisa menggigit semua itu, jadi manusia yang digigit oleh mereka kemungkinan besar akan terluka, dan jika terlalu banyak digigit, kami mungkin akan mati.
@@ -81,7 +85,7 @@ Tidak seperti tikus, mereka tidak benar-benar menggigit. Tetap saja, melihat han
 
 Dan terlebih lagi, sepertinya mereka mencoba mencari ruang sempit untuk menggeliat, dan mereka semakin menggeliat ke bawah.
 
-Jika Kamu memasukkan seseorang ke dalam kerumunan ini, mereka mungkin akan masuk lebih dari sekadar mulut mereka; dan jika itu perempuan, sudah jelas apa yang akan mereka lakukan. Sungguh, aku tidak bisa mengatakan apakah dia licik atau hanya jahat, tapi aku sangat senang bisa menggunakan penghalang.
+Jika Kamu memasukkan seseorang ke dalam kerumunan ini, mereka mungkin akan masuk lebih dari sekadar mulut mereka; dan jika itu perempuan, sudah jelas apa yang akan mereka lakukan. Sungguh, aku tidak bisa mengatakan apakah dia licik atau hanya jahat, tapi aku sangat senang bisa menggunakan +BARRIER.
 
 Tetapi suatu hari, sesuatu terjadi.
 
@@ -97,7 +101,7 @@ Tiba-tiba di penglihatanku, Aku melihat kaki yang berbulu, mata yang merah, dan 
 
 Kemudian Aku mendengar suara yang tidak menyenangkan.
 
-Beberapa dari mata itu mengalihkan pandangannya ke arah kami dan mulai mendekat. Karena mereka terhalang oleh penghalang, Aku tidak dapat merasakan sentuhan mereka dan Aku tahu bahwa tidak apa-apa, tetapi menyadari apa yang terjadi pada kami sekali lagi, Aku tiba-tiba merasa mual sekali.
+Beberapa dari mata itu mengalihkan pandangannya ke arah kami dan mulai mendekat. Karena mereka terhalang oleh +BARRIER, Aku tidak dapat merasakan sentuhan mereka dan Aku tahu bahwa tidak apa-apa, tetapi menyadari apa yang terjadi pada kami sekali lagi, Aku tiba-tiba merasa mual sekali.
 
 Ada banyak sekali di depan mataku. Aku yakin ada seribu lebih dari mereka merayap di sekujur tubuh ini.
 
@@ -126,7 +130,7 @@ Berkat itu, akhir-akhir ini kecenderunganku untuk kehilangan kesadaran karena te
 
 Aku cukup berbakat juga. Tetapi di sisi lain, Aku merasa seperti Aku sama sekali tidak dapat menggunakan sihir penyembuhan.
 
-Sulit untuk dijelaskan, tetapi Aku curiga Aku telah menuangkan semua bakat sihirku untuk menggunakan penghalang dan deteksi. Meskipun memikirkan tentang apa yang telah terjadi sampai sekarang, Aku tidak melihatnya sebagai masalah.
+Sulit untuk dijelaskan, tetapi Aku curiga Aku telah menuangkan semua bakat sihirku untuk menggunakan +BARRIER dan +DETECTION. Meskipun memikirkan tentang apa yang telah terjadi sampai sekarang, Aku tidak melihatnya sebagai masalah.
 
 Namun, fakta bahwa tidak peduli seberapa kuat Aku memperkuat pertahananku, Aku benar-benar tidak dapat membela dia dari luka yang diberikan pria kepadanya dan itu benar-benar buruk bagi kesehatan mentalku.
 

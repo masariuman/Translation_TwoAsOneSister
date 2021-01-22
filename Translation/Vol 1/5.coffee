@@ -46,7 +46,7 @@ Fakta bahwa lukanya tidak sembuh hanya berarti pria itu menganggap merawatnya bu
 
 Itulah mengapa sama sepertiku, meskipun dia mungkin hanya melihat Aku sebagai orang yang tidak dapat diandalkan, ketika saatnya tiba ketika pria itu memutuskan untuk menyingkirkannya, Aku perlu melindunginya.
 
-Pertama, hatinya. Satu-satunya hal yang dapat Aku lakukan adalah membuat penghalang, menyelidiki sekeliling, dan bernyanyi; jadi Aku hanya bisa berdoa agar dengan lagu-laguku, Aku mungkin bisa mengalihkan perhatiannya dari rasa sakit meski sedikit.
+Pertama, hatinya. Satu-satunya hal yang dapat Aku lakukan adalah membuat +BARRIER, menyelidiki sekeliling, dan bernyanyi; jadi Aku hanya bisa berdoa agar dengan lagu-laguku, Aku mungkin bisa mengalihkan perhatiannya dari rasa sakit meski sedikit.
 
 Dan jika matanya yang sekarang kosong memiliki bahkan sedikit kemarahan pada ketidakmampuanku untuk membantunya sebelum semuanya terjadi, maka mungkin dia masih bisa memulai kembali semuanya sendiri.
 
@@ -110,7 +110,7 @@ Sebagian alasan mengapa kita begitu jauh berbeda mungkin juga karena sifatnya se
 
 Setelah membaca buku dan mengajariku, Aku bertanya-tanya apa lagi yang perlu dia lakukan; tiba-tiba Aku merasakan seseorang mendekat.
 
-Menggunakan deteksi untuk memeriksanya lebih dekat, sepertinya * pria * itu tidak menuju ke ruangan ini, itu adalah orang yang berbeda.
+Menggunakan +DETECTION untuk memeriksanya lebih dekat, sepertinya * pria * itu tidak menuju ke ruangan ini, itu adalah orang yang berbeda.
 
 Untuk memastikan bahwa Aku tidak membuat kesalahan yang sama untuk ketiga kalinya, Aku memfokuskan diri untuk segera melindunginya jika terjadi sesuatu.
 
