@@ -1,6 +1,6 @@
-Sejak kami dipindahkan ke ruangan ini, kami mengalami saat-saat yang lebih damai.
+Sejak kami dipindahkan ke ruangan ini, kami merasa lebih damai.
 
-Bagaimanapun, satu-satunya bahaya di sini adalah obat selama waktu makan. Untuk anak-anak normal, tidak ada bedanya dengan penyiksaan tapi baik atau buruk, Aku di sini. Lebih baik lagi, sekarang diturunkan menjadi objek untuk meningkatkan kekuatan sihir kita.
+satu-satunya bahaya di sini adalah obat ketika waktu makan. Untuk anak normal, tidak ada bedanya dengan menyiksa, tapi Aku ada di sini. Lebih baik lagi, sekarang diturunkan menjadi objek untuk meningkatkan kekuatan sihir kita.
 
 Obat membantu dalam mempraktikkan cara mengontrol kekuatan sihir dan akhir-akhir ini, aku telah mengirimkan beberapa kekuatan sihir ke gadis itu juga sehingga kekuatan sihirnya sepertinya meningkat pesat.
 
