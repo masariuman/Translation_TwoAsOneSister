@@ -1,11 +1,5 @@
 Ch 3 : Ibukota Kerajaan, Penginapan, dan Narkoba
 
-Catatan :
-a = Ainz (Karakter Utama)
-c = Ciel (Pemilik Tubuh Utama)
-
-untuk yang bingung, seperti ch sebelumnya, jadi si MC semacam jadi roh pendamping ciel, ya si mc bisa merasuki ciel juga... anggep aja numpang ngendalikan tubuh...
---------------------------------------------------
 
 didunia ini, Ibukota kerajaan Memiliki jumlah orang yang luar biasa.
 

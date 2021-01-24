@@ -1,3 +1,10 @@
+ch 6 : Waktu yang Damai, Nama, dan Keselamatan
+
+Catatan :
+a = Ainsel/Ain (Karakter Utama/yg tereinkarnasi)
+c = Cielmer/Ciel (Pemilik Tubuh Utama)
+--------------------------------------------
+
 Sejak kami dipindahkan ke ruangan ini, kami merasa lebih damai.
 
 satu-satunya bahaya di sini adalah obat ketika waktu makan. Untuk anak normal, tidak ada bedanya dengan menyiksa, tapi Aku ada di sini. dan untungnya bisa digunakan untuk meningkatkan energi sihir.
