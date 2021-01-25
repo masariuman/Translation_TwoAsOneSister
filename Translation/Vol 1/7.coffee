@@ -87,41 +87,49 @@ Ciel bertepuk tangan kegirangan. dia senang karena dipahami setelah menjelaskan 
 
 Jadi sepertinya pria itu sedang berpikir untuk meminta Ciel mendapatkan +JOBS yang berhubungan dengan +SORCERY agar dia berguna. Bahkan dengan bagaimana dia memperlakukannya, dia kemungkinan telah menghabiskan banyak uang untuk Ciel. Melihat bahwa dia mencoba memanfaatkannya entah bagaimana, ini jelas merupakan pilihan terakhirnya.
 
-"Tepatnya, sang putri adalah pangkat wanita tertinggi dalam pekerjaan umum. Laki-laki yang setara dengan itu akan menjadi raja. "
-" Apakah pekerjaan adalah sesuatu yang dapat Kamu pilih sendiri? "
-" Sejujurnya, itu tidak terlalu jelas. Dikatakan bahwa ketika Kamu mencapai usia 10 tahun, dewa secara acak memutuskan apa pekerjaan Kamu nantinya.
-     Tetap saja, tampaknya ada banyak kasus di mana pekerjaan seseorang terkait dengan sesuatu yang mereka kuasai.
-     Di suatu tempat di ruangan ini, ada tesis yang menemukan bahwa seorang anak yang berlatih ilmu pedang setiap hari memiliki kesempatan yang lebih baik untuk memiliki pekerjaan yang berhubungan dengan pedang daripada seseorang yang tidak berlatih sama sekali. "
-"Dengan kata lain, obat yang menyebabkan kekuatan sihir mengamuk dibutuhkan untuk meningkatkan kemungkinan Ciel mendapatkan pekerjaan yang berhubungan dengan sihir bahkan hanya sedikit."
+c"Tepatnya, sang +PRINCESS adalah tingkat wanita tertinggi dalam +JOBS umum. Laki-laki yang setara dengan itu adalah raja."
 
-Jika itu masalahnya, kebanyakan buku di ruangan ini kemungkinan besar berhubungan dengan sihir juga.
-Jika semua yang dibutuhkan Ciel untuk menjadi asistennya tertulis di buku-buku di sini, maka pengetahuan itu akan membantu kita saat kita melarikan diri. Kalau begitu, sungguh sia-sia aku tidak bisa membaca seperti Ciel. Aku dapat berbicara, tetapi Aku tidak pandai menulis huruf.
+a"Apakah +JOBS adalah sesuatu yang dapat Kamu pilih sendiri?"
+
+c"jujur, itu tidak terlalu jelas. katanya ketika Kamu mencapai usia 10 tahun, dewa secara acak memutuskan apa +JOBmu nantinya. Tetap saja, tampaknya ada banyak kasus di mana +JOB seseorang terkait dengan sesuatu yang mereka kuasai. Di suatu buku di ruangan ini, ada tesis yang menemukan bahwa seorang anak yang berlatih ilmu pedang setiap hari memiliki kesempatan yang lebih baik untuk memiliki +JOB yang berhubungan dengan pedang daripada seseorang yang tidak berlatih sama sekali."
+
+a"Dengan kata lain, obat yang menyebabkan kekuatan sihir tidak terkendali itu dibutuhkan untuk meningkatkan kemungkinan Ciel mendapatkan +JOB yang berhubungan dengan +SORCERY walau hanya sedikit."
+
+Jika itu masalahnya, kebanyakan buku di ruangan ini kemungkinan besar berhubungan dengan +SORCERY juga.
+
+Jika semua yang dibutuhkan Ciel untuk menjadi asisten pria itu tertulis di buku-buku di sini, maka pengetahuan itu akan membantu kami saat kami melarikan diri. sangat disayangkan aku tidak bisa membaca seperti Ciel. Aku dapat berbicara, tetapi Aku tidak bagus dengan huruf-huruf.
+
 Aku tidak bisa memintanya untuk membaca setiap buku dengan suara keras, jadi tidak ada pilihan lain selain mengandalkan ingatan Ciel.
 
-"Pria itu ingin aku menjadi seorang putri, tetapi tahukah kamu, pada kenyataannya hanya menjadi seorang putri tidak berarti kamu yang terbaik."
-"Mengapa begitu?"
-"Aku pernah membaca sebelumnya bahwa pernah ada Raja Pedang yang kalah kepada seorang Swordsman.
-     Itulah mengapa pada akhirnya, usaha dan ketekunan itu penting, katanya. Itulah mengapa Aku berpikir bahwa tidak peduli pekerjaan apa yang akan Aku miliki, itu mungkin masih berguna untuk pelarian kita. "
-" Begitu. Selain itu, meskipun akan berguna, mungkin yang terbaik adalah Kamu tidak mendapatkan pekerjaan yang berhubungan dengan sihir. "
-" Kembali ke topik. Apa yang diinginkan pria itu dari Aku adalah pekerjaan, jadi Aku harus tinggal dan belajar sihir di ruangan ini sampai Aku mencapai usia 10 tahun. "
+c"Pria itu ingin aku menjadi seorang +PRINCESS, tetapi pada kenyataannya hanya menjadi seorang +PRINCESS tidak berarti kamu yang terbaik."
 
-Di sisi lain, ini berarti bahwa sampai Ciel berusia 10 tahun dan pekerjaannya diketahui, dia tidak akan bisa menyingkirkan Ciel dengan mudah.
+a"Mengapa?"
+
+c"Aku pernah membaca sebelumnya bahwa pernah ada +SWORDKING yang kalah kepada seorang +SWORDMAN. Itulah kenapa pada akhirnya, usaha dan ketekunan itu penting, katanya. Itulah kenapa Aku berpikir bahwa tidak peduli +JOB apa yang akan Aku miliki, itu mungkin masih berguna untuk pelarian kita."
+
+a"Begitu ya. Selain itu, meskipun akan berguna, mungkin yang terbaik adalah Kamu tidak mendapatkan +JOB yang berhubungan dengan +SORCERY."
+
+c"Kembali ke topik tadi, Apa yang diinginkan pria itu dariku adalah +JOBku, jadi Aku harus tinggal dan belajar +SORCERY di ruangan ini sampai Aku mencapai usia 10 tahun."
+
+Di sisi lain, ini berarti bahwa sampai Ciel berusia 10 tahun dan +JOBnya diketahui, dia tidak akan bisa menyingkirkan Ciel dengan mudah.
+
 Begitu, mungkin yang terbaik adalah kita tidak terburu-buru memikirkan rencana pelarian sekarang.
 
-"Sekarang kita yakin kita punya waktu, Aku ingin kita berbicara tentang diri kita sendiri tetapi ... bisakah kita?"
-"Benar. Menjadi tidak sabar saat ini tampaknya lebih berbahaya. Tapi dengan apa kita harus mulai? "
-" Pertama, ada sesuatu yang benar-benar ingin Aku tanyakan kepada Kamu. Ain, kamu adalah dewa bukan? "
-" Tidak, tapi apa yang membuatmu berpikir seperti itu? "
-" Tujuan pertama pria itu adalah membuat tuhan menghuni bayi, aku, dan membuat tuhan.
-     Tetapi jika Kamu bukan dewa, maka dia benar-benar gagal. "
+c"Sekarang kita yakin kita punya waktu, Aku ingin kita berbicara tentang diri kita sendiri tetapi ... apakah kamu mau?"
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+a"Benar. Menjadi tidak sabar saat ini tampaknya lebih berbahaya. Tapi kita mulai dari mana?"
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+c"Pertama, ada sesuatu yang benar-benar ingin Aku tanyakan kepadamu. Ain, kamu adalah dewa kan?"
 
-Ketika skala diskusi kami tiba-tiba bertambah besar, Aku langsung membeku. Dengan Ceil yang mengatakannya dengan begitu santai, celah yang dihasilkan hanya membuatku tidak bisa berkata-kata.
-Di Jepang, Aku belum terlalu memikirkan dewa; tetapi di dunia ini di mana para dewa cukup dekat untuk memberikan pekerjaan kepada orang-orang, Kamu pasti bisa merasakan kehadiran mereka. Mungkin itu juga mengapa ide gila seperti menciptakan dewa dipikirkan.
-Namun, itu tidak menjelaskan mengapa ada orang yang menggunakan putrinya sebagai subjek tes. Paling buruk, kesadaran Ciel mungkin telah diambil alih dan bahkan mungkin menghilang. Tidak, dia tipe pria yang baik-baik saja dengan "putrinya" sekarat.
+a"Tidak, apa yang membuatmu berpikir seperti itu?"
+
+c"Tujuan pertama pria itu adalah membuat dewa menghuni seorang bayi, yaitu aku, dan membuat dewa. Tetapi jika Kamu bukan dewa, maka dia benar-benar gagal."
+
+Ketika skala diskusi kami tiba-tiba bertambah besar, Aku langsung terdiam. Dengan Ceil yang mengatakannya dengan begitu santai, dia hanya membuatku tidak bisa berkata-kata.
+
+Di Jepang, Aku belum terlalu memikirkan dewa; tetapi di dunia ini di mana para dewa cukup dekat untuk memberikan +JOBS kepada orang-orang, Kamu pasti bisa merasakan kehadiran mereka. Mungkin itu juga mengapa ide gila seperti menciptakan dewa ada.
+
+tapi, itu tidak menjelaskan mengapa ada orang yang menggunakan anaknya sendiri sebagai subjek tes. hal terburuk yang terjadi mungkin kesadaran Ciel mungkin diambil alih dan bahkan mungkin menghilang. Tidak, dia tipe pria yang tidak masalah "anaknya" sekarat.
 
 "Jadi itu berarti ketika Aku melihat pria itu menjaga Kamu dan bersukacita atas keselamatan Kamu ketika kami berada di sel itu, itu karena dia mengira ada dewa di dalam diri Kamu.
      Banyak serangan juga, untuk mengkonfirmasi keberadaan dewa. Dia mungkin berpikir bahwa dewa tidak akan mati sebanyak itu. Jika Kamu mati, kemungkinan besar dia hanya akan menyimpulkan bahwa eksperimen itu gagal dan tidak ada tuhan pada awalnya.
