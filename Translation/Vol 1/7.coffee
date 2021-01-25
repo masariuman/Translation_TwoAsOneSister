@@ -131,13 +131,12 @@ Di Jepang, Aku belum terlalu memikirkan dewa; tetapi di dunia ini di mana para d
 
 tapi, itu tidak menjelaskan mengapa ada orang yang menggunakan anaknya sendiri sebagai subjek tes. hal terburuk yang terjadi mungkin kesadaran Ciel mungkin diambil alih dan bahkan mungkin menghilang. Tidak, dia tipe pria yang tidak masalah "anaknya" sekarat.
 
-"Jadi itu berarti ketika Aku melihat pria itu menjaga Kamu dan bersukacita atas keselamatan Kamu ketika kami berada di sel itu, itu karena dia mengira ada dewa di dalam diri Kamu.
-     Banyak serangan juga, untuk mengkonfirmasi keberadaan dewa. Dia mungkin berpikir bahwa dewa tidak akan mati sebanyak itu. Jika Kamu mati, kemungkinan besar dia hanya akan menyimpulkan bahwa eksperimen itu gagal dan tidak ada tuhan pada awalnya.
-     Mempertimbangkan semua ini, Aku dapat memahami kegembiraan pria itu pada saat itu. "
-" Dia tidak benar-benar mengatakannya, tapi mungkin begitu.
-     Alasan dia tidak memberi kami makanan juga mungkin karena dia takut memberi makanan kepada manusia akan membuatku berhenti menjadi dewa. Meskipun dia sebenarnya tidak memiliki dasar untuk itu. "
-"Itu berarti bahwa tujuannya bukanlah darah perawan Ciel, itu adalah darah perawan dewa."
+a"Jadi itu artinya ketika Aku melihat pria itu merawatmu dan bersukacita atas keselamatanmu ketika kita berada di penjara itu, itu karena dia mengira ada dewa di dalam dirimu. Banyak serangan darinya juga, untuk mengkonfirmasi keberadaan dewa. Dia mungkin berpikir bahwa dewa tidak akan mati kalau hanya serangan seperti itu. Jika Kamu mati, kemungkinan besar dia hanya akan menyimpulkan bahwa eksperimen itu gagal dan tidak ada dewa didalam dirimu. Mempertimbangkan semua ini, Aku dapat memahami kegembiraan pria itu dulu waktu dipenjara."
 
+c"Dia tidak benar-benar mengatakannya, tapi mungkin seperti itu. Alasan dia tidak memberi kita makanan juga mungkin karena dia takut memberi makanan kepada manusia akan membuatku berhenti menjadi dewa. Meskipun dia sebenarnya tidak memiliki dasar untuk teori itu."
+
+a"Itu berarti bahwa tujuannya bukanlah darah perawan Ciel, itu adalah darah perawan dewa."
+-----------------
 Aku menatap Ciel yang mengangguk setuju dengan perasaan campur aduk. Dengan darah dewa, jelas akan ada kekuatan luar biasa di dalamnya. Terlebih lagi jika darah yang hanya bisa ditumpahkan sekali, tidak aneh kalau bisa membuat keajaiban seperti menghidupkan kembali orang mati.
 Pria itu mungkin menginginkan sesuatu yang cukup untuk mendorongnya sejauh ini. Bahkan mungkin sesuatu seperti bertukar kata-kata terakhir dengan kekasih.
 Tetap saja, itu sama sekali tidak memaafkannya atas bagaimana dia memperlakukan Ciel.
