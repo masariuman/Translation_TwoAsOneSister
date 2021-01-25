@@ -49,38 +49,43 @@ c"Ain, apakah kamu tahu apa tujuan pria itu saat ini?"
 
 a"Aku tidak tahu. Dia mengincar darahmu sebelumnya, kan?"
 
-c"Itu benar. Secara khusus, sepertinya darah perawanku. Dan kemudian, bagian yang tidak berhasil seharusnya sudah familiar. Itulah mengapa kali ini dia berencana menjadikanku sebagai "putri" yang berhubungan dengan sihir(+sorcery). Sehingga ketika dia memulai eksperimen baru lainnya, dia akan memiliki penolong yang berguna."
+c"Itu benar. Secara khusus, sepertinya darah perawanku. Dan kemudian, bagian yang tidak berhasil seharusnya sudah familiar. Itulah mengapa kali ini dia berencana menjadikanku sebagai "+PRINCESS" yang berhubungan dengan sihir(+SORCERY). Sehingga ketika dia memulai eksperimen baru lainnya, dia akan memiliki penolong yang berguna."
 
-a"Um, bolehkah aku bertanya ...... ​​apa maksudmu dengan putri?"
+a"Um, bolehkah aku bertanya ...... ​​apa maksudmu dengan +PRINCESS?"
 
-Kata putri muncul secara alami dalam percakapan kami, tapi menurutku menjadi putri bukanlah sesuatu yang bisa kamu lakukan begitu saja.
+Kata +PRINCESS muncul secara alami dalam percakapan kami, tapi menurutku menjadi +PRINCESS bukanlah sesuatu yang bisa kamu lakukan begitu saja.
 
 Dalam kasus Ciel, dengan bagaimana model pria itu, Aku benar-benar merasa dia mungkin benar-benar seorang putri. Tetap saja, aku mengerti bukan itu yang dia maksud.
 
-dan juga, sepertinya yang aku anggap sebagai sihir(+magic) sampai sekarang disebut sihir(+sorcery) di sini.
+dan juga, sepertinya yang aku anggap sebagai sihir(+MAGIC), disebut sihir(+SORCERY) di sini.
 
 Ciel sepertinya terkejut dengan pertanyaanku, tetapi dia segera melanjutkannya.
 
-c"Ain, apakah Kamu tahu apa itu +Jobs?"
+c"Ain, apakah Kamu tahu apa itu +JOBS?"
 
 Dan di awal penjelasannya, sudah kuduga, itu adalah istilah lain yang tidak kuketahui.
 
 Hanya mengambil arti kata yang berarti pekerjaan, itu mengacu pada pekerjaan seperti guru, pekerja kantoran, pemadam kebakaran dan sejenisnya.
 
-Kamu mungkin bisa melihat "putri" sebagai jenis pekerjaan juga.
+Kamu mungkin bisa melihat "+PRINCESS" sebagai jenis pekerjaan juga.
 
 Tetap saja, berdasarkan pengalamanku selama ini, Aku sedikit bisa menebak apa artinya. Lagi pula, di Jepang, Aku menikmati bermain game juga.
 
 tapi, jika Aku sok tahu sekarang dan ternyata artinya benar-benar berbeda, aku akan mendapatkan masalah dan selanjutnya Ciel. Jadi Aku dengan jujur ​​menjawab "Aku tidak tahu."
 
-"Pekerjaan adalah sesuatu yang dianugerahkan dewa kepada orang-orang pada usia 10 tahun dan berdasarkan apa pekerjaan itu, dikatakan bahwa itu menentukan keahlian Kamu. Misalnya, tampaknya memiliki pekerjaan "** Swordsman" akan memudahkan orang untuk belajar ilmu pedang. "
-" Apakah putri di antara pekerjaan itu? "
-" Sang putri, sedikit berbeda. Mungkin lebih mudah untuk mengatakannya seperti ini; bahkan dalam pekerjaan yang sama, ada pangkat yang berbeda. "
-" Jadi itu berarti ada pendekar pedang kelas tinggi dan juga pendekar pedang kelas rendah. Jadi apakah itu berarti seorang putri adalah pekerjaan tingkat tinggi? "
-" Ya! Persis!"
+c"+JOBS adalah sesuatu yang dianugerahkan dewa kepada orang-orang pada usia 10 tahun dan berdasarkan apa +JOBS itu, itu menentukan keahlianmu. Misalnya, Seseorang memiliki +JOBS "+SWORDMAN" akan memudahkan orang itu untuk belajar ilmu pedang."
 
-Ciel bertepuk tangan kegirangan. Kegembiraan dipahami setelah menjelaskan sesuatu yang sulit sangat mirip dengan kepuasan yang dirasakan saat memecahkan teka-teki yang rumit; sepertinya Ciel merasakan emosi yang mirip dengan itu sekarang.
-Jadi sepertinya pria itu sedang berpikir untuk meminta Ciel mendapatkan pekerjaan yang berhubungan dengan sihir agar dia berguna. Bahkan dengan bagaimana dia memperlakukannya, dia kemungkinan telah menghabiskan banyak uang untuk Ciel. Melihat bahwa dia mencoba memanfaatkannya entah bagaimana, ini jelas merupakan pilihan terakhirnya.
+a"Apakah +PRINCESS termasuk di antara "+JOBS" itu?"
+
+c"+PRINCESS, sedikit berbeda. Mungkin lebih mudah untuk mengatakannya seperti; bahkan dalam +JOBS yang sama, ada tingkat yang berbeda."
+
+a"Jadi itu berarti ada +SWORDMAN tingkat tinggi dan juga +SWORDMAN tingkat rendah. Jadi apakah itu artinya seorang +PRINCESS adalah +JOBS tingkat tinggi? "
+
+c"YA! TENTU SAJA!"
+
+Ciel bertepuk tangan kegirangan. dia senang karena dipahami setelah menjelaskan sesuatu yang sulit dan itu sangat mirip dengan kepuasan yang dirasakan saat memecahkan teka-teki yang rumit; sepertinya Ciel merasakan emosi yang mirip dengan itu sekarang.
+
+Jadi sepertinya pria itu sedang berpikir untuk meminta Ciel mendapatkan +JOBS yang berhubungan dengan +SORCERY agar dia berguna. Bahkan dengan bagaimana dia memperlakukannya, dia kemungkinan telah menghabiskan banyak uang untuk Ciel. Melihat bahwa dia mencoba memanfaatkannya entah bagaimana, ini jelas merupakan pilihan terakhirnya.
 
 "Tepatnya, sang putri adalah pangkat wanita tertinggi dalam pekerjaan umum. Laki-laki yang setara dengan itu akan menjadi raja. "
 " Apakah pekerjaan adalah sesuatu yang dapat Kamu pilih sendiri? "
