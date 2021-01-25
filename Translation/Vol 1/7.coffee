@@ -15,46 +15,63 @@ menurutku, tergantung bagaimana aku menggunakan sihirku, keluar dari rumah besar
 
 Lagipula, dengan +DETECTION kami bisa bergerak tanpa disadari dan bahkan jika mereka bisa menemukan kami, aku bisa melindunginya dengan +BARRIER ku. Aku telah menyembunyikan kedua skill itu semampuku, jadi Aku percaya bahkan pria itu tidak akan menyadarinya.
 
-Selain itu, dengan Ciel semuda dia, tubuh kecilnya mungkin yang terbaik untuk bergerak tak terlihat.
-Namun, masalah kita adalah jika dia mengirimkan pengejar setelah kita kabur. Baik Ciel dan aku terlalu cuek pada dunia untuk melanjutkan pelarian.
+Selain itu, Ciel kecil. tubuh kecilnya mungkin yang terbaik untuk bergerak tak terlihat.
 
-Jika pihak lain hanya memiliki pengaruh dari rumah tangga biasa, maka mungkin bagi kami untuk hidup dalam persembunyian bahkan hanya di kota tetangga. Namun, pria itu pasti seorang bangsawan. Setidaknya, dia memiliki cukup keuangan untuk membuat Ciel terkunci.
-Bahkan setelah mempertimbangkan itu, kami tidak memiliki jaminan bahwa diluar mansion itu aman. Kita hidup di dunia dengan sihir, jadi mungkin ada monster juga, dan mengharapkan jalan beraspal seperti di Jepang modern akan terlalu optimis bagiku.
-Jika kita pernah bertemu monster, hanya dengan pertahanan Aku dan tidak ada sarana bagi kita untuk mengalahkan mereka, itu akan menghasilkan pertempuran yang berat.
+tapi, masalah kami adalah jika dia mengirimkan seseorang untuk mengejar kami setelah kami kabur. Ciel dan aku terlalu cuek pada dunia ini untuk kabur.
 
-Skenario yang paling ideal kemungkinan adalah pria itu sendiri yang mengusir Ciel. Mempertimbangkan keadaan kita saat ini, Aku pikir tindakan terbaik mungkin membuatnya meninggalkannya dengan membuatnya kehilangan minat yang cukup pada Ciel.
-Satu lagi yang Aku pikirkan adalah membuat Ciel berpura-pura mati. Namun, sulit dilakukan di dalam mansion ini dan bahkan di luar tempat ini, jika kita tidak menyiapkan mayat untuk menggantikannya, akan sulit untuk meyakinkannya.
-Baik itu kami memutuskan untuk lari atau berpura-pura mati, kami masih membutuhkan lebih banyak informasi tentang dunia.
+Jika pihak lain hanya memiliki pengaruh dari rumah tangga biasa, maka mungkin bagi kami untuk hidup bersembunyi bahkan hanya di kota tetangga. tapi, pria itu pasti seorang bangsawan. Setidaknya, dia memiliki cukup uang untuk membuat Ciel terkunci.
 
-"Dengan itu, meskipun Aku ingin kita melarikan diri sesegera mungkin, Aku merasa berbahaya untuk pergi tanpa persiapan."
-"Sepertinya begitu.
-     Tapi tahukah Kamu, Ain? Aku benar-benar berpikir bahwa merencanakan pelarian kita itu penting. "Tapi untuk saat ini, bagaimana kalau kita mulai dengan belajar tentang satu sama lain, oke?"
-"Tapi kita tidak tahu berapa lama kita bisa tetap aman di sini. Jika pria itu berubah pikiran, kita bahkan bisa dibuang sekarang.
-     Yah, sulit untuk menyebut gaya hidup kita saat ini aman, tapi… "
-" Kalau begitu, kita akan baik-baik saja. Paling tidak, sampai Aku berusia 10 tahun, gaya hidup kita saat ini harus berlanjut seperti apa adanya. "
-" Mengapa Kamu bisa begitu yakin tentang itu? "
+Bahkan setelah mempertimbangkan itu, kami tidak memiliki jaminan bahwa diluar mansion itu aman. kami hidup di dunia dengan sihir, jadi mungkin ada monster juga, dan mengharapkan jalannya beraspal seperti di Jepang modern akan terlalu optimis bagiku.
 
-Dengan Ciel berbicara begitu percaya diri, Aku bingung.
-Setelah "Hmm" yang menggemaskan untuk dirinya sendiri, Ciel bergumam "Benar" dan memulai penjelasannya.
+Jika kami bertemu monster, aku hanya bisa bertahan dan tidak ada cara bagi kami untuk mengalahkannya, itu akan menjadi pertarungan yang berat.
 
-"Ain, apakah kamu tahu apa tujuan pria itu saat ini?"
-"Aku tidak tahu. Dia mengincar darahmu sebelumnya, kan? "
-" Itu benar. Secara khusus, darah perawan Aku sepertinya. Dan kemudian, bagian yang tidak berhasil seharusnya sudah familiar.
-     Itulah mengapa kali ini dia berencana menjadikanku sebagai "putri" yang berhubungan dengan sihir. Sehingga ketika dia memulai eksperimen baru lainnya, dia akan memiliki penolong yang berguna. "
-" Um, bolehkah aku bertanya …… ​​apa maksudmu dengan putri? "
+Skenario yang paling ideal kemungkinan adalah pria itu sendiri yang mengusir Ciel. Mempertimbangkan keadaan kami saat ini, Aku pikir tindakan terbaik mungkin membuatnya meninggalkannya dengan membuatnya kehilangan pada Ciel.
 
-Kata putri muncul secara alami dalam percakapan kita, tapi menurutku menjadi putri bukanlah sesuatu yang bisa kamu lakukan begitu saja.
-Dalam kasus Ciel, dengan bagaimana pria itu tampaknya, Aku benar-benar merasa dia mungkin benar-benar menjadi satu dalam kenyataan. Tetap saja, aku mengerti bukan itu yang dia maksud dengan itu.
-Juga, sedikit topik tapi, sepertinya yang aku anggap sebagai sihir sampai sekarang disebut sihir di sini.
-Ciel sepertinya terkejut dengan pertanyaanku, tetapi dia segera melanjutkan.
+Satu lagi yang Aku pikirkan adalah membuat Ciel berpura-pura mati. tapi sulit dilakukan di dalam mansion ini dan bahkan di luar tempat ini, jika kita tidak menyiapkan mayat untuk menggantikannya, akan sulit untuk meyakinkannya.
 
-"Ain, apakah Kamu tahu apa itu Pekerjaan?"
+Baik itu kami memutuskan untuk lari atau berpura-pura mati, kami masih membutuhkan lebih banyak informasi tentang dunia ini.
 
-Dan di awal penjelasannya, seperti yang diharapkan, istilah lain yang tidak diketahui.
-Hanya mengambil arti kata pekerjaan pada nilai nominalnya, itu mengacu pada pekerjaan seperti guru, pekerja kantoran, pemadam kebakaran dan sejenisnya.
+a"meskipun Aku ingin kita melarikan diri sesegera mungkin, Aku merasa berbahaya untuk lari tanpa persiapan."
+
+c"benar juga. Tapi tahukah Kamu, Aku memang berpikir bahwa merencanakan pelarian kita itu penting, Tapi untuk saat ini, bagaimana kalau kita mulai dengan belajar tentang kita sendiri, oke?"
+
+a"Tapi kita tidak tahu berapa lama kita bisa tetap aman di sini. Jika pria itu berubah pikiran, kita bahkan bisa dibuang sekarang. Yah, sulit untuk menyebut gaya hidup kita saat ini aman, tapi...."
+
+c"Kalau begitu, kita akan baik-baik saja. Paling tidak, sampai Aku berusia 10 tahun, gaya hidup kita saat ini pasti seperti ini sampai saat itu."
+
+a" Mengapa Kamu bisa begitu yakin?"
+
+aku bingung Dengan Ciel berbicara begitu percaya diri.
+
+Setelah "Hmm" yang menggemaskan muncul darinya, Ciel bergumam "Benar" dan memulai penjelasannya.
+
+c"Ain, apakah kamu tahu apa tujuan pria itu saat ini?"
+
+a"Aku tidak tahu. Dia mengincar darahmu sebelumnya, kan?"
+
+c"Itu benar. Secara khusus, sepertinya darah perawanku. Dan kemudian, bagian yang tidak berhasil seharusnya sudah familiar. Itulah mengapa kali ini dia berencana menjadikanku sebagai "putri" yang berhubungan dengan sihir(+sorcery). Sehingga ketika dia memulai eksperimen baru lainnya, dia akan memiliki penolong yang berguna."
+
+a"Um, bolehkah aku bertanya ...... ​​apa maksudmu dengan putri?"
+
+Kata putri muncul secara alami dalam percakapan kami, tapi menurutku menjadi putri bukanlah sesuatu yang bisa kamu lakukan begitu saja.
+
+Dalam kasus Ciel, dengan bagaimana model pria itu, Aku benar-benar merasa dia mungkin benar-benar seorang putri. Tetap saja, aku mengerti bukan itu yang dia maksud.
+
+dan juga, sepertinya yang aku anggap sebagai sihir(+magic) sampai sekarang disebut sihir(+sorcery) di sini.
+
+Ciel sepertinya terkejut dengan pertanyaanku, tetapi dia segera melanjutkannya.
+
+c"Ain, apakah Kamu tahu apa itu +Jobs?"
+
+Dan di awal penjelasannya, sudah kuduga, itu adalah istilah lain yang tidak kuketahui.
+
+Hanya mengambil arti kata yang berarti pekerjaan, itu mengacu pada pekerjaan seperti guru, pekerja kantoran, pemadam kebakaran dan sejenisnya.
+
 Kamu mungkin bisa melihat "putri" sebagai jenis pekerjaan juga.
-Tetap saja, berdasarkan pengalaman Aku selama ini, Aku agak bisa menebak apa artinya. Lagi pula, di Jepang, Aku menikmati bermain game sampai batas tertentu.
-Namun, jika Aku bermain sok tahu sekarang dan ternyata benar-benar berbeda, orang yang akan mendapat masalah adalah Aku dan, sebagai perpanjangannya, Ciel. Jadi Aku dengan jujur ​​menjawab "Aku tidak tahu."
+
+Tetap saja, berdasarkan pengalamanku selama ini, Aku sedikit bisa menebak apa artinya. Lagi pula, di Jepang, Aku menikmati bermain game juga.
+
+tapi, jika Aku sok tahu sekarang dan ternyata artinya benar-benar berbeda, aku akan mendapatkan masalah dan selanjutnya Ciel. Jadi Aku dengan jujur ​​menjawab "Aku tidak tahu."
 
 "Pekerjaan adalah sesuatu yang dianugerahkan dewa kepada orang-orang pada usia 10 tahun dan berdasarkan apa pekerjaan itu, dikatakan bahwa itu menentukan keahlian Kamu. Misalnya, tampaknya memiliki pekerjaan "** Swordsman" akan memudahkan orang untuk belajar ilmu pedang. "
 " Apakah putri di antara pekerjaan itu? "
