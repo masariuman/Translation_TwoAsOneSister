@@ -10,31 +10,40 @@ Tentu saja, kami menghabiskan waktu kami seperti biasa dan meminum obatnya juga,
 
 Buku-buku yang ada di ruangan ini adalah buku-buku terkait ilmu +SORCERY (+MAGIC), buku-buku terkait +JOB, dan juga tulisan tentang dewa; jadi sekarang Aku secara kasar mengerti mengapa orang itu berpikir untuk meraih para dewa.
 
-menurutku, mengetahui bahwa kata-kata yang digunakan Ciel untuk menghibur Aku sebelumnya berasal dari buku bergambar anak-anak adalah bagian terbaik dari semuanya.
+menurutku, mengetahui bahwa kata-kata yang digunakan Ciel untuk menghiburku sebelumnya berasal dari buku bergambar anak-anak adalah bagian terbaik dari semuanya.
 
-Mengapa? Karena itu memberi Aku kesempatan untuk melihat wajah merah apel Ciel yang malu-malu. Adegan Ciel bergumam "Saya hanya ingin membuat Kamu merasa lebih baik" dengan suara yang tenang adalah sesuatu yang ingin Aku rekam di media fisik.
+Mengapa? Karena itu memberiku kesempatan untuk melihat wajah merah apel Ciel yang malu-malu. Adegan Ciel bergumam "Aku hanya ingin membuatmu merasa lebih baik" dengan suara yang tenang adalah sesuatu yang ingin Aku rekam dengan kamera.
 
-Bagaimanapun, kami telah mengumpulkan semua informasi yang kami bisa, jadi di sini kami hari ini memutuskan untuk menggabungkan semuanya.
+kami telah mengumpulkan semua informasi yang kami bisa, jadi di sini kami hari ini memutuskan untuk menggabungkan semuanya.
 
-"Seperti yang diharapkan, Aku tidak dapat menemukan cara untuk memastikan Pekerjaan sebelumnya."
-"Yah, kami hanya berharap untuk itu sejak awal. Lagi pula, jika memang ada cara untuk mendapatkan pekerjaan, Aku yakin orang itu pasti sudah menggunakannya untuk Kamu.
-     Tetap saja, kami senang mengetahui tentang berbagai jenis Pekerjaan. Dan meskipun kami tidak dapat memastikan bahwa kami dapat memilikinya, kami telah menemukan target Job kami. "
-" Raja dan Putri yang Mengecewakan, kan? Menyebut mereka 'mengecewakan' bagi Aku sepertinya orang-orang belum memikirkannya, tetapi itu adalah sesuatu yang dapat kita gunakan untuk keuntungan kita. "
+c"sudah kuduga, Aku tidak dapat menemukan cara untuk memastikan +JOB yang akan didapat."
 
-Bisa dibilang, pekerjaan adalah bakat yang diukir ke dalam jiwa oleh para dewa, ya?
-Keterampilan teknis yang terkait dengan Pekerjaan ditingkatkan secara pasif. Itu mungkin bisa dilihat sebagai jenis sihir pendukung , di mana persembahan yang dibutuhkan oleh sihir pendukung tersebut dikompensasikan oleh para dewa sebagai gantinya.
-Dengan kata lain, Jobs terhubung langsung dengan para dewa dan kami menduga bahwa manusia menggunakan koneksi tersebut untuk meraih para dewa.
+a"Yah, pada dasarnya kita hanya bisa berharap. Lagi pula, jika memang ada cara untuk mendapatkan +JOB, Aku yakin orang itu pasti sudah menggunakannya untukmu. Tetap saja, cukup bagus untuk mengetahui tentang berbagai jenis +JOBS. Dan meskipun kita tidak dapat memastikan bahwa kita bisa mendapatkannya, kita telah menemukan target +JOB kita."
 
-Kembali ke topik. Istilah Raja dan Putri yang Mengecewakan adalah penghinaan yang merujuk pada orang-orang yang memperoleh Pekerjaan tingkat Raja atau Putri yang tidak diperlukan dalam pertempuran atau dalam kehidupan sehari-hari. Mereka kadang-kadang juga disebut Raja dan Putri Dud.
-Misalnya, pernah dikatakan bahwa ada seorang pria yang menjadi Raja Badut yang tidak begitu sukses dalam hidupnya sehingga, akibat diejek terus menerus, dia menjalani seluruh hidupnya dengan menyembunyikan pekerjaannya.
-Raja, Putri, dan Pekerjaan tingkat tinggi lainnya dapat melakukan lebih banyak hal daripada orang lain di lini Pekerjaan yang sama; tetapi untuk beberapa alasan, Pekerjaan tingkat yang lebih tinggi - Raja Badut daripada Badut - memiliki reputasi yang lebih buruk di mata publik.
+c"+DISAPPOINTING KING dan PRINCESS, kan? Menyebut mereka 'mengecewakan' bagiku sepertinya orang-orang belum terlalu memikirkannya, tetapi itu adalah sesuatu yang dapat kita gunakan untuk keuntungan kita."
 
-Untuk menggambarkannya secara kasar, mereka mungkin dilihat sebagai orang yang menguasai keterampilan yang tidak berguna.
-Meskipun pekerjaan memiliki semacam keseragaman, tidaklah aneh menemukan Pekerjaan yang benar-benar baru; Dalam beberapa tahun terakhir, jumlah Pekerjaan terus meningkat.
-Bahkan tidak mengherankan jika "Putri Kerikil" yang ahli dalam menggunakan kerikil tiba-tiba muncul.
+Bisa dibilang, +JOB adalah bakat yang diukir ke dalam jiwa oleh para dewa, ya?
 
-Dan bahkan di antara pekerjaan yang mengecewakan ini, salah satu yang disebut-sebut identik dengan istilah Putri yang Mengecewakan adalah "Putri Lagu".
-Selain membuat bernyanyi lebih mudah, efek dari pekerjaan ini disebut buff, debuff, dan healing support dalam video game. Membandingkannya dengan Job lain yang ada, ini adalah Support Sorcerer dan Priest / Saintess hybrid, kurasa.
++SKILL teknis yang terkait dengan +JOB ditingkatkan secara pasif. Itu mungkin bisa dilihat sebagai jenis sihir pendukung, di mana persembahan yang dibutuhkan oleh sihir pendukung tersebut dikompensasikan oleh para dewa sebagai gantinya.
+
+Dengan kata lain, +JOBS terhubung langsung dengan para dewa dan kami menduga bahwa manusia menggunakan koneksi tersebut untuk meraih para dewa.
+
+Kembali ke topik. Istilah +DISAPPOINTING KING dan PRINCESS adalah penghinaan yang merujuk pada orang-orang yang memperoleh +JOB tingkat Raja atau Putri yang tidak diperlukan dalam pertempuran atau dalam kehidupan sehari-hari. Mereka kadang-kadang juga disebut Raja dan Putri Dud.
+
+Misalnya, pernah ada seorang pria yang menjadi +CLOWN KING yang tidak begitu sukses dalam hidupnya sehingga, akibat diejek terus menerus, dia menjalani seluruh hidupnya dengan menyembunyikan +JOBnya.
+
++KING, +PRINCESS, dan +JOBS tingkat tinggi lainnya dapat melakukan lebih banyak hal daripada orang lain di garis +JOBS yang sama; tetapi untuk beberapa alasan, +JOBS tingkat yang lebih tinggi - +CLOWN KING daripada +CLOWN - memiliki reputasi yang lebih buruk di mata publik.
+
+Untuk menggambarkannya secara kasar, mereka dilihat sebagai orang yang menguasai +SKILL yang tidak berguna.
+
+Meskipun +JOBS memiliki semacam keseragaman, tidaklah aneh menemukan +JOBS yang benar-benar baru; Dalam beberapa tahun terakhir, jumlah +JOBS terus meningkat.
+
+Bahkan tidak mengherankan jika "+PEBBLE PRINCESS" yang ahli dalam menggunakan kerikil tiba-tiba muncul.
+
+Dan bahkan di antara +JOBS yang mengecewakan ini, salah satu yang disebut-sebut identik dengan istilah +DISAPPOINTING PRINCESS adalah "+SONG PRINCESS".
+
+Selain membuat bernyanyi lebih mudah, efek dari +JOB ini disebut +BUFF, +DEBUFF, dan +HEALING SUPPORT dalam video game. Kalau Dibandingkan dengan +JOBS lain yang ada, +JOBS ini adalah Pendukung +SORCERER dan +PRIEST / Campuran +SAINTESS.
+
 Song Princesses dapat memberikan dukungan dan penyembuhan yang sangat efektif. Hanya mendengarnya mungkin akan membuat Kamu menganggapnya sebagai back liner yang sangat baik, tetapi masalahnya di sini adalah jangkauan efektifnya.
 
 Soalnya, rentang tersebut mencakup semua orang yang dapat mendengar lagu mereka. Di medan perang, setiap orang terlepas dari afiliasi terpesona; dan ketika mereka berniat untuk menyembuhkan seseorang, bahkan musuh pun disembuhkan. Efek sihir mereka hanya bertahan dalam durasi lagu, jadi mereka bahkan tidak bisa menggunakan sihir pendukung sebelumnya.
