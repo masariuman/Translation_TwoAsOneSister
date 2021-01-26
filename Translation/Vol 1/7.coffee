@@ -135,80 +135,104 @@ a"Jadi itu artinya ketika Aku melihat pria itu merawatmu dan bersukacita atas ke
 
 c"Dia tidak benar-benar mengatakannya, tapi mungkin seperti itu. Alasan dia tidak memberi kita makanan juga mungkin karena dia takut memberi makanan kepada manusia akan membuatku berhenti menjadi dewa. Meskipun dia sebenarnya tidak memiliki dasar untuk teori itu."
 
-a"Itu berarti bahwa tujuannya bukanlah darah perawan Ciel, itu adalah darah perawan dewa."
------------------
-Aku menatap Ciel yang mengangguk setuju dengan perasaan campur aduk. Dengan darah dewa, jelas akan ada kekuatan luar biasa di dalamnya. Terlebih lagi jika darah yang hanya bisa ditumpahkan sekali, tidak aneh kalau bisa membuat keajaiban seperti menghidupkan kembali orang mati.
-Pria itu mungkin menginginkan sesuatu yang cukup untuk mendorongnya sejauh ini. Bahkan mungkin sesuatu seperti bertukar kata-kata terakhir dengan kekasih.
-Tetap saja, itu sama sekali tidak memaafkannya atas bagaimana dia memperlakukan Ciel.
+a"artinya tujuannya bukanlah darah perawan Ciel, itu adalah darah perawan dewa."
 
-Jika ditanya apakah cukup belajar tentang situasi untuk membayangkan sebanyak ini dapat meredakan amarah Aku, ternyata tidak.
-Sampai sekarang, Aku terganggu oleh rasa jijik yang tak terlukiskan pada keseraman situasi yang tidak diketahui ini. Tapi sekarang misteri itu terungkap, amarahku malah semakin mendidih.
+Aku menatap Ciel yang mengangguk setuju dengan perasaan campur aduk. Dengan darah dewa, jelas akan ada kekuatan luar biasa di dalamnya. Tidak aneh kalau mungkin bisa membuat keajaiban seperti menghidupkan kembali orang mati.
 
-"Jadi pada hari itu, dia memperhatikan bahwa Aku bukan dewa dan membawa Aku ke kamar ini.
-     Saat itu, dia menyuruh Aku membaca semua buku di sini sampai Aku berusia 10 tahun. Setelah itu, kamu sudah tahu kan Ain? "
+Pria itu mungkin menginginkan sesuatu yang cukup untuk mendorongnya sampai sejauh ini. Bahkan mungkin sesuatu seperti ingin berbicara terakhir kali dengan orang yang dicintainya.
 
-Ciel tidak mengatakan apa-apa tentang ini, tetapi alasan dia dibalut perban mungkin karena pria itu melampiaskan frustrasinya padanya setelah menyadari bahwa dia bukan dewa.
-Sungguh, di dunia di mana dewa begitu dekat, aku kagum dia bisa berpikir untuk melakukan itu. Sekarang kalau saja dia terkena penghakiman ilahi sekarang.
-"Sepertinya aku sudah selesai dengan ceritaku" Ciel bergumam pada dirinya sendiri. Kami sudah bersama sejak dia lahir, jadi meskipun dia masih ingin bicara, sepertinya dia tidak punya apa-apa lagi yang bisa dia ceritakan.
+Tetap saja, itu sama sekali tidak dapat dimaafkan bagaimana dia memperlakukan Ciel.
 
-"Selanjutnya, Aku ingin tahu tentang Kamu, Ain."
-"Baiklah. Pertama-tama, Aku sendiri tidak tahu mengapa Aku bersamamu.
-     Aku curiga bahwa Aku mungkin telah ditangkap oleh sesuatu yang dulu memiliki dewa menghuni Kamu. Ini benar-benar tidak ada hubungannya denganku, tapi itu cukup meyakinkan.
-Then "Berarti Ain bukanlah orang yang bersinar terang, kan?"
-"Hmm, mari kita lihat. Aku pikir itu mungkin jiwa Aku.
-     Aneh bagi Aku bahwa Aku hanya bisa ada sebagai jiwa, jadi mungkin yang terbaik adalah berpikir bahwa tubuh Kamu menampung kedua jiwa kita.
-     Karena sepertinya aku terikat pada tubuhmu. "
-" Jika itu masalahnya, maka itu berarti tubuhku juga milikmu, kan? Aku minta maaf, karena membuat Kamu banyak terluka. "
+Jika aku ditanya apakah aku cukup mengetahui situasinya sebanyak ini dan dapat meredakan amarahku, jawabannya tidak.
 
-Agak sulit bagiku untuk menjelaskannya, jadi akhirnya aku menjadi tidak jelas. Namun, Ciel secara kasar mengerti apa yang Aku katakan dan meminta maaf dengan tatapan sedih.
-Jika Ciel meninggal, Aku pikir kemungkinan besar Aku juga akan mati, jadi tidak salah untuk mengatakan bahwa itu adalah tubuh Aku juga.
-Tetap saja, aku sudah mati sekali dan tubuh Ciel adalah miliknya, jadi aku akan bahagia jika dia menjalani hidupnya sendiri. Bagaimana Aku menjelaskannya? Ini hanya seperti Aku kadang-kadang meminjamnya.
+Sampai sekarang, Aku terganggu oleh rasa jijik yang tak terlukiskan pada keseraman situasi yang tidak diketahui ini. Tapi sekarang misteri itu terungkap dan amarahku malah semakin mendidih.
 
-"Tolong jangan keberatan, Aku benar-benar hanya meminjam tubuh Kamu.
-     Bagaimanapun juga, Aku adalah seseorang yang sudah mati. "
-" Ain sudah mati? "
-" Aku tidak tahu cara terbaik untuk menjelaskannya, tapi Aku pasti sudah mati sekali.
-     Aku ingat dengan jelas bagaimana Aku mati juga, jadi Aku yakin tentang itu.
-     Dugaan Aku adalah bahwa setelah mati dan menjadi hanya jiwa, Aku ditarik ke dalam tubuh Kamu oleh percobaan tersebut. Dengan kata lain, tubuh itu milikmu, Ciel, dan aku hanyalah seseorang yang datang setelahnya. "
-" Baiklah, aku akan berhenti begitu saja.
-     Kamu mengatakan bahwa Kamu hanya meminjam tubuh Aku, jadi apakah itu berarti Kamu juga dapat menggerakkan tubuh Aku? "
-" Aku telah meminjamnya saat Kamu tidur sebelumnya. Aku juga sedikit membantu saat minum obat.
-     Namun, Aku tidak tahu apakah Aku bisa bergerak saat Kamu bangun. Apakah Kamu ingin mengujinya? "
-"Fufu , Aku akan menyerahkan tubuh Aku kepada Kamu. "
+c"Jadi pada hari itu, dia sadar bahwa Aku bukan dewa dan membawaku ke kamar ini. Saat itu, dia menyuruhku membaca semua buku di sini sampai Aku berusia 10 tahun. Setelah itu, kamu sudah tahu kan apa selanjutnya, Ain?"
 
-Tidak lagi merasa sedih, Ciel dengan penuh semangat melontarkan senyuman padaku. Sepertinya dia menemukan kompromi untuk dirinya sendiri, yang sangat membantu karena sulit bagiku untuk menjelaskan.
+Ciel tidak mengatakan apa-apa tentang lukanya, tetapi alasan dia dibalut perban mungkin karena pria itu melampiaskan frustrasinya padanya setelah menyadari bahwa dia bukan dewa.
+
+Sungguh, di dunia di mana dewa begitu dekat, aku kagum dia bisa berpikir untuk melakukan itu. andai saja dia terkena hukuman ilahi sekarang.
+
+c"Sepertinya aku sudah selesai dengan ceritaku" 
+
+Ciel bergumam pada dirinya sendiri. Kami sudah bersama sejak dia lahir, jadi meskipun dia masih ingin bicara, sepertinya dia tidak punya apa-apa lagi yang bisa dia ceritakan.
+
+c"Selanjutnya, Aku ingin tahu tentangmu, Ain."
+
+a"Baiklah. Pertama-tama, Aku sendiri tidak tahu mengapa Aku bersamamu. Aku curiga bahwa Aku mungkin telah ditangkap oleh sesuatu yang seharusnya dewa penghunimu. Ini benar-benar tidak ada hubungannya denganku, tapi itu cukup meyakinkan."
+
+c"Berarti Ain bukanlah 'seorang cahaya', kan?"
+
+a"Hmm, gimana ya. mungkin itu jiwaku. menurutku aneh bahwa Aku hanya ada sebagai jiwa, jadi mungkin kesimpulan terbaik adalah tubuhmu menampung kedua jiwa kita. Karena sepertinya aku terikat pada tubuhmu."
+
+c"Kalau seperti itu, artinya tubuhku juga milikmu, kan? Aku minta maaf, karena membuatmu banyak terluka."
+
+Agak sulit bagiku untuk menjelaskannya, pada akhirnya diriku menjadi tidak jelas. tapi Ciel secara kasar mengerti apa yang Aku katakan dan meminta maaf dengan tatapan sedih.
+
+Jika Ciel mati, kupikir kemungkinan besar Aku juga akan mati, jadi tidak salah untuk mengatakan bahwa itu adalah tubuhku juga.
+
+Tetap saja, aku sudah mati sekali dan tubuh Ciel adalah miliknya, jadi aku akan bahagia jika dia menjalani hidupnya sendiri. Bagaimana Aku menjelaskannya? Aku hanya akan meminjam tubuhnya sesekali saja.
+
+a"jangan berpikir seperti itu, Aku benar-benar hanya meminjam tubuhmu. Bagaimanapun juga, Aku adalah seseorang yang sudah mati."
+
+c"Ain sudah mati?"
+
+a"Aku tidak tahu cara terbaik untuk menjelaskannya, tapi Aku pasti sudah mati sekali. Aku ingat dengan jelas bagaimana Aku mati juga, jadi Aku yakin tentang itu. Dugaanku adalah bahwa setelah mati dan menjadi hanya jiwa, Aku ditarik ke dalam tubuhmu oleh percobaan tersebut. Dengan kata lain, tubuh itu milikmu, Ciel, dan aku hanyalah seseorang yang datang setelah itu."
+
+c"Baiklah, aku akan menganggapnya seperti itu. Kamu mengatakan bahwa Kamu hanya meminjam tubuhku, jadi apakah itu berarti Kamu juga dapat menggerakkan tubuhku?"
+
+a"Aku telah meminjamnya saat Kamu tidur sebelumnya. Aku juga sedikit membantumu saat minum obat. tapi Aku tidak tahu apakah Aku bisa bergerak saat Kamu bangun. Apakah Kamu ingin mengujinya?"
+
+c"Fufu , Aku akan menyerahkan tubuhku kepadamu."
+
+Tidak lagi merasa sedih, Ciel dengan penuh semangat tersenyum padaku. Sepertinya dia menemukan maksudnya, yang sangat membantu karena sulit bagiku untuk menjelaskan.
+
 Selain itu, dia mungkin juga tertarik untuk merasakan perasaan aneh saat tubuhnya bergerak di luar kendalinya.
-Ini mungkin perlu bagi kita di masa depan juga, jadi tidak ada salahnya mencobanya.
+
+Ini mungkin diperlukan untuk kami di masa depan juga, jadi tidak ada salahnya mencobanya.
 
 Pertama, aku memanggilnya dan mencoba bergerak seperti biasanya saat dia tertidur.
+
 Seluruh tubuh terasa tegang secara aneh, sepertinya tidak bergerak.
 
-"Ciel, bisakah kamu mencoba menutup mata dan bersantai?"
-"Dimengerti."
+a"Ciel, bisakah kamu mencoba menutup mata dan bersantai?"
+
+c"baiklah."
 
 Mengikuti instruksiku, Ciel menutup matanya dan merilekskan tubuhnya.
-Kali ini tidak ada perlawanan sebanyak sebelumnya dan Aku sekarang dapat memindahkan tubuh Ciel sesuai keinginan Aku.
-Namun, badannya terasa berat dan Aku tidak bisa menggerakkannya dengan sangat lancar.
-Saat ini tidak sepenuhnya tidak berguna, tetapi mungkin lebih baik untuk mengujinya lebih lanjut. Setelah menguji dengan beberapa gerakan ringan, Aku mengembalikan tubuh ke Ciel.
 
-"Rasanya sangat aneh. Tapi rasanya menyenangkan merasakan keberadaan Kamu, Ain. "
-" Apakah ada yang terasa tidak nyaman? "
-" Tidak, itu menyenangkan. Jadi kamu selalu melindungiku seperti ini, kan?
-     Terima kasih, Ain. "
-" Itu wajar saja dilakukan. "
+Kali ini tidak ada perlawanan seperti sebelumnya dan Aku sekarang dapat memindahkan tubuh Ciel sesuai keinginanku.
+
+tapi badannya terasa berat dan Aku tidak bisa menggerakkannya dengan sangat lancar.
+
+untuk Saat ini tidak sepenuhnya sia-sia, tetapi mungkin lebih baik untuk mengujinya lebih lanjut. Setelah menguji dengan beberapa gerakan ringan, Aku mengembalikan tubuh ke Ciel.
+
+c"Rasanya sangat aneh. Tapi rasanya menyenangkan merasakan keberadaanmu, Ain."
+
+a"Apakah ada yang terasa tidak nyaman?"
+
+c"Tidak, itu menyenangkan. Jadi kamu selalu melindungiku seperti ini? Terima kasih, Ain."
+
+a"Itu hal yang wajar."
 
 Secara khusus, Aku hanya menggunakan sihir, tetapi fakta bahwa Aku meminjam tubuhnya tidak berubah.
-Memalukan mendengarnya berterima kasih padaku dengan terus terang, jadi aku akhirnya menjawab dengan singkat. Tapi kenyataan bahwa sekarang aku bisa menerima ucapan terima kasihnya mungkin merupakan tanda bahwa kita sudah lebih dekat.
-Sampai sekarang Aku telah melakukan banyak kesalahan, tetapi selama Ciel tidak menolak Aku, Aku ingin tetap melindunginya.
-Untuk itu, hingga Ciel mencapai usia 10 tahun, kami perlu melakukan semua yang kami bisa, satu per satu. Jadi untuk saat ini, kita akan mulai dengan belajar tentang pekerjaan.
 
-"Untuk rencana kita, Aku pikir kita harus belajar tentang pekerjaan terlebih dahulu.
-     Mempelajari jenis pekerjaan apa yang ada, mana yang paling dihargai dan paling tidak dan, jika mungkin, menemukan cara untuk mendapatkan pekerjaan tertentu seharusnya meningkatkan peluang kita untuk melarikan diri dari rumah besar ini. "
-" Jadi kita harus memprioritaskan membaca buku tentang pekerjaan, bukan?
-     Tetap saja, Aku berencana untuk menyelesaikan membaca semua buku di sini sejak awal. "
-" Itu benar. Kalau begitu, bisakah kita melanjutkan seperti biasa?
-Are "Apakah kamu mungkin akan bernyanyi?"
-"Apakah kamu tidak menyukainya?"
-"Tidak, aku menantikannya."
+Memalukan mendengarnya berterima kasih padaku dengan terus terang, jadi aku akhirnya menjawab dengan singkat. Tapi kenyataan bahwa sekarang aku bisa menerima ucapan terima kasihnya mungkin merupakan tanda bahwa kami sudah lebih dekat.
 
-Dengan wajah penuh antisipasi, Ciel mulai mencari buku tentang pekerjaan.
+Sampai sekarang Aku telah melakukan banyak kesalahan, tetapi selama Ciel tidak menolakku, Aku ingin tetap melindunginya.
+
+Untuk itu, hingga Ciel mencapai usia 10 tahun, kami perlu melakukan semua yang kami bisa, satu per satu. Jadi untuk saat ini, kami akan mulai dengan belajar tentang +JOB.
+
+a"Untuk rencana kita, Aku pikir kita harus belajar tentang +JOB terlebih dahulu. Mempelajari jenis +JOB apa yang ada, mana yang paling dihargai dan paling tidak dan, jika mungkin, menemukan cara untuk mendapatkan +JOB tertentu yang seharusnya meningkatkan peluang kita untuk melarikan diri dari rumah besar ini."
+
+c"Jadi kita harus memprioritaskan membaca buku tentang +JOB? Tetap saja, Aku berencana untuk menyelesaikan membaca semua buku di sini sejak awal."
+
+a"Itu benar. Kalau begitu, bisakah kita melanjutkan seperti biasa saja?"
+
+c"Apakah kamu mungkin akan bernyanyi?"
+
+a"Apakah kamu tidak menyukainya?"
+
+c"Tidak, aku menantikannya."
+
+Dengan wajah penuh antusias, Ciel mulai mencari buku tentang +JOBS.
