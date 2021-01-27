@@ -44,25 +44,36 @@ Dan bahkan di antara +JOBS yang mengecewakan ini, salah satu yang disebut-sebut 
 
 Selain membuat bernyanyi lebih mudah, efek dari +JOB ini disebut +BUFF, +DEBUFF, dan +HEALING SUPPORT dalam video game. Kalau Dibandingkan dengan +JOBS lain yang ada, +JOBS ini adalah Pendukung +SORCERER dan +PRIEST / Campuran +SAINTESS.
 
-Song Princesses dapat memberikan dukungan dan penyembuhan yang sangat efektif. Hanya mendengarnya mungkin akan membuat Kamu menganggapnya sebagai back liner yang sangat baik, tetapi masalahnya di sini adalah jangkauan efektifnya.
++SONG PRINCESS dapat memberikan dukungan dan penyembuhan yang sangat efektif. Hanya mendengarnya mungkin akan membuatmu menganggapnya sebagai pendukung baris belakang yang sangat baik, tetapi masalahnya di sini adalah jangkauan efektifnya.
 
-Soalnya, rentang tersebut mencakup semua orang yang dapat mendengar lagu mereka. Di medan perang, setiap orang terlepas dari afiliasi terpesona; dan ketika mereka berniat untuk menyembuhkan seseorang, bahkan musuh pun disembuhkan. Efek sihir mereka hanya bertahan dalam durasi lagu, jadi mereka bahkan tidak bisa menggunakan sihir pendukung sebelumnya.
-Karena itu, mereka tidak mendapat banyak pekerjaan sama sekali. Sebaliknya, Kamu dapat mengatakan bahwa itu adalah Pekerjaan nomor satu yang Kamu tidak ingin orang tahu tentang Kamu.
-Kenyataannya, bahkan di antara buku-buku itu, ada cukup banyak catatan Putri Song yang dianiaya setelah Pekerjaan mereka terungkap.
-Bahkan ada catatan Song Princess yang sudah cukup dan menggunakan kekuatannya untuk menarik monster, menghancurkan ibu kota kerajaan dan dirinya sendiri. Ibukota tersebut berada jauh di timur dari sini, tampaknya masih terbengkalai.
+Soalnya, jangkauannya mencakup semua orang yang dapat mendengar lagu mereka. Di medan perang, setiap orang terlepas dari teman yang ditujukan; dan ketika mereka berniat untuk menyembuhkan seseorang, bahkan musuh pun juga disembuhkan. Efek sihir mereka hanya bertahan dalam durasi lagu, jadi mereka bahkan tidak bisa menggunakan +SORCERY pendukung.
+
+Karena itu, mereka tidak mendapat banyak pekerjaan sama sekali. bisa dikatakan itu adalah Pekerjaan nomor satu yang Kamu tidak ingin orang tahu kamu memilikinya.
+
+Kenyataannya, bahkan di antara buku-buku itu, ada cukup banyak catatan +SONG PRINCESS yang dianiaya setelah +JOB mereka terungkap.
+
+Bahkan ada catatan +SONG PRINCESS yang sudah muak akan semua itu dan menggunakan kekuatannya untuk menarik monster, menghancurkan ibu kota kerajaan dan dirinya sendiri. Ibukota tersebut berada jauh di timur dari sini, tampaknya masih terbengkalai.
+
 Mendengar cerita ini, Aku sangat terkesan dengan keberadaan monster.
 
-Alasan kami mengincar Ayub yang mengecewakan adalah, tentu saja, agar pria itu muak dengan Ciel. Ada kemungkinan dia akan menjadi liar dengan pisaunya lagi begitu dia melihat Jobnya, tapi aku bisa membelanya dari itu.
-Lebih penting lagi, jika pria itu masih mengawasi kita dan mengirimkan pengejar setelah kita ketika kita melarikan diri akan jauh lebih buruk.
-Hanya memiliki Pekerjaan yang Mengecewakan memiliki kerugian hanya membuat kita sulit untuk tumbuh lebih kuat. Namun, aku merasa reputasi buruk mereka, terutama para Raja dan Putri yang Mengecewakan, disengaja. Jadi Aku pikir tergantung pada situasinya, mereka kemungkinan bisa bertarung dari ujung ke ujung dengan pekerjaan tempur.
+Alasan kami mengincar +JOB yang mengecewakan adalah, tentu saja, agar pria itu muak dengan Ciel. Ada kemungkinan dia akan menjadi liar dengan pisaunya begitu dia melihat +JOBnya, tapi aku bisa melindunginya dari itu.
 
-Sekarang, untuk pertanyaan Pekerjaan mana yang sebaliknya paling populer, itu adalah Pekerjaan Tempur.
+Lebih penting lagi, jika pria itu masih mengawasi kami dan mengirimkan pengejar setelah kami melarikan diri akan jauh lebih buruk.
+
+Hanya memiliki +JOB yang Mengecewakan memiliki kerugian membuat kita sulit untuk tumbuh lebih kuat. tapi, aku merasa reputasi buruk mereka, terutama para +DISAPPOINTING KING dan +PRINCESS dibuat disengaja. Jadi kupikir tergantung pada situasinya, mereka kemungkinan bisa bertarung 1 lawan 1 dengan +JOB pertempuran.
+
+Sekarang, untuk pertanyaan +JOB mana yang paling populer, itu adalah +JOB tipe pertempuran.
+
 Di dunia di mana monster ada, yang terbaik adalah memiliki kekuatan, dan kekuatan menjadi semacam status.
-Lagi pula, jika Kamu kuat, maka Kamu bisa hidup dari kekuatan itu; dan jika tidak, maka berbahaya bahkan bepergian ke kota berikutnya tanpa dikawal oleh orang yang kuat.
-Dan di antara semua Pekerjaan Tempur, kita terutama perlu menghindari Pekerjaan yang berhubungan dengan sihir. Aku tidak tahu bagaimana kita akan melakukannya.
-Tidak mempelajari ilmu sihir sepertinya akan membantu kita dalam hal itu, tapi Aku pikir untuk itulah sebenarnya obat itu ada. Yang terpenting, Aku tidak ingin membuang satu kartu pun yang dapat membantu kami selama pelarian kami. Lagipula, jika kita bisa menggunakan sihir tempur, kita bisa mengurangi kemungkinan mati karena pertemuan monster secara acak saat meninggalkan mansion.
 
-Jika Pekerjaan tempur adalah bintang dari Pekerjaan, maka petani, pedagang dan Pekerjaan lain yang sangat mementingkan mata pencaharian seperti pekerja kantoran di kehidupan masa lalu Aku. Kebanyakan orang mendapatkan jenis Pekerjaan ini.
+Lagi pula, jika Kamu kuat, maka Kamu bisa hidup dari kekuatan itu; dan jika tidak, maka hidupmu berbahaya bahkan jika bepergian ke kota berikutnya tanpa dikawal oleh orang yang kuat.
+
+Dan di antara semua +JOB pertempuran, kami perlu menghindari +JOB yang berhubungan dengan +SORCERY. Aku tidak tahu bagaimana Kami akan melakukannya.
+
+Tidak mempelajari ilmu +SORCERY sepertinya akan membantu Kami dalam hal itu, tapi kupikir untuk itulah tujuan obat itu ada. Yang terpenting, Aku tidak ingin membuang satu kartu pun yang dapat membantu kami selama pelarian kami. Lagipula, jika kami bisa menggunakan +SORCERY pertempuran, kami bisa mengurangi kemungkinan mati karena pertemuan dengan monster secara acak saat meninggalkan mansion.
+
+Jika +JOB Pertempuran adalah bintang dari +JOBS, maka petani, pedagang dan +JOBS lain yang sangat mementingkan mata pencaharian seperti pekerja kantoran di kehidupan masa laluku. Kebanyakan orang mendapatkan jenis Pekerjaan ini.
+-----------------
 Dan di bagian bawah kasta Pekerjaan adalah orang-orang dengan pekerjaan yang berhubungan dengan hiburan, seperti Badut. Bahkan di antara mereka, Putri Song ada di bawah.
 
 Sedikit perubahan topik tetapi beberapa Job dibagi lagi lebih jauh, misalnya: Sorcerer memiliki Pekerjaan seperti "Flame Sorcerer" dan "Ice Sorcerer" yang terspesialisasi dalam area tertentu, serta "Sorcerer" yang mencakup semua itu.
