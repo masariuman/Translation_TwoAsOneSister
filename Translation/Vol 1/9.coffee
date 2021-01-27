@@ -1,54 +1,80 @@
 ch 9 : Ciel, DISAPPOINTING PRINCESS, dan Belenggu
 
-Setelah bertahun-tahun tidak mengunjungi Ciel, Duke Rispelgia akhirnya muncul di hadapan kami suatu hari.
+Setelah bertahun-tahun tidak mengunjungi Ciel, Duke Rispelgia akhirnya muncul di hadapan kami.
+
 Dia sepertinya sudah tua juga, tapi aku tidak merasakan kelemahan apapun pada tatapan matanya yang kuat.
-Alih-alih menjadi tua, bagi Aku rasanya dia menjadi lebih halus dan sebagai mantan pria, itu benar-benar membuat iri. Perutnya juga tidak membesar; jadi jika dia tetap diam, dia bisa digambarkan sebagai pria paruh baya yang menarik.
-Namun sayangnya, tatapannya yang tertuju pada Ciel masih sedingin es, dan saat dia tiba, dia segera meninggalkan ruangan setelah hanya mengatakan "Besok, aku akan melihat pekerjaanmu."
+
+daripada menjadi tua, bagiku rasanya dia menjadi lebih berotot dan sebagai mantan pria, itu benar-benar membuatku iri. Perutnya juga tidak membesar; jadi jika dia tetap diam, dia bisa digambarkan sebagai pria paruh baya yang menarik.
+
+Namun sayangnya, tatapannya yang tertuju pada Ciel masih sedingin es, dan saat dia tiba, dia segera meninggalkan ruangan setelah hanya mengatakan "Besok, aku akan melihat +JOBmu."
 
 Ciel tidak mengucapkan sepatah kata pun sepanjang waktu.
 Aku berasumsi itu karena Ciel mengenakan tatapan seperti boneka, tetapi dia mungkin tidak merasa seperti sedang berbicara dengan manusia sungguhan juga.
+
 Ini tidak menyenangkan, tetapi ini berarti bahwa kesempatan yang akhirnya akan mengubah segalanya telah tiba. Dan ini juga berarti sudah hampir 10 tahun sejak Aku bereinkarnasi juga.
 
-Kehidupan teratur dan tepat waktu yang Aku jalani di Jepang terasa seperti itu semua bohong.
-Lagipula, dalam hidup kita selama ini, setelah meminum obat kita praktis bebas untuk melakukan apapun yang kita inginkan.
-Merenungkan akhir dari gaya hidup ini, Aku berharap diri Aku gelisah; tapi ternyata Aku lebih tenang dari yang Aku kira. Ciel tampaknya juga merasakan hal yang sama dan tidak memiliki masalah tertidur lelap.
+Kehidupan teratur dan tepat waktu yang Aku jalani di Jepang terasa seperti semuanya bohong.
+
+Lagipula, dalam hidup kami selama ini, setelah meminum obat, kami bebas untuk melakukan apapun yang kami inginkan.
+
+Merenungkan akhir dari gaya hidup ini, Aku berharap diriku gelisah; tapi ternyata Aku lebih tenang dari yang Aku kira. Ciel tampaknya juga merasakan hal yang sama dan tidak memiliki masalah dan dapat tertidur lelap.
 
 ◇◇◇
 
 Dan sekarang, akhirnya tiba; Ulang tahun ke 10 Ciel.
-Karena Ciel tidak diizinkan meninggalkan ruangan ini, kepala pelayan bermuka topeng memberi tahu kami sebelumnya bahwa Duke Rispelgia akan datang dengan alat yang digunakan untuk memeriksa pekerjaan.
+Karena Ciel tidak diizinkan meninggalkan ruangan ini, kepala pelayan bermuka topeng memberi tahu kami sebelumnya bahwa Duke Rispelgia akan datang dengan alat yang digunakan untuk memeriksa +JOB.
+
 Sepanjang waktu, Ciel tanpa ekspresi membiarkan semuanya berjalan dengan sendirinya.
 
-"Apakah kamu gugup?"
-"Tidak terlalu. Tetap saja, Aku tidak suka fakta bahwa pria itu datang ke sini. "
-" Kamu luar biasa, Ciel. Aku sangat gugup sampai-sampai aku merasa akan mati. "
-" Kalau begitu, kurasa aku tidak bisa bertukar dengan Ain sekarang. Lagipula aku tidak ingin hati kita hancur. "
+a"Apakah kamu gugup?"
+
+c"Tidak terlalu. Tetap saja, Aku tidak suka fakta bahwa pria itu datang ke sini."
+
+a" Kamu luar biasa, Ciel. Aku sangat gugup sampai-sampai aku merasa akan mati."
+
+c"Kalau begitu, kurasa aku tidak bisa bertukar dengan Ain sekarang. Lagipula aku tidak ingin hati kita hancur."
 
 Sambil terkikik, Ciel kini telah tumbuh menjadi sangat feminin.
-Meskipun tinggi badannya mungkin lebih pendek dari rata-rata, dadanya mulai membengkak dan seluruh tubuhnya menjadi lebih dewasa.
-Terutama ekspresinya, terutama senyuman yang dia tunjukkan saat dia mengolok-olok Aku, sangat sensual untuk anak berusia 10 tahun. Namun, samar-samar Aku ingat melihat sekilas senyum itu di masa lalu.
-Aku masih baik-baik saja kemarin, tetapi mengapa Aku merasa sangat gugup sekarang? Aku benci kepengecutanku sendiri. Setidaknya, Aku ingin berbicara dengan Ciel untuk menenangkan diri. Sayangnya, Aku merasakan kehadiran yang mendekati dari deteksi Aku.
 
-"Sepertinya dia ada di sini."
-"Sangat menyebalkan. Tapi aku seharusnya tidak mengatakan itu, kan? "
-" Jika kamu hanya mengatakannya, silakan saja. Lagipula, aku mengerti perasaan itu. "
-" Setelah mengabaikanku selama ini, dia seharusnya melupakan aku, kan? "
+Meskipun tinggi badannya mungkin lebih pendek dari rata-rata, dadanya mulai tumbuh dan seluruh tubuhnya menjadi lebih dewasa.
+
+Terutama ekspresinya, senyuman yang dia tunjukkan saat dia mengerjaiku, sangat sensual untuk anak berusia 10 tahun. dengan samar-samar Aku mengingat melihat sekilas senyum itu di masa lalu.
+
+Aku masih baik-baik saja kemarin, tetapi mengapa Aku merasa sangat gugup sekarang? Aku benci kepengecutanku sendiri. Setidaknya, Aku ingin berbicara dengan Ciel untuk menenangkan diri. Sayangnya, Aku merasakan kehadiran yang mendekat dari +DETECTIONku.
+
+a"Sepertinya dia ada di sini."
+
+c"Sangat menyebalkan. Tapi aku seharusnya tidak mengatakan itu, kan?"
+
+a"Jika kamu hanya ingin mengatakannya, silakan saja. Lagipula, aku mengerti perasaan itu."
+
+c"Setelah mengabaikanku selama ini, dia seharusnya melupakanku, kan?"
 
 Menghela nafas dengan sangat tidak senang, Ciel menutup matanya.
+
 Dan saat dia membukanya, emosi di matanya sudah menghilang.
-Tak lama kemudian, pintu terbuka dengan keras dan Duke Rispelgia kemarin muncul di hadapan kami sekali lagi. Memasuki ruangan, tangan pria itu membawa benda seperti kertas yang agak tebal dan wajahnya ditutupi dengan senyuman.
-Jika kebetulan Aku pertama kali melihatnya dengan senyuman ini, Aku akan salah mengira dia pria baik. Tapi sekarang, itu hanya membuatnya terlihat sangat curiga. Menjadi seorang bangsawan, Aku berasumsi bahwa senyum ini adalah caranya untuk menyembunyikan emosinya.
 
-"Hari ini, pekerjaan Kamu sudah diputuskan. Aku berharap Kamu memahami arti dari apa yang telah Kamu lakukan sejauh ini? "
-" Ya. "
-" Tuangkan kekuatan sihir Kamu ke dalam makalah ini. Kamu tahu bagaimana melakukannya, bukan? "
-" Aku tahu. "
-" Baiklah, cepat dan pergi. "
+Tak lama kemudian, pintu terbuka dengan keras dan Duke Rispelgia muncul di hadapan kami sekali lagi. Memasuki ruangan, tangan pria itu membawa benda seperti kertas yang agak tebal dan wajahnya ditutupi dengan senyuman.
 
-Dari suaranya yang agung muncul kata-kata yang langsung membuat Aku tersesat.
-Apakah pria ini murni berbakat untuk membuatku marah? Aku sudah lupa berapa kali Aku hampir membentak.
+Jika ini pertama kalinya aku melihatnya dengan senyuman ini, Aku akan salah mengira dia pria baik. Tapi sekarang, itu hanya membuatnya terlihat sangat mencurigakan. Menjadi seorang bangsawan, Aku berasumsi bahwa senyum ini adalah caranya untuk menyembunyikan emosinya.
+
+"Hari ini, +JOBmu sudah diputuskan. Aku berharap Kamu memahami maksudnya dari apa yang telah Kamu lakukan sejauh ini kan?"
+
+c"Ya."
+
+"Tuangkan energi sihirmu ke dalam kertas ini. Kamu tahu bagaimana melakukannya, bukan?"
+
+c"Aku tahu."
+
+"kalau beigut, cepat lakukan sekarang."
+
+Dari suaranya yang agung muncul kata-kata yang langsung membuat Aku tidak enak.
+
+Apakah pria ini murni berbakat untuk membuatku marah? Aku sudah lupa berapa kali Aku hampir mengamuk.
+
 Apalagi sebagai sentuhan akhir, ia melemparkan kertas itu ke tanah agar Ciel mengambilnya.
-Dalam situasi ini, Aku benci betapa sedikitnya yang bisa Aku lakukan. Kalau saja aku bisa menggunakan sihir tempur, aku pasti sudah membakarnya sampai habis.
+
+Dalam situasi ini, Aku benci betapa sedikitnya yang bisa Aku lakukan. Kalau saja aku bisa menggunakan sihir tempur, aku pasti sudah membakarnya sampai tidak tersisa.
 
 Ciel tanpa ekspresi mengambilnya, memegangnya dengan kedua tangannya dan menuangkan kekuatan sihirnya.
 Dengan kekuatan sihir yang mengalir melaluinya, kertas itu mulai berpendar samar dan akhirnya cahaya darinya dengan lembut melayang ke udara.
