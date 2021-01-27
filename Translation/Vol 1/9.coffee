@@ -76,49 +76,63 @@ Apalagi sebagai sentuhan akhir, ia melemparkan kertas itu ke tanah agar Ciel men
 
 Dalam situasi ini, Aku benci betapa sedikitnya yang bisa Aku lakukan. Kalau saja aku bisa menggunakan sihir tempur, aku pasti sudah membakarnya sampai tidak tersisa.
 
-Ciel tanpa ekspresi mengambilnya, memegangnya dengan kedua tangannya dan menuangkan kekuatan sihirnya.
-Dengan kekuatan sihir yang mengalir melaluinya, kertas itu mulai berpendar samar dan akhirnya cahaya darinya dengan lembut melayang ke udara.
-Itu mulai secara bertahap membentuk sesuatu dan, ketika cahaya benar-benar berhenti, ada surat-surat yang terungkap.
+Ciel tanpa ekspresi mengambilnya, memegangnya dengan kedua tangannya dan menuangkan energi sihirnya.
 
-【Pekerjaan Cielmer: Putri Dansa】
+Dengan energi sihir yang mengalir melaluinya, kertas itu mulai bersinar dan akhirnya cahaya dengan lembut melayang ke udara.
+
+cahaya Itu secara bertahap membentuk sesuatu dan, ketika cahaya benar-benar berhenti, ada tulisan yang muncul.
+
+【+JOB Cielmer: +DANCE PRINCESS】
 
 Itu hanya untaian huruf pendek, tapi memiliki arti yang sangat besar bagi kami.
-Kami memenangkan pertaruhan; Aku merasa hampir menyeringai.
+
+Apa yang kami inginkan, kami dapatkan; Aku merasa hampir menampakkan senyum menyeringaiku.
+
 Dan seperti yang kami duga, wajah pria itu berubah muram.
 
 "Kamu benar-benar tidak berguna."
-"Maafkan aku."
-"Kamu pikir permintaan maaf akan menyelesaikan ini? Kamu baru saja bermain beberapa tahun terakhir ini.
-     Untuk tujuan apa kau bahkan mengira aku membiarkanmu hidup-hidup? "
 
-Melihat Ciel menundukkan kepalanya dalam diam, Duke Rispelgia tidak lagi mampu menyembunyikan emosinya dan dengan suara mendecakkan lidahnya saat dia memunggungi kami.
-Saat itu, aku mendengarnya bergumam "Keberadaannya selain" Putri Lagu "masih menyisakan beberapa kegunaannya."
+c"Maafkan aku."
+
+"Kamu pikir permintaan maaf akan menyelesaikan ini? Kamu baru saja bermain beberapa tahun terakhir ini. Untuk tujuan apa kau bahkan mengira aku membiarkanmu hidup-hidup?"
+
+Melihat Ciel menundukkan kepalanya dengan diam, Duke Rispelgia tidak lagi mampu menyembunyikan emosinya dan dengan suara mendecakkan lidahnya saat dia pergi meninggalkan kami.
+
+Saat itu, aku mendengarnya bergumam "Keberadaannya selain '+SONG PRINCESS' masih menyisakan beberapa kegunaannya."
+
 Jika memungkinkan, aku ingin dia menyuruh kami pergi dan mengusir kami keluar dari mansion; tapi sepertinya ini menjadi sedikit rumit.
 
-Bagaimanapun, tampaknya dia kehilangan minat lebih lanjut pada Ciel jadi Aku akan mempertimbangkan kabar baik ini.
-Setelah Duke Rispelgia meninggalkan ruangan, dan bahkan setelah memastikan bahwa dia meninggalkan jangkauan deteksi Aku, Ciel masih menatap kertas itu.
+tampaknya dia kehilangan minat lebih lanjut pada Ciel jadi Aku akan mempertimbangkan kabar baik ini.
+
+Setelah Duke Rispelgia meninggalkan ruangan, dan bahkan setelah memastikan bahwa dia meninggalkan jangkauan +DETECTIONku, Ciel masih menatap kertas itu.
+
 "Ada apa?" Aku bertanya pada Ciel. Dengan mata penuh rasa ingin tahu, dia mengalihkan pandangannya ke arahku.
 
-"Katakan, Aku ingin tahu apa yang akan terjadi jika Ain melakukannya?"
-"Bukankah itu hanya akan menunjukkan hasil yang sama?"
-"Tapi Ain berbeda dariku, kan? Kamu bahkan mungkin punya pekerjaan juga. "
+c"Aku penasaran apa yang akan terjadi jika Ain melakukannya?"
 
-Pada saat melarikan diri, kita membutuhkan semua yang kita miliki. Dan karena tidak ada ruginya bagiku, tidak ada salahnya bagiku untuk mencoba.
-Jadi setelah bertanya kepada Ciel "Maukah Kamu meminjamkan Aku tubuh Kamu?" Aku melihat lembaran tebal itu.
-Mungkin itu yang disebut perkamen. Aku sudah merasakannya saat Ciel memegangnya, tapi teksturnya terasa aneh.
-Cahaya sudah lenyap, kemungkinan karena kekuatan sihir Ciel sudah menghilang darinya.
-Aku mencoba menuangkan kekuatan sihir ke dalamnya sekali lagi dan seperti sebelumnya, cahaya menari di udara dan membentuk huruf.
+a"Bukankah itu hanya akan menunjukkan hasil yang sama?"
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+c"Tapi Ain berbeda dariku, kan? Kamu bahkan mungkin punya +JOB juga."
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Pada saat melarikan diri, kami membutuhkan semua yang kami miliki. Dan karena tidak ada ruginya bagiku, tidak ada salahnya bagiku untuk mencoba.
 
-【Pekerjaan Ainsel: Putri Lagu】
+Jadi setelah bertanya kepada Ciel "Maukah Kamu meminjamkan Aku tubuhmu?" Aku melihat lembaran tebal itu.
+
+Mungkin itu yang disebut kertas kulit. Aku sudah merasakannya saat Ciel memegangnya, tapi teksturnya terasa aneh.
+
+Cahaya sudah lenyap, kemungkinan karena energi sihir Ciel sudah menghilang darinya.
+
+Aku mencoba menuangkan energi sihir ke sekali lagi dan seperti sebelumnya, cahaya menari di udara dan membentuk tulisan.
+
+【+JOB Ainsel: +SONG PRINCESS】
 
 Melihat hasil yang berbeda dari sebelumnya, aku mengalihkan pandanganku sejenak dan memastikannya sekali lagi.
 
-Surat-surat tertulis tidak berubah. Terhadap kepercayaan Ciel "Sama seperti yang Aku pikirkan." Aku tidak punya apa-apa untuk menjawab kembali; jadi aku hanya menertawakannya dengan mengatakan "Itu seperti yang kamu katakan, Ciel."
-Mengembalikan tubuh ke Ciel, hal pertama yang dia katakan adalah "Kami teman Putri yang Mengecewakan." saat dia tersenyum senang. Aku bingung dengan kata-katanya tetapi karena dia sangat senang, Aku hanya menjawab "Itu benar."
+tulisannya tidak berubah. ciel berkata "Sudah Kuduga." dan Aku tidak bisa berkata apa-apa; jadi aku hanya tertawa dengan mengatakan "ternyata kamu benar, Ciel."
+
+Mengembalikan tubuh ke Ciel, hal pertama yang dia katakan adalah "kita adalah pasangan Putri yang Mengecewakan." dengan tersenyum senang. Aku bingung dengan kata-katanya tetapi karena dia sangat senang, Aku hanya menjawab "benar."
+
+----------------------
 
 Ciel dengan aman menjadi putri malang, apalagi putri dansa target pekerjaan, adalah anugerah, jujur.
 Seorang putri penari adalah pekerjaan yang memungkinkan pertunjukan semua tarian. Selain menari untuk hiburan, bahkan memungkinkan pelaksanaan tarian ritual yang dapat mencapai prestasi seperti memanggil hujan dengan tarian hujan.
