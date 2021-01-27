@@ -73,74 +73,97 @@ Dan di antara semua +JOB pertempuran, kami perlu menghindari +JOB yang berhubung
 Tidak mempelajari ilmu +SORCERY sepertinya akan membantu Kami dalam hal itu, tapi kupikir untuk itulah tujuan obat itu ada. Yang terpenting, Aku tidak ingin membuang satu kartu pun yang dapat membantu kami selama pelarian kami. Lagipula, jika kami bisa menggunakan +SORCERY pertempuran, kami bisa mengurangi kemungkinan mati karena pertemuan dengan monster secara acak saat meninggalkan mansion.
 
 Jika +JOB Pertempuran adalah bintang dari +JOBS, maka petani, pedagang dan +JOBS lain yang sangat mementingkan mata pencaharian seperti pekerja kantoran di kehidupan masa laluku. Kebanyakan orang mendapatkan jenis Pekerjaan ini.
------------------
-Dan di bagian bawah kasta Pekerjaan adalah orang-orang dengan pekerjaan yang berhubungan dengan hiburan, seperti Badut. Bahkan di antara mereka, Putri Song ada di bawah.
 
-Sedikit perubahan topik tetapi beberapa Job dibagi lagi lebih jauh, misalnya: Sorcerer memiliki Pekerjaan seperti "Flame Sorcerer" dan "Ice Sorcerer" yang terspesialisasi dalam area tertentu, serta "Sorcerer" yang mencakup semua itu.
+Dan di bagian bawah kasta +JOB adalah orang-orang dengan +JOB yang berhubungan dengan hiburan, seperti +CLOWN. Bahkan di antara mereka, +SONG PRINCESS ada di bawah juga.
+
+Sedikit perubahan topik tetapi beberapa +JOB dibagi lagi lebih jauh, misalnya: +SORCERER memiliki +JOBS seperti "+FLAME SORCERER" dan "+ICE SORCERER" yang terspesialisasi dalam area tertentu, serta "+SORCERER" yang mencakup semua itu.
+
 Perbedaan tipe terspesialisasi dan tipe seimbang membuat yang mana lebih baik tergantung pada situasinya, jadi tidak banyak diskriminasi dalam hal itu.
 
-Ngomong-ngomong, diperlukan alat khusus untuk mengetahui pekerjaan Kamu.
+Ngomong-ngomong, diperlukan alat khusus untuk mengetahui +JOB Kamu.
+
 Beberapa orang kaya secara pribadi memilikinya, tetapi umumnya anak-anak berusia 10 tahun berkumpul di gereja dan diperiksa. Selama acara itu, mereka tampaknya memiliki cara untuk memastikan bahwa orang lain tidak akan mengetahui hasilnya, tetapi gereja sendiri mungkin tahu.
-Selain itu, cara alat inspeksi milik pribadi berbeda dengan yang digunakan oleh gereja, jadi kemungkinan inspeksi Ciel akan menggunakan yang pertama. Karena tidak ada perbedaan dalam akurasi, tidak ada yang perlu dikhawatirkan.
 
-"Adapun pekerjaannya, kami akan mencoba apa yang kami bisa. Tapi Ain benar-benar tidak bisa menggunakan sihir tempur, bukan? "
-" Itu benar. Aku sudah mencoba menggunakan mantra dan lingkaran sihir, tetapi tampaknya secangkir penuh air adalah yang terbaik yang bisa Aku lakukan. Itu harus berguna dalam kehidupan kita sehari-hari tetapi itu sama sekali tidak berguna dalam pertempuran. Maafkan Aku. "
-" Bukan itu yang Aku maksud. Jangan minta maaf. Sebaliknya, akulah yang seharusnya meminta maaf.
-     Lagipula, bagi Ain untuk menggunakan sihir tanpa sepengetahuannya, menggunakan sihir untuk memungkinkan melakukan sihir tanpa mantra dan lingkaran sihir adalah satu-satunya cara. Aku yakin bahwa Ain seharusnya adalah seorang penyihir yang sangat hebat, tapi Kamu menyerahkan kemampuan Kamu untuk menggunakan pertempuran untuk melindungi Aku. Maaf, tidak, terima kasih, Ain. "
-" Tidak, tolong jangan dipikirkan. Selama Aku bisa melindungi Ciel, Aku tidak keberatan.
-     Selain itu, berkat itu, tampaknya penghalang dan deteksi Aku telah berubah cukup kuat. "
-" Benar, Aku akan melakukan yang terbaik di tempat Kamu sebagai gantinya. Alangkah baiknya jika kita bisa mengalahkan pria itu, tetapi melarikan diri adalah pilihan terbaik kita, kan? "
-" Bagaimanapun, dia adalah seseorang yang meraih para dewa dan, meskipun dia gagal, dia meninggalkan hasil yang nyata.
-     Dia kemungkinan memiliki Sorcerer Job tingkat tinggi, dan dia pasti berpengalaman. Terlepas dari pekerjaan apa yang kita peroleh, karena sihir adalah alat utama pertempuran kita, menurutku pria itu memiliki keunggulan secara keseluruhan.
-     Aku tidak dapat menyangkal kemungkinan dia benar-benar lemah, tetapi akan lebih baik untuk tidak mengundang masalah yang tidak diinginkan. "
+Selain itu, cara alat inspeksi milik pribadi berbeda dengan yang digunakan oleh gereja, jadi kemungkinan inspeksi Ciel akan menggunakan milik pribadi. Karena tidak ada perbedaan dalam akurasi, tidak ada yang perlu dikhawatirkan.
 
-Di dunia ini, sihir dan sihir ada.
-Sihir didefinisikan sebagai metode sistematis sedangkan sihir dipandang sebagai hal yang tidak diketahui, jadi semua sihir pada akhirnya mungkin menjadi sihir di masa depan yang jauh.
-Dasar-dasar penggunaan sihir adalah memiliki kekuatan sihir dan mengedarkannya melalui sirkuit di seluruh tubuh Kamu. Dengan menggunakan mantra atau lingkaran sihir dengan kekuatan sihir tersebut, itu berubah menjadi sihir.
-Mantra mantra diaktifkan dengan mengucapkan mantra tiga kata - apa, akan menjadi, akan lakukan -, di mana Kamu bersirkulasi dan mengontrol kekuatan sihir yang dibutuhkan sesuai dengan sihir. Jika Kamu hanya mengatakannya, itu tidak akan aktif dan jika Kamu hanya menuangkan banyak kekuatan sihir, itu tidak akan berhasil.
+c"Adapun tentang +JOB, kita akan mencoba apa yang kita bisa. Tapi Ain benar-benar tidak bisa menggunakan sihir tempur, bukan?"
 
-Misalnya, "Fairas Baalaru Fralie (Api, jadilah bola, terbang)" akan menembakkan bola api.
-Lingkaran sihir didefinisikan sebagai versi yang lebih kompleks dari ini dan dapat dianggap sebagai objek yang mengubah kekuatan sihir menjadi sesuatu yang lain.
-Dan untuk menggunakan sihir tanpa ini, Kamu bisa mengandalkan kekuatan Job Kamu atau menggunakan sihir.
+a"iya. Aku sudah mencoba menggunakan mantra dan lingkaran sihir, tetapi tampaknya secangkir penuh air adalah yang terbaik yang bisa Aku lakukan. Itu berguna dalam kehidupan kita sehari-hari tetapi itu sama sekali tidak berguna dalam pertempuran. Maafkan Aku."
 
-Saat ini, tidak banyak yang benar-benar dipahami tentang sihir.
-Yang diketahui adalah dengan kehilangan kekuatan sihir dan sesuatu yang berfungsi sebagai persembahan, Kamu bisa memperoleh sesuatu yang lain.
-Kekuatan sihir pada akhirnya akan pulih, tetapi apa yang Kamu tawarkan tidak akan pernah kembali. Ini tidak pasti untuk menjadi pertukaran yang setara, jadi menggunakannya perlu diselesaikan.
-Dalam kasus Aku, kemungkinan dengan menawarkan kemampuan Aku dalam menggunakan sihir tempur, Aku berhasil mengubah penghalang, deteksi, dan penyembunyian Aku menjadi sihir tanpa mantra dan sihir tanpa lingkaran sihir.
-Ini bukanlah sesuatu yang terjadi secara kebetulan, tetapi itu benar-benar terjadi, jadi Aku tidak memiliki sesuatu untuk dikatakan tentang itu.
+c"Bukan itu yang Aku maksud. Jangan minta maaf. Sebaliknya, akulah yang seharusnya meminta maaf. Lagipula, bagi Ain untuk menggunakan sihir tanpa sepengetahuannya, menggunakan sihir bahkan melakukan sihir tanpa mantra dan lingkaran sihir adalah satu-satunya caramu. Aku yakin bahwa Ain adalah seorang +SORCERER yang sangat hebat, tapi Kamu menyerahkan kemampuanmu untuk menggunakan sihir tipe pertempuran untuk melindungiku. Maaf, tidak, terima kasih, Ain."
 
-Meskipun benar bahwa Aku berpikir bahwa Aku tidak membutuhkan sihir yang cukup kuat untuk membunuh orang itu, Aku sebenarnya tidak berpikir bahwa itu akan benar-benar terjadi.
-Karena itu Aku bisa melindungi Ciel, jadi semuanya baik-baik saja. Tapi menggunakan sihir tempur adalah impianku, jadi itu membuat depresi.
-Dikatakan bahwa alasan lingkaran sihir disebut demikian meskipun digunakan untuk mengeksekusi sihir adalah karena itu adalah sesuatu yang pada awalnya digunakan untuk mengeksekusi sihir.
-Pada kenyataannya, ada kasus di mana Kamu membutuhkan lingkaran sihir untuk menggunakan sihir, tetapi Kamu juga bisa menggunakan sihir tanpa itu, jadi kemungkinannya agak sewenang-wenang.
+a"Tidak, tolong jangan terlalu memikirkan itu. Selama Aku bisa melindungi Ciel, Aku tidak keberatan. Selain itu, berkat itu, tampaknya +BARRIER dan +DETECTIONku telah Berkembang cukup kuat."
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+c"Benar, Aku akan melakukan yang terbaik ditempat yang tidak bisa kamu lakukan sebagai gantinya. Alangkah baiknya jika kita bisa mengalahkan pria itu, tetapi melarikan diri adalah pilihan terbaik kita, kan?"
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+a"Bagaimanapun juga, dia adalah seseorang yang meraih para dewa dan, meskipun dia gagal, dia meninggalkan hasil yang nyata. Dia kemungkinan memiliki +JOB SORCERER tingkat tinggi, dan dia pasti berpengalaman. Terlepas dari +JOB apa yang kita peroleh, karena sihir adalah alat utama pertempuran kita, menurutku pria itu memiliki keunggulan secara keseluruhan. Aku tidak dapat menyangkal kemungkinan dia benar-benar lemah, tetapi akan lebih baik untuk tidak mengundang masalah yang tidak diinginkan."
 
-Baik sihir maupun sihir menggunakan kekuatan gaib dan umumnya dianggap bahwa kekuatan gaib dihasilkan di tengah tubuh. Namun, sepertinya hasil penelitian pria itu menemukan bahwa itu sebenarnya ada di dalam jiwa.
-Sebaliknya, Aku menganggapnya seperti yang Aku lakukan tidak teratur.
-Karena kekuatan sihir dan pekerjaan berakar pada jiwa, mengikuti dari mana Pekerjaan berasal seharusnya membawa Kamu ke para dewa. Berpikir begitu, pria itu menggunakan sihir dan mencoba menanamkan dewa ke dalam Ciel.
-Mengabaikan moralitas dari apa yang telah dia lakukan, dan mempertimbangkan skala dari apa yang dia lakukan, Kamu tidak dapat benar-benar mengharapkannya menjadi penyihir tua biasa.
+Di dunia ini, +MAGIC dan +SORCERY ada.
 
-"Aku akan melindungimu dengan penghalang seperti biasa, jadi Ciel akan bertanggung jawab melawan monster dan pengejar.
-     Sampai pelarian kita, biarkan kamu berpura-pura tidak mampu menggunakan sihir. Dengan begitu, Aku pikir itu akan membuat dia melihat Kamu kurang berguna.
-     Jika, dalam kasus terburuk, Kamu pernah mendapatkan pekerjaan Penyihir, sebagai upaya terakhir kami akan menghancurkan mansion dan melarikan diri. "
-" Itu, tidak terdengar seperti banyak rencana, bukan? "
++SORCERY didefinisikan sebagai metode sistematis sedangkan +MAGIC dipandang sebagai hal yang tidak diketahui, jadi semua +MAGIC pada akhirnya mungkin menjadi +SORCERY di masa depan.
 
-Mendengar kata-kataku, Ciel terkikik. Apa yang dikatakan Ciel sejujurnya benar, tetapi kami tidak benar-benar tahu bagaimana rumah besar itu dibangun; kami bahkan tidak tahu pekerjaan apa yang akan dimiliki Ciel dan, pertama-tama, Aku tidak terlalu pintar.
-Untungnya, kekuatan sihir Ciel tampaknya telah meningkat pesat juga, jadi dia mungkin bisa menghancurkan mansion; juga, yang lebih penting, hanya memiliki pilihan terakhir dapat memberikan kelonggaran emosional bagi orang-orang.
+Dasar-dasar penggunaan sihir adalah memiliki energi sihir dan mengedarkannya melalui sirkuit di seluruh tubuhmu. Dengan menggunakan mantra atau lingkaran sihir dengan energi sihir tersebut, itu berubah menjadi sihir.
+
+Mantra diaktifkan dengan mengucapkan mantra tiga kata - apa, akan menjadi apa, akan melakukan apa -, di mana Kamu bersirkulasi dan mengontrol energi sihir yang dibutuhkan sesuai dengan sihir yang akan digunakan. bisa dikatakan, itu tidak akan aktif jika Kamu hanya menuangkan banyak energi sihir, itu tidak akan berhasil.
+
+Misalnya, "+FAIRAS BAALARU FRALIE" akan menembakkan bola api.
+
+Lingkaran sihir didefinisikan sebagai versi yang lebih kompleks dari ini dan dapat dianggap sebagai objek yang mengubah energi sihir menjadi sesuatu yang lain.
+
+Dan untuk menggunakan +SORCERY tanpa ini, Kamu bisa mengandalkan kekuatan +JOBmu atau menggunakan +MAGIC.
+
+Saat ini, tidak banyak yang benar-benar memahami tentang +MAGIC.
+
+Yang diketahui adalah dengan kehilangan energi sihir dan sesuatu yang berfungsi sebagai pengorbanan, Kamu bisa memperoleh sesuatu yang lain.
+
+energi sihir pada akhirnya akan pulih, tetapi apa yang Kamu keluarkan tidak akan pernah kembali. masih tidak pasti apakah ini menjadi pertukaran yang setara, jadi menggunakannya perlu kepastian.
+
+Dalam kasusku, kemungkinan dengan mengorbankan kemampuanku dalam menggunakan sihir tempur, Aku berhasil membuat +BARRIER, +DETECTION, dan +CONCEALMENT menjadi sihir tanpa mantra dan sihir tanpa lingkaran sihir.
+
+Ini bukanlah sesuatu yang terjadi secara kebetulan, tetapi itu benar-benar terjadi, jadi Aku tidak bisa berkata apa-apa tentang itu.
+
+benar bahwa Aku berpikir bahwa Aku tidak membutuhkan sihir yang cukup kuat untuk membunuh orang itu, Aku sebenarnya tidak berpikir bahwa itu akan benar-benar terjadi.
+
+Karena itulah Aku bisa melindungi Ciel, jadi semuanya tidak masalah. Tapi menggunakan sihir tempur adalah impianku, jadi itu membuatku depresi.
+
+alasan lingkaran sihir disebut demikian meskipun digunakan untuk mengeksekusi sihir adalah karena itu adalah sesuatu yang pada awalnya digunakan untuk mengeksekusi sihir.
+
+Pada kenyataannya, ada kasus di mana Kamu membutuhkan lingkaran sihir untuk menggunakan sihir, tetapi Kamu juga bisa menggunakan sihir tanpa itu, jadi kemungkinannya agak acak.
+
+Baik +SORCERY maupun +MAGIC menggunakan energi sihir dan umumnya semuanya menganggap bahwa energi sihir dihasilkan di tengah tubuh. tapi sepertinya hasil penelitian pria itu menemukan bahwa itu sebenarnya ada pada jiwamu.
+
+Sebaliknya, Aku mengetahuinya dengan apa yang aku lakukan.
+
+Karena energi sihir dan +JOB berakar pada jiwa, mengikuti dari mana +JOB berasal, seharusnya membawamu ke para dewa. Berpikir begitu, pria itu menggunakan sihir dan mencoba menanamkan dewa ke dalam Ciel.
+
+Mengabaikan moralitas dari apa yang telah dia lakukan, dan mempertimbangkan skala dari apa yang dia lakukan, Kamu tidak dapat benar-benar mengharapkannya menjadi +SORCERER tua biasa.
+
+a"Aku akan melindungimu dengan +BARRIER seperti biasa, jadi Ciel akan melawan monster dan pengejar. Untuk saat ini, biarkan kamu berpura-pura tidak mampu menggunakan sihir. Dengan begitu, Aku pikir itu akan membuat dia melihatmu kurang berguna. dalam kasus terburuk, apabila Kamu mendapatkan +JOB SORCERER, sebagai upaya terakhir, kita akan menghancurkan mansion dan melarikan diri."
+
+c"Itu, tidak terdengar seperti rencana, eh?"
+
+Mendengar kata-kataku, Ciel terkikik. Apa yang dikatakan Ciel sejujurnya benar, tetapi kami tidak benar-benar tahu bagaimana mansion ini dibangun; kami bahkan tidak tahu +JOB apa yang akan dimiliki Ciel dan, Aku tidak terlalu pintar.
+
+Untungnya, energi sihir Ciel tampaknya telah meningkat pesat juga, jadi dia mungkin bisa menghancurkan mansion; juga, yang lebih penting, memiliki pilihan terakhir dapat memberikan kelonggaran emosional bagi orang-orang.
+
 Terus terang, akan lebih baik jika Aku sudah membuat rencana tentang apa yang harus dilakukan setelah melarikan diri dari mansion; tapi meskipun Ciel mungkin pintar, dia masih anak-anak bahkan belum berusia 10 tahun. Daripada membuatnya mengingat banyak hal, kupikir lebih baik dia fokus pada satu hal saja.
 
 Juga, ini sedikit keluar dari topik tetapi kami telah belajar sedikit tentang rumah tangga ini.
+
 Duke Rispelgia, salah satu bangsawan kerajaan yang tinggi. Itulah nama tuan rumah ini.
-Seperti yang Aku duga, dunia ini berjalan dengan sistem pemerintahan aristokrat. Ini adalah pikiran pertama Aku. Pria itu memang terlihat seperti itu, jadi aku tidak terlalu terkejut; tapi fakta bahwa dia seorang adipati adalah masalah besar.
-Bagaimanapun, otoritasnya hanya di sebelah keluarga kerajaan. Dan tergantung situasinya, dia bahkan mungkin lebih berpengaruh daripada keluarga kerajaan.
-Secara alami, keuangannya tidak bisa dibandingkan dengan bangsawan yang lebih rendah dan sekarang sudah begini, aku hanya bisa berharap bangsawan itu sendiri tidak memiliki banyak kekuatan di sini.
 
-Para bangsawan dunia ini, bisa dikatakan, individu dengan kekuatan sihir.
-Orang yang bisa menggunakan sihir adalah bangsawan dan mereka yang tidak bisa adalah orang biasa. Namun, dalam catatan sejarah yang panjang, bangsawan yang lahir tanpa kekuatan sihir serta rakyat biasa yang lahir dengan itu hanya sedikit tapi pasti ada.
-Di antara orang biasa tersebut, ada beberapa yang memiliki kekuatan sihir sebanyak bangsawan; tetapi tampaknya untuk menjadi seorang ningrat, kamu membutuhkan beberapa pencapaian besar atau kekayaan yang banyak.
+Seperti yang Aku duga, dunia ini berjalan dengan sistem pemerintahan aristokrat. Ini adalah perkiraan pertamaku. Pria itu memang terlihat seperti itu, jadi aku tidak terlalu terkejut; tapi fakta bahwa dia seorang duke adalah masalah besar.
 
-Kartu terbesar di tangan kita adalah pekerjaan Ciel. Orang itu - Duke Rispelgia mungkin sudah diberitahu tentang apa yang kita lakukan, jadi ini mungkin pertaruhan yang sangat berbahaya, tapi Aku pikir kita memiliki kesempatan menang.
-Berpikir demikian, hari ini kita sekali lagi menghabiskan waktu yang tersisa seperti biasa .
+otoritasnya sebanding keluarga kerajaan. Dan tergantung situasinya, dia bahkan mungkin lebih berpengaruh daripada keluarga kerajaan.
+
+Secara alami, keuangannya tidak bisa dibandingkan dengan bangsawan yang lebih rendah dan karena sudah mengetahui ini, aku hanya bisa berharap bangsawan itu sendiri tidak memiliki banyak kekuatan di sini.
+
+Para bangsawan dunia ini, bisa dikatakan, individu dengan energi sihir.
+
+Orang yang bisa menggunakan sihir adalah bangsawan dan mereka yang tidak bisa adalah orang biasa. tapi dalam catatan sejarah, bangsawan yang lahir tanpa energi sihir serta rakyat biasa yang lahir dengan itu hanya sedikit tapi tetap ada.
+
+Di antara orang biasa tersebut, ada beberapa yang memiliki enegri sihir sebanyak bangsawan; tetapi tampaknya untuk menjadi seorang bangsawan, kamu membutuhkan beberapa pencapaian besar atau kekayaan yang banyak.
+
+Kartu terbesar di tangan kami adalah +JOB Ciel. Orang itu - Duke Rispelgia mungkin sudah diberitahu tentang apa yang kami lakukan, jadi ini mungkin pertaruhan yang sangat berbahaya, tapi Aku pikir kami memiliki kesempatan menang.
+
+Berpikir demikian, hari ini kami sekali lagi menghabiskan waktu yang tersisa seperti biasa.
