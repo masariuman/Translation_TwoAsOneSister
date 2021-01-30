@@ -194,18 +194,24 @@ Tetap saja, terasa tidak pada tempatnya bahwa Ceil, seorang anak berusia 10 tahu
 
 Apakah itu hanya berarti Ciel dan Aku sangat cocok satu sama lain?
 
-"Jadi laguku berfungsi sebagai pengaturan panggung yang dibutuhkan Dance Princess, kan?"
-"Aku juga tidak menyangka itu; tapi itu hanya bukti bahwa bersama Ain, tidak ada yang perlu ditakuti. "
-" Sejujurnya, menurutku itu terlalu berlebihan. "
-" Tidak terlalu banyak, tahu? Lagipula, sejak aku lahir, kita sudah menari dan bernyanyi bersama sepanjang waktu. Jelas bahwa kami kompatibel. "
+a"Jadi laguku berfungsi sebagai pengaturan panggung yang dibutuhkan +DANCE PRINCESS ya..."
+
+c"Aku juga tidak menyangka itu; tapi itu hanya bukti bahwa bersama Ain, tidak ada yang perlu ditakuti."
+
+a"jujur, menurutku itu terlalu berlebihan."
+
+c"Tidak juga... Lagipula, sejak aku lahir, kita sudah menari dan bernyanyi bersama sepanjang waktu. Jelas bahwa kita cocok."
 
 Ciel menatapku dengan senyum berseri-seri.
+
 Dia jauh lebih bersemangat dari biasanya, tapi karena itu sesuai untuk usianya, aku menjawab Ciel yang sangat menawan "Itu benar" dengan suara lembut.
 
-"Saya yakin bahwa itu adalah takdir yang membuat Aku bertemu Ain.
-     Jadi, bahkan setelah ini, maukah kamu tetap bersamaku, selamanya? "
-" Akulah yang seharusnya mengatakan itu. Bahkan setelah ini, tolong jaga aku. "
+c"Aku yakin bahwa itu adalah takdir yang membuatku bertemu Ain. Jadi, bahkan setelah ini, maukah kamu tetap bersamaku, selamanya?"
 
-Lagipula, aku juga merasa bertemu dengannya adalah takdir. Meskipun Aku selalu melindungi Ciel, pada kenyataannya, Ciel selalu melindungi Aku juga.
-Itulah mengapa Aku yakin; bisa tertawa bersama sekarang adalah takdir kita juga.
-Aku tidak yakin apa yang akan terjadi pada kita mulai sekarang. Namun untuk saat ini, kami melangkah maju ke hari yang baru.
+a"Akulah yang seharusnya mengatakan itu. mulai saat ini, tolong jaga aku juga."
+
+Lagipula, aku juga merasa bertemu dengannya adalah takdir. Meskipun Aku selalu melindungi Ciel, pada kenyataannya, Ciel selalu melindungiku juga.
+
+Itulah mengapa Aku yakin; bisa tertawa bersama sekarang adalah takdir kami juga.
+
+Aku tidak yakin apa yang akan terjadi pada kami mulai sekarang. Namun untuk saat ini, kami melangkah maju ke hari yang baru.
