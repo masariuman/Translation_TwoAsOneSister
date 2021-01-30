@@ -23,7 +23,7 @@ Aku mendengar dua orang di kursi pengemudi terkejut, jadi mereka mungkin mendeng
 "Ck, sekarang setelah Kamu mengatakan itu rasanya benar juga. sia-sia rasanya. Jika itu Aku, Aku akan merawatnya selama sekitar 10 tahun."
 
 Tepat ketika Aku mengira mereka kagum, Aku baru saja mendengar diskusi yang sangat vulgar.
-
+-------------------------
 Fakta bahwa Ciel juga mendengarnya memberi Aku dorongan untuk membunuh.
 
 Yang lebih buruk adalah Ciel sepertinya tidak mengerti apa yang mereka bicarakan. Semakin meragukan jika Aku bisa mengatakan kepadanya bahwa Aku pernah menjadi laki-laki.
