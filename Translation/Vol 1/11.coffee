@@ -44,16 +44,19 @@ Dan sementara kami melakukannya, Aku juga menginstruksikan Ciel untuk mencari ju
 
 Karena rambut putih panjang Ciel mungkin menonjol, aku menginginkan sesuatu yang bisa menyembunyikannya. Karena poni itu mengganggu, Ciel dengan sembarangan - menggunakan sihir untuk memotongnya. Kami membiarkan rambut di punggungnya tidak tersentuh, jadi itu tumbuh sampai pinggangnya.
 
-Tidak ada masalah dengan panjangnya, tapi fakta bahwa warnanya berubah dari aslinya pirang itulah yang membuatku khawatir. Jika itu warna rambut yang umum dimiliki di dunia ini, maka tidak masalah; tetapi jika putih jarang atau tidak ada sama sekali, kemungkinan besar hal itu bisa membuat kita mendapat masalah.
+Tidak ada masalah dengan panjangnya, tapi fakta bahwa warnanya berubah dari warna aslinya itulah yang membuatku khawatir. Jika itu warna rambut yang umum dimiliki di dunia ini, maka tidak masalah; tetapi jika putih jarang atau tidak ada sama sekali, kemungkinan besar hal itu bisa membuat kita mendapat masalah.
+
 Meski begitu, meski tanpa warna rambutnya, Ciel sudah memiliki banyak sifat yang akan membuatnya mendapat masalah.
 
 Jubah itu untuk menyembunyikan rambutnya juga, tapi aku juga ingin menghindari Ciel terlihat oleh orang lain dalam kondisinya saat ini yang hanya ditutupi oleh selembar kain.
 
-"Jadi itulah mengapa kami mencari jubah."
-"Jika kami tidak dapat menemukannya, kami tidak akan punya pilihan lain selain meminjam satu dari kematian, jadi Aku sangat senang.
-     Tetap saja, seperti yang diharapkan, tidak ada yang cocok dengan ukuran Ciel. "
-" Tepi seret benar-benar terlihat buruk. Bisakah Aku memotongnya sesuai ukuran Aku? "
-" Begitu. Kalau begitu tolong lakukan itu. "
+c"Jadi itu ya kenapa kita mencari jubah."
+
+a"Jika kita tidak dapat menemukannya, kita tidak punya pilihan lain selain mengambilnya dari orang yang mati, jadi tidak masalah. Tetap saja, seperti yang diharapkan, tidak ada yang cocok dengan ukuran Ciel."
+
+c"kebesaran terlihat bagus. bolehkan Aku memotongnya sesuai ukuranku?"
+
+a"Begitu ya. Kalau begitu silahkan saja."
 
 Aku mempercayakan Ciel untuk memangkasnya ke ukuran yang tepat dengan sihir.
 Aku bisa melakukan sebanyak mungkin membuat air atau mendinginkan dan memanaskan minuman, tapi mungkin karena mengurangi jumlah seperti menyerang, Aku tidak bisa melakukannya.
