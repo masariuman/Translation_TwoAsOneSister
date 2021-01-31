@@ -58,20 +58,30 @@ c"kebesaran terlihat bagus. bolehkan Aku memotongnya sesuai ukuranku?"
 
 a"Begitu ya. Kalau begitu silahkan saja."
 
-Aku mempercayakan Ciel untuk memangkasnya ke ukuran yang tepat dengan sihir.
-Aku bisa melakukan sebanyak mungkin membuat air atau mendinginkan dan memanaskan minuman, tapi mungkin karena mengurangi jumlah seperti menyerang, Aku tidak bisa melakukannya.
-Sebaliknya, Ciel fokus mempelajari sihir tempur. Sebaliknya, dia biasanya dapat melakukan segalanya karena dia tidak mengorbankan bakatnya seperti yang Aku lakukan. Area yang bisa aku menangkan melawannya mungkin adalah kekuatan pertahanan dan kemampuan deteksi.
+Aku mempercayakan Ciel untuk memotongnya ke ukuran yang tepat dengan sihir.
 
-Karena kami akan pergi mencari beberapa nanti, kami mencari persediaan makanan sebelum kembali ke raksasa.
-Melihat lebih dekat, cara kematiannya benar-benar tidak menyenangkan. Ada lubang yang mengebor di tubuhnya. Namun, karena lukanya dibakar oleh api, aku tidak bisa melihat darah mengalir keluar serta di dalamnya; yang membuat menatapnya lebih tidak nyaman.
-Khususnya kepala, otak - meskipun Aku tidak yakin apakah ada - benar-benar dicungkil jadi Aku yakin sudah mati. Namun, sepertinya dia masih hidup, membuatnya terasa terlepas dari kenyataan.
+Aku bisa melakukan seperti membuat air atau mendinginkan dan memanaskan minuman, tapi mungkin karena memotong dianggap sebagai serangan menyerang, Aku tidak bisa melakukannya.
 
-Fakta bahwa aku relatif baik saja dengan itu mungkin baik karena reinkarnasi Aku atau karena Aku telah menghabiskan hampir 10 tahun di bahwa jenis kehidupan.
+Sebaliknya, Ciel fokus mempelajari sihir tipe pertempuran. dia dapat melakukan segalanya karena dia tidak mengorbankan bakatnya seperti yang Aku lakukan. Area yang bisa aku unggulkan daripadanya mungkin adalah kekuatan +BARRIER dan kemampuan +DETECTION.
+
+Karena kami akan mencari nanti saja, kami mencari persediaan makanan sebelum kembali ke raksasa.
+
+Melihat lebih dekat, cara kematiannya benar-benar tidak menyenangkan. Ada lubang yang mengebor di tubuhnya. tapi, karena lukanya dibakar oleh api, aku tidak bisa melihat darah mengalir keluar serta di dalamnya; yang membuat menatapnya lebih tidak nyaman.
+
+Khususnya kepala, otak - meskipun Aku tidak yakin apakah ada otaknya - benar-benar hancur jadi Aku yakin sudah mati. tapi sepertinya dia masih hidup, membuatnya terasa terlepas dari kenyataan.
+
+Fakta bahwa aku relatif tidak masalah dengan itu mungkin karena bereinkarnasi atau karena Aku telah menghabiskan hampir 10 tahun di kehidupan seperti itu.
+
 Apa pun itu, sepertinya itu adalah sesuatu yang Aku perlukan untuk bertahan hidup di dunia ini.
-Namun, melihat seseorang meninggal masih menyayat hati, namun mungkin akan datang suatu saat di masa depan dimana Aku tidak boleh memikirkannya seperti itu. Bukannya aku harus membiasakan diri dengan kematian, tapi setidaknya aku harus mampu menanggungnya.
 
-Saat Ciel mendekati raksasa itu, dia berlutut dan menusukkan pisau ke tubuhnya.
-Pisau itu memiliki terlalu banyak ornamen jadi kupikir itu hanya untuk pamer, tapi pisau itu memotong daging raksasa itu jauh lebih mulus dari yang aku perkirakan.
+tapi, melihat seseorang mati masih menyayat hati. mungkin akan datang suatu saat di masa depan dimana Aku tidak boleh berpikir seperti itu. Bukannya aku harus membiasakan diri dengan kematian, tapi setidaknya aku harus mampu menahannya.
+
+Ciel mendekati raksasa itu, berlutut, dan menusukkan pisau ke tubuhnya.
+
+Pisau itu memiliki terlalu banyak ornamen jadi kupikir itu hanya untuk pamer saja, tapi pisau itu memotong daging raksasa itu jauh lebih mulus dari yang aku perkirakan.
+
+----------
+
 Karena sudah mati, tidak ada darah yang menyembur dan kami segera menemukan bola biru indigo yang ukurannya lebih besar dari softball. Bola ini berisi kekuatan sihir murni dan tak tersentuh mungkin yang disebut batu ajaib.
 
 "Mungkinkah ini yang Kamu cari, Ain?"
