@@ -1,3 +1,5 @@
+Ch 11 : Perisapan, Batu Magic, Dan Mulai Saat Ini
+
 Sebenarnya, Aku ingin Ciel beristirahat setelah mengalahkan raksasa bermata satu. Tapi karena bau darah bisa menarik monster lain, aku ingin Ciel segera pindah dari sini.
 
 Dengan semua orang yang mati sebanyak ini, mereka mungkin tidak akan berpikir bahwa Ciel masih hidup. tapi, masih ada beberapa hal yang ingin Aku lakukan.
