@@ -6,7 +6,7 @@ sekarang baru kupikirkan, mereka adalah orang yang paling kubenci dan orang terf
 
 Aku kemudian mengetahui bahwa orang yang paling Aku benci adalah seorang pria bernama Duke Rispelgia dan orang yang paling Aku sukai adalah makhluk yang bersinar redup yang menamakan dirinya Ainsel.
 
-Ainsel, Ain mengenalkan Aku pada suara - lagu - bahkan sebelum Aku menyadarinya. Ada banyak jenis suara, tetapi tidak satupun yang terasa tidak menyenangkan bagi Aku. Sebaliknya, saat aku jadi, nyanyian Ain sudah terasa alami bagiku.
+Ainsel, Ain mengenalkan Aku pada suara - lagu - bahkan sebelum Aku menyadarinya. Ada banyak jenis suara, tetapi tidak satupun terasa tidak menyenangkan bagiku. Sebaliknya, tanpa kusadari, nyanyian Ain sudah terasa alami bagiku.
 
 Dan selama tinggal di dalam sel, Aku juga terkadang merasakan sesuatu yang hangat mengelilingi Aku.
 Sekarang, Aku tahu bahwa kehangatan itu adalah kekuatan sihir Ain dan itu adalah penghalang Ain yang melindungi Aku, tetapi pada saat itu, Aku merasa itu hanya kejadian alami dan Aku tidak menyadari perlindungan Ain.
