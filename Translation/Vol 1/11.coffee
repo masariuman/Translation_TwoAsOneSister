@@ -1,33 +1,48 @@
-Jika memungkinkan, Aku ingin Ciel beristirahat setelah mengalahkan raksasa bermata satu. Tapi karena bau darah bisa menarik monster lain, aku ingin Ciel segera pindah dari sini.
-Dengan orang-orang yang dihancurkan sebanyak ini, mereka mungkin tidak akan berpikir bahwa Ciel masih hidup. Namun, masih ada beberapa hal yang ingin Aku lakukan.
+Sebenarnya, Aku ingin Ciel beristirahat setelah mengalahkan raksasa bermata satu. Tapi karena bau darah bisa menarik monster lain, aku ingin Ciel segera pindah dari sini.
 
-"Sekarang, apa yang harus kita lakukan dengan raksasa yang jatuh ini?"
-"Aku pikir meninggalkannya di sini saja tidak apa-apa, tetapi apakah Aku salah?"
-"Jika mereka menemukan mayat ini secara kebetulan, mereka mungkin mencurigai keberadaan orang yang selamat.
-     Monster dan hewan di hutan ini mungkin akan mengatasinya sebelum itu terjadi, tetapi lebih baik jika kita melakukan sesuatu. Membakar dan menguburnya seharusnya cukup baik. "
-" Dimengerti. " Faro (O api)" ...... "
-" Ciel, berhenti. "
+Dengan semua orang yang mati sebanyak ini, mereka mungkin tidak akan berpikir bahwa Ciel masih hidup. tapi, masih ada beberapa hal yang ingin Aku lakukan.
+
+a"Sekarang, apa yang harus kita lakukan dengan raksasa yang mati ini?"
+
+c"Aku pikir meninggalkannya di sini saja tidak apa-apa, tetapi apakah Aku salah?"
+
+a"Jika mereka menemukan mayat ini secara kebetulan, mereka mungkin mencurigai ada orang yang selamat. Monster dan hewan di hutan ini mungkin akan mengatasinya sebelum itu terjadi, tetapi lebih baik jika kita melakukan sesuatu. Membakar dan menguburnya seharusnya Tidak masalah."
+
+c"Oke.  '+FARO' ...... "
+
+a"Ciel, hetikan."
 
 Setelah menghentikan Ciel ketika dia segera bersiap untuk membakarnya dengan sihir, Ciel mengerutkan bibirnya dan menatapku dengan tatapan bertanya-tanya.
-Sebagai seseorang yang dianggap kurang lebih dewasa, ketaatan jujur ​​Ciel terasa mempesona bagi Aku. Jika itu aku, aku akan bersikap defensif dan mengatakan "Kaulah yang menyuruhku untuk membakarnya!" Setidaknya.
-Sudah cukup. Izinkan Aku mencoba sesuatu yang agak membuat Aku penasaran.
 
-"Ciel; apakah kamu pikir kamu bisa, mungkin, menusuk pisau ke tubuhnya? "
-" Aku tidak benar-benar berpikir bahwa kita masih perlu memastikan apakah sudah mati.
-     Atau mungkin ada alasan lain untuk itu? "
-" Mungkin di suatu tempat dekat di mana hati seseorang berada, Aku bisa merasakan konsentrasi kekuatan sihir.
-So "Jadi, potong terbuka dan lihat apa itu, kan? Sedangkan untuk pisaunya ...... "
-" Mari kita coba mencari satu. Kemungkinan manusia babi atau perusahaannya memiliki satu pada mereka. "
-" Manusia babi? …… Oh, Aku belum pernah melihat babi sungguhan sebelumnya, tapi dia memang terlihat seperti babi! Tetap saja, Ain juga bisa berbicara seperti itu, ya . "
+Sebagai seseorang yang dianggap kurang lebih dewasa pada umurnya, kepolosan ​​Ciel terasa mempesona bagiku. Jika itu aku, aku akan bersikap defensif dan mengatakan "Kaulah yang menyuruhku untuk membakarnya!".
 
-Aku akhirnya memanggilnya saat Aku menamainya dalam pikiran Aku. Tetap saja, Aku tidak bisa memikirkan nama yang lebih baik untuknya dan Ciel bahkan mengerti siapa yang Aku maksud, jadi mungkin tidak apa-apa.
-Aku tidak ingin Ciel kecewa dengan sikap Aku, tetapi setelah melihatnya tertawa geli, sepertinya itu hanya kekhawatiran yang tidak perlu dari Aku.
-Aku benar-benar tidak ingin membawa barang orang yang terjepit sebanyak mungkin, jadi kami mengobrak-abrik sisa-sisa gerobak yang hancur dan segera menemukan pisau. Itu adalah pisau mencolok yang memiliki ornamen berlebihan, tapi mungkin masih bisa digunakan.
+yaaah, bairkan Aku mencoba sesuatu yang agak membuatku penasaran.
 
-Ada juga uang. Ini pertama kalinya Aku melihatnya, tetapi karena itu adalah cakram perak dan emas kecil yang berat, Aku sepertinya tidak salah.
+a"Ciel; apakah kamu pikir kamu bisa, mungkin, menusuk pisau ke tubuhnya?"
+
+c"Aku tidak benar-benar berpikir bahwa kita masih perlu memastikan apakah sudah mati. Atau mungkin ada alasan lain untuk itu?"
+
+a"Mungkin di suatu tempat dekat di mana hati seseorang berada, Aku bisa merasakan konsentrasi kekuatan sihir." 
+
+c"Jadi, belah terbuka dan melihatnya? untuk pisaunya ......"
+
+a"ayo kita cari pisaunya. Kemungkinan manusia babi atau perusahaannya memiliki satu pada mereka."
+
+c"Manusia babi? ...... Oh, Aku belum pernah melihat babi sungguhan sebelumnya, tapi dia memang terlihat seperti babi! Tetap saja, Ain juga bisa berbicara seperti itu, ya..."
+
+Aku akhirnya memanggilnya dengan panggilan dalam pikiranku. Aku tidak bisa memikirkan nama yang lebih baik untuknya dan Ciel bahkan mengerti siapa yang Aku maksud, jadi mungkin tidak apa-apa.
+
+Aku tidak ingin Ciel kecewa dengan sikapku, tetapi setelah melihatnya tertawa geli, sepertinya itu hanya kekhawatiran yang tidak diperlukan.
+
+Aku benar-benar tidak ingin membawa barang orang yang mati sebanyak mungkin, jadi kami mengobrak-abrik sisa-sisa kereta kuda yang hancur dan segera menemukan pisau. Itu adalah pisau mencolok yang memiliki ornamen berlebihan, tapi mungkin masih bisa digunakan.
+
+Ada juga uang. Ini pertama kalinya Aku melihatnya, tetapi karena itu adalah koin perak dan emas kecil yang berat, Aku sepertinya tidak salah.
+
 Tidak ada ruginya membawa mereka, jadi kami memutuskan untuk membawa sebanyak yang kami bisa.
-Dan sementara kami melakukannya, Aku juga menginstruksikan Ciel untuk mencari jubah atau mantel bertudung.
-Karena rambut putih panjang Ciel mungkin menonjol, aku menginginkan sesuatu yang bisa menyembunyikannya. Karena poni itu mengganggu, Ciel dengan sembarangan - meskipun Aku menonton dan memberikan beberapa instruksi - menggunakan sihir untuk memotongnya. Kami praktis membiarkan rambut di punggungnya tidak tersentuh, jadi itu tumbuh sampai pinggangnya.
+
+Dan sementara kami melakukannya, Aku juga menginstruksikan Ciel untuk mencari jubah atau mantel.
+
+Karena rambut putih panjang Ciel mungkin menonjol, aku menginginkan sesuatu yang bisa menyembunyikannya. Karena poni itu mengganggu, Ciel dengan sembarangan - menggunakan sihir untuk memotongnya. Kami membiarkan rambut di punggungnya tidak tersentuh, jadi itu tumbuh sampai pinggangnya.
 
 Tidak ada masalah dengan panjangnya, tapi fakta bahwa warnanya berubah dari aslinya pirang itulah yang membuatku khawatir. Jika itu warna rambut yang umum dimiliki di dunia ini, maka tidak masalah; tetapi jika putih jarang atau tidak ada sama sekali, kemungkinan besar hal itu bisa membuat kita mendapat masalah.
 Meski begitu, meski tanpa warna rambutnya, Ciel sudah memiliki banyak sifat yang akan membuatnya mendapat masalah.
