@@ -1,8 +1,8 @@
 Selingan : Ciel dan Kebangkitannya  ※CIEL’S POV
 
 Ketika Aku terwujud, duniaku terdiri dari sesuatu yang tidak menyenangkan bagiku dan sesuatu yang selalu Aku inginkan.
------------------
-Berpikir tentang itu sekarang, mereka masing-masing adalah orang yang paling Aku benci dan favorit Aku, tetapi pada saat itu, Aku bahkan tidak tahu kata-kata itu.
+
+sekarang baru kupikirkan, mereka adalah orang yang paling kubenci dan orang terfavoritku, tetapi pada saat itu, Aku bahkan tidak tahu kata-kata itu.
 
 Aku kemudian mengetahui bahwa orang yang paling Aku benci adalah seorang pria bernama Duke Rispelgia dan orang yang paling Aku sukai adalah makhluk yang bersinar redup yang menamakan dirinya Ainsel.
 
