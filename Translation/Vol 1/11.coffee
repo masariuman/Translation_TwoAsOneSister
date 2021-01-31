@@ -80,30 +80,35 @@ Ciel mendekati raksasa itu, berlutut, dan menusukkan pisau ke tubuhnya.
 
 Pisau itu memiliki terlalu banyak ornamen jadi kupikir itu hanya untuk pamer saja, tapi pisau itu memotong daging raksasa itu jauh lebih mulus dari yang aku perkirakan.
 
-----------
+Karena sudah mati, tidak ada darah yang menyembur dan kami segera menemukan bola biru indigo yang ukurannya lebih besar dari +SOFTBALL. Bola ini berisi kekuatan sihir murni dan tak tersentuh yang disebut batu +MAGIC.
 
-Karena sudah mati, tidak ada darah yang menyembur dan kami segera menemukan bola biru indigo yang ukurannya lebih besar dari softball. Bola ini berisi kekuatan sihir murni dan tak tersentuh mungkin yang disebut batu ajaib.
+c"Mungkinkah ini yang Kamu cari?"
 
-"Mungkinkah ini yang Kamu cari, Ain?"
-"Karena Aku bisa merasakan kekuatan sihir murni darinya, kemungkinan besar begitu. Mungkinkah ini batu ajaib? "
-" Jadi ini batu ajaib. Buku-buku itu mengatakan bahwa itu diambil dari monster.
-     Jadi Kamu ingat itu. Itu luar biasa!"
+a"Karena Aku bisa merasakan kekuatan sihir murni darinya, kemungkinan besar begitu. Mungkinkah ini batu +MAGIC?"
 
-Melihat objek sebenarnya yang hanya dia ketahui dari membaca buku, Ciel menjadi sangat bersemangat.
-Di antara buku-buku di ruangan itu adalah buku-buku dengan katalisator yang digunakan dalam ilmu sihir dan sihir, seperti jamu dan permata, dan bagaimana cara mendapatkannya. Namun, mungkin mereka berpikir itu tidak terlalu penting, karena tidak banyak buku-buku ini. Itulah mengapa wajar jika Ciel tidak terlalu mengingatnya.
-Aku hanya mengingatnya dari sebuah asumsi, jadi bukan berarti Aku luar biasa. Tetap saja, Aku belum berniat memberi tahu Ciel tentang kehidupan masa lalu Aku, jadi Aku hanya menerima pujiannya dengan senyum tegang.
+c"Jadi ini batu +MAGIC. Di buku tertulis batu ini diambil dari monster. Jadi Kamu ingat semua itu. luar biasa!"
 
-"Aku percaya bahwa batu ajaib dapat dijual di banyak tempat dan bahkan mungkin membantu meningkatkan kekuatan sihir kita.
-     Jadi tidak ada ruginya membawanya. "
-" Jadi itu berarti ini benar-benar benda itu, kan? "
-" Ya, ini sepertinya salah satu bahan utama obatnya. "
+Melihat objek yang hanya dia ketahui dari membaca buku, Ciel menjadi sangat bersemangat.
 
-Menanggapi kata-kataku dengan penuh perhatian, Ciel benar-benar jauh lebih pintar dariku.
-Sepertinya dia bukan hanya putri seorang duke untuk pertunjukan.
-Selanjutnya, mereka kemungkinan besar tidak hanya memberi kita batu ajaib mentah. Tetap saja, obat itu tidak diragukan lagi adalah bentuk olahan dari batu ajaib.
+Di antara buku-buku di ruangan itu adalah buku-buku dengan katalis yang digunakan dalam +SORCERY dan +MAGIC, seperti +HERB dan Batu Permata, dan bagaimana cara mendapatkannya. tapi, mungkin mereka berpikir itu tidak terlalu penting, karena tidak banyak buku-buku tentang hal ini. Itulah mengapa wajar jika Ciel tidak terlalu mengingatnya.
 
-Kekuatan sihir meningkat saat Kamu tumbuh dewasa, tetapi berhenti saat Kamu mencapai usia remaja. Ada beberapa orang yang masih terus meningkatkan kekuatan sihir mereka bahkan setelah mencapai usia dewasa. Namun, seharusnya tidak ada cara yang mapan untuk secara aktif meningkatkan kekuatan sihir seseorang.
-Aku tidak dapat benar-benar mengatakan bahwa kita telah membaca semuanya, tetapi Aku yakin bahwa buku-buku di ruangan itu semuanya mempelajari cukup dalam tentang ilmu sihir. Kita benar-benar perlu menyesuaikan akal sehat kita tentang sihir saat kita mencapai kota atau desa juga.
+Aku hanya mengingatnya dari sebuah asumsi, jadi bukan berarti Aku luar biasa. Tetap saja, Aku belum berniat memberi tahu Ciel tentang kehidupan masa laluku, jadi Aku hanya menerima pujiannya dengan senyum tegang.
+
+a"Aku percaya bahwa batu +MAGIC dapat dijual di banyak tempat dan bahkan mungkin membantu meningkatkan kekuatan sihir kita. Jadi tidak ada ruginya membawanya."
+
+c"Jadi itu berarti ini benar-benar benda itu, ya?"
+
+a"Ya, ini sepertinya salah satu bahan utama obatnya."
+
+Menanggapi kata-kataku, Ciel benar-benar jauh lebih pintar dariku.
+
+Sepertinya dia bukan hanya putri seorang duke dalam status saja.
+
+mereka kemungkinan besar tidak hanya memberi kami batu +MAGIC yang mentah. Tetap saja, obat itu tidak diragukan lagi adalah bentuk olahan dari batu +MAGIC.
+
+Kekuatan sihir meningkat saat Kamu tumbuh dewasa, tetapi berhenti saat Kamu mencapai usia remaja. Ada beberapa orang yang masih terus meningkatkan kekuatan sihir mereka bahkan setelah mencapai usia dewasa. tapi tidak ada cara yang arti yang pasti untuk terus meningkatkan kekuatan sihir seseorang.
+
+Aku tidak dapat benar-benar mengatakan bahwa kami telah membaca semuanya, tetapi Aku yakin bahwa buku-buku di ruangan itu semuanya mempelajari cukup dalam tentang ilmu sihir. Kita benar-benar perlu menyesuaikan akal sehat kita tentang sihir saat kita mencapai kota atau desa juga.
 
 "Setelah ini, Aku hanya perlu membakar dan menguburnya ...... kan?"
 "Ya, silakan."
