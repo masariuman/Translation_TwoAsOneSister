@@ -108,83 +108,101 @@ mereka kemungkinan besar tidak hanya memberi kami batu +MAGIC yang mentah. Tetap
 
 Kekuatan sihir meningkat saat Kamu tumbuh dewasa, tetapi berhenti saat Kamu mencapai usia remaja. Ada beberapa orang yang masih terus meningkatkan kekuatan sihir mereka bahkan setelah mencapai usia dewasa. tapi tidak ada cara yang arti yang pasti untuk terus meningkatkan kekuatan sihir seseorang.
 
-Aku tidak dapat benar-benar mengatakan bahwa kami telah membaca semuanya, tetapi Aku yakin bahwa buku-buku di ruangan itu semuanya mempelajari cukup dalam tentang ilmu sihir. Kita benar-benar perlu menyesuaikan akal sehat kita tentang sihir saat kita mencapai kota atau desa juga.
+Aku tidak dapat benar-benar mengatakan bahwa kami telah membaca semuanya, tetapi Aku yakin bahwa buku-buku di ruangan itu semuanya mempelajari cukup dalam tentang ilmu sihir. kami benar-benar perlu menyesuaikan akal sehat kami tentang sihir saat kami mencapai kota atau desa juga.
 
-"Setelah ini, Aku hanya perlu membakar dan menguburnya ...... kan?"
-"Ya, silakan."
+c"Setelah ini, Aku hanya perlu membakar dan menguburnya ...... kan?"
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
-
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+a"Ya, silakan."
 
 Mendengar kata-kataku, Ciel membakar raksasa itu, menggali lubang dan menguburnya.
+
 Semua ini dilakukan dengan sihir, jadi Ciel sendiri tidak menjadi kotor dan bisa menyelesaikannya dalam beberapa menit.
-Saat dia meratakan tanah datar yang terisi, Aku perhatikan bahwa Ciel sedang memikirkan sesuatu secara mendalam.
 
-"Apakah ada yang salah?"
-"Katakan, Ain. Mungkinkah alih-alih menggunakan pisau, kita bisa saja menggunakan sihir untuk mengeluarkan batu ajaib? "
-"Ah …… "
+Saat dia meratakan tanah, Aku memperhatikan Ciel sedang memikirkan sesuatu secara mendalam.
 
-Sekarang dia mengatakannya, itu benar. Ya, hanya dengan pikiran untuk membongkar monster membuatku langsung berpikir untuk menggunakan pisau; tapi sihir Ciel jauh lebih mudah digunakan.
+a"ada apa?"
 
-"T-Tapi, tetap saja, kita mungkin perlu menggunakan pisaunya di masa depan ……
-     Tidak, um …… Aku benar-benar minta maaf karena keputusanku yang tergesa-gesa membuat kita membuang-buang tenaga untuk menemukannya."
+c"hey, Ain. Mungkinkah daripada menggunakan pisau, kita bisa saja menggunakan sihir untuk mengeluarkan batu +MAGIC?"
 
-Aku membuat alasan, tapi Aku buru-buru meminta maaf sebelum menyelesaikannya. Mungkin karena rasa malu dan malu, suaraku akhirnya berangsur-angsur menghilang pada akhirnya.
-Jika itu terus berlanjut, Aku mungkin akan menjadi defensif, tetapi Aku ingin jujur ​​dengan Ciel sebanyak mungkin. Bahkan jika Aku merahasiakan jenis kelamin Aku dan masa lalu.
+a"Ah......"
+
+benar juga. Ya, hanya dengan pikiran untuk membelah monster membuatku langsung berpikir untuk menggunakan pisau; tapi sihir Ciel jauh lebih mudah digunakan.
+
+a"T-Tapi, tetap saja, kita mungkin perlu menggunakan pisaunya di masa depan ...... Tidak, um ...... Aku benar-benar minta maaf karena keputusanku yang tergesa-gesa membuat kita membuang-buang tenaga."
+
+Aku membuat alasan, tapi Aku buru-buru meminta maaf sebelum menyelesaikannya. Mungkin karena rasa malu, suaraku akhirnya berangsur-angsur mengecil dan menghilang pada akhirnya.
+
+Jika itu terus berlanjut, Aku mungkin akan menjadi defensif, tetapi Aku ingin jujur ​​dengan Ciel sebanyak mungkin. Bahkan jika Aku merahasiakan jenis kelaminku dan masa laluku.
+
 Tetap saja, tidak mengubah bahwa apa yang Aku lakukan itu memalukan. Dan seperti yang kupikirkan, Ciel dengan cepat mengedipkan matanya dalam diam karena suatu alasan.
 
-"Um ……"
-"Bukan apa-apa, bukan apa-apa, Kamu lihat. Hanya saja, Aku hanya berpikir sedikit, sedikit, bahwa memang ada hal-hal yang bahkan tidak diperhatikan oleh Ain.
-     Karena Ain selalu membantu Aku, Aku pikir Ain bisa melakukan apa saja. "
-" Tidak juga, mungkin ada lebih banyak hal yang tidak bisa Aku lakukan. "
+a"Um ......"
+
+c"tidak apa-apa, tidak apa-apa. Hanya saja, Aku hanya berpikir sedikit, hanya sedikit, bahwa memang ada hal-hal yang bahkan tidak diperhatikan oleh Ain. Karena Ain selalu membantuku, Aku pikir Ain bisa melakukan apa saja."
+
+a"Tidak juga, mungkin ada lebih banyak hal yang tidak bisa Aku lakukan."
 
 Sementara bingung dengan Ciel yang tidak biasa banyak bicara, aku menjawab begitu.
-Tetap saja, setelah melihat Ciel sangat senang karena suatu alasan, aku merasa lega karena tidak mengecewakannya.
-Tapi bukannya hanya senang, apakah dia mungkin menyeringai?
 
-"Sekarang, apa yang harus kita lakukan sekarang?
-     Karena yang Aku pikirkan hanyalah bagaimana cara melarikan diri dari mansion, Aku tidak pernah benar-benar memikirkan apa yang harus dilakukan selanjutnya, Kamu tahu? "
-" Karena ada jalan di depan kita, mari kita coba mengikutinya sejauh yang kita bisa.
-     Setidaknya, kita harus mencapai beberapa desa atau kota. "
+Tetap saja, setelah melihat Ciel sangat senang karena suatu alasan, aku merasa lega karena tidak mengecewakannya.
+
+Tapi daripada senang, sepertinya dia menyeringai?
+
+c"Sekarang, apa yang harus kita lakukan sekarang? Karena yang Aku pikirkan hanyalah bagaimana cara melarikan diri dari mansion, Aku tidak pernah benar-benar memikirkan apa yang harus dilakukan selanjutnya..."
+
+a"Karena ada jalan di depan kita, mari kita coba mengikutinya sejauh yang kita bisa. Setidaknya, kita harus mencapai beberapa desa atau kota."
 
 Agak sulit untuk menyebutnya jalan, tapi karena rumput terinjak-injak di jalur gerobak, Aku sepertinya tidak salah.
 Paling tidak, Aku pikir ini lebih dapat diandalkan daripada mencoba mencari sungai sekarang.
 
-"Meskipun ada batasan untuk makanan yang dapat kami bawa, kami memiliki beberapa hari dan kami dapat menghasilkan air dengan sihir.
-     Begitu kita mencapai kota, di situlah masalahnya mungkin.
-"Masalah?"
-"Terus terang, Ciel dikemas dengan sifat-sifat yang akan membuat seseorang mendapat masalah.
-     Bagaimanapun, Ciel adalah seorang gadis muda, seorang putri yang mengecewakan, dan kerabat sang duke. Lagipula, kamu juga terlihat bagus. Itu terisi sampai penuh. "
-" Apa artinya mengisi sampai penuh? "
-"Umm , itu berarti 'terlalu banyak'. Itu adalah idiom yang digunakan di tempat Aku tinggal. "
-" Fufufu. Jadi Aku hanya perlu tidak menjadi seorang gadis dan juga merahasiakan sang putri yang mengecewakan dan sang duke, kan? "
+a"Meskipun ada batasan untuk makanan yang dapat kita bawa, kita masih bisa hidup beberapa hari dan kita dapat menghasilkan air dengan sihir. Begitu kita mencapai kota, di situlah masalahnya mungkin terjadi."
 
-Aku benar-benar tergelincir. Untuk diuji pada saat berikutnya aku memutuskan untuk jujur ​​padanya. Ini cukup menyedihkan tapi karena aku tidak bisa berbohong, tolong biarkan aku pergi.
-Melihatnya cekikikan senang, Aku tidak yakin apa yang dipikirkan Ciel. Namun, karena sepertinya dia tahu bahwa Aku tidak ingin dia menyelidiki Aku, Aku memutuskan untuk mengikuti petunjuknya.
+c"Masalah?"
 
-"Aku pikir pekerjaan dan masa lalu Kamu dapat disembunyikan, tetapi penampilan Kamu mungkin sulit disembunyikan. Menutup rambut Kamu mungkin yang paling bisa dilakukan jubah ini. "
-" Aku tidak benar-benar berpikir ada banyak perbedaan jenis kelamin pada usia Aku, jadi tidak bisakah Aku menyamarkannya? "
-" Jika Kamu memotong pendek rambut Kamu dan memakai beberapa over- ukuran pakaian, Aku pikir Kamu akan terlihat berkelamin dua. Namun, Aku tidak terlalu merekomendasikannya. "
-" Karena sirkuit Aku berjalan ke rambut Aku, bukan? Aku tidak tahu berapa banyak pemotongan itu akan mengubah penampilan Aku, tapi yang pasti menjadi lemah itu buruk. "
-" Selain itu, jika Kamu benar-benar perlu menunjukkan Pekerjaan Kamu karena suatu alasan, mereka akan menyadarinya di bagian "Putri". "
+a"Terus terang, Ciel memiliki sifat yang akan membuat seseorang mendapat masalah. Ciel adalah seorang gadis muda, seorang putri yang mengecewakan, dan kerabat sang duke. Lagipula, kamu juga terlihat cantik. semuanya terisi sampai penuh."
 
-Jika kita menjalani hidup kita dengan hati-hati, mungkin kita bisa menyembunyikan pekerjaan kita. Namun, memasuki kota, misalnya, mungkin mengharuskan kami untuk menunjukkan Pekerjaan kami. Dan karena kami tidak memiliki apa pun yang dapat digunakan untuk identifikasi, semakin menjadi masalah.
-Persis karena kita tidak tahu apa-apa tentang dunia, yang terbaik adalah kita memikirkan setiap kemungkinan.
+c"Apa artinya mengisi sampai penuh?"
 
-"Juga, jika memungkinkan, begitu kita mencapai kota, apakah Kamu mengizinkan Aku menangani masalah ini sebentar?"
+a"Umm , itu berarti 'terlalu banyak'. Itu adalah idiom yang digunakan di tempatku tinggal."
+
+c"Fufufu. Jadi Aku hanya perlu tidak menjadi seorang gadis dan juga merahasiakan sang putri yang mengecewakan dan duke, kan?"
+
+Aku benar-benar kebablasan. aku memutuskan untuk berterus terang ​​padanya. Ini cukup menyedihkan tapi karena aku tidak bisa berbohong, tolong biarkan aku sendiri.
+
+Melihatnya cekikikan senang, Aku tidak yakin apa yang dipikirkan Ciel. Namun, karena sepertinya dia tahu bahwa Aku tidak ingin dia menyelidikiku, Aku memutuskan untuk mengikuti petunjuknya.
+
+a"Aku pikir +JOB dan masa lalu Kamu dapat disembunyikan, tetapi penampilanmu mungkin sulit disembunyikan. Menutup rambutmu mungkin yang paling bisa dilakukan jubah ini."
+
+c"Aku tidak benar-benar berpikir ada banyak perbedaan jenis kelamin pada usiaku, jadi tidak bisakah Aku menyamarkannya?"
+
+a"Jika Kamu memotong pendek rambutmu dan memakai beberapa Pakaian ukuran besar, Aku pikir Kamu akan terlihat androgini. tapi Aku tidak terlalu merekomendasikannya."
+
+c"Karena sirkuitku berjalan ke rambut Aku, kan? Aku tidak tahu berapa banyak hal itu akan mengubah penampilanku, tapi yang pasti menjadi lemah itu buruk."
+
+a"Selain itu, jika Kamu benar-benar perlu menunjukkan +JOBmu karena suatu alasan, mereka akan menyadarinya di bagian '+PRINCESS'."
+
+Jika kami menjalani hidup kami dengan hati-hati, mungkin kami bisa menyembunyikan +JOB Kami. tapi, memasuki kota, misalnya, mungkin mengharuskan kami untuk menunjukkan +JOB kami. Dan karena kami tidak memiliki apa pun yang dapat digunakan untuk identifikasi, semakin menjadi masalah.
+
+karena kami tidak tahu apa-apa tentang dunia ini, yang terbaik adalah kami memikirkan setiap kemungkinan.
+
+a"Juga, jika memungkinkan, begitu kita mencapai kota, apakah Kamu mengizinkanku menangani masalah ini sebentar?"
 
 Mendengar pertanyaanku, Ciel merenung dalam-dalam dengan tatapan serius.
-Di masa depan, Aku ingin Ciel mengembangkan keterampilan komunikasi yang cukup sehingga dia memiliki inisiatif. Namun, menurutku tidak masuk akal untuk memintanya melakukannya sekarang.
+
+Di masa depan, Aku ingin Ciel mengembangkan skill komunikasi yang cukup sehingga dia memiliki inisiatif. tapi menurutku tidak masuk akal untuk memintanya melakukannya sekarang.
+
 Sebaliknya, Aku pikir itu luar biasa bahwa dia bahkan tidak menolak pergi ke komunitas manusia sekarang.
-Lagipula, satu-satunya orang yang dia temui sejauh ini adalah duke yang buas, kepala pelayan bermuka topeng, dan pria babi + pendamping. Bahkan berpikir optimis, Aku pikir siapa pun akan mengembangkan androfobia setelah itu.
+
+Lagipula, satu-satunya orang yang dia temui sejauh ini adalah duke yang buas, kepala pelayan bermuka topeng, dan pria babi + pendampingnya. Aku pikir siapa pun akan mendapatkan androfobia.
+
 Jadi sampai Ciel terbiasa, mungkin yang terbaik adalah Aku memiliki inisiatif untuk saat ini.
+
 "Ain, aku akan serahkan padamu." Ciel menyerah. Sepertinya dia juga mengerti maksudku.
 
-"Ada sesuatu yang membuatku penasaran. Apakah benar ada tempat kita bisa bekerja?
-     Dengan uang kita saat ini, kita mungkin dapat hidup untuk sementara waktu, tetapi pada akhirnya akan habis, kan? "
-" Mengenai itu, Aku sebenarnya punya petunjuk.
-     Aku tidak terlalu yakin tentang itu, tetapi karena ada monster di mana-mana, ada organisasi yang juga harus ada. Namun, kita akan mendapat banyak masalah. "
-" Apakah masalah, benar-benar hal yang pasti? "
+c"Ada sesuatu yang membuatku penasaran. Apakah benar ada tempat kita bisa bekerja? Dengan uang kita saat ini, kita mungkin dapat hidup untuk sementara waktu, tetapi pada akhirnya akan habis..."
 
-Mengatakannya dengan sedikit kebingungan, Aku menjawab "Ini standar."
+a"tentang hal itu itu, Aku sebenarnya punya petunjuk. Aku tidak terlalu yakin tentang itu, tetapi karena ada monster di mana-mana, ada organisasi yang juga harusnya ada. tapi, kita akan mendapat banyak masalah."
+
+c"Apakah masalah, benar-benar pasti terjadi? "
+
+Mengatakannya dengan sedikit kebingungan, Aku menjawab "Ini hal biasa."
