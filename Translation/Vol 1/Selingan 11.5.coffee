@@ -257,22 +257,30 @@ a"Ah ...... T -Tapi, tetap saja, kita mungkin perlu menggunakan pisau di masa de
 Aku hanya meminta konfirmasi tetapi tampaknya itu adalah kesalahan yang memalukan bagi Ain.
 
 Meskipun Ain menjawab dengan cepat seperti dia mencoba untuk menutupinya; di bagian terakhir, suaranya tiba-tiba menyusut dengan cepat.
-Sementara Aku memang berpikir bahwa itu tidak biasa bagi Ain untuk membuat kesalahan mendasar seperti ini, yang lebih penting, melihat respon lembut Ain sekarang membangkitkan sesuatu di dalam diri Aku.
 
-Mungkin karena Aku melihat bagian rapuh dari Ain sebelum melawan raksasa itu juga, tapi Aku merasakan dorongan untuk melindungi Ain yang malu dan agak menyusut.
-Di saat yang sama, Aku ingin terus melihat Ain yang dipermalukan selamanya.
+Aku memang berpikir bahwa itu tidak biasa bagi Ain untuk membuat kesalahan mendasar seperti ini, tapi melihat respon lembut Ain sekarang membangkitkan sesuatu di dalam diriku.
 
-Perasaan apa ini, perasaan ini aku bertanya-tanya !?
+Mungkin karena Aku melihat bagian yang rapuh dari diri Ain sebelum melawan raksasa itu juga, tapi Aku merasakan dorongan untuk melindungi Ain yang malu dan lembut seperti ini.
+
+Di saat yang sama, Aku ingin terus melihat Ain seperti ini selamanya.
+
+Perasaan apa ini!?
+
 Aku tidak tahu bagaimana Ain akan terlihat, tapi Aku yakin jika dia memiliki tubuh, wajahnya akan menjadi merah.
-Apa itu, apa itu?
-Apakah ini mungkin perasaan saat melihat sesuatu yang lucu? Apakah ini perasaan melihat sesuatu yang menggemaskan?
+
+Seperti apakah itu, bagimana?
+
+Apakah ini mungkin perasaan saat melihat sesuatu yang imut? Apakah ini perasaan melihat sesuatu yang menggemaskan?
 Entah bagaimana, rasanya seperti itu pasti cocok.
 
-Meskipun Ain merasa gelisah, Aku berpikir bahwa Ain yang bermasalah membuatnya lebih manis, itu membuatnya lebih menggemaskan. Aku seorang gadis yang buruk.
+Meskipun Ain merasa gelisah, Aku berpikir bahwa Ain yang seperti ini membuatnya lebih manis, itu membuatnya lebih menggemaskan. Aku seorang gadis yang buruk.
+
 Tetap saja, Aku tidak ingin membuat Ain sedih.
-Aku tidak benar-benar ingin melihatnya benar-benar cemas. Aku hanya ingin merepotkan Ain agar dia tidak merasa tidak nyaman.
+
+Aku tidak benar-benar ingin melihatnya benar-benar cemas. Aku hanya ingin mengganggu Ain agar dia tidak merasa tidak nyaman saja.
 
 Gadis nakal, gadis nakal.
+
 Aku benar-benar tidak bisa membiarkan Ain mengetahui perasaanku ini.
 
-Karena itulah Aku segera mengganti topik. Aku merasa kasihan pada Ain, tetapi perasaan bahwa Aku mendapatkan sesuatu yang berharga membuat Aku sedikit bahagia.
+Karena itulah Aku segera mengganti topik. Aku merasa kasihan pada Ain, tetapi perasaan bahwa Aku mendapatkan sesuatu yang berharga membuatku sedikit bahagia.
