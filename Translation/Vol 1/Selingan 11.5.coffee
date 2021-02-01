@@ -151,84 +151,111 @@ Tentu saja, karena hanya aku yang tahu bahwa Ain adalah +SONG PRINCESS, bahkan j
 Karena kami akan mengumpulkan monster, hidup kami mungkin juga terancam. Tetap saja, karena melawan monster adalah bagian dari rencana sejak awal, aku menerima usulan Ain.
 
 ◇◇◇
-------------------
-Di dalam gerobak tertutup, Ain sedang bernyanyi. Meskipun Ain menggunakan tubuh Aku, dia bernyanyi dengan suara indah yang sama sekali tidak terdengar seperti suara Aku, jadi Aku akhirnya mendengarkan dengan ekstasi. Apakah ini karena kekuatan Putri Song sedang melakukan sesuatu? Tetap saja, bahkan sebelum Ain menerima Song Princess, lagu Ain selalu membuatku bahagia.
-Di luar gerobak, Aku dapat mendengar percakapan yang berlangsung yang hampir membuat Aku merajut alis. Membiarkan orang-orang yang membicarakan hal-hal seperti itu mendengarkan lagu Ain entah bagaimana sangat menjengkelkan bagiku.
 
-Seperti yang direncanakan, monster berkumpul dan pengawal mengalahkan mereka terus menerus untuk sementara waktu sekarang, tapi gerobak masih berlanjut dengan aman.
+Di dalam kereta kuda yang tertutup, Ain sedang bernyanyi. Meskipun Ain menggunakan tubuhku, dia bernyanyi dengan suara indah yang sama sekali tidak terdengar seperti suaraku, jadi Aku mendengarkan dengan gembira. Apakah ini karena kekuatan +SONG PRINCESS? Tetap saja, bahkan sebelum Ain menjadi +SONG PRINCESS, lagu Ain selalu membuatku bahagia.
+
+Di luar kereta, Aku dapat mendengar percakapan yang berlangsung yang hampir membuatku mengerutkan alisku. Membiarkan orang-orang yang membicarakan hal-hal seperti itu karena mendengarkan lagu Ain entah bagaimana sangat menjengkelkan bagiku.
+
+Seperti yang direncanakan, monster berkumpul dan pengawal mengalahkannya terus menerus untuk sementara waktu, tapi kereta kuda masih berjalan dengan aman.
+
 Seperti yang dikatakan Ain, jika monster yang sedikit lebih kuat tidak mendekat, sepertinya kita tidak akan bisa melarikan diri.
-Setelah diguncang oleh gerobak untuk beberapa saat lagi, Aku tidak yakin berapa kali ini berhasil tetapi, gerobak berhenti sekali lagi.
+
+Setelah kereta kuda bergerak, Aku tidak yakin berapa kali ini akan berhasil tetapi, gerobak berhenti sekali lagi.
 
 Aku bertanya-tanya apakah itu monster lain lagi, tetapi situasinya tampak agak berbeda dari sebelumnya.
-Saat Ain mengintip ke luar, ada monster bermata satu raksasa di sana dan orang-orang di sekitar kita terbagi menjadi orang-orang yang mencoba melarikan diri dan orang-orang yang menyerah untuk melarikan diri.
-Hanya dari tampilannya, sepertinya cukup kuat dan melihat apa yang terjadi sekarang, sepertinya itu benar-benar kuat.
-Hanya dari satu ayunan dari pentungan di tangannya, orang-orang itu akan hancur sampai mati.
 
-Aku bingung melihat apa yang terjadi tetapi tiba-tiba, ada yang salah dengan tubuh Aku.
-Setelah perasaan tidak enak tentang sesuatu dari perutku yang sepertinya memanjat tenggorokanku, sesuatu yang asam keluar dari mulutku.
+Saat Ain mengintip ke luar, ada monster raksasa bermata satu di sana dan orang-orang di sekitar kami terbagi menjadi orang-orang yang mencoba melarikan diri dan orang-orang yang menyerah untuk melarikan diri.
+
+Hanya dari bentuknya saja, sepertinya cukup kuat dan melihat apa yang terjadi sekarang, sepertinya itu benar-benar kuat.
+
+Hanya dari satu ayunan dari senjata di tangannya, orang-orang itu hancur sampai mati.
+
+Aku bingung melihat apa yang terjadi tetapi tiba-tiba, ada yang salah dengan tubuhku.
+
+perasaan tidak enak seperti ada sesuatu dari perutku yang sepertinya memanjat ke tenggorokanku, sesuatu yang asam keluar dari mulutku.
+
 Kemungkinan karena Ain menutup matanya, Aku tidak bisa melihat apapun; dan jantungku berdegup sangat kencang hingga rasanya seperti akan hancur.
 
-Saat ini, Aku menyadari kesalahan Aku.
+Saat ini, Aku menyadari kesalahanku.
 
-Ketika Aku dikurung di ruang buku, Aku membaca beberapa cerita tentang pahlawan masa lalu yang mengalahkan musuh yang hebat dan kuat - mungkin karena Pekerjaan Pahlawan itu istimewa - jadi dalam pikiran Aku, Aku memikirkan Ain yang melindungi Aku sebagai makhluk yang sama seperti para pahlawan di buku yang dengan tegas melawan musuh mereka.
-Namun, melihat Ain gemetar sekarang, dia lebih seperti seorang putri yang jatuh sakit setelah melihat seseorang mati untuk pertama kalinya.
+Ketika Aku dikurung di ruang buku, Aku membaca beberapa cerita tentang pahlawan masa lalu yang mengalahkan musuh yang hebat dan kuat - mungkin karena +JOB Pahlawan itu istimewa - jadi dalam pikiranku, Aku memikirkan Ain yang melindungiku sebagai makhluk yang sama seperti para pahlawan di buku yang dengan tegas melawan musuh mereka.
 
-Mungkin itu karena Ain yang baik sehingga dia merasakan sesuatu bahkan jika orang yang sekarat tidak berhubungan dengannya.
-Meski begitu, meskipun Ain berdiri kembali tanpa keluhan mungkin kuat, tidak perlu dia memaksakan diri sejauh ini. Tidak, ini adalah saat dimana aku harus membalas budi Ain.
-Pertama-tama, Ain praktis tidak berdaya dalam pertempuran.
+tapi, melihat Ain gemetar sekarang, dia lebih seperti seorang putri yang jatuh sakit setelah melihat seseorang mati untuk pertama kalinya.
 
-"Ain, lindungi aku, oke?"
+Mungkin itu karena Ain sangat baik sehingga dia merasakan sesuatu bahkan jika orang lain sekarat tidak ada hubungan dengannya.
+
+Meski begitu, Ain berdiri kembali tanpa mengeluh, dia tidak perlu dia memaksakan diri sejauh ini. Tidak, ini adalah saat dimana aku harus membalas Ain.
+
+Pertama-tama, Ain tidak berdaya dalam pertempuran.
+
+c"Ain, lindungi aku, oke?"
 
 Setelah mengatakan itu, Aku mengambil kembali kendali tubuh. Mungkin terlihat payah untuk meminta Ain untuk melindungiku setelah begitu percaya diri, tapi itu karena jika Ain ada di sana untuk melindungiku, aku yakin aku bisa melakukan apa saja.
 
-Keluar dari gerobak, sudah tidak ada lagi orang yang bergerak yang tersisa dan raksasa itu mulai menghancurkan gerobak lainnya.
-Raksasa itu mengarahkan matanya yang besar ke arahku, mungkin karena aku satu-satunya target bergerak yang tersisa.
-Hanya melihat tingginya, sepertinya tiga kali lipat ukuran Aku. Biasanya, melawannya mungkin akan membunuhku. Lagipula, Aku belum pernah bertarung sebelumnya dan, yang terpenting, Aku bahkan belum pernah berolahraga dengan benar sebelumnya.
+Keluar dari kereta, sudah tidak ada lagi orang yang bergerak yang tersisa dan raksasa itu mulai menghancurkan kereta lainnya.
 
-Namun, Ain melindungi Aku. Bahkan jika serangan yang baru saja menyerangku mungkin akan melukaiku dengan parah, aku yakin pelindung Ain sepertinya akan mampu menahannya.
+Raksasa itu mengarahkan matanya yang besar ke arahku, mungkin karena aku satu-satunya target bergerak yang tersisa.
+
+Hanya melihat tingginya, sepertinya tiga kali lipat ukuranku. melawannya mungkin akan membunuhku. Lagipula, Aku belum pernah bertarung sebelumnya dan, Aku bahkan belum pernah berolahraga dengan benar sebelumnya.
+
+tapi, Ain melindungiku. Bahkan jika serangannya mungkin akan melukaiku dengan parah, aku yakin pelindung Ain sepertinya akan mampu menahannya.
+
 Untuk saat ini, Aku akan mencoba melihat seberapa banyak yang dapat Aku lakukan.
 
 Tapi setelah menguatkan diriku dan menyerangnya dengan sihirku, serangan bertenaga penuhku hanya membakar kulitnya.
-Untuk beberapa alasan, Aku merasa ada sesuatu yang tidak pada tempatnya. Pekerjaanku adalah Putri Tari. Bahkan selama pertarungan ini, apa yang Aku lakukan tidak terasa berbeda dari biasanya Aku menari. Hanya ada penonton sekarang dan Aku hanya mencampurkan beberapa sihir dengannya.
+
+Untuk beberapa alasan, Aku merasa ada sesuatu yang tidak pada tempatnya. +JOBku adalah +DANCE PRINCESS. Bahkan selama pertarungan ini, apa yang Aku lakukan tidak terasa berbeda dari biasanya Aku menari. Hanya saja ada penontonnya sekarang dan Aku hanya mencampurkan beberapa sihir saja.
 
 Tepat ketika Aku bingung dengan apa yang harus Aku lakukan, Ain bertanya apakah kami harus melarikan diri.
+
 Aku setuju dengan itu, tetapi setelah mendengar suara Ain, Aku menyadari apa yang sebenarnya menyebabkan ketidaknyamanan Aku. Meskipun Aku menari, Ain sama sekali tidak bernyanyi.
-Lagipula, Song Princess Ain mempengaruhi apa pun yang bisa "mendengar suaranya"; dan karena aku satu-satunya yang bisa mendengar suara Ain ini sekarang, yang persis apa artinya.
-Yang terpenting, menari tanpa lagu Ain agak terasa sangat tidak memuaskan bagiku.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
++SONG PRINCESS Ain mempengaruhi apa pun yang bisa "mendengar suaranya"; dan karena aku satu-satunya yang bisa mendengar suara Ain sekarang, seharusnya hanya berpengaruh padaku.
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
+lagipula, menari tanpa lagu Ain agak terasa sangat tidak memuaskan bagiku.
 
-Dan mungkin Ain juga menyadari fakta tentang Song Princess, karena suara nyanyiannya segera mulai bergema di kepalaku.
-Itu adalah lagu yang sangat intens, tidak biasa bagi Ain. Seperti biasa, Aku tidak mengerti apa artinya tetapi Aku merasakan semangat Aku meningkat.
-Sejak saat itu, Aku hanya menari mengikuti irama lagu. Aku hanya mengulangi apa yang telah Aku lakukan seribu kali dan hanya menari seperti yang Aku lakukan setiap hari.
-Tetap saja, hari ini jauh lebih memuaskan daripada saat-saat lain aku menari mengikuti lagu Ain. Apakah ini yang dimaksud dengan perasaan yang dirujuk dengan sempurna oleh roda penggerak?
+Dan mungkin Ain juga menyadari fakta tentang +SONG PRINCESS, karena suara nyanyiannya segera mulai bergema di kepalaku.
+
+Itu adalah lagu yang sangat intens, tidak seperti ain biasanya. Seperti biasa, Aku tidak mengerti apa artinya tetapi Aku merasakan semangatku meningkat.
+
+Aku hanya menari mengikuti irama lagu. Aku hanya mengulangi apa yang telah Aku lakukan seribu kali dan hanya menari seperti yang Aku lakukan setiap hari.
+
+Tetap saja, hari ini jauh lebih memuaskan daripada saat-saat lain aku menari mengikuti lagu Ain. Apakah ini yang dimaksud dengan perasaan yang terhubung dengan sempurna ?
 
 Dan pada saat lagu itu berakhir, semuanya juga berakhir.
 
-Agak arogan jika Aku sendiri yang mengatakannya, tetapi sejak Ain mulai bernyanyi, Aku merasa tidak ada lagi kontes.
-Mungkin itu bukan hanya dari efek penguatan Song Princess, tapi juga karena kita telah memenuhi persyaratan untuk Dance Princess untuk bertarung dengan kekuatan penuh.
-Ain mengatakan itu masih terlalu banyak, tapi menurutku tidak begitu. Lagipula, selama aku hampir tidak bisa mengingatnya, aku sudah menari mengikuti suara lagu Ain.
+Agak arogan jika Aku sendiri yang mengatakannya, tetapi sejak Ain mulai bernyanyi, Aku merasa monster itu bukan tandinganku.
+
+Mungkin itu bukan hanya dari efek penguatan +SONG PRINCESS, tapi juga karena kita telah memenuhi persyaratan untuk +DANCE PRINCESS untuk bertarung dengan kekuatan penuh.
+
+Ain mengatakan itu masih terlalu berlebihan, tapi menurutku tidak begitu. Lagipula, selama ini, aku sudah menari mengikuti suara lagu Ain.
 
 Aku ingin beristirahat setelah melawan monster untuk pertama kalinya. Tapi karena menurut Ain, monster lain mungkin tertarik pada bau darah, Aku perlu bertahan sebentar lagi.
-Meski aku mengatakan itu, aku hanya perlu membakar dan mengubur raksasa itu, jadi menggunakan sihir akan segera mengakhirinya.
+
+Aku hanya perlu membakar dan mengubur raksasa itu, jadi menggunakan sihir akan segera mengakhirinya.
+
 Tapi saat aku akan membakarnya, Ain menghentikanku.
-Sepertinya ada kekuatan sihir yang terkumpul di sekitar jantung raksasa itu, jadi Ain ingin memeriksa sesuatu tentangnya. Aku tidak benar-benar merasakan apa-apa, tapi kemampuan deteksi Aku tidak sebanding dengan Ain, jadi Aku tidak keberatan jika ada sesuatu yang ingin dicari Ain.
 
-Dari rongsokan gerobak, kami membawa pisau dan beberapa hal yang mungkin diperlukan mulai sekarang, dan kemudian menusuk pisau itu ke dada raksasa itu. Kemudian dari dalam, Aku melihat sebuah bola yang sepertinya sulit dibawa dengan satu tangan. Dan ketika Aku memegangnya, Aku juga menyadari bahwa itu adalah segumpal kekuatan gaib.
-Ketika Aku bertanya-tanya apa itu, Aku menyadari bahwa itu adalah batu ajaib. Aku benar-benar lupa tentang itu, tapi itu pasti sesuatu yang juga digunakan saat melakukan sihir atau sihir.
+Sepertinya ada kekuatan sihir yang terkumpul di sekitar jantung raksasa itu, jadi Ain ingin memeriksanya. Aku tidak benar-benar merasakan apa-apa, tapi kemampuan deteksiku tidak sebanding dengan Ain, jadi Aku tidak keberatan jika ada sesuatu yang ingin dicari Ain.
 
-Aku tahu itu sebagai informasi, tetapi melihat hal yang nyata benar-benar mengharukan.
-Aku memuji Ain karena mengingat bahwa batu ajaib diambil dari monster. Tapi aku bertanya-tanya mengapa Ain tampaknya menunjukkan perasaan campur aduk tentang itu?
-Sepertinya buruk untuk menggalinya, jadi Aku memutuskan untuk berurusan dengan raksasa itu untuk saat ini.
+Dari rongsokan kereta kuda, kami mengambil pisau dan beberapa hal yang mungkin diperlukan mulai sekarang, dan kemudian menusuk pisau itu ke dada raksasa itu. Kemudian dari dalam, Aku melihat sebuah bola yang sepertinya sulit dibawa dengan satu tangan. Dan ketika Aku memegangnya, Aku juga menyadari bahwa itu adalah segumpal kekuatan +MAGIC.
+
+Ketika Aku bertanya-tanya apa itu, Aku menyadari bahwa itu adalah batu MAGIC. Aku benar-benar lupa tentang itu, tapi itu pasti sesuatu yang juga digunakan saat melakukan +SORCERY atau +MAGIC.
+
+Aku tahu itu sebagai informasi, tetapi melihat hal yang nyata benar-benar mengejutkanku.
+
+Aku memuji Ain karena mengingat bahwa batu +MAGIC diambil dari monster. Tapi aku penasaran mengapa Ain tampaknya menunjukkan perasaan campur aduk tentang hal itu?
+
+Sepertinya buruk untuk bertanya lebih lanjut, jadi Aku memutuskan untuk berurusan dengan raksasa itu saja untuk saat ini.
+
 Di masa sekarang, ilmu sihir sangat berguna. Pada saat yang sama, Aku akhirnya memperhatikan sesuatu.
 
-"Katakan, Ain. Mungkinkah alih-alih menggunakan pisau, kita bisa saja menggunakan sihir untuk mengeluarkan batu ajaib? "
-"Ah ...... T -Tapi, tetap saja, kita mungkin perlu menggunakan pisau di masa depan ......
-     Tidak, um ... … Aku sangat menyesal karena keputusan Aku yang terburu-buru membuat kami membuang-buang tenaga untuk menemukannya. "
+c"hei, Ain. Mungkinkah daripada menggunakan pisau, kita bisa saja menggunakan sihir untuk mengeluarkan batu +MAGIC?"
+
+a"Ah ...... T -Tapi, tetap saja, kita mungkin perlu menggunakan pisau di masa depan ...... Tidak, um ...... Aku sangat menyesal karena keputusanku yang terburu-buru membuat kita membuang-buang tenaga untuk mencari pisau ini."
 
 Aku hanya meminta konfirmasi tetapi tampaknya itu adalah kesalahan yang memalukan bagi Ain.
+
 Meskipun Ain menjawab dengan cepat seperti dia mencoba untuk menutupinya; di bagian terakhir, suaranya tiba-tiba menyusut dengan cepat.
 Sementara Aku memang berpikir bahwa itu tidak biasa bagi Ain untuk membuat kesalahan mendasar seperti ini, yang lebih penting, melihat respon lembut Ain sekarang membangkitkan sesuatu di dalam diri Aku.
 
