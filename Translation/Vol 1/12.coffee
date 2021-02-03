@@ -1,71 +1,88 @@
 
 
-Sejak kami mengambil batu ajaib, lebih dari satu hari telah berlalu. Pada tingkat ini, tampaknya diragukan apakah kita benar-benar dapat menjangkau suatu tempat dengan orang-orang. Fakta sederhana bahwa kita membuat kemajuan yang lambat adalah sebagian darinya, tetapi Aku tidak berpikir bahwa kita akan mencapainya sebelum hari ini berakhir.
+Sejak kami mengambil batu magic, lebih dari satu hari telah berlalu. kami sangat ragu apakah kami benar-benar dapat menjangkau suatu tempat dengan seperti ini. alasannya karena kami beralan dengan lambat, tetapi Aku tidak berpikir bahwa kita akan mencapainya sebelum hari ini berakhir.
 
-Alasan lambatnya kemajuan kami adalah, pertama-tama, Ciel tidak terbiasa berjalan di hutan. Selain itu, dia tidak terbiasa bepergian sambil mengenakan jubah dan kantong, sehingga staminanya semakin merembes. Fakta bahwa dia telah membangun beberapa stamina berkat menari secara teratur sangat membantunya. Jika bukan karena itu, mungkin kami tidak akan berhasil mencakup setengah dari jumlah yang kami lakukan hari ini. Alasan lain adalah bahwa fokus Ciel ada di semua tempat.
+Alasan lambatnya kami adalah karena Ciel tidak terbiasa berjalan di hutan. Selain itu, dia tidak terbiasa bepergian sambil mengenakan jubah dan kantong tas, sehingga staminanya semakin cepat berkurang. Fakta bahwa dia telah meningkatkan stamina berkat menari secara teratur sangat membantunya. Jika bukan karena itu, mungkin kami tidak akan berhasil sampai setengah dari perjalanan yang kami lakukan hari ini. Alasan lainnya adalah fokus Ciel ada dimana mana.
 
-Lagipula, setelah 10 tahun, akhirnya kita berada di tempat lain selain rumah besar itu, jadi wajar jika seorang gadis berusia 10 tahun ingin tahu tentang segalanya. Sebaliknya, ini pertama kalinya Aku berjalan di jalur semacam ini, jadi bahkan keingintahuan Aku pun timbul. Tetap saja, ini adalah jalan yang menuju ke rumah besar itu, jadi Aku memiliki deteksi Aku pada hasil maksimum untuk memastikan bahwa kami dapat segera bersembunyi jika seseorang mendekati kami.
+Lagipula, setelah 10 tahun, akhirnya kami berada di tempat lain selain mansion itu, jadi wajar jika seorang gadis berusia 10 tahun ingin tahu tentang segalanya. ini pertama kalinya Aku berjalan di jalur semacam ini, jadi bahkan keingintahuanku pun timbul. Tetap saja, ini adalah jalan yang menuju ke mansion itu, jadi Aku memakai +DETECTIONku dengan kekuatan penuh untuk memastikan bahwa kami dapat segera bersembunyi jika seseorang mendekati kami.
 
 Ngomong-ngomong, Ciel sangat menggemaskan kemarin.
-Karena aku ingin menjauhkan kami dari tempat karavan itu berada secepat mungkin, aku mendesak Ciel untuk segera pergi; tetapi segera setelah Aku mengatakan kepadanya bahwa kami cukup jauh, dia memanggil Aku "Ain, Ain!" dengan nada yang lincah. Dan kata-kata berikutnya adalah "Langit benar-benar biru!" Dan "Lihat, lihat! Daunnya sangat hijau! "Dan semacamnya, membuatku memikirkan kembali betapa banyak kesulitan dalam hidup kita sampai sekarang.
 
-Saat dia bersemangat tinggi di tengah hutan asing ini kemarin, Ciel akhirnya tertidur sebelum matahari terbenam.
-Kami tidak bisa mendirikan kemah dan semuanya, tetapi untuk Ciel yang telah tidur di tempat tidur dan lantai batu, tanah yang lembut agak sangat nyaman untuk tidur dan dia segera tertidur lelap.
+Karena aku ingin menjauhkan kami dari tempat kereta kuda itu secepat mungkin, aku mendesak Ciel untuk segera pergi; tetapi segera setelah Aku mengatakan kepadanya bahwa kita cukup jauh, dia memanggil Aku "Ain, Ain!" dengan nada yang bersemangat. Dan kata-kata berikutnya adalah "Langit benar-benar biru!" Dan "Lihat, lihat! Daunnya sangat hijau!" Dan semacamnya, membuatku memikirkan kembali betapa banyak kesulitan dalam hidup kami sampai sekarang.
 
-Sejujurnya, makhluk kecil seperti serigala datang saat dia tertidur, tetapi karena tidak ada tanda-tanda penghalang Aku pecah, Aku melihatnya menyerah dan pulang tanpa membangunkan Ciel.
+dia bersemangat tinggi di tengah hutan asing ini kemarin dan Ciel akhirnya tertidur sebelum matahari terbenam.
 
-Tepatnya, aku mencoba membangunkan Ciel tetapi dia bahkan tidak bergeming. Dia terus-menerus berjaga sampai sekarang, jadi aku tidak punya masalah dengan dia tertidur lelap sekarang karena dia sudah bebas dari itu. Tapi bagi kita untuk terus hidup mulai sekarang, aku ingin dia bisa terbangun pada saat aku membangunkannya. Tetap saja, itu semua karena Aku tidak mampu bertarung.
+Kami tidak bisa membangun kemah, tetapi untuk Ciel yang telah tidur di tempat tidur dan lantai batu, tanah yang lembut agak sangat nyaman sebagai tempat tidur dan dia segera tertidur lelap.
 
-Meskipun demikian, deteksi Aku tidak bereaksi terhadap apa pun saat ini dan pada dasarnya kami hanya berjalan-jalan melalui hutan yang diterangi matahari ini, jadi mungkin tidak masalah bagi Aku untuk sedikit santai.
-Tetap saja, meski Aku katakan santai, yang bisa Aku lakukan hanyalah bernyanyi. Ya, Aku suka menyanyi dan akan mendengarkan juga, jadi tidak masalah. Saat Aku menyanyikan lagu yang sesuai dengan suasana hati Aku, langkah Ciel berubah sesuai dengan lagu Aku.
+makhluk kecil seperti serigala datang saat dia tertidur, tetapi karena tidak ada tanda-tanda +BARRIERku pecah, Aku melihatnya menyerah dan pulang tanpa membangunkan Ciel.
+
+Tepatnya, aku mencoba membangunkan Ciel tetapi dia bahkan tidak bergeming. Dia terus-menerus berhati-hati sampai sekarang, jadi aku tidak punya masalah kalau dia tertidur lelap sekarang karena dia sudah bebas dari itu. Tapi bagi kami untuk terus hidup mulai sekarang, aku ingin dia bisa terbangun pada saat aku membangunkannya. itu semua karena Aku tidak bisa bertarung.
+
+Meskipun demikian, +DETECTIONku tidak bereaksi terhadap apa pun saat ini dan pada dasarnya kami hanya berjalan-jalan melalui hutan yang diterangi sinar matahari, jadi mungkin tidak masalah bagiku untuk sedikit santai.
+
+Tetap saja, meski Aku bilang santai, yang bisa Aku lakukan hanyalah bernyanyi. Ya, Aku suka menyanyi dan akan mendengarkan juga, jadi tidak masalah. Saat Aku menyanyikan lagu yang sesuai dengan suasana hatiku, langkah Ciel berubah sesuai dengan laguku.
 
 Berjalan maju seolah-olah dia melompat, Ciel berhenti berjalan tepat ketika Aku mengakhiri lagu.
 
-"Apakah ada yang salah?"
-"Hei, Ain. Kamu menyanyikan sebuah lagu, kan? "
-" Itu benar, apakah ada yang aneh tentang itu? "
-" Tidak ada yang aneh …… atau mungkin ada? Sebuah lagu adalah saat Kamu mengucapkan kata-kata yang cocok dengan ritme musik, bukan? "
+a"ada yang salah?"
 
-Aku menatap ketika Ciel perlahan berbicara sambil menemukan kata-kata yang tepat untuk dijelaskan dan secara kasar memahami apa yang ingin dia katakan.
+c"Hei, Ain. Kamu menyanyikan sebuah lagu, kan?"
+
+a"Itu benar, apakah ada yang aneh?"
+
+c"Tidak ada yang aneh ...... atau mungkin ada? Sebuah lagu adalah ketika Kamu mengucapkan kata-kata yang cocok dengan ritme musik, kan?"
+
+Aku menatap ketika Ciel perlahan berbicara sambil menemukan kata-kata yang tepat untuk menjelaskan dan secara kasar memahami apa yang ingin dia katakan.
+
 Singkatnya, dia mungkin penasaran dengan fakta bahwa lirik lagu yang Aku nyanyikan adalah dalam bahasa Jepang.
 
-"Itu dalam bahasa negara tempat Aku tinggal ketika Aku masih hidup, jadi mungkin terdengar asing bagi Kamu, Ciel.
-     Itu benar-benar berarti sesuatu. Lagu tersebut sekarang memiliki lirik yang secara kasar mengatakan "Aku berjalan di jalur hutan!" dan semacamnya. "
-" Begitu, bahkan hal-hal seperti itu bisa menjadi sebuah lagu. Jadi dalam hal ini, mungkin apa saja bisa menjadi lagu. "
-" Itu mungkin benar. Yang Aku lakukan hanyalah bernyanyi, tapi Aku tidak pernah membuat lagu sama sekali.
-     Kalau dipikir-pikir, kamu bisa menyanyikan sedikit lagu negaraku, kan? "
-" Kamu selalu bernyanyi untukku setiap hari, kamu tahu. Ketika Kamu mendengar sesuatu lagi dan lagi, wajar untuk mengingatnya.
-     Tapi Aku sebenarnya tidak tahu apa arti kata-kata itu, jadi Aku hanya mengikuti suaranya. "
+a"Itu dalam bahasa negara tempatku tinggal ketika Aku masih hidup, jadi mungkin terdengar asing bagimu, Ciel. Itu benar-benar ada artinya. Lagu tersebut sekarang memiliki lirik yang secara kasar mengatakan 'Aku berjalan di jalur hutan!' atau sejenisnya."
 
-Pastinya, Aku bahkan tidak ingat berapa banyak lagu yang Aku nyanyikan untuk Ciel. Aku yakin Aku telah menyanyikan sekitar 2.000 hingga 3.000 lagu, tetapi frekuensi pengulangan lagu juga berbeda untuk lagu yang Aku kenal baik dan lagu yang tidak Aku kenal.
+c"Begitu, bahkan hal-hal seperti itu bisa menjadi sebuah lagu. Jadi dalam hal ini, mungkin apa saja bisa menjadi lagu."
 
-Bagaimanapun, Aku memiliki pengetahuan yang dangkal tapi luas tentang lagu. Karena menyanyi adalah hal yang paling Aku nikmati saat Aku masih hidup, Aku cukup yakin dengan jumlah lagu yang bisa Aku nyanyikan. Aku tidak pernah membayangkan bahwa itu akan berguna ketika Aku berada di dunia lain. Tetap saja, alih-alih berguna, itu hanya satu-satunya cara aku bisa menghabiskan waktu.
+a"Itu mungkin benar. Yang Aku lakukan hanyalah bernyanyi, tapi Aku tidak pernah membuat lagu sama sekali. Kalau dipikir-pikir, kamu bisa menyanyikan sedikit lagu negaraku, kan?"
 
-"Berbicara tentang kata-kata, apakah“ Cielmer ”mungkin adalah nama yang digunakan di negara Ain juga?"
-"Nama Kamu, berdasarkan kata-kata dari negara lain yang berbeda dari tempat Aku tinggal."
-"Jadi, Ain tahu kata-kata dari negara yang berbeda . Itu luar biasa. "
-" Tidak juga. Kecuali untuk bahasa negara Aku, Aku hanya tahu tentang beberapa kata, Kamu tahu. "
-" Kamu tidak tahu tentang bahasa negara ini. Apakah Cielmer, punya arti? "
+c"Kamu selalu bernyanyi untukku setiap hari lho. Ketika Kamu mendengar sesuatu terus menerus, itu wajar kalau aku mengingatnya. Tapi Aku sebenarnya tidak tahu apa arti kata-kata itu, jadi Aku hanya mengikuti suaranya."
+
+Pastinya, Aku bahkan tidak ingat berapa banyak lagu yang Aku nyanyikan untuk Ciel. Aku yakin Aku telah menyanyikan sekitar 2.000 hingga 3.000 lagu, tetapi frekuensi pengulangan lagu juga berbeda untuk lagu yang Aku kenal dan lagu yang tidak Aku kenal.
+
+Aku memiliki pengetahuan yang dangkal tapi luas tentang lagu. Karena menyanyi adalah hal yang paling Aku nikmati saat Aku masih hidup, Aku cukup yakin dengan jumlah lagu yang bisa Aku nyanyikan. Aku tidak pernah membayangkan bahwa itu akan berguna ketika Aku berada di dunia lain. Tetap saja, daripada berguna, itu hanya satu-satunya caraku menghabiskan waktu.
+
+c"Berbicara tentang bahasa, apakah 'Cielmer' mungkin adalah nama yang digunakan di negara Ain juga?"
+
+a"Namamu, berdasarkan kata-kata dari negara lain yang berbeda dari tempatku tinggal."
+
+c"Jadi, Ain tahu kata-kata dari negara yang berbeda. luar biasa."
+
+a"Tidak juga. Kecuali untuk bahasa negaraku, Aku hanya tahu tentang beberapa kata."
+
+c"yaah Kamu tidak tahu tentang bahasa negara ini. Apakah Cielmer, ada artinya?"
 
 Aku pikir begitulah orang Jepang. Termasuk Aku, meskipun kebanyakan orang kesulitan berbicara bahasa Inggris, anehnya kami diberi tahu tentang istilah bahasa Prancis atau Jerman tertentu.
 
-Aku ragu-ragu untuk berbicara dengan Ciel tentang Bumi, tetapi mungkin tidak apa-apa untuk berbagi sedikit tentangnya jika Aku hanya memberikan nuansa seperti Aku sedang berbicara tentang benua lain di dunia ini. Lagipula, sebagai orang yang memikirkan namanya, Aku senang dia tertarik dengan artinya.
+Aku ragu-ragu untuk berbicara dengan Ciel tentang duniaku, tetapi mungkin tidak apa-apa untuk berbagi sedikit jika Aku hanya memberikan nuansa seperti Aku sedang berbicara tentang benua lain di dunia ini. Lagipula, sebagai orang yang memikirkan namanya, Aku senang dia tertarik dengan artinya.
 
-"Ciel berarti" Langit "sedangkan Mer berarti" Laut "。Saya pikir mata biru dan rambut putih Kamu mirip dengan mereka."
-"Saya masih belum melihat lautan, tapi langit, bukan?
-     Sekarang setelah Kamu mengatakannya, itu benar-benar biru. Warnanya biru yang belum pernah Aku lihat sebelumnya. Dan sepertinya itu berlanjut selamanya; hampir seolah-olah itu menyedotku.
-     Tapi, apakah mataku benar-benar biru? "
-" Ya, pasti. "
-" Kalau begitu, aku hanya sedikit cemburu padamu, Ain. Lagipula, kamu melihat warna biru ini setiap hari. "
-" Ini manfaat sampingan. "
-" Yah, aku juga bisa mendengarkan lagu Ain, jadi kita seimbang. "
+a"Ciel berarti 'Langit' sedangkan Mer berarti 'Laut'. Aku berpikir mata biru dan rambut putihmu mirip dengan kedua itu."
 
-Mengatakan demikian, Ciel tersenyum lebar padaku. Meskipun akulah yang memulainya, kata-katanya yang geli hampir membuatku menggeliat karena malu.
-Di kehidupan masa laluku, setidaknya, tidak ada orang yang terus terang memujiku seperti ini dan aku bahkan belum pernah memuji orang seperti itu. Namun, Ciel tampaknya senang, dan yang terpenting, bukannya aku tidak senang dipuji; jadi Aku rasa Aku hanya akan menanggung rasa malunya.
+c"Aku masih belum melihat lautan, tapi langit? Sekarang setelah Kamu mengatakannya, itu benar-benar biru. Warna birunya belum pernah Aku lihat sebelumnya. Dan sepertinya itu luas tak terbatas; hampir seolah-olah itu menyedotku. Tapi, apakah mataku benar-benar biru?"
 
-"Jadi jika mataku adalah biru langit, maka ini berarti rambut putihku adalah awan, bukan? Ketika Aku pertama kali melihat langit, Aku bertanya-tanya apa benda putih yang mengambang itu, Kamu tahu. Tetapi karena situasi kami, Aku tetap diam, lihat. "
-" Itu sangat membantu. Karena tangan Aku benar-benar penuh dengan melarikan diri kemarin. "
-" Aku hanya tidak ingin mengganggu Kamu, Ain. "
+a"Ya."
+
+c"Kalau begitu, aku hanya sedikit cemburu padamu, Ain. Lagipula, kamu melihat warna biru ini setiap hari."
+
+a"itu hanya keuntungan sampingan saja."
+
+c"Yah, aku juga bisa mendengarkan lagu Ain, jadi kita seimbang."
+
+Ciel tersenyum lebar padaku. Meskipun akulah yang memulainya, kata-katanya yang geli hampir membuatku menggeliat karena malu.
+
+Di kehidupan masa laluku, setidaknya, tidak ada orang yang terus terang memujiku seperti ini dan aku bahkan belum pernah memuji orang seperti itu. tapi, Ciel tampaknya senang, dan yang terpenting, bukannya aku tidak senang dipuji; hanya saja Aku merasa sulit menanggung rasa malunya.
+
+c"Jadi jika mataku adalah biru langit, maka ini berarti rambut putihku adalah awan, kan? Ketika Aku pertama kali melihat langit, Aku penasaran benda putih apa yang mengambang itu. Tetapi karena situasi kita, Aku tetap diam."
+
+a"Itu sangat membantu. Karena Aku benar-benar fokus dengan melarikan diri kemarin."
+
+c"Aku hanya tidak ingin mengganggumu, Ain."
 
 Dan bahkan ketika dia dengan rendah hati mengatakannya, untuk beberapa alasan Ciel dengan senang hati mendengus.
 Sungguh menggemaskan bagaimana dia terkadang menunjukkan reaksi yang sesuai dengan usia seperti ini, jadi bahkan aku menjadi senang juga.
