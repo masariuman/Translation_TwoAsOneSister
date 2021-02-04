@@ -84,7 +84,8 @@ a"Itu sangat membantu. Karena Aku benar-benar fokus dengan melarikan diri kemari
 
 c"Aku hanya tidak ingin mengganggumu, Ain."
 
-Dan bahkan ketika dia dengan rendah hati mengatakannya, untuk beberapa alasan Ciel dengan senang hati mendengus.
+Dan bahkan ketika dia mengatakannya dengan rendah hati, untuk beberapa alasan Ciel dengan senang hati tertawa.
+
 Sungguh menggemaskan bagaimana dia terkadang menunjukkan reaksi yang sesuai dengan usia seperti ini, jadi bahkan aku menjadi senang juga.
 Percakapan aneh kami ini berlanjut hingga malam.
 
