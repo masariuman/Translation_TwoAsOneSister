@@ -7,6 +7,7 @@ Glosarium
 [1]	DISAPPOINTING KING : Raja Mengecewakan. Princess : Putri.
 [2]	CLOWN KING : Raja Badut.
 [3]	PEBBLE PRINCESS : Putri Kerikil.
+[1]	DANCE PRINCESS : Putri Penari
 [4]	SONG PRINCESS : Putri Lagu.
 [5]	BUFF : Penguatan/Peningkatan Status, Seperti Meningkatkan Serangan; DEBUFF : Pengurangan Status, Seperti Mengurangi Pertahanan Musuh; HEALING SUPPORT : Dukungan Penyembuhan, biasanya menggunakan skill-skill yang berfungsi seagai penyembuhan dari luka.
 [6]	PRIEST : Pendeta; Saintess : Orang Suci, Ya anggap aja lebih tinggi dari pendeta.
