@@ -152,38 +152,48 @@ c"Jadi, apa yang Kamu pikirkan saat melihat langit, Ain?"
 
 a"menurutmu?"
 
-Yah, Aku pasti pernah memikirkan tentang perbedaan antara dunia ini dan Bumi beberapa waktu yang lalu.
-Apakah Aku melakukan sesuatu yang membuat Ciel memperhatikan? Sebaliknya, wujudku saat ini seharusnya tidak dapat dikenali sebagai siluet manusia.
+Yah, Aku pasti pernah memikirkan tentang perbedaan antara dunia ini dan Bumi beberapa dulu.
+
+Apakah Aku melakukan sesuatu yang membuat Ciel memperhatikan? Sebaliknya, wujudku saat ini seharusnya tidak dapat dikenali seperti manusia.
+
 Ciel menatapku dan tertawa kecil.
 
-"Ada kalanya Ain tiba-tiba terdiam ketika kita berbicara.
-     Pada saat itu, Aku berpikir bahwa Ain mungkin memikirkan sesuatu, tetapi apakah Aku salah? "
-" Itu, Aku minta maaf. Tentu itu tidak sopan untuk dilakukan saat kita berbicara. "
-" Tidak juga, Aku tidak keberatan. Aku yakin itu adalah sesuatu yang Kamu butuhkan, bukan? "
+c"Ada kalanya Ain tiba-tiba terdiam ketika kita berbicara. Pada saat itu, Aku berpikir bahwa Ain mungkin memikirkan sesuatu, tetapi apakah Aku salah?"
 
-Sekarang Ciel menyebutkannya, seperti yang dia katakan; sepertinya Aku cenderung tenggelam dalam pikiran Aku setiap kali Aku mengalami perbedaan dari Bumi.
-Aku tidak benar-benar berpikir bahwa Aku memiliki keterikatan dengan dunia Aku sebelumnya, tetapi sepertinya akal sehat dalam diri Aku yang dihancurkan sebenarnya sangat mengejutkan Aku.
-Bahkan sekarang, kami sedang membicarakan tentang jaga malam jika Aku ingat dengan benar. Aku beruntung Ciel melihatnya secara positif tetapi mungkin lebih baik lebih berhati-hati di masa depan.
+a"ah..., Aku minta maaf. Tentu itu tidak sopan untuk dilakukan saat kita berbicara."
 
-"Seperti yang Aku pikirkan. Kamu ingin kembali ke negara Kamu, kan Ain? "
+c"Tidak juga, Aku tidak keberatan. Aku yakin itu adalah sesuatu yang Kamu perlukan juga, kan ?"
+
+Seperti yang dia katakan; sepertinya Aku cenderung tenggelam dalam pikiranku setiap kali Aku melihat sesuatu yang berbeda dari Bumi.
+
+Aku tidak benar-benar berpikir bahwa Aku memiliki keterikatan dengan duniaku sebelumnya, tetapi sepertinya akal sehat dalam diriku yang dihancurkan sangat mengejutkanku.
+
+Bahkan sekarang, kami sedang membicarakan tentang berjaga malam. Aku beruntung Ciel melihatnya secara positif tetapi mungkin lebih baik lebih berhati-hati kedepannya.
+
+c"Seperti yang Aku pikirkan. Kamu ingin kembali ke negaramu, Ain?"
 
 Mendengar dia bertanya dengan suara kecil, aku menjawab "Tidak sama sekali." Dan menyangkalnya.
+
 Aku tidak tahu bagaimana dia sampai pada pertanyaan itu, tapi mungkin ada adegan di buku yang dia baca tentang karakter yang mengenang kampung halaman mereka sambil melihat ke langit.
 
-"Biasanya, hidup berakhir ketika orang mati.
-     Aku praktis tidak menyesali hal-hal yang Aku tinggalkan di negara lama Aku dan saat ini, Aku hanyalah seseorang yang ada bersama dengan Ciel. "
-" Lalu, apa yang kamu pikirkan sambil melihat langit? "
-" Tentang bagaimana menjadi di tempat yang berbeda juga mengubah apa yang Kamu lihat di langit malam, dan semacamnya. "
-"? Langit malam adalah langit malam, itu tidak berubah, kan? "
-" Fakta bahwa Kamu dapat melihat bulan dan bintang tidak berubah, tetapi posisi bintang dan begitu juga berubah.
-     Aku tidak memiliki pengetahuan tentang itu, jadi Aku tidak bisa menjelaskan dengan tepat bagaimana perbedaannya.
-     Juga, itu cukup cerah. "
-" Apakah itu mungkin dibandingkan dengan langit yang Ain lihat? "
-"Itu benar, aku tidak tahu apakah di sini berbeda, tapi cerah bahkan di malam hari di mana aku tinggal, jadi cahaya bintang-bintang tenggelam.
-     Karena itu, bahkan di antara bintang-bintang yang Aku lihat sekarang, satu-satunya yang dapat Aku lihat adalah yang sangat terang. "
+a"Biasanya, hidup berakhir ketika orang mati. Aku tidak menyesali hal-hal yang Aku tinggalkan di negara lamaku dan saat ini, Aku hanyalah seseorang yang ada bersama dengan Ciel."
 
-Mungkin karena Aku berpura-pura sendiri bahwa Aku sedang berbicara tentang suatu negara di benua yang berbeda, Aku tidak lagi enggan membicarakan kehidupan Aku di Jepang.
+c"Lalu, apa yang kamu pikirkan sambil melihat langit?"
+
+a"Tentang bagaimana di tempat yang berbeda juga mengubah apa yang Kamu lihat di langit malam, dan semacamnya."
+
+c"? Langit malam adalah langit malam, itu tidak berubah, kan?"
+
+a"Fakta bahwa Kamu dapat melihat bulan dan bintang tidak berubah, tetapi posisi bintang berubah. Aku tidak memiliki pengetahuan tentang itu, jadi Aku tidak bisa menjelaskan dengan tepat bagaimana perbedaannya. Juga, itu cukup cerah."
+
+c"Apakah itu perbandingan dengan langit yang Ain lihat?"
+
+a"Itu benar, aku tidak tahu apakah di sini berbeda, tapi tempatku tinggal dulu sangat cerah bahkan di malam hari, jadi cahaya bintang-bintang menyinari. Karena itulah, bahkan di antara bintang-bintang yang Aku lihat sekarang, satu-satunya yang dapat Aku lihat adalah yang sangat terang."
+
+Mungkin karena Aku berpura-pura kalau Aku sedang berbicara tentang suatu negara di benua yang berbeda, Aku tidak lagi enggan membicarakan kehidupanku di Jepang.
+
 Tetap saja, Aku tidak bisa benar-benar berbicara tentang teknologi atau tidak adanya sihir dan semacamnya.
-Yah, aku merasa cepat atau lambat akan mengacau jika aku hanya menyendiri, jadi aku ingin percaya bahwa membicarakannya sedikit adalah kompromi yang diperlukan.
 
-Setelah itu, Aku melihat Ciel mengantuk beberapa kali tetapi kami menghabiskan waktu untuk berbicara sampai fajar tiba.
+Yah, aku merasa cepat atau lambat akan kacau jika aku hanya menyimpannya sendiri, jadi aku ingin percaya bahwa membicarakannya membutuhkan waktu yang tepat.
+
+Aku melihat Ciel mengantuk beberapa kali tetapi kami menghabiskan waktu untuk berbicara sampai fajar tiba.
