@@ -85,52 +85,72 @@ a"Itu sangat membantu. Karena Aku benar-benar fokus dengan melarikan diri kemari
 c"Aku hanya tidak ingin mengganggumu, Ain."
 
 Dan bahkan ketika dia mengatakannya dengan rendah hati, untuk beberapa alasan Ciel dengan senang hati tertawa.
-----------------------
-Sungguh menggemaskan bagaimana dia terkadang menunjukkan reaksi yang sesuai dengan usia seperti ini, jadi bahkan aku menjadi senang juga.
+
+dia Sungguh menggemaskan karena menunjukkan reaksi yang sesuai dengan usia seperti ini. bahkan aku menjadi senang juga.
+
 Percakapan aneh kami ini berlanjut hingga malam.
 
 ◇
 
-Kami berhenti berjalan saat matahari mulai terbenam dan menyalakan daun-daun berguguran yang kami kumpulkan di sana-sini dengan ilmu sihir.
+Kami berhenti berjalan saat matahari mulai terbenam dan membakar daun-daun berguguran yang kami kumpulkan di sekitar kami dengan sihir.
+
 Tubuh Ciel tetap bersih berkat potongan kain biasa, tapi aku ingin mandi begitu kita sampai di desa atau kota.　
-Apakah dengan santai berpikir bahwa itu adalah bukti bahwa aku terlalu terbiasa dengan tubuh Ciel? Atau apakah Aku hanya tidak menyadari tubuh Ceil karena dia masih anak-anak?
-Mengesampingkan pikiran-pikiran yang tidak masuk akal ini, saat kami selesai makan jatah makanan yang kami bawa dari gerobak dan sepertinya sudah waktunya untuk tidur, Ciel memanggilku.
 
-"Ain akan selalu waspada mulai sekarang, kan?"
-"Aku baik-baik saja bahkan tanpa tidur. Aku bisa menggunakan penghalang dan deteksi juga, jadi Aku cocok untuk itu. "
-" Bisakah Aku tetap bersama Kamu? Aku pikir tidak baik untuk selalu membebani Ain dengan ini. "
+Apakah berfikir seperti ini adalah bukti bahwa aku terlalu terbiasa dengan tubuh Ciel? Atau apakah Aku hanya tidak terlalu memikirkan tubuh Ciel karena dia masih anak-anak?
 
-Aku ragu mendengar kata-kata Ciel. Sejujurnya, mengingat keamanan masa depan kita, Aku ingin Ciel tidur pada waktu yang dia bisa.
-Bagaimanapun, kurang tidur mungkin mengaburkan penilaiannya dan terlebih lagi ada kemungkinan dia tertidur saat bepergian besok.
+aku Mengesampingkan pikiran-pikiran yang tidak masuk akal ini dan saat kami selesai makan makanan yang kami bawa dari kereta kuda serta sudah waktunya untuk tidur, Ciel memanggilku.
 
-Namun, berbicara tentang keamanan kami, satu-satunya hal yang mungkin dapat menembus penghalang Aku sampai sekarang adalah raksasa bermata satu yang menyerang karavan.
-Sejak serangan itu, Aku belum merasakan salah satu dari mereka dan bahkan jika Ciel tertidur di suatu tempat besok, Aku mungkin bisa melindunginya.
+c"Ain akan selalu waspada dan berjaga-jaga, kan?"
 
-"Aku bisa melakukan itu. Apakah mungkin buruk jika aku ingin melakukannya? "
-" Kalau begitu, yah …… "
+a"Aku tak masalah bahkan tanpa tidur. Aku bisa menggunakan +BARRIER dan +DETECTION juga, jadi Aku cocok untuk berjaga-jaga."
 
-Terus terang, Aku harus menolaknya di sini. Jika kita berlatih untuk jaga malam di masa depan, maka kita harus melakukannya di tempat yang jauh lebih aman. Tetap saja, sulit untuk menolak perasaan Ciel yang ingin melakukan sesuatu untukku.
-Melihat bagaimana Aku akhirnya menyerah pada saat-saat seperti ini, yah, benar-benar mengingatkan Aku betapa Aku orang Jepang.
-Saat kita menghabiskan waktu berbicara seperti itu, langit diselimuti oleh langit berbintang. Dan kemudian Aku perhatikan.
-Bulan, yang hanya ada satu di Bumi, adalah kembar di sini.
+c"Bisakah Aku tetap bersamamu? Aku pikir tidak baik untuk selalu membebani Ain dengan ini."
 
-Salah satunya adalah emas dan perak lainnya. Itu agak mengingatkan Aku pada rambut Ciel dan pada saat yang sama itu sangat menyentuh Aku karena Aku diingatkan bahwa Aku sekarang di dunia lain.
-Tadi malam aku tidak memiliki ketenangan untuk melihat-lihat seperti ini, tapi Ciel yang terjaga mungkin membuatku sedikit rileks.
+Aku ragu mendengar kata-kata Ciel. Sejujurnya, mengingat keamanan masa depan kami, Aku ingin Ciel tidur pada waktu yang dia bisa tidur.
 
-"Jadi malam sebenarnya secerah ini. Kemarin Aku tertidur sebelum malam tiba, jadi Aku tidak tahu. "
-" Itu benar-benar gelap ketika lampu di sel dimatikan. Aku bahkan tidak bisa melihat tangan Aku sendiri. "
+kurang tidur dapat mengacaukannya dan terlebih lagi ada kemungkinan dia mengantuk saat bepergian besok.
 
-Biasanya ada benda seperti obor yang menyala di dalam sel. Tapi dalam 5 tahun kami terkurung di sana, ada kalanya itu padam.
-Karena sel tersebut mungkin berada di bawah tanah, jika lampu padam, Kamu sama sekali tidak dapat melihat apa pun.
-Sepertinya itu bukan masalah mata Kamu yang tidak terbiasa dengannya.
+tapi, berbicara tentang keamanan kami, satu-satunya hal yang mungkin dapat menembus penghalangku sampai sekarang adalah raksasa bermata satu yang menyerang kereta kuda.
 
-"Jadi karena itu, Aku pikir malam selalu gelap itu.
-     Lihat, bahkan buku-buku hanya menyatakan bahwa itu gelap di malam hari dan tidak banyak yang lain. "
-" Lebih gelap dibandingkan siang hari. Selain itu, meskipun cerah, itu tidak cukup untuk membaca dan menjadi sulit untuk mengenali jalan dan jalan setapak. "
-" Kalau begitu, menjadi sulit untuk bekerja, bukan? Tetapi jika itu adalah Ain, maka bisakah Kamu mengenali jalannya? "
-" Daripada jalannya sendiri, Aku bisa memahami area yang kita lewati. "
-" Jadi, apa yang Kamu pikirkan saat melihat langit, Ain? "
-" Kenapa menurutmu begitu? "
+Sejak serangan itu, Aku belum merasakan monster seperti itu dan bahkan jika Ciel tertidur di suatu tempat besok, Aku mungkin bisa melindunginya.
+
+c"Aku bisa melakukannya. Apakah mungkin buruk jika aku ingin melakukannya?"
+
+a"Kalau begitu, yah ......"
+
+Terus terang, Aku harus menolaknya. Jika kami berlatih untuk berjaga malam di masa depan, maka kami harus melakukannya di tempat yang jauh lebih aman. Tetap saja, sulit untuk menolak perasaan Ciel yang ingin melakukan sesuatu untukku.
+
+Melihat bagaimana Aku akhirnya menyerah pada saat-saat seperti ini, yah, benar-benar mengingatkanku kalau Aku orang Jepang.
+
+Saat kami menghabiskan waktu berbicara seperti itu, langit diselimuti oleh langit berbintang. Dan kemudian Aku menyadari sesuatu.
+
+Bulan, yang hanya ada satu di Bumi, ada 2 di sini.
+
+warna bulannya emas dan perak. Itu agak mengingatkanku pada rambut Ciel dan pada saat yang sama itu sangat menyentuhku karena Aku teringat lagi bahwa Aku sekarang di dunia lain.
+
+Tadi malam aku tidak memiliki ketenangan untuk melihat-lihat hal seperti ini, tapi Ciel yang sedang aman mungkin membuatku sedikit rileks.
+
+c"Jadi malam sebenarnya secerah ini. Kemarin Aku tertidur sebelum malam tiba, jadi Aku tidak tahu."
+
+a"Itu benar-benar gelap ketika lampu di penjara dimatikan. Aku bahkan tidak bisa melihat tanganku sendiri."
+
+Biasanya ada benda seperti obor yang menyala di dalam penjara. Tapi dalam 5 tahun kami terkurung di sana, ada saatnya itu padam.
+
+Karena penjara tersebut mungkin berada di bawah tanah, jika lampu padam, Kamu sama sekali tidak dapat melihat apa pun.
+
+Sepertinya itu bukan masalah jika matamu terbiasa dengan itu.
+
+c"Jadi karena itu, Aku pikir malam selalu gelap. Bahkan buku-buku hanya mengatakan bahwa semua gelap di malam hari dan Hanya itu saja."
+
+a"Lebih gelap dibandingkan siang hari. Selain itu, meskipun cerah, itu tidak cukup untuk membaca dan menjadi sulit untuk mengenali jalan setapak."
+
+c"Kalau begitu, sulit untuk melakukan sesuatu kan? Tetapi kalau itu adalah Ain, bisakah Kamu mengenali jalannya?"
+
+a"Aku bisa memahami area yang kita lewati."
+
+c"Jadi, apa yang Kamu pikirkan saat melihat langit, Ain?"
+
+a"menurutmu?"
 
 Yah, Aku pasti pernah memikirkan tentang perbedaan antara dunia ini dan Bumi beberapa waktu yang lalu.
 Apakah Aku melakukan sesuatu yang membuat Ciel memperhatikan? Sebaliknya, wujudku saat ini seharusnya tidak dapat dikenali sebagai siluet manusia.
