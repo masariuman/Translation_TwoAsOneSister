@@ -1,5 +1,9 @@
-Pada akhirnya, jaga malam berakhir dengan Ciel tidak memiliki kedipan tidur. Kegigihannya adalah pemandangan untuk dilihat, tetapi gerakan Ciel yang tumpul saat dia mulai berjalan setelah sarapan membuatku khawatir.
-Sekarang kupikir-pikir, karena praktis tidur adalah satu-satunya hal yang kami memiliki kebebasan untuk memutuskan, ini mungkin pertama kalinya Ciel kurang tidur.
+ch 13 : Kekurangan Tidur, Pertemuan, dan Refleksi
+
+Pada akhirnya, Ciel tidak tidur. Kegigihannya sungguh sesuatu, tetapi gerakan Ciel yang tumpul saat dia mulai berjalan setelah sarapan membuatku khawatir.
+
+Setelah kupikir-pikir, karena tidur adalah satu-satunya hal yang kami miliki, ini mungkin pertama kalinya Ciel kurang tidur.
+
 Aku juga bersalah karena mengizinkan ini, jadi aku menaruh semua fokusku pada deteksi untuk setidaknya mengurangi kesempatan kita untuk menemukan monster sebanyak yang aku bisa.
 
 『Apakah kamu mengantuk？』
