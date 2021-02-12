@@ -16,11 +16,12 @@ c"Tapi jika kita berhenti di sini, begadang semalam tidak akan ada artinya, kan?
 
 Aku senang dengan perhatian Ciel terhadapku, tetapi Aku berharap dia lebih mengkhawatirkan dirinya sendiri.
 
-Meskipun demikian, Aku merasa bahwa menolak Ciel tanpa berpikir mungkin buruk untuk pertumbuhannya, jadi Aku bingung. Saat ini, Ciel menggunakan kepalanya sendiri dan bertindak berdasarkan apa yang menurutnya baik untukku.
+walaupun begitu, Aku merasa menolak Ciel tanpa berpikir mungkin buruk untuk pertumbuhannya, jadi Aku bingung. Saat ini, Ciel menggunakan kepalanya sendiri dan bertindak berdasarkan apa yang menurutnya baik untukku.
 
-Jika itu adalah seseorang dengan tingkat pengalaman hidup tertentu, membujuk mereka dengan penjelasan yang tepat mungkin hal yang benar untuk dilakukan; Namun, karena Ciel sama kosongnya dengan lembaran, Aku percaya yang terbaik bagi Aku untuk mengawasi jalannya peristiwa agar dia mendapatkan pengalaman.
+Jika itu adalah seseorang dengan tingkat pengalaman hidup tertentu, membujuk mereka dengan penjelasan yang tepat mungkin hal yang benar untuk dilakukan; tapi, karena Ciel sama kosongnya dengan lembaran baru, Aku percaya yang terbaik bagiku adalah untuk mengawasi jalannya peristiwa agar dia mendapatkan pengalaman.
 
 Dan jika pilihan itu adalah kesalahan, maka kita akan memikirkan apa yang salah bersama.
+
 Nah, melihat kondisi tubuhnya saat ini sedang dalam kondisi buruk, mungkin sudah dianggap sebuah kesalahan tapi Ciel masih penuh energi. Aku pikir Aku akan berbicara dengannya saat dia akan memaksakan diri.
 Aku berencana melakukannya, tetapi ada reaksi tidak menyenangkan dari deteksi.
 
