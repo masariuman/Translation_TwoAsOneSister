@@ -22,84 +22,97 @@ Jika itu adalah seseorang dengan tingkat pengalaman hidup tertentu, membujuk mer
 
 Dan jika pilihan itu adalah kesalahan, maka kita akan memikirkan apa yang salah bersama.
 
-Nah, melihat kondisi tubuhnya saat ini sedang dalam kondisi buruk, mungkin sudah dianggap sebuah kesalahan tapi Ciel masih penuh energi. Aku pikir Aku akan berbicara dengannya saat dia akan memaksakan diri.
-Aku berencana melakukannya, tetapi ada reaksi tidak menyenangkan dari deteksi.
+Nah, kondisi tubuhnya saat ini sedang dalam kondisi buruk. ini mungkin sudah dianggap sebuah kesalahan tapi Ciel masih penuh energi. Aku akan berbicara dengannya saat dia akan memaksakan diri.
 
-"Ciel, maukah kamu berhenti?"
-"Ada sesuatu, kan?"
+Ada reaksi tidak menyenangkan dari +DETECTION.
 
-Mungkin nada suaraku menunjukkan keparahan, karena Ciel dengan patuh mengikutinya.
-Bahkan saat memberitahunya, aku masih mengamati reaksi yang tertangkap oleh deteksi ku, tapi aku tidak bisa menghapus perasaan buruk ini. Mengapa, mengapa itu tetap diam? Dan dari semua tempat, kenapa di sana?
-Tidak dapat mengangguk sebagai konfirmasi, Aku menjawab "Ya." Untuk saat ini dan mulai menjelaskan。
+a"Ciel, maukah kamu berhenti?"
 
-"Jika kita terus maju di jalur ini, kita akan bertemu dengan monster yang kemungkinan besar sama dengan monster yang menyerang karavan."
-"Kalau begitu, mungkin lebih baik tinggal di sini dan menunggu sampai dia pergi?"
-"Saya setuju dengan keputusan itu, namun itu pasti bertingkah aneh, bukan?
-     Agak menyimpang, rasanya seperti menunggu sesuatu di sana. "
-" Kalau begitu, itu berarti itu membidik kita, kan? "
-" Ada kemungkinan besar. Kalau dipikir-pikir, Ciel membaca banyak buku di mansion itu.
-     Kita hanya bisa mempercayai informasi dari buku jadi mungkin kurang pasti, tapi Aku bisa katakan dokumen disana lebih dari yang diketahui masyarakat, bahkan mungkin itu hasil penelitian Duke Respelgia.
-     Dan dokumen-dokumen itu mungkin telah Kamu baca, Ciel. Namun, jika Kamu tidak layak disimpan, maka membunuh Kamu akan menjadi pilihan terbaik. Entah dibunuh atau ditahan oleh manusia babi sampai kamu mati mungkin cukup baik untuknya. "
-" Jadi dalam hal ini, apakah pria itu mungkin mampu mengendalikan monster? "
-" Mungkin dengan menggunakan sihir. Tetap saja, ini tidak lebih dari dugaan kami jadi mungkin saja ada di sana secara kebetulan. "
+c"Ada sesuatu, kan?"
 
-Kita bebas untuk menebak sebanyak yang kita inginkan dan kita dapat mendasarkan tindakan kita selanjutnya pada banyak kesimpulan; tetapi karena kita hanya dapat mencoba sekali, maka Aku pikir tidak buruk untuk masuk tanpa rencana dan membiarkan semuanya menjadi kebetulan.
-Lagipula, jika kita memutuskan apa yang harus dilakukan maka kita mungkin tertinggal dalam bereaksi ketika hal yang tidak terduga terjadi.
+Mungkin nada suaraku keras, karena Ciel dengan patuh mendengarkanku.
 
-"Ain, apa menurutmu lebih baik menunggu seperti ini?"
-"Jika kita bisa pergi tanpa insiden apapun, maka Aku pikir itu yang terbaik.
-     Namun, jika kita terus menunggu seperti ini, maka kita mungkin akan dikepung jika ada pengejar datang dari belakang. Kemungkinan besar, tidak ada pengejar; tetapi jika kita terus menunggu berhari-hari, maka kita akan kehabisan persediaan makanan.
-     Sebagai rencana lain, kami bisa keluar dari jalur dan mencoba menembus hutan. Dalam melakukan ini, kami memiliki risiko kemungkinan tidak dapat melarikan diri dari hutan.
-     Akhirnya, kita bisa memilih untuk mengalahkan monster itu juga. Ini mungkin yang paling sederhana dari mereka dan karena kita dapat terus mengikuti jalannya, ini adalah cara paling pasti untuk pergi ke tempat berpenduduk. Namun, tak perlu dikatakan bahwa Kamu mungkin terluka, dan dalam kasus terburuk, Kamu mungkin kehilangan hidup Kamu. "
-" Tetap saja, mengalahkan itu adalah hal yang mudah dilakukan, bukan? Lagipula aku juga menang kemarin. "
+Bahkan saat memberitahunya, aku masih mengamati reaksi yang tertangkap oleh +DETECTIONku, tapi aku tidak bisa menghapus perasaan buruk ini. Mengapa, mengapa itu tetap diam? Dan dari semua tempat, kenapa di sana?
+
+Tidak dapat mengangguk sebagai konfirmasi, Aku menjawab "Ya" Untuk saat ini dan mulai menjelaskan.
+
+a"Jika kita terus maju di jalur ini, kita akan bertemu dengan monster yang kemungkinan besar sama dengan monster yang menyerang Kereta Kuda."
+
+c"Kalau begitu, mungkin lebih baik diam di sini menunggu sampai dia pergi?"
+
+a"Aku setuju dengan itu, Tapi Monster itu pasti bertingkah Aneh. Agak menyimpang, rasanya seperti menunggu sesuatu di sana."
+
+c"Kalau begitu, itu berarti monster itu menunggu kita, kan?"
+
+a"kemungkinan besar iya. Kalau dipikir-pikir, Ciel membaca banyak buku di mansion itu. Kita hanya bisa mempercayai informasi dari buku jadi mungkin kurang pasti, tapi Aku bisa katakan dokumen disana lebih dari yang diketahui masyarakat, bahkan mungkin itu hasil penelitian Duke Respelgia. Dan dokumen-dokumen itu mungkin telah Kamu baca, Ciel. tapi, jika Kamu tidak layak disimpan, maka membunuhmu akan menjadi pilihan terbaik. Entah dibunuh atau ditahan oleh manusia babi sampai kamu mati mungkin cukup baik untuknya."
+
+c"Jadi dalam hal ini, apakah pria itu mungkin mampu mengendalikan monster?"
+
+a"Mungkin dengan menggunakan sihir. Tetap saja, ini tidak lebih dari dugaan kita jadi mungkin saja ada di sana secara kebetulan."
+
+Kami bebas untuk menebak sebanyak yang Kami inginkan dan Kami dapat menentukan tindakan kami selanjutnya pada banyak kesimpulan; tetapi karena kami hanya dapat mencoba sekali, maka Aku pikir tidak buruk untuk maju tanpa rencana dan membiarkan semuanya menjadi kebetulan.
+
+Lagipula, jika kami memutuskan apa yang harus dilakukan maka kami mungkin menjadi lambat dalam bereaksi ketika hal yang tidak terduga terjadi.
+
+c"Ain, apa menurutmu lebih baik menunggu seperti ini?"
+
+a"Jika kita bisa lewat tanpa insiden apapun, maka Aku pikir itu yang terbaik. tapi, jika kita terus menunggu seperti ini, maka kita mungkin akan dikepung jika ada pengejar datang dari belakang. Kemungkinan besar tidak ada pengejar; tetapi jika kita terus menunggu berhari-hari, maka kita akan kehabisan persediaan makanan. Sebagai rencana lain, kita bisa melewati jalan lain dan mencoba menembus hutan. tapi dengna melakukan ini, Kita memiliki risiko kemungkinan tidak dapat melarikan diri dari hutan. Kita bisa memilih untuk mengalahkan monster itu juga. Ini mungkin yang paling sederhana dari cara lain dan karena kita dapat terus mengikuti jalannya, ini adalah cara paling pasti untuk pergi ke tempat berpenduduk. tapi, Kamu mungkin terluka, dan dalam kasus terburuk, Kamu mungkin kehilangan hidupmu."
+
+c"Tetap saja, mengalahkannya adalah hal yang mudah dilakukan, bukan? Lagipula aku juga menang kemarin."
 
 Aku sudah banyak memikirkannya tetapi Aku pikir jawaban Ciel masuk akal.
-Karena dia menang dengan cukup mudah, dia seharusnya bisa menang meskipun dia sedikit kurang baik.
 
-Memikirkan masa depan, menunggu di sini dan menemukan jalan yang berbeda hanyalah solusi sementara. Aku benar-benar berpikir bahwa Aku mungkin menjadi terlalu pengecut jadi Aku membalasnya "Kalau begitu, ayo kita lakukan."
+Karena dia menang dengan cukup mudah, dia seharusnya bisa menang meskipun dia dalam kondisi sedikit kurang baik.
 
-Sekarang setelah kami memutuskan, kami sekali lagi melanjutkan jalan kami. Kali ini, untuk mengurangi risiko, kami mengerahkan kekuatan penuh dari awal.
-Terakhir kali, jika aku juga mendukungnya dari awal, itu akan berakhir dalam sekejap. Jadi kali ini, kita harus bisa menyelesaikan ini sebelum dia memaksakan diri juga.
-Begitu kita bisa melihat tempat monster itu akan menyergap kita, setelah memberi tahu Ciel "Di luar penglihatanmu, monster itu ada di sana." Aku mulai bernyanyi.
+Memikirkan kedepannya, menunggu di sini dan menemukan jalan yang berbeda hanyalah solusi sementara. Aku benar-benar berpikir bahwa Aku mungkin menjadi terlalu pengecut jadi Aku membalasnya "Kalau begitu, ayo kita lakukan."
 
-Jauh sebelum kita melihat monster itu, setiap gerakan Ciel telah disempurnakan dan dia juga selalu siap untuk terjun ke pertempuran. Lagi pula, jika Kamu tahu bahwa penyergapan akan datang maka tidak sulit untuk menghindari serangan pertama; dan setelah itu, serangan habis-habisan dengan sihir akan menyelesaikannya. Ini mungkin tampak pengecut, tetapi itu tidak membuatnya kurang aman.
+Sekarang setelah kami memutuskannya, kami sekali lagi melanjutkan jalan kami. Kali ini, untuk mengurangi risiko, kami mengeluarkan kekuatan penuh dari awal.
 
-Sebaliknya, jika lawannya adalah manusia atau monster lemah maka kita bisa diam-diam mendekati dan menusuk mereka dengan pisau, jadi kita masih bersikap adil dan jujur.
-Tetap saja, meski lawannya adalah manusia, maka menurutku kita tidak perlu bertarung adil dan jujur.
+Jika aku juga mendukungnya dari awal, itu akan berakhir dalam sekejap. Jadi kali ini, Kami harus bisa menyelesaikan ini sebelum dia memaksakan diri juga.
 
-Juga, fakta bahwa pihak lain bersembunyi di hutan membuatnya sulit. Jika kita mengabaikan kerusakan tambahan maka kita bisa mengusir mereka dengan Sihir dari sini, tapi melakukan itu dengan kekuatan penuh Ciel akan mempertaruhkan pohon yang tiba-tiba terbakar.　
+Begitu Kami bisa melihat tempat monster itu akan menyergap Kami, setelah memberi tahu Ciel "monster itu ada di sana." Aku mulai bernyanyi.
 
-Berpikir dalam skala yang lebih besar, tidak lucu jika kita ketahuan juga, jadi kita tidak bisa bertarung kecuali keluar di jalan yang cukup terbuka ini tanpa pohon di dekatnya. Untuk alasan itu, akan menjadi masalah jika tidak datang untuk menyergap kita juga.
+Jauh sebelum kami melihat monster itu, setiap gerakan Ciel telah disempurnakan dan dia juga selalu siap untuk terjun ke pertempuran. Lagi pula, jika Kamu tahu bahwa penyergapan akan datang maka tidak sulit untuk menghindari serangan pertama; dan setelah itu, serangan habis-habisan dengan sihir akan menyelesaikannya. Ini mungkin tampak pengecut, tetapi paling tidak sedikit lebih aman.
+
+Sebaliknya, jika lawannya adalah manusia atau monster lemah maka kami bisa diam-diam mendekati dan menusuk mereka dengan pisau, jadi kami masih bersikap adil dan jujur.
+Tetap saja, meski lawannya adalah manusia, menurutku kami tidak perlu bertarung adil dan jujur.
+
+Juga, fakta bahwa pihak lain bersembunyi di hutan membuatnya sulit. Jika kami mengabaikan kerusakan maka kami bisa mengusir mereka dengan Sihir dari sini, tapi melakukan itu dengan kekuatan penuh Ciel akan mempertaruhkan pohon yang tiba-tiba terbakar.
+
+Berpikir dalam skala yang lebih besar, tidak lucu jika kami ketahuan juga, jadi kami tidak bisa bertarung kecuali di jalan yang cukup terbuka ini tanpa pohon di dekatnya. Untuk alasan itu, ini akan menjadi masalah jika  monster itu tidak datang untuk menyerang kami juga.
 
 Selangkah demi selangkah, kami mendekati tempat monster itu berada dan tepat horizontal dari kami, kami mendengar suara keras menyisir rumput.　
-Dengan segera pandangan kami beralih ke asalnya dan sosok raksasa bermata satu yang mengangkat sebuah klub di atas kepala memasuki pandangan kami.
-Jika Kamu tidak mengetahui keberadaan pihak lain, maka hal itu tidak mungkin dihindari. Satu pukulan itu mendekat dalam waktu dekat.
 
-Namun, jika kamu menyadarinya, maka mudah untuk menghindar …… Seharusnya begitu.
+Dengan segera pandangan kami beralih ke ke arah itu dan sosok raksasa bermata satu yang mengangkat sebuah klub di atas kepala memasuki pandangan kami.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+Jika Kamu tidak mengetahui keberadaan pihak lain, maka hal itu tidak mungkin dihindari. Satu pukulan mendekat dalam waktu dekat.
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+tapi, jika kamu menyadarinya, maka mudah untuk menghindar ........ Seharusnya begitu.
 
-Gedebuk . Saat Ciel hendak melompat mundur, kakinya kusut.
+*nyut*. Saat Ciel hendak melompat mundur, kakinya nyangkut.
+
 Aku menyadari dari ekspresi terkejut Ciel, serta dari sensasi yang ditransmisikan, bahwa ada perbedaan antara bagaimana Ciel berharap untuk bergerak dan bagaimana dia sebenarnya bergerak.
 
-Bagaimanapun juga, itu hanya perbedaan kecil yang tidak signifikan; Namun di tengah sebuah tarian yang menuntut gerakan yang tepat, justru menjadi kesalahan yang fatal. Meski begitu, Ciel biasanya mampu mengoreksi dirinya sendiri dengan mudah.
+Bagaimanapun juga, itu hanya perbedaan kecil yang tidak signifikan; tapi di tengah sebuah tarian yang menuntut gerakan yang tepat, justru menjadi kesalahan yang fatal. Meski begitu, Ciel biasanya mampu mengoreksi dirinya sendiri dengan mudah.
 
-Namun, Ciel baru saja mengalami semalaman pertamanya. Sama sekali tidak mungkin dia bisa memperbaiki dirinya sendiri saat klub diayunkan.
+tapi, Ciel baru saja melakukan begadang pertamanya. Sama sekali tidak mungkin dia bisa memperbaikinya saat klub diayunkan.
 
-Saat klub turun tepat di depan mata Aku, Aku secara naluriah berteriak "Ciel!" Tetapi dia tidak dapat menghindari serangan yang memiliki kekuatan yang cukup untuk dengan mudah menghancurkan seseorang dan akhirnya dia menerima pukulan yang paling berat.
+Saat klub turun tepat di depan mataku, Aku secara naluriah berteriak "Ciel!" Tetapi dia tidak dapat menghindari serangan yang memiliki kekuatan yang cukup untuk dengan mudah menghancurkan seseorang dan akhirnya dia menerima pukulan yang paling berat.
 
-Aku merasakan sensasi yang mirip dengan kepala Aku ditekan ke bawah dan, sebelum Aku menyadarinya, tubuh kami terpesona setelah terkena benturan.
+Aku merasakan sensasi yang mirip dengan kepalaku ditekan ke bawah dan, sebelum Aku menyadarinya, tubuh kami terpelanting setelah terkena efek ledakan benturannya.
+
 Kami terlempar dengan kecepatan yang membuat kami merasa seperti sedang menaiki roller coaster dan kami berhenti saat kami menabrak pohon.
-Punggungku terasa agak sakit. Hah? Mengapa punggung Aku sakit? Dan mengapa hanya sedikit?
 
-"Ain, bisakah kamu bernyanyi?"
+Punggungku terasa agak sakit. Hah? Mengapa punggungku sakit? Dan mengapa hanya sedikit?
+
+c"Ain, bisakah kamu bernyanyi?"
 
 Ketika Aku bingung, Aku mendengar suara Ciel.
-Hanya dengan merasakannya, mungkin tidak ada cedera fatal pada tubuh. Perasaan sakit sudah mereda dan rasa sakit karena dipotong di mansion itu jauh lebih buruk dari ini juga.
-Untuk sementara, Ciel meminta laguku, jadi aku mulai bernyanyi sambil mengatur apa yang terjadi.　
 
+Hanya dengan merasakannya, mungkin tidak ada cedera fatal pada tubuh. Perasaan sakit sudah mereda dan rasa sakit karena dipotong di mansion itu jauh lebih buruk dari ini juga.
+
+Untuk sementara, Ciel memintaku bernyanyi, jadi aku mulai bernyanyi sambil memikirkan apa yang terjadi.　
+-------------
 Monster itu pasti menunggu kita - atau mungkin untuk siapa saja yang mengikuti jalan ini, Aku tidak yakin - dan pergi untuk menyergap.
 Kami akan mengelak dan membalas seperti yang direncanakan, tetapi kami gagal dan seharusnya dihancurkan.
 Namun dalam kenyataannya, kami hanya terpesona. Apakah ia melakukannya karena tidak dapat menghancurkan kita?
