@@ -112,62 +112,68 @@ Ketika Aku bingung, Aku mendengar suara Ciel.
 Hanya dengan merasakannya, mungkin tidak ada cedera fatal pada tubuh. Perasaan sakit sudah mereda dan rasa sakit karena dipotong di mansion itu jauh lebih buruk dari ini juga.
 
 Untuk sementara, Ciel memintaku bernyanyi, jadi aku mulai bernyanyi sambil memikirkan apa yang terjadi.　
--------------
-Monster itu pasti menunggu kita - atau mungkin untuk siapa saja yang mengikuti jalan ini, Aku tidak yakin - dan pergi untuk menyergap.
-Kami akan mengelak dan membalas seperti yang direncanakan, tetapi kami gagal dan seharusnya dihancurkan.
-Namun dalam kenyataannya, kami hanya terpesona. Apakah ia melakukannya karena tidak dapat menghancurkan kita?
 
-Dan sekarang, sekelompok es yang dibuat oleh Ciel menembus raksasa itu. Es berujung tajam, mengingatkan pada es, membekukan raksasa dari tempat ia menembus.
-Dan dari sana, pahatan es dari pohon secara bertahap terbentuk di atasnya dan, retak, monster itu hancur bersamanya menjadi potongan-potongan kecil.
+Monster itu pasti menunggu kami - atau mungkin untuk siapa saja yang melewati jalan ini, entahlah - dan menyergap.
 
-Adegan gadis yang menampilkan fenomena fantastis itu dan tarian yang mengalir dengan anggun sepertinya lebih dari cukup untuk membuat orang terpesona.
+Kami harusnya menghindar dan membalas seperti yang direncanakan, tetapi kami gagal dan harusnya sudah hancur.
 
-Meninggalkannya di situ, mungkin yang terbaik adalah berdiskusi dengan Ciel di sini dan sekarang.　
-Bagaimanapun, semuanya berakhir bahkan sebelum Aku menyadarinya, tetapi sulit untuk menyebut ini sukses.
+tapi kenyataannya, kami hanya terpelanting. Apakah monster itu melakukannya karena tidak dapat menghancurkan kami?
+
+Dan sekarang, beberapa es yang dibuat oleh Ciel menembus raksasa itu. Es yang tajam, membekukan raksasa dari tempat es tersebut menembusnya.
+
+Dan dari situ, pahatan es secara bertahap terbentuk dan, *crack*, monster itu hancur berkeping-keping.
+
+Adegan gadis yang menunjukkan fenomena fantastis itu dan tarian dengan anggun sepertinya lebih dari cukup untuk membuat orang terpesona.
+
+kesampingkan hal itu, mungkin yang terbaik adalah berdiskusi dengan Ciel di sini dan sekarang.　
+
+Bagaimanapun juga, semuanya berakhir bahkan sebelum Aku menyadarinya, tetapi sulit untuk menyebut ini sukses.
+
 Sebaliknya, ada banyak hal yang perlu direnungkan oleh Ciel, tetapi ada lebih banyak lagi untukku juga.
 
-"Kerja bagus. Kamu melakukannya dengan sangat baik. "
+a"Kerja bagus. Kamu melakukannya dengan sangat baik."
 
-Setelah ini, Aku tidak punya pilihan selain berbicara sangat tidak menyenangkan dengannya tetapi itu tidak mengubah fakta bahwa Ciel melakukan yang terbaik.
+Aku tidak punya pilihan selain berbicara sangat tidak menyenangkan dengannya tetapi itu tidak mengubah fakta bahwa Ciel melakukan yang terbaik.
+
 Ini jelas sesuatu yang harus aku puji dan aku bahkan ingin dia bahagia juga. Bahkan jika tergantung bagaimana percakapan berjalan, memarahi Ciel menjadi tidak terhindarkan.
 
-Mengapa Aku harus memarahi Ciel meskipun ini salah Aku? Hanya memikirkannya hampir membuat Aku kembali ke kebencian diri. Tapi, untuk memastikan bahwa kesalahan semacam ini tidak terjadi lagi, ada situasi di mana Aku harus menutup mata terhadap kesalahan Aku sendiri.
+Mengapa Aku harus memarahi Ciel meskipun ini salahku? Hanya memikirkannya hampir membuatku kembali membenci diriku sendiri. Tapi, untuk memastikan bahwa kesalahan semacam ini tidak terjadi lagi, ada situasi di mana Aku harus menutup mata terhadap kesalahanku sendiri.
 
-Atau begitulah yang Aku pikirkan, tetapi untuk kata-kata Aku, Ciel dengan lesu menjawab "Benar. Terima kasih, Ain. "Dengan senyuman yang dipaksakan, jadi sepertinya tidak akan ada omelan kali ini.
-Sebaliknya, mungkin lebih baik memberinya sedikit dorongan.
+Atau begitulah yang kupikirkan, tetapi untuk kata-kataku, Ciel dengan lesu menjawab "Benar. Terima kasih, Ain." Dengan senyuman yang dipaksakan, jadi sepertinya tidak akan ada omelan kali ini.
 
-"Sementara itu, haruskah kita pindah dari sini dan berbicara di tempat yang bisa kita istirahatkan?"
-"Tentu saja, Aku akan melakukan apa yang Kamu minta, Ain."
+Sebaliknya, mungkin lebih baik memberinya sedikit semangat.
 
-Karena putus asa, Ciel berjalan dengan terhuyung-huyung. Mungkin kelelahan dari pertempuran sebelumnya, serta dari dia menjadi putus asa, muncul.
+a"Haruskah kita pindah dari sini dan berbicara di tempat dimana kita bisa beristirahat?"
+
+c"Tentu saja, Aku akan melakukan apa yang Kamu minta, Ain."
+
+Karena putus asa, Ciel berjalan dengan terhuyung-huyung. Mungkin kelelahan dari pertempuran sebelumnya.
+
 Aku ingin membiarkannya beristirahat secepat mungkin, jadi tidak jauh dari tempat kita mengalahkan monster itu, aku menyuruhnya pergi dan duduk bersembunyi di antara pepohonan.
 
-"Katakan, Ain. Apakah Kamu mungkin masih tinggal dengan Aku bahkan di masa depan?
-     Apakah tidak apa-apa jika aku, yang selalu dilindungi olehmu dan selalu tidak berguna, tetap bersamamu, Ain? "
-" Aku ingin selalu bersamamu juga, bahkan di masa depan.
-"Selain itu, kamu bahkan tidak sedikit pun tidak berguna, Ciel.
-     Jika Kamu mengkhawatirkan apa yang baru saja terjadi, itu adalah kesalahan Aku. "
-" Tidak, tidak. Ain tidak melakukan kesalahan apa pun. Meskipun Ain mengkhawatirkan Aku kemarin, Kamu berada dalam bahaya karena Aku egois.
-     Jadi ini salahku. Aku seorang gadis nakal, Aku seorang gadis nakal. "
+c"hey, Ain. Apakah Kamu mungkin masih bersamaku bahkan di masa depan? Apakah tidak apa-apa jika aku, yang selalu dilindungi olehmu dan selalu tidak berguna, tetap bersamamu, Ain?"
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+a"Aku ingin selalu bersamamu juga, bahkan di masa depan. Selain itu, kamu bahkan tidak sedikit pun tidak berguna, Ciel. Jika Kamu mengkhawatirkan apa yang baru saja terjadi, itu adalah kesalahanku."
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
+c"Tidak, tidak. Ain tidak melakukan kesalahan apa pun. Meskipun Ain mengkhawatirkanku kemarin, Kamu berada dalam bahaya karena Aku egois. Jadi ini salahku. Aku seorang gadis nakal, Aku seorang gadis nakal."
 
-Ciel tampaknya akan menangis setiap saat sekarang; meski begitu, dia melakukan yang terbaik untuk menahan diri agar tidak menangis.
-Apa yang terbaik untuk dikatakan padanya? Aku tidak memiliki pengalaman menjadi orang tua atau pernah mengalami situasi seperti ini di Jepang, jadi Aku bingung. Ciel gadis yang baik, jadi Aku berharap dia bisa memaafkan dirinya sendiri dan menemukan kompromi yang baik untuk dirinya sendiri.
+Ciel tampaknya akan menangis; meski begitu, dia melakukan yang terbaik untuk menahan diri agar tidak menangis.
 
-"Yang kamu bicarakan ketika menjadi sukarelawan untuk berjaga-jaga untukku, kan Ciel?"
-"Benar, itu benar. Meskipun Ain mengatakan kepada Aku untuk tidak memaksakan diri, Aku bahkan tidak menyadari apakah Aku memaksakan diri atau tidak. "
-" Tetap saja, Kamu melakukan yang terbaik untuk melepaskan Aku, kan Ciel? "
-" Meski begitu, dalam akhirnya, aku hanya membuat Ain semakin kesal …… "
-" Sebaliknya, kupikir yang lebih terbebani di sini adalah kamu, Ciel. Selain itu, Kamu tidak hanya menambah beban Kamu sendiri. Karena Kamu menemani Aku tadi malam, Aku bisa melihat perbedaan langit malam dari saat Aku masih hidup.
-     Sampai kemarin, Aku sangat gelisah sehingga Aku bahkan tidak menyadarinya sebelumnya. Yang Aku pikirkan hanyalah bagaimana melarikan diri secepat mungkin.
-     Jadi terima kasih, Aku bisa menenangkan diri, Ciel. "
-"Tapi itu tidak mengubah itu, karena Aku, Ain terkena bahaya.
-     Meskipun aku ingin melindungi Ain, aku selalu membutuhkan perlindungan, aku tidak berguna. "
-" Jika kamu mengatakan itu, maka itu juga salahku karena bersenang-senang kemarin sehingga aku tidak menyuruhmu untuk tidur, Ciel.
-     Selain itu, memberi Aku kesempatan untuk bersantai adalah kebalikan dari tidak berguna, bukankah Kamu setuju Ciel? "
+Apa yang harus aku katakan padanya? Aku tidak memiliki pengalaman menjadi orang tua atau pernah mengalami situasi seperti ini di Jepang, jadi Aku bingung. Ciel gadis yang baik, jadi Aku berharap dia bisa memaafkan dirinya sendiri.
+
+a"maksudmu ketika kamu ingin begadang, kan Ciel?"
+
+c"Benar, itu benar. Meskipun Ain mengatakan kepadaku untuk tidak memaksakan diri, Aku bahkan tidak menyadari apakah Aku memaksakan diri atau tidak."
+
+a" Tetap saja, Kamu melakukan yang terbaik untuk meringankanku, kan Ciel?"
+
+c"Meski begitu, pada akhirnya, aku hanya membuat Ain semakin kerepotan...."
+
+a"Sebaliknya, kupikir yang lebih terbebani di sini adalah kamu, Ciel. Selain itu, Kamu tidak hanya menambah bebanmu sendiri. Karena Kamu menemaniku tadi malam, Aku bisa melihat perbedaan langit malam dari saat Aku masih hidup. Sampai kemarin, Aku sangat gelisah sehingga Aku bahkan tidak menyadarinya sebelumnya. Yang Aku pikirkan hanyalah bagaimana melarikan diri secepat mungkin. Jadi terima kasih, Aku bisa menenangkan diri, Ciel."
+
+c"Tapi itu tidak mengubah faktanya, karena Aku, Ain terkena bahaya. Meskipun aku ingin melindungi Ain, aku selalu membutuhkan perlindunganmu, aku tidak berguna."
+
+a"Jika kamu mengatakan itu, maka itu juga salahku karena bersenang-senang kemarin sehingga aku tidak menyuruhmu untuk tidur, Ciel. Selain itu, memberiku kesempatan untuk bersantai adalah kebalikan dari tidak berguna, bukankah Kamu setuju Ciel?"
 
 Melihat Ciel dengan enggan mengangguk, aku terus berbicara.
 Aku merasa seluruh percakapan kami sebelumnya telah memukul hati nurani Aku kembali seperti bumerang, Aku hanya ingin melarikan diri.
