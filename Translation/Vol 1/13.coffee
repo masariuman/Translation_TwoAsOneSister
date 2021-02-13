@@ -178,18 +178,17 @@ a"Jika kamu mengatakan itu, maka itu juga salahku karena bersenang-senang kemari
 Melihat Ciel dengan enggan mengangguk, aku terus berbicara.
 Aku merasa seluruh percakapan kami sebelumnya telah memukul hati nurani Aku kembali seperti bumerang, Aku hanya ingin melarikan diri.
 
-"Namun, memang benar bahwa Ciel mungkin telah melakukan kesalahan kali ini.
-     Ciel, apakah kamu tahu apa yang bisa Aku lakukan? "
-"Umm , sihir penghalang dan deteksi, kan? Setelah itu, Ain bisa bernyanyi. Tentu saja, Aku menikmatinya ketika Kamu bernyanyi untuk mendukung Aku sebagai Putri Lagu juga, tetapi Aku suka ketika Ain bernyanyi bahkan tanpa alasan apa pun. "
-" Aku juga suka melihat tarian Ciel.
-     Selain itu, hal lain yang dapat Aku lakukan adalah dengan gelisah mengawasi.
-     Lalu di sisi lain, hal apa yang tidak bisa Aku lakukan? "
-" Ain tidak bisa menggunakan sihir tempur, kan? Tapi itu ...... "
-" Baiklah, kita tidak perlu membicarakannya sekarang.
-     Aku tidak bisa menggunakan sihir tempur, jadi aman untuk mengatakan bahwa Aku praktis tidak bisa bertarung.
-     Sejujurnya, Aku tidak bisa melakukan pekerjaan kotor. Aku cukup lega tentang fakta itu, tapi itu juga sesuatu yang membuatku sangat malu. "
-" Tidak, jangan. Itu bukan sesuatu yang memalukan. Lagipula, Ain selalu, selalu melindungiku.
-     Jika Kamu setidaknya tidak membiarkan Aku bertarung, maka Aku tidak akan memiliki apa pun untuk membayar Kamu kembali, Kamu tahu? "
+a"tapi, memang benar bahwa Ciel mungkin telah melakukan kesalahan kali ini. Ciel, apakah kamu tahu apa yang bisa Aku lakukan?"
+
+c"Umm , sihir +BARRIER dan +DETECTION, kan? Setelah itu, Ain bisa bernyanyi. Tentu saja, Aku menikmatinya ketika Kamu bernyanyi untuk mendukungku sebagai +SONG PRINCESS juga, tetapi Aku suka ketika Ain bernyanyi bahkan tanpa alasan apa pun."
+
+a"Aku juga suka melihat tarian Ciel. Selain itu, hal lain yang dapat Aku lakukan adalah dengan berjaga-jaga tanpa kelelahan. Lalu di sisi lain, hal apa yang tidak bisa Aku lakukan?"
+
+c"Ain tidak bisa menggunakan sihir tempur, kan? Tapi itu ......"
+
+a"Baiklah, kita tidak perlu membicarakannya sekarang. Aku tidak bisa menggunakan sihir tempur, jadi aman untuk mengatakan bahwa Aku tidak bisa bertarung. Sejujurnya, Aku tidak bisa melakukan pekerjaan kotor. Aku cukup lega tentang fakta itu, tapi itu juga sesuatu yang membuatku sangat malu."
+
+c"Tidak. Itu bukan sesuatu yang memalukan. Lagipula, Ain selalu, selalu melindungiku. kalau Kamu setidaknya tidak membiarkanku bertarung, maka Aku tidak akan memiliki apa pun untuk membayar semua yang kamulakukan..."
 
 Menyadari diriku merasa lega karena Ciel dengan putus asa menolak kata-kataku, aku semakin membenci diriku sendiri. Itu karena Aku sadar bahwa Aku mengatakan hal yang sangat buruk dan percakapan berjalan dengan cara yang nyaman bagi Aku.
 
