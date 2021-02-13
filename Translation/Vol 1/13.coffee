@@ -190,39 +190,46 @@ a"Baiklah, kita tidak perlu membicarakannya sekarang. Aku tidak bisa menggunakan
 
 c"Tidak. Itu bukan sesuatu yang memalukan. Lagipula, Ain selalu, selalu melindungiku. kalau Kamu setidaknya tidak membiarkanku bertarung, maka Aku tidak akan memiliki apa pun untuk membayar semua yang kamulakukan..."
 
-Menyadari diriku merasa lega karena Ciel dengan putus asa menolak kata-kataku, aku semakin membenci diriku sendiri. Itu karena Aku sadar bahwa Aku mengatakan hal yang sangat buruk dan percakapan berjalan dengan cara yang nyaman bagi Aku.
+Menyadari diriku merasa lega karena Ciel dengan putus asa menolak kata-kataku, aku semakin membenci diriku sendiri. Itu karena Aku sadar bahwa Aku mengatakan hal yang sangat buruk dan percakapan berjalan dengan cara yang nyaman bagiku.
 
-Aku yakin di masa depan, akan ada waktu dimana kita perlu membunuh tidak hanya monster, tapi juga manusia. Dan Aku yakin pada saat itu, Aku akan menasihatinya bahwa yang terbaik adalah membunuh mereka. Namun, tidak peduli berapa banyak Aku menyarankan dan tidak peduli seberapa besar Aku membenarkannya, karena Aku sendiri tidak bisa bertarung, orang yang akan mengeksekusinya akan selalu menjadi Ciel.
+Aku yakin di masa depan, akan ada waktu dimana kita membunuh tidak hanya monster, tapi juga manusia. Dan Aku yakin pada saat itu, Aku akan memberitahunya bahwa yang terbaik adalah membunuh mereka. tapi, tidak peduli berapa banyak Aku menyarankan dan tidak peduli seberapa besar Aku membenarkannya, karena Aku sendiri tidak bisa bertarung, orang yang akan mengeksekusinya akan selalu menjadi Ciel.
 
-Dibandingkan dengan itu, apa yang Aku lakukan tidak ada yang istimewa. Pada kenyataannya, Aku praktis tidak memiliki beban apa pun pada Aku. Jika Aku terpaksa mengatakannya, Aku hanya bosan tanpa ada yang bisa dilakukan di malam hari.
-Tetap saja, Aku pikir itu yang terbaik. Jika Aku bisa melakukan segalanya, Ciel akan menjadi anak tanggungan yang tidak dapat melakukan apapun dan bahkan saat ini, Aku dengan bangga dapat mengatakan bahwa Aku melakukan yang terbaik untuk Ciel. Untuk saat ini, abaikan saja kesalahan ini sebentar.
+Dibandingkan dengan itu, apa yang Aku lakukan tidak ada yang istimewa. Pada kenyataannya, Aku tidak memiliki beban apa pun padaku. Jika Aku terpaksa mengatakannya, Aku hanya bosan tanpa ada yang bisa dilakukan di malam hari.
 
-"Aku juga mengerti perasaanmu, Ciel. Namun, sama seperti Kamu ingin melakukan yang terbaik untuk Aku, Aku juga ingin melakukan sesuatu untuk Kamu, Ciel. "
-" Kamu juga, Ain? "
-" Itu benar, itu benar, karena Aku ingin melindungi Ciel sehingga Aku dapat melindungi Kamu sampai saat ini. Ada juga saat-saat Aku gagal melakukannya, tetapi Aku akan bermasalah jika Ciel ingin mengambil ini dari Aku.
-     Lagipula, aku tidak bisa mengalahkan monster untukmu, Ciel. "
-" Jadi aku bisa bertarung, kan? Tapi, Aku tidak ingin hanya bertengkar. "
-" Maka dalam kasus Aku, Aku hanya melindungi.
-     Aku senang Kamu mengkhawatirkan Aku, Ciel; tapi seperti yang Aku katakan sebelumnya, pertarungan sangat sulit untuk Aku lakukan. Karena itu, Aku ingin Ciel terlebih dahulu mampu bertempur. Dengan kata lain, kami mendistribusikan peran kami. Aku akan bertahan, kamu akan menyerang. Aku akan bernyanyi dan Kamu akan menari. Mungkin ada hal-hal lain yang ingin kami lakukan untuk satu sama lain, tetapi pertama-tama kami harus menyesuaikan diri dengan peran-peran ini. Ciel, peranmu adalah untuk tetap dalam kondisi baik sampai kita perlu bertarung, jadi kamu bisa pergi dengan semua kekuatanmu. "
-" ...... Dimengerti. "
-" Setelah kita menyelesaikan peran kita, kita mungkin akan memiliki lebih banyak kelonggaran .
-     Aku yakin saat Kamu terus hidup, waktunya akan tiba bahwa hanya satu malam tanpa tidur tidak lagi menjadi masalah.
-     Jika saat itu tiba, mari kita jaga bersama lagi. Aku berharap bisa mengobrol denganmu, Ciel. "
-" Benar. Itu janji, oke? "
-" Tentu saja. Janji."
+Tetap saja, Aku pikir itu yang terbaik. Jika Aku bisa melakukan segalanya, Ciel akan menjadi anak yang tidak dapat melakukan apapun dan bahkan saat ini, Aku dengan bangga dapat mengatakan bahwa Aku melakukan yang terbaik untuk Ciel. Untuk saat ini, abaikan saja kesalahan ini sebentar.
 
-Akhirnya, sepertinya aku telah meyakinkan Ciel, jadi aku menghela nafas lega dalam pikiranku.
+a"Aku juga mengerti perasaanmu, Ciel. tapi, sama seperti Kamu ingin melakukan yang terbaik untukku, Aku juga ingin melakukan sesuatu untukmu, Ciel."
+
+c"Kamu juga, Ain?"
+
+a"Itu benar, karena Aku ingin melindungi Ciel, Aku dapat melindungi Kamu sampai saat ini. Ada juga saat-saat Aku gagal melakukannya, tetapi Aku akan bermasalah jika Ciel ingin mengambil peran ini dariku. Lagipula, aku tidak bisa mengalahkan monster untukmu, Ciel."
+
+c"Jadi aku bisa bertarung, kan? Tapi, Aku tidak ingin hanya bertarung."
+
+a" Maka dalam kasusku, Aku hanya melindungi. Aku senang Kamu mengkhawatirkanku, Ciel; tapi seperti yang Aku katakan sebelumnya, pertarungan sangat sulit untuk Aku lakukan. Karena itu, Aku ingin Ciel terlebih dahulu bisa bertempur. Dengan kata lain, kita mendistribusikan peran kita. Aku akan bertahan, kamu akan menyerang. Aku akan bernyanyi dan Kamu akan menari. Mungkin ada hal-hal lain yang ingin kita lakukan bersamaan, tetapi pertama-tama kita harus menyesuaikan diri dengan peran-peran ini. Ciel, peranmu adalah untuk tetap dalam kondisi terbaik sampai kita perlu bertarung, jadi kamu bisa bertarung dengan semua kekuatanmu."
+
+c" ...... Baiklah."
+
+a"Setelah kita menyelesaikan peran kita, kita mungkin akan memiliki lebih banyak waktu luang. Aku yakin saat Kamu terus hidup, akan ada waktu dimana hanya satu malam tanpa tidur tidak lagi menjadi masalah. Jika saat itu tiba, mari kita bersantai bersama lagi. Aku juga berharap bisa berbicara dengan santai denganmu, Ciel."
+
+c"Tentu Saja. Itu semua janji, oke?"
+
+a"Tentu saja. Aku Janji."
+
+sepertinya aku telah meyakinkan Ciel, jadi aku menghela nafas lega dalam pikiranku.
+
 Aku telah mengatakan banyak hal yang berbeda, tetapi Aku benar-benar tidak ingin Ciel terlalu memaksakan diri dan Aku berharap dia tumbuh sehat juga.
-Dia tidak harus hidup cepat dan sembrono, jadi belajar secara bertahap untuk melakukan sesuatu satu per satu tidak masalah. Aku harap Aku bisa menyampaikan hal ini kepadanya meskipun hanya sedikit. 　
-Pertama-tama, mungkin akan lebih baik jika aku bisa mengatakan ini padanya kemarin, tapi itu terlalu banyak untuk diharapkan dariku.
 
-"Katakan, Ain?"
+Dia tidak harus hidup cepat dan sembrono, jadi belajar secara bertahap untuk melakukan sesuatu satu per satu tidak masalah. Aku harap Aku bisa menyampaikan hal ini kepadanya meskipun hanya sedikit.
 
-Sekarang dengan ekspresi ceria, seperti dia telah dibebaskan dari beberapa roh jahat, Ciel memanggil namaku.
+Mungkin akan lebih baik jika aku bisa mengatakan ini padanya kemarin, tapi aku tidak bisa melakukan sebanyak itu.
 
-"Ada apa?"
-"Saya mengekspos Ain pada bahaya tapi sejujurnya, Aku percaya bahwa Ain akan mampu bertahan dari serangan raksasa itu, Kamu tahu?
-     Jadi ketika itu benar-benar melindungi Aku, Aku sangat bangga.
-     Itu tidak mengubah fakta bahwa aku menyedihkan tapi kau Ain yang luar biasa. Ingat ini, oke? "
+c"hey, Ain...."
 
-Dipuji terus terang, Aku memikirkan betapa tidak dapat dipahami kemampuan pertahanan penghalang Aku sebagai pelarian. Padahal, itu sendiri adalah fakta yang aku ingin hindari juga.
+ekpresinya sekarang ceria seperti dia telah dibebaskan dari beberapa roh jahat.
+
+a"Ada apa?"
+
+c"aku membawa Ain pada bahaya tapi sejujurnya, Aku percaya Ain akan mampu bertahan dari serangan raksasa itu... Jadi ketika itu benar-benar melindungiku, Aku sangat bangga. Itu tidak mengubah fakta bahwa aku menyedihkan tapi kau, Ain, yang luar biasa. Ingat ini, oke? "
+
+Dipuji dengan terus terang, Aku memikirkan betapa tidak dapat dipahami kemampuan pertahanan penghalangku sebagai pelarian. Padahal, itu sendiri adalah fakta yang aku ingin hindari juga.
