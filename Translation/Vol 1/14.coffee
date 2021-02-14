@@ -6,14 +6,17 @@ Kami membawa batu magic untuk berjaga-jaga. batu itu lebih kecil dari raksasa be
 
 Mungkin juga berguna untuk mempelajari nilai batu magic juga, kami akan jauh lebih senang jika itu tidak berasal dari laba-laba.
 
-Kami juga berpikir untuk mengalahkan monster lain sebelumnya tetapi setelah bertemu dengan laba-laba, Aku ingin keluar dari hutan secepat mungkin; jadi setelah keputusan bulat dari kami berdua, kami mempercepat langkah kami. Sejujurnya, kami melangkah lebih cepat daripada saat kami fokus mencoba menjauh dari sang duke.
+Kami juga berpikir untuk mengalahkan monster lain sebelumnya tetapi setelah bertemu dengan laba-laba, Aku ingin keluar dari hutan secepat mungkin; jadi kami mempercepat langkah kami. Sejujurnya, kami melangkah lebih cepat daripada saat kami fokus mencoba menjauh dari sang duke.
 
-"Aku pikir itu menjadi agak lebih cerah."
-"Kita mungkin sudah mendekati ujung hutan. Lagipula, hanya sedikit lebih jauh dari sini dan jumlah pohon berkurang tajam.
-Kami "Kami akhirnya keluar dari hutan ini. Jika kita harus tinggal di sini bahkan untuk satu malam lagi, aku akan membuat laba-laba besar itu punah. "
-" Itu cukup ekstrim. "
-" Bukankah kamu juga menggumamkan hal yang sama, Ain? "
-" Benar, laba-laba seharusnya menghilang. Mari basmi mereka. "
+a"kupikir sekarang menjadi agak lebih cerah."
+
+c"Kita mungkin sudah mendekati ujung hutan. Lagipula, jumlah pohon berkurang juga. kita akhirnya keluar dari hutan ini. Jika kita harus tinggal di sini bahkan untuk satu malam lagi, aku akan membuat laba-laba besar itu punah."
+
+a"Itu cukup ekstrim."
+
+c"Bukankah kamu juga mengatakan hal yang sama, Ain?"
+
+a"Benar, laba-laba seharusnya lenyap dari dunia ini. Mari basmi mereka."
 
 Seperti yang kita diskusikan sambil memutar telapak tangan Ciel, sekarang kita bisa melihat ujung hutan. Melihat bahwa kita akhirnya keluar dari wilayah pria itu, sekarang Aku merasa seperti Aku bisa menarik napas. Tapi saat Aku berpikir demikian, Aku merasakan sesuatu yang tidak pada tempatnya dengan batas hutan.
 
