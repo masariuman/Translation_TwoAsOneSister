@@ -74,19 +74,26 @@ Mempertimbangkan bahwa kami akan memasuki kota, ada risiko bahwa orang akan mema
 Dan dengan itu, kami akhirnya mendekati tembok. Meskipun antriannya tidak panjang, masih ada antrean untuk memasuki kota, jadi Aku berganti tubuh dengan Ciel dan saat ini kami berada di ujung antrean. Saat mengantre, beberapa orang menatap kami, tapi itu tak terhindarkan.
 
 Pakaian orang-orang di sini, seperti yang diharapkan, berbeda dengan pakaian di Jepang. Banyak dari mereka terbuat dari kain tebal yang tampak tahan lama dan memiliki desain yang sederhana. Pria mengenakan kaos lengan panjang polos dan celana di bawah jubah.
-Wanita mengenakan gaun dan rompi sederhana, mungkin untuk fashion Aku kira?
+
+Wanita mengenakan gaun dan rompi sederhana, mungkin untuk fashion?
+
 Selain itu, ada beberapa orang yang mengenakan sepatu bot, topi, dan aksesori lain yang tampak tangguh.
 
-Ini hanya asumsi Aku tetapi yang pertama mungkin orang yang datang dari kota terdekat dan yang terakhir mungkin adalah pelancong atau orang yang datang dari jauh.
+Ini hanya asumsiku tetapi yang pertama mungkin orang yang datang dari kota terdekat dan yang kedua mungkin adalah pengelana atau orang yang datang dari jauh.
+
 Di antara mereka, Aku benar-benar tidak pada tempatnya. Pertama-tama, semua orang jelas lebih tinggi dariku. Bahkan jika dibandingkan dengan orang terpendek yang bisa Aku lihat, Aku mungkin terlihat seperti anak kecil.
-Dan mengenai pakaiannya, jelas tidak sesuai dengan ukuran Aku, jadi sekali lagi itu menonjol.
+
+Dan mengenai pakaiannya, jelas tidak sesuai dengan ukuranku, jadi sekali lagi aku menonjol.
+
 Untungnya, ada banyak orang yang menutupi rambut mereka, jadi Aku tidak menonjol dalam hal itu ..
 
-Saat ini, orang yang pandai berkomunikasi mungkin akan berbicara dengan orang yang ada di depannya. Yang terpenting, mereka akan tertarik untuk mengumpulkan informasi dari orang lain tetapi, sayangnya, tingkat komunikasi Aku nol.
-Ketika Aku masih hidup, Aku setidaknya bersosialisasi dengan orang lain, jadi Aku ingin percaya bahwa Aku tidak sepenuhnya putus asa; tapi bukan berarti Aku sering keluar dan punya banyak teman, jadi Aku hanya cukup bersosialisasi sehingga tidak mengganggu Aku dalam kehidupan sehari-hari. Dan yang terpenting, Aku memiliki periode kosong besar selama 10 tahun.
+Saat ini, orang yang pandai berkomunikasi mungkin akan berbicara dengan orang yang ada di depannya. Mereka akan tertarik untuk mengumpulkan informasi dari orang lain tetapi, sayangnya, tingkat komunikasiku nol.
+
+Ketika Aku masih hidup, Aku setidaknya bersosialisasi dengan orang lain, jadi Aku ingin percaya bahwa Aku tidak sepenuhnya putus asa; tapi bukan berarti Aku sering keluar dan punya banyak teman, jadi Aku hanya cukup bersosialisasi sehingga tidak menggangguku dalam kehidupan sehari-hari. tapi, Aku memiliki kekosongan besar selama 10 tahun.
 
 Yah, aku tidak bisa terus lari dari ini, jadi kurasa aku akan mencoba berbicara dengan penjaga gerbang.
-Mereka mungkin tidak akan membiarkan kita masuk begitu saja.
+
+Mereka mungkin tidak akan membiarkan kami masuk begitu saja.
 Selagi aku memikirkan hal ini, sepertinya giliranku hampir tiba.
 
 Gerbang adalah jenis ayunan yang umum tetapi dari ukurannya, mungkin diperlukan banyak orang untuk membuka dan menutup gerbang. Mungkin dilengkapi dengan sesuatu untuk membuka dan menutupnya secara otomatis.
