@@ -8,25 +8,38 @@ Ke arah yang ditunjuk Ciel, ada dinding yang dibuat seolah-olah menghalangi jala
 
 Aku tidak tahu standar dunia ini, tetapi tampaknya ini bukan kota besar.
 
-"Ini pertama kalinya Aku melihat kota semacam ini, tapi ya, itu seharusnya kota."
-"Tapi mengingat itu, Aku tidak melihat orang di dekatnya. Aku bertanya-tanya mengapa? "
-" Aku tidak bisa merasakan respons seperti manusia dengan deteksi juga. Padahal, masih ada beberapa hewan kecil dan monster di sana-sini. "
-" Jadi apakah ini mungkin berarti bahwa kota ini tidak terlalu besar? "
-" Itu benar. Setidaknya, mereka pasti tidak memiliki banyak lalu lintas di sini. "
+a"Ini pertama kalinya Aku melihat kota semacam ini, tapi ya, itu seharusnya kota."
 
-Dalam benak Aku, Aku membayangkan bahwa sebuah kota akan memiliki antrean panjang orang di gerbang dan akan memakan waktu berjam-jam untuk memasukinya, tetapi mungkin itu tidak akan terjadi kecuali kotanya besar.
+c"Tapi, Aku tidak melihat orang di disekitar. ada apa ya?"
+
+a"Aku tidak bisa merasakan respons seperti manusia dengan +DETECTION juga. Padahal, masih ada beberapa hewan kecil dan monster di sana-sini."
+
+c"Jadi apakah ini mungkin berarti bahwa kota ini tidak terlalu besar?"
+
+a"Itu benar. Setidaknya, mereka pasti tidak memiliki banyak lalu lintas di sini."
+
+Dalam benakku, Aku membayangkan bahwa sebuah kota akan memiliki antrean panjang orang di gerbang dan akan memakan waktu berjam-jam untuk memasukinya, tetapi mungkin itu tidak akan terjadi kecuali kotanya besar.
+
 Aku percaya bahwa diganggu oleh seseorang saat mengantri adalah hal klise yang umum, tetapi tampaknya hal itu tidak akan terjadi di sini.
-Tidak diganggu itu bagus dan sebagainya, tetapi sementara Aku ingin mendapatkan beberapa informasi sebelum memasuki kota, sepertinya Aku tidak dapat melakukan pengumpulan data apa pun.
-Melihat bahwa tidak ada orang di sekitar bahkan ketika kota sudah terlihat, Ciel menunjukkan tampilan lega tapi kecewa yang rumit.
 
-"Nah, itu bagus juga, mungkin?"
-"Seperti yang Aku duga, apakah bertemu pria mengganggu Kamu?"
-"Eh , yah ...... Ya."
-"Jika Kamu mau, kita juga bisa beralih sekarang, oke?"
-"Masih ada bukankah ada orang, kan? Maka tidak apa-apa. "
-" Aku ingin mengkonfirmasi ini sebelumnya tetapi jika Kamu harus bertarung di depan orang-orang, apakah Kamu akan baik-baik saja Ciel? "
+Tidak diganggu itu bagus, tetapi Aku ingin mendapatkan beberapa informasi sebelum memasuki kota dan sepertinya Aku tidak dapat melakukan pengumpulan data apa pun.
 
-Ciel yang buruk dengan laki-laki mau bagaimana lagi, tapi saat ini aku tidak tahu seberapa besar pengaruhnya terhadapnya. Dalam kehidupan normal kita sehari-hari, Aku bisa menggantikannya saat dibutuhkan; tetapi jika harapan Aku benar dan kami terseret ke dalam masalah, kami mungkin tidak punya pilihan selain melawan pria.
+Melihat bahwa tidak ada orang di sekitar bahkan ketika kota sudah terlihat, Ciel menunjukkan tampilan lega tapi kecewa.
+
+c"Nah, itu bagus juga, mungkin?"
+
+a"Seperti yang kuduga, apakah bertemu pria mengganggumu?"
+
+c"Eh , yah ...... Ya."
+
+a"Jika Kamu mau, aku bisa mengambil alih tubuhmu sekarang, oke?"
+
+c"Masih tidak banyak orang, kan? tidak apa-apa."
+
+a"Aku ingin mengkonfirmasi ini sebelumnya tetapi jika Kamu harus bertarung di depan orang-orang, apakah Kamu akan baik-baik saja Ciel?"
+
+Ciel buruk dengan laki-laki, tapi saat ini aku tidak tahu seberapa besar pengaruh itu terhadapnya. Dalam kehidupan normal kami sehari-hari, Aku bisa menggantikannya saat dibutuhkan; tetapi jika pikiranku benar dan kami terseret ke dalam masalah, kami mungkin tidak punya pilihan selain melawan pria.
+
 Pada saat itu, jauh lebih baik jika Ciel yang bertarung; atau lebih tepatnya, jika Aku melakukannya, Aku mungkin tidak akan kalah tetapi Aku juga tidak akan menang.
 
 Namun, Aku yakin Ciel bisa menang. Sejauh ini, secara obyektif, satu-satunya data yang Aku miliki adalah bahwa kita cukup kuat untuk mengalahkan raksasa bermata satu itu, tapi Aku curiga itu berarti kita cukup kuat.
