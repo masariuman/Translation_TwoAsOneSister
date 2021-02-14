@@ -42,14 +42,17 @@ Ciel buruk dengan laki-laki, tapi saat ini aku tidak tahu seberapa besar pengaru
 
 Pada saat itu, jauh lebih baik jika Ciel yang bertarung; atau lebih tepatnya, jika Aku melakukannya, Aku mungkin tidak akan kalah tetapi Aku juga tidak akan menang.
 
-Namun, Aku yakin Ciel bisa menang. Sejauh ini, secara obyektif, satu-satunya data yang Aku miliki adalah bahwa kita cukup kuat untuk mengalahkan raksasa bermata satu itu, tapi Aku curiga itu berarti kita cukup kuat.
-Bagaimanapun, raksasa bermata satu itu cukup kuat untuk dengan mudah menembus pengawalan manusia babi dan pengawal yang sama itu secara konsisten mengalahkan setiap monster sebelum bertemu dengan raksasa bermata satu.
-Paling tidak, harus aman untuk berasumsi bahwa mereka adalah kelas menengah yang berkuasa.
+tapi, Aku yakin Ciel bisa menang. Sejauh ini, secara obyektif, satu-satunya data yang Aku miliki adalah bahwa kami cukup kuat untuk mengalahkan raksasa bermata satu itu, tapi Aku pikir itu berarti kita cukup kuat.
+
+raksasa bermata satu itu cukup kuat untuk dengan mudah menembus pengawalan manusia babi dan pengawal tersebut secara konsisten dapat mengalahkan setiap monster sebelum bertemu dengan raksasa bermata satu.
+
+Paling tidak, harusnya aman untuk berasumsi bahwa mereka adalah monster kelas menengah yang berkuasa.
+
 Tetap saja, ada juga kemungkinan bahwa para pengawal sebenarnya sangat lemah dan raksasa bermata satu itu bisa dikalahkan oleh siapa saja yang memiliki pemahaman tentang pertempuran.
 
-"Aku akan baik-baik saja. Pertama-tama, selama Aku bersama Ain, tidak ada yang perlu ditakuti.
-    Jika bukan itu masalahnya, maka ketika menghadapi pria itu, Aku tidak punya pilihan lain selain gemetar ketakutan, Kamu tahu? "
-" Itu mungkin benar, tapi tolong beri tahu Aku jika itu sulit bagi Kamu, oke? "
+c"Aku akan baik-baik saja. Selama Aku bersama Ain, tidak ada yang perlu ditakuti. Jika bukan itu masalahnya, maka ketika menghadapi pria itu, Aku tidak punya pilihan lain selain gemetar ketakutan lho..."
+
+a"Itu mungkin benar, tapi tolong beri tahu Aku jika itu sulit bagimu, oke?"
 
 Seperti yang dikatakan Ciel, bahkan ketika menghadapi Duke Respelgia yang paling membuat trauma, dia tidak gentar.
 Namun, kupikir biarpun dia bisa menahannya, itu mungkin berarti dia tidak akan merasa nyaman.
