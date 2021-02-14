@@ -96,89 +96,116 @@ Yah, aku tidak bisa terus lari dari ini, jadi kurasa aku akan mencoba berbicara 
 Mereka mungkin tidak akan membiarkan kami masuk begitu saja.
 Selagi aku memikirkan hal ini, sepertinya giliranku hampir tiba.
 
-Gerbang adalah jenis ayunan yang umum tetapi dari ukurannya, mungkin diperlukan banyak orang untuk membuka dan menutup gerbang. Mungkin dilengkapi dengan sesuatu untuk membuka dan menutupnya secara otomatis.
-Di kedua sisi gerbang, ada sepasang penjaga gerbang yang berjaga-jaga, salah satunya akan berinteraksi dengan orang-orang dan yang lainnya akan mengawasi mereka.
-Juga, mungkin ada pengintai di dalam sisi gerbang sejak deteksi mengambil sepuluh orang aneh yang berdiri.
+Gerbangnya adalah jenis yang umum tetapi dari ukurannya, mungkin diperlukan banyak orang untuk membuka dan menutup gerbang. Mungkin dilengkapi dengan sesuatu untuk membuka dan menutupnya secara otomatis.
 
-Jika ada masalah, mereka mungkin akan membawa mereka ke tempat seperti kantor yang bisa Aku lihat mengintip dari balik pintu.
-"Selanjutnya." Segera dipanggil, giliranku sekarang.
-Salah satunya berusia sekitar 30 tahun hanya mengenakan baju besi minimal dan yang lainnya memakai satu set lengkap membuat wajahnya sulit dilihat. Kesan pertama Aku tentang mereka bersama-sama mengingatkan Aku pada pekerja kerah biru di lingkungan itu, Aku kira.
+Di kedua sisi gerbang, ada sepasang penjaga gerbang yang berjaga-jaga, salah satunya akan berinteraksi dengan orang-orang dan yang lainnya akan mengawasi mereka.
+
+Juga, mungkin ada pengintai di dalam sisi gerbang karena +DETECTION mendeteksi sepuluh orang aneh yang berdiri.
+
+Jika ada masalah, mereka mungkin akan membawa mereka ke tempat seperti kantor yang bisa Aku lihat dari balik pintu.
+
+"Selanjutnya." setelah dipanggil, sekarang giliranku.
+
+Salah satunya berusia sekitar 30 tahun dan hanya mengenakan baju besi minimal dan yang lainnya memakai satu set lengkap membuat wajahnya sulit dilihat. Kesan pertamaku tentang mereka mengingatkanku pada pekerja kerah biru di lingkunganku.
+
 Ketika penjaga gerbang melihatku, setelah membuka matanya lebar-lebar karena terkejut, dia menggaruk kepalanya dengan ekspresi yang tampak bermasalah.
 
-"Anak laki-laki ...... Tidak, nona kecil? Berada di sini berarti Kamu ingin memasuki kota Sannois, bukan?
-     Di mana orang tuamu? "
-" Aku datang ke sini sendirian. Orang tuaku …… Umm …… "
+"Anak laki-laki ...... Tidak, nona kecil? Berada di sini berarti Kamu ingin memasuki kota Sannois, bukan? Di mana orang tuamu?"
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+a"Aku datang ke sini sendirian. Orang tuaku ...... Umm ......"
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Aku sengaja mengacaukan kata-kataku. Bahkan jika Aku mengatakan yang sebenarnya, dia tidak akan benar-benar mempercayai Aku, dan bahkan jika dia percaya, kemungkinan besar dia akan menyerahkan kami kepada Duke Respelgia.
 
-Aku sengaja mengacaukan kata-kata Aku. Bahkan jika Aku mengatakan yang sebenarnya, dia tidak akan benar-benar mempercayai Aku, dan bahkan jika dia percaya, kemungkinan besar dia akan menyerahkan kami kepada Duke Respelgia.
-Berpikir bahwa ini akan terjadi, Aku memikirkan pengaturan untuk kita sampai batas tertentu, tetapi jauh lebih baik jika orang membuat kesalahpahaman mereka sendiri. Jika mereka melakukan itu, bahkan jika apa yang kita katakan terasa dipaksakan, mereka mungkin secara acak menafsirkannya untuk meyakinkan diri mereka sendiri.
+Berpikir bahwa ini akan terjadi, Aku memikirkan pengaturan sampai batas tertentu, tetapi jauh lebih baik jika orang membuat kesalahpahaman mereka sendiri. Jika mereka melakukan itu, bahkan jika apa yang kita katakan terasa dipaksakan, mereka mungkin secara acak menafsirkannya untuk meyakinkan diri mereka sendiri.
 
-Penjaga gerbang menyilangkan lengannya dan berpose berpikir, lalu dia berkata kepada penjaga gerbang lain di belakangnya "Panggil untuk shift berikutnya." Orang lapis baja itu mengangguk tanpa suara dan masuk ke dalam pintu yang Aku lihat sebelumnya.
-Penjaga gerbang yang tersisa menarik napas dalam-dalam, seolah dia mencoba menyembunyikan desahan, dan melanjutkan percakapan kami.
+Penjaga gerbang menyilangkan lengannya dan berpose berpikir, lalu dia berkata kepada penjaga gerbang lain di belakangnya "Panggil penjaga shift berikutnya." Orang lapis baja itu mengangguk tanpa suara dan masuk ke dalam pintu yang Aku lihat sebelumnya.
 
-"Aku minta maaf untuk mengatakan rindu kecil ini, tetapi saat ini Aku tidak dapat membiarkan Kamu masuk. Apakah Kamu mengerti mengapa? "
-" Karena Aku butuh uang? "
-" Itu juga. Juga, kami perlu memeriksa apakah tidak apa-apa mengizinkan Kamu masuk.
-     Jadi untuk itu, aku ingin bicara sebentar, tapi kita tidak bisa bicara lama-lama di sini, paham? Jadi mari kita bicara di dalam. "
-" Bisakah Aku masuk setelah itu? "
-" Jika tidak ada masalah dengan Kamu, nona kecil. Jika ada …… Aghh …… Apa yang harus kita lakukan …… "
+Penjaga gerbang yang tersisa menarik napas dalam-dalam, seolah dia mencoba menyembunyikan helaan nafasnya, dan melanjutkan percakapan kami.
 
-Kemungkinan cokelat kecokelatan karena pekerjaannya sebagai penjaga gerbang, nada suaranya berangsur-angsur menjadi lebih lemah saat dia bergumam.
+"Aku minta maaf untuk mengatakan ini nona kecil, tetapi saat ini Aku tidak dapat membiarkan Kamu masuk. Apakah Kamu mengerti mengapa?"
+
+a"Karena Aku perlu uang?"
+
+"Itu juga salah satunya. Juga, kami perlu memeriksa apakah tidak apa-apa mengizinkanmu masuk. Jadi untuk itu, aku ingin bicara sebentar, tapi kita tidak bisa bicara lama-lama di sini, paham? Jadi mari kita bicara di dalam."
+
+a"Bisakah Aku masuk setelah itu?"
+
+"Jika tidak ada masalah denganmu, nona kecil. Jika ada ...... Aghh ...... Apa yang harus kita lakukan ...... "
+
+nada suaranya berangsur-angsur menjadi lebih lemah saat dia bergumam.
+
 Sepertinya dia bukan orang jahat, itu melegakan.
-Sepertinya tidak semua orang seperti Duke Rispelgia, kepala pelayan bermuka topeng, dan manusia babi. Dalam hal ini, hari Aku menyerahkan ini kepada Ciel mungkin tidak terlalu jauh.
+
+Sepertinya tidak semua orang seperti Duke Rispelgia, kepala pelayan bermuka topeng, dan manusia babi. Dalam hal ini, hari dimana aku akan menyerahkan hal ini kepada Ciel mungkin tidak lama lagi.
 
 Orang lapis baja kembali dengan dua orang lapis baja, jadi kami berhenti berbicara untuk saat ini dan pergi melalui pintu saat mereka menggantikan tempat kami. Di luar pintu ada lorong dengan beberapa pintu di sebelah kanan.
-Aku dibawa ke ruangan yang agak sederhana dengan meja dan kursi. Karena ruangan yang umumnya terbuat dari batu memberikan kesan dingin.
 
-Tuan menyuruh Aku untuk tinggal di kamar ini dan pergi keluar.
-Jendela yang digunakan untuk membiarkan sinar matahari masuk ke dalam ruangan berada di lokasi yang tinggi dan dengan tinggi badan Aku, Aku tidak dapat melihat apa yang ada di baliknya.
-Dalam situasi ini, Aku bertanya-tanya bagaimana reaksi anak-anak seusia Ciel?
-Apakah mereka akan takut setelah diliputi oleh atmosfer? Atau akankah rasa ingin tahu mereka terlihat?
+Aku dibawa ke ruangan yang agak sederhana dengan meja dan kursi. Karena ruangan yang umumnya terbuat dari batu, ruangannya memberikan kesan dingin.
 
-"Menurutmu yang mana?"
-"Aku tidak bisa memilih jika kamu tidak memberiku pilihan, tahu?"
+orang tersebut menyuruhku untuk menunggu diruangan ini dan dia pergi keluar.
+
+Jendela yang digunakan untuk membiarkan sinar matahari masuk ke dalam ruangan berada di lokasi yang tinggi dan dengan tinggi badanku, Aku tidak dapat melihat apa yang ada di baliknya.
+
+Dalam situasi ini, Aku penasaran bagaimana reaksi anak-anak seusia Ciel?
+
+Apakah mereka akan takut setelah diliputi oleh atmosfer ini? Atau akankah rasa ingin tahu mereka terlihat?
+
+a"Menurutmu yang mana?"
+
+c"Aku tidak bisa memilih jika kamu tidak memberiku pilihan lho..."
 
 Ketika Aku mencoba bertanya kepada Ciel, dia menjawab dengan jawaban yang masuk akal.
+
 Jadi sekarang, Aku bertanya bagaimana dia akan bereaksi dan dia menjawab dengan percaya diri "Tidak ada reaksi."
 
-"Aku mengerti bahwa dia berbeda dari orang-orang yang kami temui sejauh ini.
-"Tapi, lagipula aku tidak tahu bagaimana aku harus berbicara dengannya. Jadi untuk alasan itu, Aku pikir Aku tidak akan bereaksi, sehingga Aku dapat menghindari pembicaraan sebanyak mungkin.
-     Jadi, apa yang Kamu lakukan sangat membantu, Ain. "
-" Secara hipotesis, dikurung di sini masih memungkinkan, jadi Aku tidak benar-benar tahu apakah Aku melakukan ini dengan benar. "
-" Ketika itu terjadi, mari kita lari dengan semua kekuatan kita. "
+c"Aku mengerti bahwa dia berbeda dari orang-orang yang kita temui sejauh ini. Tapi, aku tidak tahu bagaimana aku harus berbicara dengannya. Jadi untuk alasan itu, Aku pikir Aku tidak akan bereaksi, sehingga Aku dapat menghindari pembicaraan sebanyak mungkin. Jadi, apa yang Kamu lakukan sangat membantu, Ain."
+
+a"Secara hipotesis, dikurung di sini bisa saja terjadi, jadi Aku tidak benar-benar tahu apakah Aku melakukan ini dengan benar."
+
+c"Ketika itu terjadi, mari kita lari dengan semua kekuatan kita."
 
 Ciel dengan senang hati menyarankannya, tapi Aku pikir Aku akan melakukan yang terbaik untuk mencegah hal itu terjadi.
-Jika itu terjadi, mungkin ada beberapa korban, dan menyebabkan keributan bisa menyebabkan mereka memanggil seseorang yang lebih kuat dari kita.
-Dan yang terpenting, ada kemungkinan bahwa mister gatekeeper mungkin lebih kuat dari kita.
+
+Jika itu terjadi, mungkin ada beberapa korban, dan menyebabkan keributan dan mereka memanggil seseorang yang lebih kuat dari kami.
+
+Ada kemungkinan bahwa penjaga itu mungkin lebih kuat dari kita.
 
 Setelah beberapa saat, dia kembali dan membawa seorang wanita bersamanya.
+
 Aku berasumsi bahwa dia adalah tipe pekerja kantoran, dia adalah wanita berpakaian rapi berusia sekitar 20 tahun dan tampaknya tipe yang berkemauan keras. Tatapannya sepertinya menyelidikiku, aku tidak bisa tenang. Dia memiliki benda seperti pena di satu sisi dan benda seperti papan di sisi lain, jadi dia mungkin seorang sekretaris.
 
 "Untuk saat ini, duduklah."
 
-Seperti yang dikatakan tuan itu, Aku duduk di kursi menghadap kursinya.
-Tuan itu duduk di antara Aku dan pintu keluar, dan wanita itu berdiri secara diagonal di belakangnya.
-Alasan wanita itu dibawa mungkin karena Aku, karena Aku, ya, seorang gadis. Sebenarnya tidak ada perkenalan dari mereka dan penyelidikan dimulai.
+Seperti yang dikatakan penjaga itu, Aku duduk di kursi menghadap kursinya.
+
+penjaga itu duduk di antara Aku dan pintu keluar, dan wanita itu berdiri secara diagonal di belakangnya.
+
+Alasan wanita itu dibawa mungkin karena Aku, yaaaah, aku seorang gadis. Tidak ada perkenalan dari mereka dan penyelidikan dimulai.
 
 "Nona kecil, siapa namamu?"
-"Cielmer"
+
+a"Cielmer"
+
 "Nona kecil, kemana saja kamu sampai sekarang?"
-"Di dalam hutan. Jauh di dalam hutan, Aku tinggal bersama ibu dan ayah.
-     Dan kemudian …… Ummm …… "
-" Berhenti, kamu tidak perlu mengatakan lebih dari itu. "
 
-Melihat tuan menggelengkan kepalanya, Aku berpikir bagaimana menjadi seorang gadis sangat nyaman dalam situasi seperti ini, sebenarnya.
-Jika Aku adalah pria dewasa, sepertinya tidak akan berjalan semulus ini. Namun, jika Aku seorang pria dewasa, Aku mungkin tidak akan dibawa ke sini sejak awal; Aku hanya akan diminta untuk membayar biaya tol dan diizinkan untuk lewat.
-Alasan Aku memperkenalkan diri Aku sebagai Cielmer juga karena ini adalah tubuh Ciel, tetapi terhubung dengan apa yang akan kami lakukan setelah kami memasuki kota.
+a"Di dalam hutan. Jauh di dalam hutan, Aku tinggal bersama ibu dan ayah. Dan kemudian ...... Ummm ......"
 
-"Tapi tetap ...... Kecuali untuk kasus yang jarang terjadi, tidak diizinkan untuk membiarkan anak-anak tanpa pekerjaan memasuki kota, Kamu tahu ......"
-"Aku sudah berusia 10 tahun, Kamu tahu?"
+"Berhenti, kamu tidak perlu mengatakan lebih dari itu."
 
-Sepertinya mereka salah menilai usia Aku, jadi Aku dengan jujur ​​mengatakan yang sebenarnya; matanya berkedip karena terkejut dan dia bertanya lagi kepada Aku "Benarkah?"
+Melihat penjaga menggelengkan kepalanya, Aku berpikir bagaimana menjadi seorang gadis sangat nyaman dalam situasi seperti ini.
+
+Jika Aku adalah pria dewasa, sepertinya tidak akan berjalan semulus ini. tapi, jika Aku seorang pria dewasa, Aku mungkin tidak akan dibawa ke sini sejak awal; Aku hanya akan diminta untuk membayar dan diizinkan untuk lewat.
+
+Alasan Aku memperkenalkan diriku sebagai Cielmer juga karena ini adalah tubuh Ciel, dan terhubung dengan apa yang akan kami lakukan setelah kami memasuki kota.
+
+"Tapi tetap ...... Kecuali untuk kasus yang jarang terjadi, tidak diizinkan untuk membiarkan anak-anak tanpa job memasuki kota......"
+
+a"Aku sudah berusia 10 tahun lho..."
+
+Sepertinya mereka salah menilai usiaku, jadi Aku dengan jujur ​​mengatakan yang sebenarnya; matanya berkedip karena terkejut dan dia bertanya lagi kepadaku "Benarkah?"
+
 Aku pikir semua orang di sini tampak tinggi, tetapi kemungkinan besar mereka seperti orang Eropa di Bumi.
+
 Aku berasumsi bahwa Ciel juga sama, tetapi tidak peduli bagaimana Kamu melihatnya, dia tidak memiliki cukup nutrisi sehingga kemungkinan perkembangannya lambat.
 Pulih dari keterkejutannya, tuan itu menunjukkan tampilan yang agak lega. Sepertinya peluang kita untuk masuk semakin tinggi.
 
