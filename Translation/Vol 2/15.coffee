@@ -207,43 +207,51 @@ Sepertinya mereka salah menilai usiaku, jadi Aku dengan jujur ​​mengatakan y
 Aku pikir semua orang di sini tampak tinggi, tetapi kemungkinan besar mereka seperti orang Eropa di Bumi.
 
 Aku berasumsi bahwa Ciel juga sama, tetapi tidak peduli bagaimana Kamu melihatnya, dia tidak memiliki cukup nutrisi sehingga kemungkinan perkembangannya lambat.
-Pulih dari keterkejutannya, tuan itu menunjukkan tampilan yang agak lega. Sepertinya peluang kita untuk masuk semakin tinggi.
 
-"Bisakah Aku masuk jika Aku berusia 10 tahun?"
+Pulih dari keterkejutannya, penjaga itu menunjukkan ekpresi yang agak lega. Sepertinya peluang kami untuk masuk semakin tinggi.
+
+a"Bisakah Aku masuk jika Aku berusia 10 tahun?"
+
 "Yah, bukan berarti anak-anak berusia 10 tahun diizinkan lewat secara acak, tetapi itu jauh lebih mudah daripada jika Kamu berusia 9 tahun ke bawah."
-"Lalu, bisakah Aku pergi? "
-" Aku benar-benar ingin membiarkan Kamu, tetapi belum. Apa yang bisa kamu lakukan, nona kecil?
-     Aku akan terus terang, Aku akan terganggu jika Kamu tidak dapat melakukan apa pun dan hanya menjadi pencopet begitu Kamu masuk ke kota. "
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+a"Lalu, bisakah Aku masuk?"
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
+"Aku benar-benar ingin membiarkanmu masuk, tetapi masih belum. Apa yang bisa kamu lakukan, nona kecil? Aku akan terus terang, Aku akan terganggu jika Kamu tidak dapat melakukan apa pun dan hanya menjadi pencopet begitu Kamu masuk ke kota."
 
-"Apa yang dapat Kamu lakukan?" Di balik kata-kata itu Aku samar-samar dapat melihat niatnya untuk menanyakan apa Pekerjaan Aku, tetapi Aku tidak memiliki niat untuk menjawab dengan jujur ​​di sini. Jika Aku tidak punya pilihan lain selain mengatakannya, Aku akan mengatakan bahwa Aku seorang Putri Lagu, tetapi waktu itu bukan sekarang.
+"Apa yang dapat Kamu lakukan?" Di balik kata-kata itu Aku samar-samar dapat melihat niatnya untuk menanyakan apa jobku, tetapi Aku tidak memiliki niat untuk menjawab dengan jujur ​​di sini. Jika Aku tidak punya pilihan lain selain mengatakannya, Aku akan mengatakan bahwa Aku seorang song princess, tetapi waktu itu bukan sekarang.
 
-"Aku bisa mengalahkan monster."
-"Yah mengingat Kamu tinggal jauh di dalam hutan, itu masuk akal. Jadi kamu bertujuan untuk menjadi Hunter, kan? "
-" Apakah Pemburu orang yang mengalahkan monster untuk mencari nafkah? "
-" Mengalahkan monster adalah apa yang terutama mereka lakukan, tetapi Aku mendengar bahwa pemburu peringkat rendah dapat melakukan permintaan seperti tugas yang dilakukan anak-anak.
-     Jika Kamu benar-benar bisa mengalahkan monster, maka Kamu mungkin akan segera keluar dari peringkat yang lebih rendah tapi …… "
+a"Aku bisa mengalahkan monster."
 
-Tuan berhenti berbicara di tengah kalimat dan mencuri pandang ke arahku seolah-olah dia sedang meminta sesuatu. Aku tidak benar-benar merasa senang dengan seorang pria paruh baya yang memberiku tatapan seperti itu, tapi karena aku tahu apa yang dia coba katakan, aku memutuskan untuk mengeluarkan batu ajaib laba-laba.
-Aku berencana memikirkan apa yang harus aku lakukan dengan batu ajaib raksasa bermata satu itu setelah melihat bagaimana dia akan bereaksi terhadap yang ini.
-Saat Aku menempatkan batu ajaib ini, yang hampir tidak bisa Aku bawa dengan satu tangan, di atas meja, dia terkejut sekali lagi dan mengeluarkan "Hah?"
+"Yah mengingat Kamu tinggal jauh di dalam hutan, itu masuk akal. Jadi kamu bertujuan untuk menjadi +HUNTER, kan?"
 
-"Apakah ini sesuatu yang sangat langka untuk dilihat?"
-"Tidak, itu tidak terlalu langka. Sebaliknya, itu sangat umum untuk ditemukan.
-     Tapi tidak anak 10 tahun membawa ini. Paling tidak, ini di luar level pemburu pemula. Yang menunjukkan betapa bagusnya Pekerjaan itu. "
-" Karena itu tergantung pada Pekerjaan, apakah itu benar-benar mengejutkan? "
+a"Apakah hunter adalah orang yang mengalahkan monster untuk mencari uang?"
 
-Setelah menjawab pertanyaanku, mister mulai berbicara hampir secara monolog; tetapi demi pengumpulan data, Aku mengajukan lebih banyak pertanyaan kepadanya.
+"Mengalahkan monster adalah apa yang mereka lakukan, tetapi Aku mendengar bahwa hunter peringkat rendah dapat melakukan permintaan seperti tugas yang dilakukan anak-anak. Jika Kamu benar-benar bisa mengalahkan monster, maka Kamu mungkin akan segera keluar dari peringkat yang lebih rendah tapi ......"
+
+penjaga berhenti berbicara di tengah kalimat dan mencuri pandang ke arahku seolah-olah dia sedang meminta sesuatu. Aku tidak benar-benar merasa senang dengan seorang pria paruh baya yang memberiku tatapan seperti itu, tapi karena aku tahu apa yang dia coba katakan, aku memutuskan untuk mengeluarkan batu magic laba-laba.
+
+Aku berencana memikirkan apa yang harus aku lakukan dengan batu magic raksasa bermata satu itu setelah melihat bagaimana dia akan bereaksi terhadap yang ini.
+
+Saat Aku menempatkan batu magic ini, yang hampir tidak bisa Aku bawa dengan satu tangan di atas meja, dia terkejut sekali lagi dan mengeluarkan "Hah?"
+
+a"Apakah ini sesuatu yang sangat langka untuk dilihat?"
+
+"Tidak, itu tidak terlalu langka. Sebaliknya, itu sangat umum untuk ditemukan. Tapi tidak anak 10 tahun untuk membawa ini. Paling tidak, ini di luar level hunter pemula. Yang menunjukkan betapa bagusnya jobmu."
+
+a"Karena itu tergantung pada job, apakah itu benar-benar mengejutkan?"
+
+Setelah menjawab pertanyaanku, penjaga mulai berbicara hampir secara monolog; tetapi demi pengumpulan data, Aku mengajukan lebih banyak pertanyaan kepadanya.
+
 Dia mungkin menjadi lebih banyak bicara karena dia berbicara dengan seorang gadis muda, tetapi apakah ini benar-benar baik untuk seorang penjaga gerbang?
-Mungkin dia hanya mengajariku ini karena itu pengetahuan umum tapi bagiku, itu benar-benar penyelamat.
 
-"Biasanya dibutuhkan beberapa tahun untuk mempelajari cara menggunakan kekuatan Ayub Kamu.
-     Aku tidak begitu tahu detailnya, tetapi Aku mendengar bahwa bahkan pemburu membutuhkan setidaknya dua tahun sebelum mereka dapat berburu monster. "
-" Bisakah Kamu menjadi pemburu ketika Kamu berusia 10 tahun? "
-" Jika hanya menjadi satu, Kamu bisa. Selama Kamu berusia 10 tahun, Pekerjaan Kamu tidak penting. Tapi bisa hidup sebagai pemburu adalah cerita lain. "
+Mungkin dia hanya mengajariku ini karena itu pengetahuan umum tapi bagiku, itu benar-benar penyelamatku.
+
+"Biasanya dibutuhkan beberapa tahun untuk mempelajari cara menggunakan kekuatan jobmu. Aku tidak begitu tahu detailnya, tetapi Aku mendengar bahwa bahkan hunter membutuhkan setidaknya dua tahun sebelum mereka dapat berburu monster."
+
+a"Bisakah Kamu menjadi hunter ketika Kamu berusia 10 tahun?"
+
+"Jika hanya menjadi hunter, Kamu bisa. Selama Kamu berusia 10 tahun, job Kamu tidak penting. Tapi bisa hidup sebagai hunter adalah cerita lain."
+
 " Maka itu seperti Aku menemukan bagaimana Aku bisa bekerja sekarang. "
 " Ya, itu benar. Seharusnya tidak apa-apa membiarkanmu memasuki kota. Biaya tolnya adalah 2 koin perak besar, tetapi dapatkah Kamu membayar?
      Jika Kamu memiliki sertifikat, maka Kamu dapat masuk secara gratis tetapi Kamu tidak memilikinya, kan? "
