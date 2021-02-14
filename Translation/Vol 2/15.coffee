@@ -55,20 +55,24 @@ c"Aku akan baik-baik saja. Selama Aku bersama Ain, tidak ada yang perlu ditakuti
 a"Itu mungkin benar, tapi tolong beri tahu Aku jika itu sulit bagimu, oke?"
 
 Seperti yang dikatakan Ciel, bahkan ketika menghadapi Duke Respelgia yang paling membuat trauma, dia tidak gentar.
-Namun, kupikir biarpun dia bisa menahannya, itu mungkin berarti dia tidak akan merasa nyaman.
-Dalam hal itu, Aku hanya akan melihat bagaimana kelanjutannya, Aku kira. Ini adalah kehidupan Ciel, jadi tidak baik jika aku terlalu banyak ikut campur.
+tapi, walaupun dia bisa menahannya, itu tetap berarti dia tidak akan merasa nyaman.
+
+Aku hanya akan melihat bagaimana kelanjutannya. Ini adalah kehidupan Ciel, jadi tidak baik jika aku terlalu banyak ikut campur.
 
 ◇◇◇
 
-"Aku tidak menyadarinya ketika melihatnya dari jauh tetapi dindingnya sebesar ini, ya.
-     Aku bertanya-tanya berapa kali lebih tinggi ini dibandingkan dengan Aku. Dan itu terus berlanjut bahkan sampai sejauh itu, kan? "
-" Aku berasumsi kalau tembok itu untuk melindungi kota dari monster, jadi sepertinya itu mengelilingi kota. "
-" Jadi dengan kata lain, seluruh kota, berlanjut sejauh itu di luar, kan? Luar biasa, itu luar biasa! "
+c"Aku tidak menyadarinya ketika melihatnya dari jauh tetapi dindingnya sebesar ini, ya. Aku penasaran berapa kali lebih tinggi ini dibandingkan denganku. Dan itu terus panjang sekali, kan?"
+
+a"Aku berasumsi kalau tembok itu untuk melindungi kota dari monster, jadi sepertinya itu mengelilingi kota."
+
+c"Seluruh kota? Luar biasa, itu luar biasa!"
 
 Ciel menjadi bersemangat dengan suara yang hanya bisa kudengar, tapi itu cukup mengharukan.
-Mempertimbangkan bahwa kita akan memasuki kota, ada risiko bahwa orang akan memandang Ciel sebagai individu yang mencurigakan jika dia sering berbicara kepada dirinya sendiri; jadi kami mencoba bercakap-cakap tanpa Ciel berbicara keras-keras dan ternyata itu mudah dilakukan.
 
-Dan dengan itu, kami akhirnya mendekati tembok. Meskipun antriannya tidak panjang, masih ada antrean untuk memasuki kota, jadi Aku beralih dengan Ciel dan saat ini kita berada di ujung antrean. Saat mengantre, beberapa orang menatap kami, tapi itu tak terhindarkan.
+Mempertimbangkan bahwa kami akan memasuki kota, ada risiko bahwa orang akan memandang Ciel sebagai individu yang mencurigakan jika dia sering berbicara kepada dirinya sendiri; jadi kami mencoba bercakap-cakap tanpa Ciel berbicara keras-keras dan ternyata itu mudah dilakukan.
+
+Dan dengan itu, kami akhirnya mendekati tembok. Meskipun antriannya tidak panjang, masih ada antrean untuk memasuki kota, jadi Aku berganti tubuh dengan Ciel dan saat ini kami berada di ujung antrean. Saat mengantre, beberapa orang menatap kami, tapi itu tak terhindarkan.
+
 Pakaian orang-orang di sini, seperti yang diharapkan, berbeda dengan pakaian di Jepang. Banyak dari mereka terbuat dari kain tebal yang tampak tahan lama dan memiliki desain yang sederhana. Pria mengenakan kaos lengan panjang polos dan celana di bawah jubah.
 Wanita mengenakan gaun dan rompi sederhana, mungkin untuk fashion Aku kira?
 Selain itu, ada beberapa orang yang mengenakan sepatu bot, topi, dan aksesori lain yang tampak tangguh.
