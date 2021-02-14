@@ -1,8 +1,11 @@
-Suatu malam berlalu sejak itu. Hari ini, Ciel berjalan cepat melalui hutan dalam kondisi sempurna. Karena kami mendapat lebih banyak ruang angkut karena persediaan makanan kami menipis, kami membawa batu ajaib raksasa itu bersama kami. Kami juga menemukan monster hari ini, tetapi keberuntungan habis ketika kami bergegas untuk bertarung sebagai pemanasan.
-Yang menunggu kami adalah seekor laba-laba besar berkaki delapan dengan mata merah cerah dan taringnya yang berkilauan. Tapi dalam sekejap, itu hanya meninggalkan batu ajaibnya dan berubah menjadi abu. Aku jelas memiliki trauma dengan laba-laba dan Ciel juga.
+satu malam berlalu. Hari ini, Ciel berjalan cepat melalui hutan dalam kondisi sempurna. Karena kami mendapat lebih banyak ruang karena persediaan makanan kami menipis, kami membawa batu magic raksasa itu bersama kami. Kami juga menemukan monster hari ini.
 
-Kami membawa batu ajaib untuk berjaga-jaga. Itu dua ukuran lebih kecil dari raksasa bermata satu dan kepadatan kekuatan sihir yang dikandungnya juga tipis. Tetap saja, itu mungkin berguna saat bereksperimen tentang cara merebut kekuatan sihir di dalam batu ajaib dan menjadikannya milikku.
-Mungkin juga berguna untuk mempelajari nilai batu ajaib juga, kita akan jauh lebih bahagia jika tidak berasal dari laba-laba. Tetap saja, ini mungkin lebih baik karena kita tidak segan-segan melepaskannya.
+kami bertemu seekor laba-laba besar berkaki delapan dengan mata merah cerah dan taringnya yang berkilauan. Tapi dalam sekejap, monster itu hanya meninggalkan batu magicnya dan berubah menjadi abu. tentu saja Aku memiliki trauma dengan laba-laba dan Ciel juga sepertinya memilikinya.
+
+Kami membawa batu magic untuk berjaga-jaga. batu itu lebih kecil dari raksasa bermata satu dan kepadatan kekuatan sihir yang dikandungnya juga tipis. Tetap saja, itu mungkin berguna saat bereksperimen tentang cara mengambil kekuatan sihir di dalam batu magic dan menjadikannya milikku.
+
+Mungkin juga berguna untuk mempelajari nilai batu magic juga, kami akan jauh lebih senang jika itu tidak berasal dari laba-laba.
+
 Kami juga berpikir untuk mengalahkan monster lain sebelumnya tetapi setelah bertemu dengan laba-laba, Aku ingin keluar dari hutan secepat mungkin; jadi setelah keputusan bulat dari kami berdua, kami mempercepat langkah kami. Sejujurnya, kami melangkah lebih cepat daripada saat kami fokus mencoba menjauh dari sang duke.
 
 "Aku pikir itu menjadi agak lebih cerah."
