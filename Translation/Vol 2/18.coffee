@@ -1,110 +1,150 @@
-"Dengan ini, penghalang yang mengganggu itu akhirnya hilang. Sekarang, bukankah sudah waktunya Kamu menunjukkan sihir Kamu berikutnya? "
+ch18 : Sorcery, Carol, dan Babak 2
 
-Setelah menerobos penghalang Aku, Carol- san meletakkan tangannya di pinggul dan mendengus penuh kemenangan.
-Kesan pertamaku tentang dia adalah seorang wanita dewasa yang matang, tetapi melihat dia sekarang, dia tampak lebih seperti wanita dewasa yang belum dewasa.
-Mengingat bahwa itu hanya menunjukkan betapa dia mencintai sihir, itu cukup menghangatkan hati untuk melihatnya dan pada saat yang sama, sedikit membuat iri.
+a"begitu ya... Kamu mempersiapkan semuanya ke dalam lingkaran sihir itu."
 
-Jika ditanya, apakah Aku benar-benar punya waktu untuk memikirkan komentar kasar seperti itu? Aku akan menjawab, tentu saja ya.
-Bukannya Ciel berlarian sembarangan, dia sebenarnya berlari ke tempat lingkaran sihir yang kami gunakan selama pertandingan dengan Alejo berada. Bagaimanapun, kita dapat dengan mudah menggunakannya kembali setelah menulis ulang sedikit. Selain itu, kami juga dapat mengubah berbagai mantra tertulis yang digunakan untuk menahan selama pertarungan dengan Alejo menjadi yang lebih berorientasi pada pertempuran.
+c"Yup, ini sangat menarik; Kamu bisa memasukkan begitu banyak sihir ke dalamnya. Aku lega bahwa Aku entah bagaimana menambahkan 'tidak ada pembunuhan' kedalamnya."
 
-Mungkin dengan menyadari fakta itu juga, Carol- san menjadi waspada dan memulai kembali serangan sihirnya.
-Mencocokkan itu, Ciel menuangkan kekuatan sihirnya ke lingkaran sihir dan mengaktifkan sihir. Sihir di sini adalah peluru angin yang secara otomatis mencegat sihir musuh.
-Singkatnya, dia memutuskan untuk menembak jatuh panah es yang diblokir penghalang sebelumnya.
-Dan karena kita tidak bisa menang hanya dengan bertahan, Ciel mengacungkan tangannya ke depan tubuhnya dan mengunci ke Carol- san .
+a"Aku senang Kamu puas dengan hasilnya. Ngomong-ngomong, sepertinya bertarung tanpa bergantung pada +BARRIER sepertinya sulit."
 
-"Faraalu Entendi Fralie (Peluru api, berbaris, terbang)"
+c"Melawan Hunter tingkat D tanpa persiapan apa pun sepertinya tidak mungkin. Yang bisa aku lakukan hanyalah menghindarinya. Meskipun akan baik-baik saja jika aku setidaknya bisa mempersiapkan sesuatu sebelumnya."
 
-Setelah nyanyian, peluru api terbang menuju Carol- san . Sama seperti panah es, mereka terbang sambil berbaris di belakang satu sama lain. Jadi biarpun dia mencegat yang di depan, yang di belakang kemungkinan akan terus menyala.
-Dengan mata terbelalak karena terkejut, Carol- san kemudian tersenyum senang dan bergumam menggerakkan bibirnya.
-Tidak lama kemudian, dinding es transparan muncul tepat di depan Carol- san . Dengan permukaan halus yang memantulkan cahaya, itu memblokir semua peluru api dengan mudah.
-Setelah melihat itu, Ciel dengan anggun menggerakkan lengannya dan membuat paku tanah yang diproyeksikan di bawah kaki Carol- san , tapi dia membekukannya untuk mencegah serangan itu.
-Meskipun berada di tengah-tengah pertarungan sihir super mencolok yang hampir terlihat seperti dari sebuah film, mungkin tidak dapat dihindari bagi Aku untuk menjadi sangat bersemangat. Aku harap Aku bisa dimaafkan karena depresi oleh kenyataan bahwa Aku tidak bisa menjadi bagian darinya.
+a"Yah, meskipun aku membuatmu melakukan ini, aku tidak benar-benar berpikir bahwa kamu bertarung tanpa +BARRIER adalah sesuatu yang akan terjadi juga."
 
-Bagaimanapun, tentang kondisi kami saat ini, kami cukup dirugikan sehingga bahkan Ciel tampak gelisah.
-Pertama-tama, kendali Ciel tidak cukup baik untuk menggunakan lingkaran sihir, nyanyian, dan kemampuan Putri Penari untuk menyerang pada saat yang sama. Dan satu hal lagi, setiap serangan tidak memiliki kekuatan yang cukup di belakang mereka.
-Akan mudah untuk memperbaiki ini jika aku menggunakan kekuatanku sebagai Putri Lagu; tapi karena aku tidak ingin merusak pengalaman Ciel, dan karena aku juga ingin melihat seberapa jauh dia bisa melangkah, aku akan tetap diam untuk saat ini.
+c"Fufu, begitulah. Tapi kamu tidak perlu memaksakan diri jika itu menjadi sulit, oke Ain?"
 
-Ini hanya firasatku, tapi aku curiga Ciel mungkin memiliki daya tahan yang lebih tinggi dalam pertarungan sihir sementara Carol- san memiliki lebih banyak daya tembak.
-Untuk menang, Ciel harus mempertahankan status quo. Jika dia melakukannya, Carol- san pada akhirnya akan kehabisan kekuatan sihirnya terlebih dahulu.
-Namun, untuk mempertahankan status quo, Ciel membutuhkan kontrol yang halus atas sihir untuk mengimbangi kurangnya daya tembaknya.
-Bahkan sekarang aku sudah bisa melihat kendalinya kurang. Terlebih lagi, bahkan jika dia memiliki kekuatan sihir yang lebih dari cukup untuk terus maju, aku tidak dapat memastikan bahwa dia dapat mempertahankan fokus dan kekuatan keinginannya.
+Mungkin karena dia bisa melakukan sesuatu yang dia inginkan atau mungkin dia merasa segar setelah mengalahkan Alejo, Ciel sekarang dalam mood yang baik. atau, mungkin saja, tidak peduli seberapa buruk mood-nya, dia tetap ceria saat berbicara denganku.
 
-Dan sementara aku berpikir demikian, kekuatan sihir Carol- san tiba-tiba membengkak. Sepertinya dia agak kehilangan akal sehatnya. Mungkin berlebihan, tapi dia seperti anak kecil yang begitu asyik bermain sehingga dia kehilangan jejak di sekitarnya.
+Bahkan di mansion, ada beberapa saat ketika Ciel dalam suasana hati yang buruk tetapi itu tidak pernah ditujukan padaku.
 
-Begitu, jadi sampai sekarang, dia hanya menjaga dirinya di level Ciel. Karena dia bersenang-senang sekarang, dia mulai lupa menahan diri. Dan mungkin karena dia terlalu fokus, Ciel belum menyadarinya.
-Karena sepertinya kami akan kewalahan, Aku mulai bernyanyi untuk memberinya dukungan.
-Saat ini, Aku ingin Ciel tenang jadi Aku sengaja memilih lagu yang menenangkan untuk dinyanyikan. Dan setelah menyadari keadaan Carol- san saat ini, Ciel mengangguk dengan ekspresi serius di wajahnya.
+Aku mempertimbangkan untuk menyinggung fakta bahwa dia sedang di tengah pertarungan dan akhirnya mengandalkan +BARRIERku, tapi jika aku membatasi dia sebanyak itu maka dia mungkin tidak akan menang. Jadi, baiklah, Aku akan membiarkannya.
 
-Jadi soal kekuatan Putri Lagu, pada dasarnya ciri-ciri sebuah lagu dan efeknya akan mirip satu sama lain. Misalnya, lagu yang ceria akan membuat pendengarnya ceria. Ini memperkuat efek yang dapat dirasakan bahkan dari lagu biasa, jadi menyanyikan lagu yang menenangkan akan menenangkan pendengar dan menyanyikan lagu pengantar tidur mungkin akan membuat mereka mengantuk.
-Mengenai Pekerjaan kami, Ciel dan Aku masih dalam tahap pengujian.
+Lagipula, Aku hanya ingin mengetahui jarak antara kekuatan fisik Ciel yang tidak meningkat saat ini dan kekuatan seorang Hunter tingkat D.
 
-Apa yang terbang dari arah Carol- san adalah tombak es yang tebal dan tajam yang membuat panah es sebelumnya terlihat lucu jika dibandingkan.
-Sepertinya ini juga cukup rumit. Alih-alih memiliki desain tongkat runcing yang sederhana, ia memiliki tampilan unik dengan ujung yang tampak seperti bengkok dan meruncing menjadi ujung yang tajam.
-Ada sekitar sepuluh dari mereka dan masing-masing lebih tinggi dari Ciel.
-Carol- san , apa kau melawan monster besar sekarang? Tidak peduli bagaimana Kamu melihatnya, itu terlalu berlebihan untuk target manusia.
+Jika sepertinya dia tidak akan menang, maka tidak perlu memaksanya. Sebaliknya, Aku tidak berpikir bahwa situasi di mana Ciel, tipe Sorcerer, pertempuran langsung melawan pengguna kapak akan terjadi seperti itu.
 
-Benar saja, Carol- san tampaknya telah menyadari fakta tersebut setelah meluncurkan sihirnya.
-Begitu tombak mulai terbang ke arah kami, meskipun Aku tidak bisa mendengarnya mengatakannya, Aku bisa melihat "Oh sial" tertulis di seluruh wajahnya.
-Pada titik ini, aku hanya ingin mengalihkan pandanganku, tetapi Ciel menatap langsung ke tombak es yang mendekat dan berkonsentrasi untuk menuangkan kekuatan sihir ke dalam lingkaran sihir.
-Saat salah satu dari mereka memasuki jangkauan intersepsi lingkaran sihir, wajah Ciel sedikit tersentak.
+Nah, untuk saat ini, karena Aku yakin ini adalah kemenangan, Aku meminjam tubuh Ciel dan memandang Carol- san.
 
-Dan setelah beberapa saat, tombak pertama hancur. Berubah menjadi debu oleh kekuatan angin, potongan tombak es berkilau indah, tapi ini bukan waktunya untuk mengalihkan perhatiannya.
-Reaksi Ciel kemungkinan besar karena itu cukup kuat dan kokoh sehingga butuh waktu untuk menghancurkan tombak esnya.
-Dengan tombak kedua dan ketiga, tempat dimana mereka dihancurkan secara bertahap semakin dekat dan dekat.
-Pada yang ketujuh dan kedelapan, mungkin jaraknya hanya beberapa sentimeter dari kami. Dan saat dia menghancurkan yang kesembilan, tombak kesepuluh sudah tepat di depan mata kita.
+Menatapku, atau lebih tepatnya lingkaran sihir di dekat kakiku, Carol-san , sepertinya memperhatikan tatapanku, memberikan pengumuman yang terlambat "Pertandingan telah berakhir."
 
-Sangat tidak mungkin dia bisa menghancurkannya tepat waktu, yang paling bisa dia lakukan adalah mengeluarkan tanda vital kita.
-Segera setelah dia hampir tidak bergerak, tombak es mengenai sisi kami dan Ciel jatuh di punggungnya saat dia tersapu oleh hantaman itu.
-Namun, tombak itu tidak mampu menembus kulit Ciel dan tetap mencuat ke luar. Melihat lebih dekat, tampaknya bagian yang terkena perlahan membeku dan secara bertahap tertutup es.
-Setelah es menyebar beberapa saat, itu hancur bersama dengan perisai Aku yang biasa dan lenyap.
-Aku bisa membuat penghalang lain kapan saja. Tidak perlu banyak jika Aku hanya perlu memeliharanya tetapi membuat yang baru menghabiskan sedikit kekuatan sihir.
+Setelah itu, dia keluar dari ruangan seperti stadium dan membawa beberapa staf guild, atau mungkin hanya beberapa Hunter, bersamanya.
 
-Meskipun untuk saat-saat seperti inilah aku membuat perisai itu, aku bertanya-tanya kapan terakhir kali perisai Aku dihancurkan seperti ini?
-Saat aku masih terbiasa dengannya, sebelum Ciel berusia 5 tahun, perisai ku hancur beberapa kali dan aku bahkan kehabisan kekuatan sihir. Tapi kami tidak menghadapi bahaya apa pun selama lima tahun yang kami habiskan dengan mengunci diri di ruang buku, jadi sudah lama sejak hal ini terjadi.
-Bagaimanapun, hanya pertarungan kedua kami dengan seseorang dan ini terjadi. Apakah pemburu B-Rank kuat atau Carol- san lebih kuat dari B-Ranker biasa?
-"Ciel, kamu baik-baik saja?"
-"Ya, Aku baik-baik saja. Bagaimanapun, Aku memiliki keyakinan penuh bahwa Ain akan dapat melindungi Aku. "
+Orang-orang yang mengikutinya terkejut setelah melihat Alejo berlumuran darah di lantai dan kemudian melirik Carol-san dengan pandangan bertanya.
 
-Ciel menjawabnya dengan percaya diri, tetapi sekarang Aku menyadari bahwa terlalu banyak dipercaya mungkin menjadi masalah juga.
-Jika aku perlu melindunginya dari sepuluh tombak itu, aku ragu itu akan memblokir semuanya.
-Bagaimanapun, itu menghabiskan sejumlah besar kekuatan sihir dan setelah penghalang mengimbangi satu tombak, aku bahkan tidak tahu apakah aku bisa membuat yang baru sebelum tombak berikutnya datang.
-Jadi Aku masih perlu lebih meningkatkan sihir penghalang Aku.
+begitu... Mereka mungkin mengira Carol-san yang menyebabkan semua ini.
 
-Karena kami masih di tengah-tengah pertandingan penting, Aku mengakhiri refleksi Aku di sini. Meskipun Aku menggunakan deteksi, menurut Aku tidak baik untuk mengalihkan perhatian tentang hal-hal lain.
-Tapi karena rentetan sihir telah mereda, mungkinkah pertempurannya sudah selesai? Jika Carol- san menggunakan sihir yang lebih kuat dari tombak es, aku benar-benar akan kehilangan kepercayaan pada kemampuanku untuk membela Ciel, jadi tolong biarkan ini menjadi akhir.
-Aku melihat Carol- san mendekati kami dengan deteksi ku, dan dia sepertinya tidak menggunakan sihir apapun, jadi seharusnya aman untuk berpikir bahwa kita sudah selesai.
+Tentu, itu lebih meyakinkan daripada berpikir bahwa aku, Ciel, yang melakukannya.
+
+Dan kemudian mereka menatapku dengan tatapan bingung, tapi kalau dipikir-pikir rambutku masih tersembunyi.
+
+Tetap saja, Carol-san mungkin menyadarinya dengan seberapa banyak kami bergerak, jadi kurasa aku tidak perlu memasang pelindung kepala ini lagi.
+
+Setelah mengatakan sesuatu kepada orang-orang, Carol-san menghampiriku.
+
+"Dengan ini, Kamu sekarang dapat mulai sebagai Hunter tingkat E."
+
+a"Ya, terima kasih banyak."
+
+"oh? Kamu tampaknya tidak begitu senang tentang itu. Nah, sulit untuk merasakan pencapaian setelah menang sementara hampir tidak menggunakan kekuatan penuhmu, kan?"
+
+a"Tidak, itu sangat sulit juga..."
+
+"Tidak ada gunanya menyembunyikannya. Tak seorang pun yang bisa menggunakan lingkaran sihir seperti itu akan kalah dari tingkat D. Pada level itu, kamu bisa langsung membunuhnya jika kamu mau, kan?"
+
+a"Ciel, maukah kau jika aku menanyakan sesuatu?"
+
+c"Ada apa, Ain?"
+
+a"Menunjukkan kekuatan penuh kita sampai batas tertentu dan dengan cepat naik ke tingkat B, atau menyembunyikan kekuatan kita dan terus bekerja untuk menjadi peringkat B. Mana yang kamu lebih suka?"
+
+c"Setelah kita menjadi B-Rank, kita akan menonjol suka atau tidak, kan? Kalau begitu, tidak perlu menyembunyikan kekuatan kita, bukan? "
+
+Karena rasanya seperti Carol- san sedang menyelidiki kami, aku berpura-pura berpikir dan mengadakan pertemuan strategi cepat dengan Ciel.
+Topik kita, menonjol atau tidak. Kesimpulannya, tetaplah di B-Rank meskipun kami sedikit menonjol. Dan dengan itu, Aku pikir kami akan menampilkan kekuatan kami hanya dengan sedikit suar.
+
+"Butuh beberapa waktu untuk melakukan sihir, jadi tidak mungkin secara instan, Kamu tahu?"
+"Ya itu benar."
+"Jadi Carol- san , apa yang Kamu ingin Aku lakukan?"
+"Aku ingin melihat sihir Kamu yang sebenarnya. Lagipula, untuk seseorang sepertimu yang setidaknya telah memburu dua monster B-Brank, tidak mungkin hanya itu yang kamu miliki.
+     Tapi, yah, bahkan lingkaran sihir ini saja sudah cukup untuk digunakan sebagai bahan penelitian, tapi aku benar-benar yakin ada lebih dari ini! "
+
+Melihat Carol- san tiba-tiba bersemangat, Aku kewalahan.　
+Mungkin dia salah satu yang disebut geek. Sepertinya meski aku berada di dunia yang berbeda, masih ada orang yang mirip. Kalau begitu, Aku harap hiburan di sini berkembang dengan baik juga.
+
+"Dua monster B-Rank? Apa maksudmu? "
+" Kamu memiliki batu ajaib monster B-Rank, kan? Aku juga sedikit penasaran tentang apa yang Kamu rencanakan dengan itu. "
+" Dengan B-Rank, maksud Kamu ini? "
+
+Tiba-tiba menyadari sesuatu, Aku mengeluarkan batu ajaib raksasa bermata satu dan setelah menunjukkannya kepada Carol- san dia menjawab "Itu."
+Pada akhirnya kami mengalahkannya dalam sekejap, tetapi tidak dapat disangkal bahwa itu semua berkat gabungan kekuatan Putri Lagu dan Putri Tari, dua Pekerjaan Putri.
+Di sisi lain, menjadi monster B-Rank berarti bahwa kekuatan Hunter B-Rank atau lebih diperlukan untuk mengalahkannya, tapi Aku benar-benar merasa bahwa penghalang Aku sudah tidak terkendali karena bisa menahan serangan monster itu.
+Meskipun pada titik ini, sejujurnya Aku jauh lebih ingin tahu tentang seberapa jauh hal itu bisa dilakukan daripada kepraktisannya.
+
+"Jika itu benar, maka Aku memang mengalahkan monster B-Rank.
+     Tapi tidak ada gunanya bagiku bahkan jika aku menunjukkan sihirku yang sebenarnya, kan? "
+" Fakta bahwa aku menengahi pertempuranmu ...... adalah apa yang ingin aku katakan, dalam kasusmu, bahkan tanpa aku menengahi, Alejo sebenarnya bukan masalah. Sebaliknya, akulah yang membatasi Kamu.
+     Jadi, sebagai imbalan untuk menunjukkan sihirmu padaku, bagaimana pertandingan formal denganku terdengar untukmu? Jika kamu menang, aku akan meyakinkan guild bahwa kamu lulus Ujian B-Rank. "
+" Bisakah kamu membuktikan bahwa kamu dapat menepati janjimu? "
+" Kamu mendengar percakapan Aku dengan Ceila, kan? Untuk alasan Aku sendiri, Aku melakukannya tanpa bantuan apa pun. "
+" Kamu "meminta" untuk melakukan ini, kan? "
+"Ujian untuk menjadi B-Rank adalah memiliki Hunter B-Rank ke atas untuk mengakui kekuatan Kamu. Dan jika Kamu menyelesaikan ujian itu sendiri, yaitu membuat Aku, seorang Hunter B-Rank ke atas, mengenali kekuatan Kamu, maka Aku hanya perlu melakukan sesuatu tentang jadwal ujian.
+     Juga, jika Kamu memiliki pertandingan dengan Aku, Aku akan menjaga Kamu sampai Kamu mencapai D-Rank. Kekuatan Kamu sendiri mungkin sudah tentang Peringkat-B, tetapi Kamu tidak hanya harus kuat untuk meningkatkan peringkat Hunter Kamu.
+     Jika Kamu ingin naik peringkat dengan cepat, meminta instruksi dari senior Kamu adalah yang terbaik. "
+
+Setelah mengajukan beberapa pertanyaan lagi kepada Carol- san , Aku mempertimbangkan apakah kita bisa memercayainya atau tidak.
+Kerugian menerima itu adalah kekuatan kita akan terekspos lebih dari pertempuran sebelumnya. Namun mengenai hal itu, seberapa banyak yang bisa kami tunjukkan ditentukan.
+Kelebihannya adalah kita bisa belajar seberapa kuat Hunter tingkat tinggi. Berdasarkan reaksi Alejo, aku yakin dia setidaknya C-Rank atau lebih tinggi.
+Dengan itu sebagai referensi minimum kami, Aku pikir tidak ada keraguan bahwa Carol san adalah seorang B-Ranker. Dan jika dia mau membantu kita setelah ini, tidak ada alasan untuk menolak.
+
+"Secara pribadi, dengan beberapa kondisi, Aku pikir tidak apa-apa menerimanya, tapi bagaimana menurut Kamu?"
+"Maksud Kamu dengan kondisi?"
+"Kemampuan Job yang mana, Aku kira? Setidaknya, Aku ingin menyembunyikan fakta bahwa kita memiliki dua Pekerjaan.
+     Mungkin yang terbaik adalah membatasi kekuatan Putri Penari sampai disalahartikan sebagai sihir tanpa mantra. Setelah menahan sebanyak itu, Aku tidak yakin apakah kami masih bisa menang; tetapi jika itu menjadi terlalu banyak, tolong tukar dengan Aku. "
+" Tidak. Bertarung adalah peran Aku, Kamu tahu? "
+
+Jika terjadi sesuatu, dikenal sebagai Putri Song daripada Putri Tari jauh lebih nyaman untuk menghindari Duke Rispelgia, tapi aku tidak bisa mengabaikan perasaan Ciel. Dan yang terpenting, Aku juga orang yang menyarankan agar kita tetap berpegang pada peran kita.
+Aku mengabaikan itu tidak akan meninggalkan kesan yang baik pada Ciel.
+"Aku mengerti. Namun, tolong bertarung dengan cara yang tidak akan membuat mereka menyadari bahwa kamu adalah Putri Tari.
+     Sebagai gantinya, jika penghalang baik-baik saja, maka Aku tidak keberatan jika Kamu mengandalkannya. "
+" Dimengerti. "
+
+Karena kami telah memutuskan, Aku memberi tahu Carol- san"Aku akan melakukannya."
+Meskipun Aku memberi tahu Ciel bahwa tidak masalah untuk mengandalkan penghalang Aku, tidak ada jaminan bahwa Carol- san tidak akan menghancurkannya.
+Aku hanya bisa berdoa agar dia tidak menyerang kita dengan sesuatu yang sekuat itu.
+Tampak senang dengan jawabanku, Carol- san hampir saja melompat ke tengah kubah.
+
+"Ngomong-ngomong, apakah tidak apa-apa bagiku untuk menjaga penghalang ini ?"
+"Nah, ini ronde kedua; Aku akan memperlakukan itu sebagai salah satu cacat Aku. "
+" Lalu terima kasih atas pertimbangan Kamu. Dan Aku minta maaf jika Aku tidak memenuhi harapan Kamu. "
+"Nu-uh . Bagi Aku, Aku sudah punya cukup materi baru. Tetap saja, orang menjadi semakin memanjakan ketika mereka melihat kesuksesan yang mudah. ​​"
 
 (Bab ini disediakan untuk Kamu oleh Re: Library)
 
 (Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
 
-"Karena tampaknya pertempuran telah selesai, maukah kamu beralih denganku?"
-"Benar, aku akan segera melakukannya. Tetap saja, apakah kita sudah menang?
-     Karena, Kamu tahu, kami bertahan dari awal hingga akhir. "
-" Meskipun kami dalam posisi bertahan, kami akan menang jika kami terus melakukannya sampai dia kehabisan kekuatan sihir, jadi Aku tidak berpikir ini akan terjadi dianggap sebagai kerugian. "
+Yah, Aku mengerti bagaimana perasaan Kamu tetapi Aku pikir, dengan pola pikir itu, Kamu hanya akan lebih kecewa ketika Kamu tidak mendapatkan hasil yang baik.
+Tapi karena kami hanya diminta bertempur, jangan mengeluh tentang bagaimana kami memenuhi permintaan itu.
 
-Sebaliknya, jika Carol- san memberi tahu kami bahwa kami kalah setelah sejauh ini, Aku tidak akan ragu untuk melakukan pertempuran yang sangat panjang.
-Sekarang, berbicara tentang Carol- san , saat dia mendekati kami, dia sangat gelisah karena suatu alasan. Yah, tidak, bukannya aku tidak mengerti.
-Dengan betapa khawatirnya penampilannya, sungguh mengejutkan bahwa dia tidak berlari ke arah kita.
-Kalau dipikir-pikir, kami masih duduk di posisi persis seperti saat kami pingsan, jadi aku berdiri dan Carol- san menunjukkan ekspresi lega.
+"Nah, cukup dengan detail kecil, mari kita lakukan. Saat pisau ini mendarat di lantai, pertempuran dimulai. Apakah itu bagus? "
+" Aku mengerti. "
 
-"Kamu masih hidup, kan? Kamu baik-baik saja, kan? "
-" Aku masih hidup. Meskipun Aku benar-benar terkejut bahwa penghalang Aku yang sebenarnya dihancurkan. "
-" Yang terakhir itu, kan? Tapi itu pasti terlihat seperti Glacio Lentso memukulmu, jadi kamu baik-baik saja berarti… "
+Melemparkan pisau di sekitar suara berbahaya untuk Aku, tapi tidak ada cabang nyaman atau batu peletakan di sekitar, jadi mungkin untuk Carol san pisau adalah hal yang tepat untuk melempar.
+Karena kita akan bertengkar, aku harus berhenti membuat sindiran aneh sekarang. Sementara Carol- san membuat jarak di antara kami, Aku beralih dengan Ciel dan menyerahkan pertempuran padanya.
+Saat mereka berdua saling berhadapan, Carol- san melemparkan pisaunya tinggi-tinggi ke udara.
 
-Dia cepat berubah dari rasa khawatir. Segera setelah Aku berbicara tentang penghalang, dia mulai berbicara dengan cepat dan perlahan-lahan mendekati Aku.
-Glacio Lentso ... jadi sihir itu punya semacam nama ... tapi ini bukan waktunya untuk memikirkan hal itu.
-Dia mendekatiku dengan mata penuh keingintahuan, dan saat aku perlahan didorong mundur ke dinding, "Carol?" Sebuah suara dingin mencapai telingaku. Mengalihkan pandanganku, aku melihat Celia- san berdiri dengan ekspresi geram.
+Saat pisau itu mendarat setelah beberapa detik airtime, aku merasakan reaksi kekuatan sihir yang tak terhitung jumlahnya muncul di hadapan kami.
+Dalam penglihatan Aku, Aku melihat banyak panah es yang menghadap ke arah kami tergantung di udara.
+Biarpun semua itu ditembakkan pada kita, itu masih akan bergantung pada kekuatan masing-masing dan setiap dari mereka tapi kupikir perisai Aku mungkin bisa memblokir mereka semua.
+Namun, Carol- san kemungkinan besar juga tahu itu. Kalau begitu, mungkin ada sesuatu di panah itu.
 
-"Geh ......"
-"Jangan Geh aku. Tepat ketika Aku datang untuk memeriksa Kamu karena Kamu terlalu lama, mengapa Kamu mencoba membunuh Cielmer- san ? "
-" A-aku tidak mencoba membunuhnya atau apalah- ...... "
-" Apakah Kamu pikir Kamu dapat meyakinkan Aku setelah menggunakan tombak es itu? "
-" Tidak ...... Lupakan. "
+Saat Ciel hendak bergerak, anak panah ditembakkan ke arah kami.
+Aku berharap mereka datang secara bertubi-tubi untuk membatasi pergerakan kami, tetapi mereka ditembakkan dalam satu baris dan menghilang segera setelah mereka mencapai penghalang berbentuk bola.
+Sementara Ciel terlindungi, dia lari untuk melarikan diri dari serangan Carol- san , tapi dia tidak bisa melepaskan diri dari kejaran anak panah.
+Masing-masing anak panah mengenai sekuat serangan Alejo tapi ini mungkin sedikit berbahaya.
+Melihat Carol- san , meskipun anak panah tidak mencapai Ciel, dia masih terlihat tenang.
 
-Setelah melihat Carol- san menundukkan kepalanya, Celia- san menghela nafas panjang dan menggelengkan kepalanya.
-Seperti yang diharapkan, sepertinya Carol- san bertindak terlalu jauh. Sihir dengan kekuatan itu pasti bukan sesuatu yang harus Kamu gunakan pada orang, satu kesalahan dan seseorang mungkin akan mati.
-Untungnya itu adalah Ciel, jadi tidak ada korban jiwa, tapi tidak masalah jika Kamu menganggapnya sebagai kecelakaan. Tetapi pada saat yang sama, karena dunia ini mementingkan pencapaian dan kemampuan, Aku pikir mereka mungkin menyalahkan orang yang mati karena sekarat atau sesuatu, tetapi tampaknya tidak seperti itu.
+Dengan kata lain, dia mungkin melakukan ini dengan sengaja. Sederhananya, sihir penghalang menciptakan dinding dengan kekuatan sihir untuk bertahan dari serangan tetapi bisa ada ketidakkonsistenan dalam daya tahannya.
+Dengan kata lain, daya tahan penghalang tidak seragam, Kamu bisa memiliki titik kuat dan titik lemah.
+Dan anak panah Carol- san , secara akurat mengenai titik lemah. Ada batu ajaib sebelumnya juga, jadi kupikir kemampuannya untuk merasakan kekuatan sihir sangat tinggi.
 
-Seperti yang Aku pikirkan, sulit untuk menilai hal-hal seperti ini jika Aku tidak tahu akal sehat dunia ini.
-Untuk saat ini, saat aku berpikir untuk mendapatkan jawaban yang jelas tentang hasil pertandingan dan janji yang kami buat sebelumnya, Celia- san yang sangat menyesal membawaku dan Carol- san ke ruangan yang berbeda.
+Mungkin memahami bahwa berlari tidak ada artinya, Ciel berhenti di jalurnya dan mulai menggambar sesuatu di tanah.
+Seolah-olah untuk mencegahnya melakukannya, jumlah dan kekuatan di balik panah meningkat; akhirnya sesuatu retak dan penghalang itu runtuh.
