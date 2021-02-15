@@ -1,4 +1,4 @@
-ch15 : Gerbang, Tuan, dan Informasi
+ch15 : Gerbang, Penjaga, dan Informasi
 
 c"Ain, Ain! Itu kota, kan?"
 
@@ -252,53 +252,74 @@ a"Bisakah Kamu menjadi hunter ketika Kamu berusia 10 tahun?"
 
 "Jika hanya menjadi hunter, Kamu bisa. Selama Kamu berusia 10 tahun, job Kamu tidak penting. Tapi bisa hidup sebagai hunter adalah cerita lain."
 
-" Maka itu seperti Aku menemukan bagaimana Aku bisa bekerja sekarang. "
-" Ya, itu benar. Seharusnya tidak apa-apa membiarkanmu memasuki kota. Biaya tolnya adalah 2 koin perak besar, tetapi dapatkah Kamu membayar?
-     Jika Kamu memiliki sertifikat, maka Kamu dapat masuk secara gratis tetapi Kamu tidak memilikinya, kan? "
-" Aku tidak punya. Jika Aku menjadi pemburu, apakah Aku harus membayar untuk masuk ke kota? "
+a"sepertinya Aku paham bagaimana Aku bisa bekerja sekarang."
 
-Sambil melanjutkan percakapan dengan tepat, Aku merasakan uang di dalam kantong. Kantong itu memiliki koin emas dan perak, tetapi sayangnya koin perak besar sepertinya ada.
-Uang yang Aku miliki adalah koin emas dan koin perak, dan keduanya sama ukurannya dengan kelompok koin masing-masing. Mengingat pemilik sebelumnya cukup kaya, apa yang Aku pikir sebagai koin perak mungkin adalah koin perak yang besar, tetapi Aku masih tidak dapat memastikannya.
-"Pemburu dapat pergi dengan bebas selama Kamu menunjukkan kartu Kamu" Saat diajari, Aku mengeluarkan koin emas dan meletakkannya di atas meja.
+"Ya, itu benar. Seharusnya tidak apa-apa membiarkanmu memasuki kota. Biaya tolnya adalah 2 koin perak besar, tetapi bisakah Kamu membayarnya? Jika Kamu memiliki sertifikat, maka Kamu dapat masuk secara gratis tetapi Kamu tidak memilikinya, kan?"
 
-"Apakah ini baik-baik saja?"
-"Aku tidak akan terkejut lagi, tetapi koin emas bahkan keluar. Alta, apakah Kamu memiliki 8 perak besar? "
-" Ya. Aku menyiapkan beberapa untuk berjaga-jaga. "
+a"Aku tidak punya sertifikat. Jika Aku menjadi hunter, apakah Aku harus membayar untuk masuk ke kota?"
 
-Wanita itu terus mencatat percakapan kami sejak dia memasuki ruangan mengucapkan kata-kata pertamanya.
-Namanya sepertinya Alta -san . Sulit untuk membaca emosinya dari nada suaranya dan dia memberikan kesan profesional.
+Sambil melanjutkan percakapan dengan tepat, Aku merasakan uang di dalam kantong. Kantong itu memiliki koin emas dan perak, tetapi sayangnya koin perak besar sepertinya ada dunia ini.
+
+Uang yang Aku miliki adalah koin emas dan koin perak, dan keduanya sama ukurannya. Mengingat pemilik sebelumnya cukup kaya, apa yang Aku pikir sebagai koin perak mungkin adalah koin perak yang besar, tetapi Aku masih tidak dapat memastikannya.
+
+"hunter dapat pergi dengan bebas selama Kamu menunjukkan kartumu" Saat diberitahu, Aku mengeluarkan koin emas dan meletakkannya di atas meja.
+
+a"Apakah ini bisa?"
+
+"Aku tidak akan terkejut lagi, tetapi bahkan kamu memiliki koin emas. Alta, apakah Kamu memiliki 8 perak besar?"
+
+"Ya. Aku menyiapkan beberapa untuk berjaga-jaga."
+
+Wanita itu terus mencatat percakapan kami sejak dia memasuki ruangan dan mengucapkan kata-kata pertamanya.
+
+Namanya sepertinya Alta-san . Sulit untuk membaca emosinya dari nada suaranya dan dia memberikan kesan profesional.
+
 Juga, sepertinya 1 koin emas bernilai 10 koin perak besar.
 
 "Baiklah, maaf telah menahanmu di sini, nona kecil."
-"Umm !"
+
+a"Umm !"
 
 Setelah menyelesaikan transaksi, kami merasa percakapan kami telah berakhir jadi Aku memanggil dengan suara yang sedikit keras untuk menunjukkan bahwa Aku masih memiliki sesuatu yang ingin Aku bicarakan.
-Maaf tentang tuan ini, tetapi Aku ingin mendapatkan informasi sebanyak yang Aku bisa sekarang.
+
+Maaf tentang ini, tetapi Aku ingin mendapatkan informasi sebanyak yang Aku bisa sekarang.
 
 "Apa itu?"
-"Berapa Aku harus tinggal di penginapan di kota ini?"
-"Umumnya 2 koin perak, Aku kira. Namun, tempat yang lebih baik mungkin akan lebih mahal. Tetapi Kamu dapat tinggal selama sekitar 40 hari dengan apa yang Kamu miliki, jadi jangan khawatir tentang itu. "
+
+a"Berapa biaya yang harus aku keluarkan untuk tinggal di penginapan di kota ini?"
+
+"biasanya sekitar 2 koin perak. tapi, tempat yang lebih baik mungkin akan lebih mahal. Tetapi Kamu dapat tinggal selama sekitar 40 hari dengan apa yang Kamu miliki, jadi jangan khawatir tentang itu."
 
 80 koin perak menghasilkan 8 koin perak besar, jadi ini berarti 10 koin perak menghasilkan 1 koin perak besar. Aku senang itu mudah diingat.
-Sebaliknya, kemungkinan besar seperti itu sehingga mudah diingat.
-Selain itu, menurut Aku tidak ada keraguan bahwa koin perak yang Aku miliki adalah koin perak yang besar. Dalam hal ini, Aku kira kita tidak akan mengkhawatirkan uang untuk waktu yang cukup lama.
 
-"Juga, di mana Kamu menjadi pemburu?"
-"Langsung saja setelah melewati gerbang dan bangunan besar, dan yang akan Kamu temui adalah tempat di mana para pemburu berkumpul. The Hunter's Guild, umumnya dikenal hanya sebagai Guild.
-     Mungkin aku harus menulis surat pengantar untukmu. Bagaimanapun, mereka mungkin segera menolakmu, nona kecil. "
+mungkin dibuat seperti itu agar mudah diingat.
 
-Mengatakan begitu, Tuan mengambil selembar kertas dari alta san dan mulai menulis sesuatu.
-Surat pengantar membantu dengan jujur. Lagi pula, jika orang tidak mengenali Aku sebagai anak berusia 10 tahun, bukan hanya Aku tidak bisa menjadi pemburu, Aku mungkin tidak akan bisa bekerja sama sekali.
-Aku telah menanyakan sebagian besar dari apa yang perlu Aku dengar, jadi Aku akan membuat pertanyaan berikutnya sebagai pertanyaan terakhir Aku dan menanyakan tentang hal-hal lain di Hunter's Guild.
+Selain itu, menurutku tidak ada keraguan bahwa koin perak yang Aku miliki adalah koin perak yang besar. Dalam hal ini, Aku kira kita tidak akan mengkhawatirkan uang untuk waktu yang cukup lama.
 
-"Di kota ini, apakah orang akan jahat dengan warna rambut seseorang?"
-"Oh, rambutmu, ya . Memang benar jarang memiliki rambut seputih itu, tapi menurutku itu tidak akan terjadi. "
-"Um ...... apakah kamu menyadarinya sebelumnya? "
-" Sepertinya kamu ingin menyembunyikannya jadi aku tidak membicarakannya itu, tapi bagaimanapun penampilan Aku, Aku telah menjadi penjaga gerbang untuk waktu yang lama.
-     Ya, itu menonjol jadi yang terbaik adalah Kamu berhati-hati. Ada pemburu yang juga orang jahat, oke? "
-" Ya, Aku akan berhati-hati. Terima kasih banyak atas sarannya. "
+a"Juga, di mana agar bisa menjadi hunter?"
 
-Sementara Aku melakukannya, Aku minta maaf karena meragukan kemampuan Kamu sebagai penjaga gerbang dalam pikiran Aku.
+"Langsung saja setelah melewati gerbang dan bangunan besar, Kamu akan menemui adalah tempat di mana para hunter berkumpul. Guild Hunter, umumnya dikenal hanya sebagai Guild. Mungkin aku harus menulis surat pengantar untukmu. kalau tidak, Mereka mungkin segera menolakmu, nona kecil."
+
+Mengatakan begitu, penjaga mengambil selembar kertas dari alta san dan mulai menulis sesuatu.
+
+jujur, Surat pengantar sungguh membantu. Lagi pula, jika orang tidak mengenaliku sebagai anak berusia 10 tahun, bukan hanya Aku tidak bisa menjadi hunter, Aku mungkin tidak akan bisa bekerja sama sekali.
+
+Aku telah menanyakan sebagian besar dari apa yang perlu Aku dengar, jadi Aku akan membuat pertanyaan berikutnya sebagai pertanyaan terakhir Aku dan menanyakan tentang hal-hal lain di Guild Hunter.
+
+a"Di kota ini, apakah warna rambut seseorang berarti sesuatu?"
+
+"Oh, rambutmu, ya. Memang benar jarang memiliki rambut seputih itu, tapi menurutku tidak ada masalah."
+
+a"Um ...... apakah kamu menyadarinya sebelumnya?"
+
+"Sepertinya kamu ingin menyembunyikannya jadi aku tidak membicarakannya, tapi bagaimanapun penampilanku, Aku telah menjadi penjaga gerbang untuk waktu yang lama. Yaaah, itu menonjol jadi lebih baik Kamu berhati-hati. Ada hunter yang jahat juga, oke?"
+
+a"Ya, Aku akan berhati-hati. Terima kasih banyak atas sarannya."
+
+Aku minta maaf karena meragukan kemampuannya sebagai penjaga gerbang dalam pikiranku.
+
 Setelah itu, saat Aku masuk, Aku digiring keluar dan kami berpisah.
-Saat kami berpisah, dia memberi tahu Aku "Jika sesuatu terjadi, silakan kunjungi!" Dia benar-benar orang yang baik.
-Bagaimanapun, Aku berhasil memasuki kota tanpa masalah jadi Aku memutuskan untuk pergi ke Persekutuan terlebih dahulu.
+
+Saat kami berpisah, dia memberi tahu Aku "Jika sesuatu terjadi, silakan datang kesini!" Dia benar-benar orang yang baik.
+
+Bagaimanapun, Aku berhasil memasuki kota tanpa masalah jadi Aku memutuskan untuk pergi ke Guild terlebih dahulu.
