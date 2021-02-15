@@ -56,41 +56,51 @@ c"Ada apa, Ain?"
 
 a"Menunjukkan kekuatan penuh kita sampai batas tertentu dan dengan cepat naik ke tingkat B, atau menyembunyikan kekuatan kita dan terus bekerja untuk menjadi peringkat B. Mana yang kamu lebih suka?"
 
-c"Setelah kita menjadi B-Rank, kita akan menonjol suka atau tidak, kan? Kalau begitu, tidak perlu menyembunyikan kekuatan kita, bukan? "
+c"Setelah kita menjadi peringkat B, kita akan menonjol suka atau tidak, kan? Kalau begitu, tidak perlu menyembunyikan kekuatan kita, bukan?"
 
-Karena rasanya seperti Carol- san sedang menyelidiki kami, aku berpura-pura berpikir dan mengadakan pertemuan strategi cepat dengan Ciel.
-Topik kita, menonjol atau tidak. Kesimpulannya, tetaplah di B-Rank meskipun kami sedikit menonjol. Dan dengan itu, Aku pikir kami akan menampilkan kekuatan kami hanya dengan sedikit suar.
+Karena rasanya seperti Carol-san sedang menyelidiki kami, aku berpura-pura berpikir dan mengadakan pertemuan strategi cepat dengan Ciel.
 
-"Butuh beberapa waktu untuk melakukan sihir, jadi tidak mungkin secara instan, Kamu tahu?"
-"Ya itu benar."
-"Jadi Carol- san , apa yang Kamu ingin Aku lakukan?"
-"Aku ingin melihat sihir Kamu yang sebenarnya. Lagipula, untuk seseorang sepertimu yang setidaknya telah memburu dua monster B-Brank, tidak mungkin hanya itu yang kamu miliki.
-     Tapi, yah, bahkan lingkaran sihir ini saja sudah cukup untuk digunakan sebagai bahan penelitian, tapi aku benar-benar yakin ada lebih dari ini! "
+Topik kami, menonjol atau tidak. Kesimpulannya, tetaplah di peringkat B meskipun kami sedikit menonjol. Dan dengan itu, Aku pikir kami akan menampilkan kekuatan kami sedikit saja.
 
-Melihat Carol- san tiba-tiba bersemangat, Aku kewalahan.　
-Mungkin dia salah satu yang disebut geek. Sepertinya meski aku berada di dunia yang berbeda, masih ada orang yang mirip. Kalau begitu, Aku harap hiburan di sini berkembang dengan baik juga.
+"Butuh beberapa waktu untuk melakukan sihir, jadi tidak mungkin secara instan lho..."
 
-"Dua monster B-Rank? Apa maksudmu? "
-" Kamu memiliki batu ajaib monster B-Rank, kan? Aku juga sedikit penasaran tentang apa yang Kamu rencanakan dengan itu. "
-" Dengan B-Rank, maksud Kamu ini? "
+c"Yaaah itu benar."
 
-Tiba-tiba menyadari sesuatu, Aku mengeluarkan batu ajaib raksasa bermata satu dan setelah menunjukkannya kepada Carol- san dia menjawab "Itu."
-Pada akhirnya kami mengalahkannya dalam sekejap, tetapi tidak dapat disangkal bahwa itu semua berkat gabungan kekuatan Putri Lagu dan Putri Tari, dua Pekerjaan Putri.
-Di sisi lain, menjadi monster B-Rank berarti bahwa kekuatan Hunter B-Rank atau lebih diperlukan untuk mengalahkannya, tapi Aku benar-benar merasa bahwa penghalang Aku sudah tidak terkendali karena bisa menahan serangan monster itu.
-Meskipun pada titik ini, sejujurnya Aku jauh lebih ingin tahu tentang seberapa jauh hal itu bisa dilakukan daripada kepraktisannya.
+a"Jadi Carol-san , apa yang Kamu ingin Aku lakukan?"
 
-"Jika itu benar, maka Aku memang mengalahkan monster B-Rank.
-     Tapi tidak ada gunanya bagiku bahkan jika aku menunjukkan sihirku yang sebenarnya, kan? "
-" Fakta bahwa aku menengahi pertempuranmu ...... adalah apa yang ingin aku katakan, dalam kasusmu, bahkan tanpa aku menengahi, Alejo sebenarnya bukan masalah. Sebaliknya, akulah yang membatasi Kamu.
-     Jadi, sebagai imbalan untuk menunjukkan sihirmu padaku, bagaimana pertandingan formal denganku terdengar untukmu? Jika kamu menang, aku akan meyakinkan guild bahwa kamu lulus Ujian B-Rank. "
-" Bisakah kamu membuktikan bahwa kamu dapat menepati janjimu? "
-" Kamu mendengar percakapan Aku dengan Ceila, kan? Untuk alasan Aku sendiri, Aku melakukannya tanpa bantuan apa pun. "
-" Kamu "meminta" untuk melakukan ini, kan? "
-"Ujian untuk menjadi B-Rank adalah memiliki Hunter B-Rank ke atas untuk mengakui kekuatan Kamu. Dan jika Kamu menyelesaikan ujian itu sendiri, yaitu membuat Aku, seorang Hunter B-Rank ke atas, mengenali kekuatan Kamu, maka Aku hanya perlu melakukan sesuatu tentang jadwal ujian.
-     Juga, jika Kamu memiliki pertandingan dengan Aku, Aku akan menjaga Kamu sampai Kamu mencapai D-Rank. Kekuatan Kamu sendiri mungkin sudah tentang Peringkat-B, tetapi Kamu tidak hanya harus kuat untuk meningkatkan peringkat Hunter Kamu.
-     Jika Kamu ingin naik peringkat dengan cepat, meminta instruksi dari senior Kamu adalah yang terbaik. "
+"Aku ingin melihat sihirmu yang sebenarnya. Lagipula, untuk seseorang sepertimu yang setidaknya telah memburu dua monster peringkat B, tidak mungkin hanya itu yang kamu miliki. Tapi, yah, bahkan lingkaran sihir ini saja sudah cukup untuk digunakan sebagai bahan penelitian, tapi aku benar-benar yakin kalau kamu lebih kuat dari ini!"
 
-Setelah mengajukan beberapa pertanyaan lagi kepada Carol- san , Aku mempertimbangkan apakah kita bisa memercayainya atau tidak.
+Melihat Carol-san tiba-tiba bersemangat, Aku kewalahan.　
+Mungkin dia salah satu orang yang disebut kutu buku. Sepertinya meski aku berada di dunia yang berbeda, masih ada orang yang seperti itu. Kalau begitu, Aku harap hiburan di sini berkembang dengan baik juga.
+
+a"Dua monster tingkat B? Apa maksudmu?"
+
+"Kamu memiliki batu magic monster peringkat B, kan? Aku juga sedikit penasaran tentang apa yang Kamu rencanakan dengan itu."
+
+a"Dengan peringkat B, maksudmu ini?"
+
+Tiba-tiba menyadari sesuatu, Aku mengeluarkan batu magic raksasa bermata satu dan setelah menunjukkannya kepada Carol-san dan dia menjawab "Itu."
+
+Pada akhirnya kami mengalahkannya dalam sekejap, tetapi tidak dapat disangkal bahwa itu semua berkat gabungan kekuatan Song Princess dan Dance Princess, dua Job Princess.
+
+Di sisi lain, menjadi monster peringkat B berarti bahwa kekuatan Hunter peringkat B atau lebih diperlukan untuk mengalahkannya, tapi Aku benar-benar merasa bahwa +BARRIERku sudah tidak terkendali karena bisa menahan serangan monster itu.
+
+Meskipun pada titik ini, sejujurnya Aku jauh lebih ingin tahu tentang seberapa jauh hal itu bisa dilakukan.
+
+a"Jika itu benar, maka Aku memang mengalahkan monster peringkat B. Tapi tidak ada untungnya bagiku bahkan jika aku menunjukkan sihirku yang sebenarnya, kan?"
+
+"Fakta bahwa aku menengahi pertarunganmu ...... adalah apa yang ingin aku katakan, dalam kasusmu, bahkan tanpa aku menengahi, Alejo sebenarnya bukan masalah. Sebaliknya, akulah yang membatasimu. Jadi, sebagai imbalan untuk menunjukkan sihirmu padaku, bagaimana pertandingan formal denganku? Jika kamu menang, aku akan meyakinkan guild bahwa kamu lulus Ujian peringkat B."
+
+a"Bisakah kamu membuktikan bahwa kamu dapat menepati janjimu?"
+
+"Kamu mendengar percakapanku dengan Ceila, kan? Untuk alasanku sendiri, Aku melakukannya tanpa bantuan apa pun."
+
+a"Kamu 'meminta' untuk melakukan ini, kan?"
+
+"Ujian untuk menjadi peringkat B adalah memiliki Hunter tingkat B ke atas untuk mengakui kekuatanmu. Dan jika Kamu menyelesaikan ujian itu sendiri, yaitu membuatku, seorang Hunter peringkat B ke atas, mengakui kekuatanmu, maka Aku hanya perlu melakukan sesuatu tentang jadwal ujian. Juga, jika Kamu memiliki pertarungan denganku, Aku akan menjagamu sampai Kamu mencapai tingkat D. Kekuatanmu sendiri mungkin sudah setingkat B, tetapi Kamu tidak hanya harus kuat untuk meningkatkan peringkat Huntermu. Jika Kamu ingin naik peringkat dengan cepat, meminta instruksi dari seniormu adalah yang terbaik."
+
+Setelah mengajukan beberapa pertanyaan lagi kepada Carol-san , Aku mempertimbangkan apakah kita bisa memercayainya atau tidak.
+
 Kerugian menerima itu adalah kekuatan kita akan terekspos lebih dari pertempuran sebelumnya. Namun mengenai hal itu, seberapa banyak yang bisa kami tunjukkan ditentukan.
 Kelebihannya adalah kita bisa belajar seberapa kuat Hunter tingkat tinggi. Berdasarkan reaksi Alejo, aku yakin dia setidaknya C-Rank atau lebih tinggi.
 Dengan itu sebagai referensi minimum kami, Aku pikir tidak ada keraguan bahwa Carol san adalah seorang B-Ranker. Dan jika dia mau membantu kita setelah ini, tidak ada alasan untuk menolak.
