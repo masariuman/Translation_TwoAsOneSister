@@ -2,29 +2,37 @@ ch16 : Hunter, Penjelasan, dan Perselisihan
 
 setelah melewati gerbang kota Sannois, ada pasar yang terbuka dan bahkan saat ini, masih cukup ramai.
 
-Tetap saja, Aku penasaran dengan beberapa toko yang tidak buka di antara banyak toko yang berbaris.
+Tetap saja, Aku penasaran dengan beberapa toko yang tidak buka di antara banyak toko yang ada.
 
-Dan meskipun Aku menyebutnya hidup, itu tidak sibuk sampai-sampai sulit untuk berjalan-jalan dan, karena kecil, Aku dapat dengan mudah menembus celah dalam kerumunan. Sekarang setelah Aku melewati gerbang, karena Aku tidak menarik banyak perhatian, Aku kira orang-orang hanya melihat Aku sebagai anak normal.
+Dan meskipun Aku menyebutnya ramai, itu tidak seperti sulit untuk berjalan dan, karena kecil, Aku dapat dengan mudah menembus celah dalam kerumunan. Sekarang setelah Aku melewati gerbang, karena Aku tidak menarik banyak perhatian, Aku kira orang-orang hanya melihatku sebagai anak normal.
 
-Setelah meninggalkan area seperti distrik perdagangan, sekarang Aku merasakan semacam keresahan di atmosfer.
-Meskipun benar bahwa ini masih ramai dengan orang-orang, berbeda dari kesibukan pasar, ini agak bergejolak.
+Setelah meninggalkan area seperti distrik perdagangan, sekarang Aku merasakan semacam keresahan.
+
+Meskipun benar bahwa ini masih ramai dengan orang-orang, berbeda dari pasar, ini agak ribut.
+
 Aku bahkan kadang-kadang melihat orang-orang berjalan-jalan yang tidak seperti pejalan kaki biasa yang mengenakan pakaian sederhana, membawa senjata dan dilengkapi dengan baju besi pelindung.
-Di kedai minuman aku melihat saat dalam perjalanan; Ada banyak pria yang minum-minum meskipun matahari masih terbit.
 
-"Jadi organisasi yang Ain bicarakan sebelumnya, adalah Hunter's Guild, kan?"
-"Itu benar. Aku tidak yakin apa namanya, tapi bagaimanapun juga, aku berasumsi bahwa kemungkinan akan ada organisasi yang akan mencari nafkah dari mengalahkan monster. "
-" Apakah itu karena ada satu di kampung halamanmu? "
-" Tidak ada sebenarnya. Namun, tampaknya boros membiarkan orang yang sehat secara fisik tetapi bermasalah berkeliaran dengan santai.
-     Aku pikir sebuah organisasi yang akan mengumpulkan dan memimpin orang-orang seperti mereka mungkin ada di kota-kota dengan skala tertentu, dan organisasi itu sendiri mungkin akan berskala besar juga. Yang terpenting, Aku percaya bahwa mereka mungkin menerima bahkan orang yang tidak dapat diidentifikasi. "
+Di kedai minuman aku melihat Ada banyak pria yang minum-minum meskipun matahari masih terbit.
 
-Membuat penjelasan yang agak bisa dipercaya, tetapi jawaban sebenarnya adalah bahwa itu hanya hal yang biasa dilihat di media fiksi. Dan karena Aku tahu ada organisasi yang mirip dengan Hunter's Guild dalam cerita dan semacamnya, Aku mencapai kesimpulan bahwa mungkin ada sesuatu seperti itu di dunia ini. Dan meskipun ini mungkin juga didasarkan pada informasi fiksi, Aku percaya bahwa guild seperti ini bukanlah organisasi yang ada untuk negara tertentu, tetapi adalah organisasi yang paling sering melintasi perbatasan nasional. Jadi kebohongan yang Aku buat di sini mungkin menjadi masalah bagi kita di negara lain.
-Itu juga alasan mengapa Aku memperkenalkan diri Aku sebagai Cielmer, karena Aku pikir nama akan diperlukan untuk mendaftar sebagai Hunter. Meskipun Aku yang paling aktif di kota ini, Aku berencana untuk mengubahnya sehingga Ciel akan menjadi orang yang paling aktif di masa depan. Jadi untuk saat ini, akan merepotkan jika nama yang didaftarkan adalah Ainsel.
+c"Jadi organisasi yang Ain bicarakan sebelumnya, adalah Guild Hunter, kan?"
 
-"Setelah pergi ke guild, apa yang mungkin kita lakukan hari ini?"
-"Kalau dipikir-pikir, Aku sebenarnya tidak membicarakannya. Itu akan tergantung pada jam berapa kita meninggalkan guild tapi jika kita masih punya waktu setelah menemukan penginapan, kenapa kita tidak pergi mencarikan pakaian untukmu?
-     Karena sepertinya kita tidak perlu menyembunyikan rambutmu, mengapa kita tidak mengambil kesempatan untuk membuatmu cantik? "
-" Aku tidak keberatan tetap seperti ini, tahu??
-"Sama sekali tidak."
+a"Benar. Aku tidak yakin apa namanya, tapi bagaimanapun juga, aku berasumsi bahwa kemungkinan akan ada organisasi yang akan mencari uang dari mengalahkan monster."
+
+c"Apakah ain tahu karena ada juga di kampung halamanmu?"
+
+a"sebenarnya Tidak ada. Tapi, tampaknya sia-sia membiarkan orang yang sehat secara fisik tetapi bermasalah berkeliaran dengan santai. Aku pikir sebuah organisasi yang akan mengumpulkan dan memimpin orang-orang seperti mereka mungkin ada di kota-kota dengan skala tertentu, dan organisasi itu sendiri mungkin akan berskala besar juga. Yang terpenting, Aku percaya bahwa mereka mungkin menerima bahkan orang yang tidak dapat diidentifikasi."
+
+Membuat penjelasan yang agak bisa dipercaya, tetapi jawaban sebenarnya adalah bahwa itu hanya hal yang biasa dilihat di media fiksi. Dan karena Aku tahu ada organisasi yang mirip dengan Guild Hunter dalam cerita dan semacamnya, Aku mencapai kesimpulan bahwa mungkin ada sesuatu seperti itu di dunia ini. Dan meskipun ini mungkin juga didasarkan pada informasi fiksi, Aku percaya bahwa guild seperti ini bukanlah organisasi yang ada untuk negara tertentu, tetapi adalah organisasi yang paling sering melintasi perbatasan nasional. Jadi kebohongan yang Aku buat di sini mungkin menjadi masalah bagi kami di negara lain.
+
+Itu juga alasan mengapa Aku memperkenalkan diriku sebagai Cielmer, karena Aku pikir nama akan diperlukan untuk mendaftar sebagai Hunter. Meskipun Aku yang paling aktif di kota ini, Aku berencana untuk mengubahnya sehingga Ciel akan menjadi orang yang paling aktif di masa depan. Jadi untuk saat ini, akan merepotkan jika nama yang didaftarkan adalah Ainsel.
+
+c"Setelah pergi ke guild, apa yang mungkin kita lakukan hari ini?"
+
+a"entahlah. Itu akan tergantung pada jam berapa kita meninggalkan guild tapi jika kita masih punya waktu setelah menemukan penginapan, kenapa kita tidak pergi mencarikan pakaian untukmu? Karena sepertinya kita tidak perlu menyembunyikan rambutmu, mengapa kita tidak mengambil kesempatan untuk membuatmu cantik?"
+
+c"Aku tidak keberatan tetap seperti ini lho..." 
+
+a"itu tidak baik."
 
 Ciel memakainya berarti aku akan memakainya juga, tapi mungkin karena aku terlihat sangat berbeda dari sebelumnya; rasanya seperti bermain dengan boneka berdandan.
 Sebaliknya, Aku kira itu lebih mirip dengan pembuatan avatar game.
