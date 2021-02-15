@@ -4,21 +4,28 @@ Seorang yang tiba-tiba memotong percakapan kami adalah seorang wanita muda dan t
 
 sibotak dengan canggung mendecakkan lidahnya begitu dia melihatnya muncul.
 
-"Aku akan melayani sebagai penguji juga; apakah kamu baik dengan itu, Celia? "
-" Carol, bisakah kamu melakukannya? "
-" Itu satu permintaan, itu yang ingin Aku katakan; tapi Aku punya beberapa alasan kali ini, jadi bagaimana jika tidak ada bantuan untuk saat ini? "
-" Selama Anda memastikan pemburu muda berusia 1 hari kami kembali dengan selamat. "
-" Mengkhawatirkan itu berarti Anda meragukan ... uhh , sesuatu - chan , kamu tahu? "
+"Aku akan menjadi penguji juga; apakah kamu tidak masalah dengan itu, Celia?"
 
-"Untuk beberapa alasan, kita tidak diikutsertakan dalam percakapan."
-"Kita seharusnya menjadi pihak yang bersangkutan di sini, tapi kita bahkan tidak diberi pandangan sekilas. Menilai dari reaksi skinhead, wanita yang baru saja tiba - Carol -san kemungkinan besar berperingkat tinggi.
-     Mungkin yang terbaik adalah kita tidak perlu berbicara sembarangan sekarang. Sepertinya mereka tidak akan memperlakukan kita dengan buruk, kurasa. "
-" Yah, sepertinya kita tidak perlu berbicara.
-     Ngomong-ngomong, standar yang Ain bicarakan sebelumnya adalah ini, kan? Kenapa dia bertengkar denganku, aku bertanya-tanya? "
-" Terus terang, itu mungkin karena kamu terlihat lemah. Dari mata orang dewasa, menjadi anak kecil saja sudah membuatmu terlihat lemah. "
-" Lagipula, kamu tidak bisa berbuat apa-apa tentang perbedaan ukuran. "
+"Carol, bisakah kamu melakukannya?"
 
-Kami tiba-tiba mendapat waktu untuk diam, jadi Aku berbicara dengan Ciel sebentar tetapi yang mengejutkan, Ciel tidak marah. Hal yang sama bisa dikatakan kepada Aku tetapi dalam kasus Aku, Aku lebih terkesan dengan fakta bahwa Aku menemukan klise dan juga tercengang bahwa itu benar-benar terjadi, jadi Aku tidak punya tempat untuk marah.
+"aku ingin mengatakan kamu berhutang padaku; tapi Aku punya beberapa alasan kali ini, jadi bagaimana jika tidak ada hutang untuk saat ini?"
+
+"Selama Kamu memastikan Hunter muda berusia 1 hari kami kembali dengan selamat."
+
+"Mengkhawatirkan itu berarti Anda meragukan ... uhh , sesuatu-chan lho..."
+
+c"Untuk beberapa alasan, kita tidak diikutsertakan dalam percakapan."
+
+a"Kita seharusnya menjadi pihak yang bersangkutan di sini, tapi kita bahkan tidak dipandang seperti itu. Menilai dari reaksi sibotak, wanita yang baru saja tiba, Carol-san kemungkinan besar memiliki peringkat tinggi. Mungkin yang terbaik adalah kita tidak perlu berbicara sembarangan sekarang. Sepertinya mereka tidak akan memperlakukan kita dengan buruk, kurasa."
+
+c"Yah, sepertinya kita tidak perlu berbicara. Ngomong-ngomong, standar yang Ain bicarakan sebelumnya adalah ini, kan? Kenapa dia ingin bertarung denganku?"
+
+a"Terus terang, itu mungkin karena kamu terlihat lemah. Dari mata orang dewasa, menjadi anak kecil saja sudah membuatmu terlihat lemah."
+
+c"yaaah, kamu tidak bisa berbuat apa-apa tentang perbedaan ukuran tubuh kita."
+
+Kami tiba-tiba mendapat waktu luang, jadi Aku berbicara dengan Ciel sebentar tetapi yang mengejutkan, Ciel tidak marah. Hal yang sama bisa dikatakan kepadaku tetapi dalam kasusku, Aku lebih terkesan dengan fakta bahwa Aku tercengang karena itu benar-benar terjadi, jadi Aku tidak punya waktu untuk marah.
+
 Ini mungkin mirip dengan Ciel juga, tapi daripada terkesan, dia mungkin melakukan pengamatan manusia.
 
 Meskipun kami tidak benar-benar marah, bukan berarti kami tidak akan membuatnya membayar untuk ini. Jadi jika memungkinkan, Aku ingin memiliki kemenangan yang luar biasa sehingga kami dapat menurunkan kemungkinan orang mengotak-atik kami di masa depan meskipun hanya sedikit.
