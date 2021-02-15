@@ -90,50 +90,48 @@ dia masuk ke dalam tempat di belakang meja kasir.
 
 Jika Aku benar, yang tertulis disurat itu harusnya menjamin bahwa Aku berusia 10 tahun dan mampu mengalahkan monster, tetapi mungkin ada masalah?
 
-"Atau apakah karena penampilan kita?" "
-Nah, semua orang lebih tinggi dari kita. Aku belum pernah melihat orang yang lebih pendek dariku.
-Bisakah kita menjadi Hunter dengan aman, aku bertanya-tanya? Akankah kita mungkin salah sebagai anak kecil? "
-" Aku percaya itu baik-baik saja. Jika tidak, maka mari setidaknya mencari tempat untuk menjual batu ajaib. "
-" Dimengerti. "
+a"Atau apakah karena penampilan kita?"
+
+c"Nah, semua orang lebih tinggi dari kita. Aku belum pernah melihat orang yang lebih pendek dariku. Bisakah kita menjadi Hunter dengan aman, Apakah kita diaggap sebagai anak kecil?"
+
+a"Aku percaya itu akan baik-baik saja. Jika tidak, ayo mencari tempat untuk menjual batu magic."
+
+c"Baiklah."
 
 Ciel mengakhiri percakapan kami, Aku berasumsi itu karena dia melihat resepsionis kembali.
+
 Resepsionis, mungkin karena dia terburu-buru, bernapas agak cepat.
-"Terima kasih telah menunggu. Kami sedang memvalidasi surat itu, jadi ingin mendengar penjelasan tentang Pemburu? "
-" Ya, tolong. "
 
-"The Hunter's Guild awalnya adalah organisasi yang bertujuan untuk mempertahankan kota atau desa dengan mengalahkan monster di dekatnya.
-     Karena Pemburu meninggalkan kota terus-menerus, secara bertahap orang-orang yang tidak dapat meninggalkan kota dengan bebas seperti penduduk kota, bangsawan, dan kota itu sendiri mulai mengirimkan permintaan, dan itulah kondisi Persekutuan Pemburu saat ini. "
-" Begitu juga Pemburu hanya perlu melakukan permintaan? "
+"Terima kasih telah menunggu. Kami sedang memvalidasi surat itu, jadi ingin mendengar penjelasan tentang hunter?"
 
-"Itu akan menjadi intinya. Dengan menyelesaikan permintaan, mereka menerima uang dari klien melalui guild.
-     Kecuali untuk kasus-kasus khusus, Pemburu biasanya tidak bertemu dengan klien.
-     Setelah itu, Pemburu diberi peringkat dari G ke S, dan permintaan yang dapat mereka terima bergantung pada Peringkat mereka. Saat memulai, Kamu bisa mendapatkan hadiah seragam 1 koin tembaga dari permintaan G-Rank dan ini hanya untuk diselesaikan di dalam kota.
-     Semakin tinggi peringkatnya, semakin besar hadiahnya, tetapi kesulitan penyelesaian juga meningkat. Permintaan yang secara umum dapat Kamu terima adalah yang memiliki peringkat yang sama dan yang satu peringkat di bawah Kamu, jadi harap diingat.
-     Jika permintaan tidak dapat diselesaikan atau dibatalkan, akan ada kebutuhan untuk membayar kompensasi yang disebutkan. "
-" Ketika Kamu mendapatkan Peringkat yang lebih besar, apakah ada manfaat yang Aku dapatkan? "
+a"Ya, mohon penjelasannya."
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+"The Guild Hunter awalnya adalah organisasi yang bertujuan untuk mempertahankan kota atau desa dengan mengalahkan monster di dekatnya. Karena hunter meninggalkan kota terus-menerus, secara bertahap orang-orang yang tidak dapat meninggalkan kota dengan bebas seperti penduduk kota, bangsawan, dan kota itu sendiri mulai mengirimkan permintaan, dan itulah kondisi Guild Hunter saat ini." 
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+a"jadi, apakah hunter hanya perlu menyelesaikan permintaan?"
 
-"Pertama-tama, menjadi Peringkat F memungkinkan Kamu keluar dari kota dengan bebas. Kartu Hunter yang dibuat selama pendaftaran akan berfungsi sebagai tiket masuk yang terbatas untuk kota ini, jadi Kamu tidak perlu membayar biaya tol.
-     Dari E Rank, Kamu akan diizinkan untuk menerima permintaan penaklukan monster.
-     Dari D Rank, Kartu Hunter Kamu akan berfungsi sebagai tiket masuk terbatas hanya untuk negara ini, sehingga Kamu dapat bergerak lebih bebas. Mencapai D Rank umumnya juga menjamin status sosial Kamu.
-     Selain itu, saat mencapai Peringkat B ke atas, Kamu akan diizinkan untuk pergi ke Markas Besar Guild. Itu berarti Kamu dapat dengan bebas bepergian antar negara. "
+"Itulah intinya. Dengan menyelesaikan permintaan, mereka menerima uang dari klien melalui guild. Kecuali untuk kasus-kasus khusus, hunter biasanya tidak bertemu dengan klien. Setelah itu, hunter diberi peringkat dari G ke S, dan permintaan yang dapat mereka terima bergantung pada Peringkat mereka. Saat memulai, Kamu bisa mendapatkan hadiah 1 koin tembaga dari permintaan peringkat G dan ini hanya untuk diselesaikan di dalam kota. Semakin tinggi peringkatnya, semakin besar hadiahnya, tetapi kesulitan penyelesaian juga meningkat. Permintaan yang secara umum dapat Kamu terima adalah yang memiliki peringkat yang sama dan yang satu peringkat di bawahmu, jadi harap diingat-ingat. Jika permintaan tidak dapat diselesaikan atau dibatalkan, akan ada hukuman untuk membayar kompensasi yang disebutkan."
 
-Jadi itu artinya, tujuan kita saat ini adalah menjadi Pemburu Peringkat B.
-Sepertinya kita tidak bisa langsung keluar negeri setelah mendaftar sebagai Hunter. Mungkin ada jalan keluar lain tetapi, dari cara dia berbicara, tampaknya sulit bagi masyarakat umum untuk meninggalkan negara itu. Pada saat yang sama, Aku sekarang yakin bahwa Hunter's Guild adalah organisasi yang melewati negara. Aku sangat bersyukur bahwa upaya yang kami lakukan di sini akan berdampak langsung ke negara lain.
+a"Ketika Kamu mendapatkan Peringkat yang lebih besar, apakah ada manfaat yang Aku dapatkan?"
 
-"Untuk meningkatkan Peringkat Kamu sebagai Pemburu, Kamu harus memiliki cukup pencapaian yang diakui dan lulus ujian.
-     Pertama, Kamu mungkin harus mulai dari menyelesaikan permintaan secara teratur. Ujian biasanya berupa pertandingan formal.
-     Lagipula, bekerja sebagai Hunter membutuhkan kekuatan. "
-" Jadi, tidak bisakah Aku langsung mulai dari Peringkat E atau D? "
-" Jika Kamu dianggap cukup kuat, maka dimungkinkan untuk memulai dari Peringkat E. Namun, setelah itu, untuk menjadi Peringkat D Kamu perlu diuji jika Kamu cukup kompeten untuk menjadi seorang Hunter. Mengenai itu, Hunter's Guild secara berkala menawarkan kursus pelatihan, jadi silakan coba berpartisipasi di dalamnya. Jika Kamu mengikuti semua kursus, maka Kamu dapat dianggap diterima dalam waktu beberapa bulan.
-     Selain itu, dalam kasus ketika Peringkat Kamu tidak sesuai dengan kekuatan Kamu atau ketika Kamu meninggalkan pencapaian yang sangat bagus, Peringkat Kamu mungkin juga dinaikkan sebagai pengecualian. "
-" Jadi bekerja secara teratur adalah yang terbaik, bukan? "
-" Ya. Orang-orang yang terburu-buru untuk naik peringkat dan kehilangan nyawa mereka menerima permintaan di luar level mereka biasa dilihat. "
+"Pertama-tama, menjadi Peringkat F memungkinkan Kamu keluar dari kota dengan bebas. Kartu Hunter yang dibuat selama pendaftaran akan berfungsi sebagai tiket masuk yang terbatas untuk kota ini, jadi Kamu tidak perlu membayar biaya masuk. Dari peringkat E, Kamu akan diizinkan untuk menerima permintaan penaklukan monster. Dari peringkat D, Kartu Huntermu akan berfungsi sebagai tiket masuk terbatas hanya untuk negara ini, sehingga Kamu dapat bergerak lebih bebas. Mencapai peringkat D umumnya juga menjamin status sosialmu. Selain itu, saat mencapai Peringkat B ke atas, Kamu akan diizinkan untuk pergi ke Markas Besar Guild. Itu berarti Kamu dapat dengan bebas bepergian antar negara."
 
-Mendengarnya dengan terus terang mengatakan ini benar-benar menggambarkan betapa mudahnya kehilangan hidup Kamu di dunia ini.
+Jadi itu artinya, tujuan kami saat ini adalah menjadi hunter Peringkat B.
+
+Sepertinya kami tidak bisa langsung keluar negeri setelah mendaftar sebagai Hunter. Mungkin ada jalan keluar lain tetapi, dari cara dia berbicara, tampaknya sulit bagi masyarakat umum untuk meninggalkan negara ini. Pada saat yang sama, Aku sekarang yakin bahwa guild Hunter adalah organisasi terhubung antar-negara. Aku sangat bersyukur bahwa upaya yang kami lakukan di sini akan berdampak langsung ke negara lain.
+
+"Untuk meningkatkan Peringkatmu sebagai hunter, Kamu harus memiliki cukup pencapaian yang diakui dan lulus ujian. Pertama, Kamu mungkin harus mulai dari menyelesaikan permintaan secara teratur. Ujian biasanya berupa pertandingan formal. Lagipula, bekerja sebagai Hunter membutuhkan kekuatan."
+
+a"Jadi, tidak bisakah Aku langsung mulai dari Peringkat E atau D?"
+
+"Jika Kamu dianggap cukup kuat, maka dimungkinkan untuk memulai dari Peringkat E. tapi, setelah itu, untuk menjadi Peringkat D Kamu perlu diuji jika Kamu cukup kompeten untuk menjadi seorang Hunter. Mengenai itu, guild Hunter secara berkala menawarkan kursus pelatihan, jadi silakan coba berpartisipasi di dalamnya. Jika Kamu mengikuti semua kursus, maka Kamu dapat dianggap diterima dalam waktu beberapa bulan. Selain itu, dalam kasus ketika Peringkatmu tidak sesuai dengan kekuatanmu atau ketika Kamu meninggalkan pencapaian yang sangat bagus, Peringkatmu mungkin juga dinaikkan sebagai pengecualian."
+
+a"Jadi bekerja secara teratur adalah yang terbaik ya..."
+
+"Ya. Orang-orang yang terburu-buru untuk naik peringkat dan kehilangan nyawa mereka menerima permintaan di luar level mereka sudah biasa dilihat."
+
+Mendengarnya dengan terus terang mengatakan ini benar-benar menggambarkan betapa mudahnya kehilangan hidupmu di dunia ini.
+
 Jika Kamu melangkah ke hutan sebentar dan bertemu dengan raksasa bermata satu itu, Kamu biasanya akan mati begitu saja. Bahkan tanpa itu, beberapa dari cebol hijau itu seringkali cukup berbahaya.
 
 "Saya akan melanjutkan penjelasannya, oke? Di antara permintaan tersebut, ada permintaan umum yang diajukan oleh guild yang tersedia setiap saat.
