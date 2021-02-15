@@ -145,33 +145,48 @@ Kemudian setelah mengangguk beberapa kali, dia sekali lagi menatapku.
 a"Ya. Tolong lanjutkan."
 
 Di antara apa yang dia katakan setelah itu, poin utamanya adalah:
-・ Perselisihan antara Pemburu dilarang. Jika itu tidak dapat dihindari, maka pertempuran formal akan diizinkan.
-・ Kota atau desa yang merusak juga dilarang
-・ Meminta Job seseorang secara paksa dan menyebarkannya secara sembarangan dilarang.
-・Dilarang memalsukan Kartu dan Pangkat Hunter Kamu.
-・ Dalam saat keadaan darurat, Kamu akan dipanggil untuk pertemuan wajib tetapi kecuali ada alasan khusus, menolak dilarang.
-・ Dalam kasus di mana Kamu telah melanggar klausul terlarang ini, Kamu mungkin akan kehilangan kualifikasi untuk menjadi Hunter dan dilarang masuk kembali kemudian pada.
-· Kamu akan bebas untuk bertindak seperti yang Kamu suka, tetapi jika kurangnya diperpanjang Kamu dari aktivitas yang tidak sah, Rank mungkin akan menurun.
-・ Ada Pangkat Partai dan Peringkat Individu yang terpisah dan jika kekuatan partai dengan individu dari Pangkat yang sama dianggap dapat diterima, mereka akan diizinkan untuk menerima permintaan satu Peringkat lebih tinggi dari Pangkat individu mereka.
-・ Perubahan partai dapat dilakukan di serikat lokal mana pun.
 
-Untuk meringkas semuanya. Sebenarnya ada lebih banyak aturan dan detail, tetapi ini mungkin satu-satunya yang perlu kita perhatikan.
-Mengejutkan bahwa ada klausul terlarang terkait Jobs, namun tampaknya Pemburu tidak menganggap diskriminasi Job sebagai hal yang baik.
+・ Perselisihan antara hunter dilarang. Jika itu tidak dapat dihindari, maka pertarungan formal akan diizinkan.
+・ merusak Kota atau desa juga dilarang
+・ bertanya Job seseorang secara paksa dan menyebarkannya secara sembarangan dilarang.
+・ Dilarang memalsukan Kartu dan tingkat Huntermu.
+・ Dalam saat keadaan darurat, Kamu akan dipanggil untuk pertemuan wajib tetapi kecuali ada alasan khusus. dilarang menolaknya.
+・ Dalam kasus di mana Kamu telah melanggar aturan terlarang ini, Kamu mungkin akan kehilangan kualifikasi untuk menjadi Hunter dan dilarang menjadi hunter kembali.
+· Kamu akan bebas untuk bertindak seperti yang Kamu suka, tetapi jika Kamu kurang beraktivitas sebagai hunter, peringkatmu mungkin akan menurun.
+・ Ada tingkatan tim dan tingkatan Individu yang terpisah dan jika kekuatan tim dengan individu dari tingkat yang sama dianggap dapat diterima, mereka akan diizinkan untuk menerima permintaan satu tingkat lebih tinggi dari tingkat individu mereka.
+・ Perubahan tim dapat dilakukan di guild lokal mana pun.
+
+itu untuk ringkasan dari semuanya. Sebenarnya ada lebih banyak aturan dan detail, tetapi ini mungkin satu-satunya yang perlu kami perhatikan.
+
+Mengejutkan bahwa ada hal terlarang terkait Job, tapi tampaknya hunter tidak menganggap diskriminasi Job sebagai hal yang baik.
+
 Mungkin mereka tidak peduli selama Kamu kuat.
 
-"Nah, untuk pembuatan Kartu Hunter Kamu, kami akan mengisi informasi yang dibutuhkan melalui penyelidikan tetapi, bisakah Kamu menulis?"
-"Ya."
-"Kalau begitu, tolong ......"
+"Nah, untuk pembuatan Kartu Huntermu, kami akan mengisi informasi yang dibutuhkan melalui penyelidikan tetapi, bisakah Kamu menulis?"
+
+a"Ya."
+
+"Kalau begitu, tolong......"
 
 Resepsionis hendak memberi kami selembar kertas tetapi kemudian, dia berhenti.
-Yup . Penghitungnya sangat tinggi sehingga Aku tidak bisa melihat apa pun. Aku bisa membaca, Aku bisa menulis, tetapi Aku tidak berpikir bahwa kami tidak akan cukup tinggi. "Kalau begitu, bolehkah Aku membaca formulir dan mengisinya?" Karena dia memperhatikan Aku, Aku dengan senang hati menerimanya usul.
 
-"Pertama, bolehkah Aku
-mengetahui nama dan usia Kamu?""Cielmer, 10 tahun."
-"Kemudian, jika memungkinkan, Aku ingin meminta Pekerjaan Kamu, jika tidak apa yang Kamu kuasai."
-"Saya bisa menggunakan sihir. "
-" Dimengerti. Lalu bagaimana kalau Aku memperkenalkan Kamu ke sebuah pesta? "
-" Aku berencana untuk bertindak sendiri. "
+Yup. konternya sangat tinggi sehingga Aku tidak bisa melihat apa pun. Aku bisa membaca, Aku bisa menulis, tetapi Aku tidak berpikir bahwa kami tidak akan cukup tinggi. 
+
+"Kalau begitu, bolehkah Aku membaca formulir dan mengisinya"
+
+Karena dia memperhatikanku, Aku dengan senang hati menerimanya usulnya.
+
+"Pertama, bolehkah Aku mengetahui nama dan usiamu?"
+
+a"Cielmer, 10 tahun."
+
+"Kemudian, jika memungkinkan, Aku ingin meminta jobmu, jika tidak, apa yang Kamu kuasai."
+
+a"aku bisa menggunakan sihir."
+
+"Baiklah. Lalu bagaimana kalau Aku memperkenalkan Kamu ke sebuah tim?"
+
+a"Aku berencana untuk bertindak sendiri."
 
 Setelah dengan terus terang mengatakan kepadanya bahwa Aku ingin bersolo karier, resepsionis itu menatap Aku dengan cemas sebelum mengatakan "Itu saja." Dan memberikan kertas itu kepada Aku. Dia mungkin ingin Aku memeriksa apakah dia salah menulis sesuatu.
 
