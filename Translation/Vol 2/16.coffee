@@ -236,14 +236,16 @@ Ketika Aku hendak menjawab resepsionis, cukup yakin salah satu hunter yang melih
 
 Setidaknya aku mengharapkan sesuatu seperti [Tidak mungkin bagimu menjadi huter. Aku akan mengajarimu dengan kekuatanku!] Tapi orang yang serakah datang kepadaku.
 
-Karena resepsionis juga mengerutkan kening, dia mungkin bukan pemburu yang disukai. Namun, daripada seorang gadis yang baru berusia 10 tahun mengalahkan monster, lebih bisa dipercaya bahwa Hunter yang terkenal kejam tetapi aktif melayani mengalahkan monster itu.
+Karena resepsionis juga mengerutkan kening, dia mungkin bukan hunter yang disukai. tapi, daripada seorang gadis yang baru berusia 10 tahun mengalahkan monster, lebih bisa dipercaya bahwa Hunter yang terkenal kejam tetapi aktif mengalahkan monster itu.
 
-Aku bertanya-tanya orang macam apa yang datang untuk berkelahi, tetapi ketika aku berbalik dan melihat ke arah dari mana suara itu berasal, aku melihat tampilan yang indah dari seorang pria skinhead berwajah jahat yang mengenakan senyuman vulgar.
-Dia sepertinya tidak sekuat itu dan sepertinya kita juga tidak perlu menahannya.
-Aku berasumsi bahwa itu karena penampilan Ciel, tetapi skinhead itu dengan percaya diri melanjutkan percakapan.
+Aku penasaran orang macam apa yang datang untuk berkelahi, tetapi ketika aku berbalik dan melihat ke arah dari mana suara itu berasal, aku melihat penampilan dari seorang pria botak berwajah jahat yang memiliki senyuman vulgar.
 
-"Kamu baru saja menjadi Hunter, kan?
-     Ada hukuman karena mencuri rampasan orang lain, tahu? Tetapi jika Kamu mengembalikannya sekarang, Aku tidak akan membuat ini menjadi masalah. Apa yang kamu katakan? Jika Kamu tidak mengembalikannya, maka tidak ada pilihan selain bertarung, Kamu tahu? Karena kita tidak bisa menyelesaikannya dengan diskusi, setelah semua. "
-" Kalau begitu, mari kita jadikan pertempuran itu ujiannya, oke? "
+Dia sepertinya tidak sekuat itu dan sepertinya kita juga tidak perlu menahan kekuatan kami.
 
-Aku tidak benar-benar berpikir bahwa kami akan kalah bahkan jika kami bertempur, tetapi mata resepsionis mengatakan kepada Aku untuk tidak melakukannya. Jadi ketika Aku memikirkan tentang apa yang harus Aku lakukan, suara seorang wanita muda bergema di telinga Aku.
+Aku berasumsi bahwa itu karena penampilan Ciel, tetapi sibotak itu dengan percaya diri melanjutkan percakapan.
+
+"Kamu baru saja menjadi Hunter, kan? Ada hukuman karena mencuri rampasan orang lain lho... Tetapi jika Kamu mengembalikannya sekarang, Aku tidak akan membuat ini menjadi masalah. bagaimana? Jika Kamu tidak mengembalikannya, maka tidak ada pilihan selain bertarung, lho... Karena kita tidak bisa menyelesaikannya dengan diskusi."
+
+a"Kalau begitu, ayo kita jadikan pertempuran itu sebagai ujiannya, oke?"
+
+Aku tidak benar-benar berpikir bahwa kami akan kalah bahkan jika kami bertempur, tetapi mata resepsionis mengatakan kepadaku untuk tidak melakukannya. Jadi ketika Aku memikirkan tentang apa yang harus Aku lakukan, suara seorang wanita muda bergema di telingaku.
