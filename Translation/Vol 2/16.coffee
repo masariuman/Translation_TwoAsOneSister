@@ -44,35 +44,51 @@ Ngomong-ngomong, aku sangat khawatir dengan fakta bahwa dalam hidup kami sejauh 
 
 Tapi sekarang setelah kupikir-pikir, mungkin aku juga tidak hanya perlu memikirkan pakaiannya, tapi juga bagaimana merawat kulitnya dan juga menata rambutnya.
 
-Seperti yang diharapkan, Aku sebenarnya enggan melangkah sejauh itu; tapi jika aku tidak melakukannya, Ciel sepertinya akan malas juga. Yang terpenting, karena akulah yang aktif bergerak untuk sementara waktu, mungkin itu bagian dari hal-hal yang harus aku lakukan.
-Hmmmmmm …… Saat aku sedang merenung, Ciel bertanya "Apa yang kamu pikirkan sekarang?"
+Seperti yang kuduga, Aku sebenarnya enggan melangkah sejauh itu; tapi jika aku tidak melakukannya, Ciel sepertinya akan malas juga. karena akulah yang aktif bergerak untuk sementara waktu, mungkin itu bagian dari hal-hal yang harus aku lakukan.
 
-"Aku merenungkan sedikit tentang diriku sendiri."
-"Jadi, apakah kamu mungkin belajar sesuatu?"
-"Untuk saat ini, aku menyimpulkan bahwa ini adalah masalah untuk lain waktu.
-     Karena sepertinya kita baru saja sampai di tujuan kita. "
+Hmmmmmm ..... Saat aku sedang merenung, Ciel bertanya "Apa yang kamu pikirkan sekarang?"
+
+a"Aku merenungkan sedikit tentang diriku sendiri."
+
+c"Jadi, apakah kamu mungkin belajar sesuatu?"
+
+a"Untuk saat ini, aku menyimpulkan bahwa ini adalah masalah untuk lain waktu. Karena sepertinya kita baru saja sampai di tujuan kita."
 
 Setelah melihat ujung jalan dan berhenti tepat di depan sebuah gedung, Aku secara paksa mengakhiri percakapan kami.
-Dari semua bangunan yang pernah Aku lihat di kota ini, yang biasanya berukuran sebesar bangunan satu atau dua lantai, bangunan tiga lantai ini cukup besar, jadi Aku yakin ini tempatnya. Selain itu, ada gerbang menuju ke luar di sampingnya. Jadi sepertinya orang bisa mampir ke guild setelah kembali dari luar.
-Aku membayangkannya terlihat seperti perpanjangan kedai, tetapi sebenarnya memiliki eksterior toko yang agak bergaya.
-Membuka pintu tengah, Aku melihat konter di depan, area seperti lounge sederhana dengan meja dan kursi yang dilengkapi di kedua sisi konter, dan orang-orang yang memang terlihat seperti seorang pemburu akan berdiskusi tentang sesuatu. Karena sepertinya mereka tidak menjual alkohol apa pun, sepertinya minuman itu tidak termasuk dalam bar.
-Melihat bahwa itu tidak terlihat seluas yang terlihat dari luar, ini mungkin berarti ada banyak pekerjaan yang dilakukan di belakang layar.
 
-Saat Aku membuka pintu dan masuk ke dalam, ada beberapa orang yang mencuri pandang ke arah Aku tetapi sepertinya kehilangan minat, mereka segera kembali ke percakapan mereka.
-Aku agak berharap untuk menerima semacam "Oi missy, ini bukan tempat untuk missies kecil sepertimu", tapi sepertinya itu tidak terjadi.
+Dari semua bangunan yang pernah Aku lihat di kota ini, yang biasanya berukuran sebesar bangunan satu atau dua lantai, bangunan tiga lantai ini cukup besar, jadi Aku yakin ini tempatnya. Selain itu, ada gerbang menuju ke luar di sampingnya. Jadi sepertinya orang bisa mampir ke guild setelah kembali dari luar.
+
+Aku membayangkannya terlihat seperti toko yang panjang, tetapi memiliki eksterior toko yang agak bergaya.
+
+Membuka pintu tengah, Aku melihat konter di depan, area berbentuk lounge sederhana dengan meja dan kursi yang dilengkapi, dan orang-orang yang memang terlihat seperti seorang hunter akan berdiskusi tentang sesuatu. Karena sepertinya mereka tidak menjual alkohol apa pun, sepertinya minuman itu tidak termasuk ditempat ini.
+
+Melihat bahwa itu tidak terlihat seluas yang terlihat dari luar, ini mungkin berarti ada banyak pekerjaan yang dilakukan di balik layar.
+
+Saat Aku membuka pintu dan masuk ke dalam, ada beberapa orang yang memandang ke arah Aku tetapi sepertinya kehilangan minat, mereka segera kembali ke percakapan mereka.
+
+Aku agak berharap untuk menerima semacam "Oi nona kecil, ini bukan tempat untuk nona kecil sepertimu", tapi sepertinya itu tidak terjadi.
+
 Tapi bagian resepsionisnya adalah seorang wanita muda tampaknya sama seperti di cerita. Aku mungkin masih memikirkan hal yang sama meskipun resepsionisnya adalah pria atau wanita tua.
 
-Ya, tidak terganggu adalah yang terbaik, tetapi masalah terjadi saat Aku sampai di konter. Ini sangat tinggi. Itu mencapai sampai leherku.
-Karena itu, resepsionis wanita akhirnya menatapku dengan tatapan hangat. Juga, karena jarak tinggi kita, benda yang cukup besar berada tepat di depan mataku.
+Ya, tidak terganggu adalah yang terbaik, tetapi masalah terjadi saat Aku sampai di konter. meja ini sangat tinggi. meja ini mencapai sampai leherku.
+
+Karena itu, resepsionis wanita akhirnya menatapku dengan tatapan hangat. Juga, karena jarak tinggi kami, benda yang cukup besar berada tepat di depan mataku.
+
 Untuk melihat wajahnya, Aku perlu mengangkat kepala tapi ini agak menyakitkan.
 
-"Bagaimana Aku bisa membantu Kamu hari ini?"
-"Um , bisakah Kamu membaca ini?"
+"Bagaimana Aku bisa membantumu hari ini?"
 
-Jika Aku hanya mengatakan kepadanya bahwa Aku ingin menjadi Hunter, dia mungkin tidak akan menganggap Aku serius, jadi Aku menyerahkan kepada resepsionis surat pengantar yang Mister Gatekeeper tulis untuk kami
-"Kalau begitu, jika boleh." Setelah dengan sopan membalas Aku , dia menerima surat itu dan, dengan ekspresi terkejut, berulang kali melihat surat itu lalu kembali padaku.
-"Harap tunggu sebentar." Maafkan dirinya sendiri, dia masuk ke dalam tempat di belakang meja kasir.
-Jika Aku benar, itu harus ditulis di sana yang menjamin bahwa Aku berusia 10 tahun dan mampu mengalahkan monster, tetapi mungkin ada masalah?
+a"Um , bisakah Kamu membaca ini?"
+
+Jika Aku hanya mengatakan kepadanya bahwa Aku ingin menjadi Hunter, dia mungkin tidak akan menganggapku serius, jadi Aku menyerahkan kepada resepsionis surat pengantar yang si penjaga tulis untuk kami
+
+"Kalau begitu," Setelah dengan sopan membalasku , dia menerima surat itu dan, dengan ekspresi terkejut, berulang kali melihat surat itu lalu kembali padaku.
+
+"tolong tunggu sebentar."
+
+dia masuk ke dalam tempat di belakang meja kasir.
+
+Jika Aku benar, yang tertulis disurat itu harusnya menjamin bahwa Aku berusia 10 tahun dan mampu mengalahkan monster, tetapi mungkin ada masalah?
 
 "Atau apakah karena penampilan kita?" "
 Nah, semua orang lebih tinggi dari kita. Aku belum pernah melihat orang yang lebih pendek dariku.
