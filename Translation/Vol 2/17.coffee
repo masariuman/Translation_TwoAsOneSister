@@ -28,27 +28,29 @@ Kami tiba-tiba mendapat waktu luang, jadi Aku berbicara dengan Ciel sebentar tet
 
 Ini mungkin mirip dengan Ciel juga, tapi daripada terkesan, dia mungkin melakukan pengamatan manusia.
 
-Meskipun kami tidak benar-benar marah, bukan berarti kami tidak akan membuatnya membayar untuk ini. Jadi jika memungkinkan, Aku ingin memiliki kemenangan yang luar biasa sehingga kami dapat menurunkan kemungkinan orang mengotak-atik kami di masa depan meskipun hanya sedikit.
+Meskipun kami tidak benar-benar marah, bukan berarti kami tidak akan membuatnya seenaknya untuk ini. Jadi jika memungkinkan, Aku ingin memiliki kemenangan yang luar biasa sehingga kami dapat menurunkan kemungkinan orang menargetkan kami di masa depan meskipun hanya sedikit.
+
 Juga, ini adalah kesempatan bagus untuk belajar tentang kekuatan seorang Hunter.
 
-Tampaknya selesai dengan percakapan mereka, Carol- san -lah yang mendekati kami.
+Tampaknya selesai dengan percakapan mereka, Carol-san mendekati kami.
 
-"Jadi, Aku akan mengawasi pemeriksaan.
-     Aturannya sederhana. Sesuatu- chan dan Alejo akan bertempur dan berdasarkan bagaimana pertandingan berjalan, kepemilikan batu ajaib yang dia bawa dan Hunter Rank-nya akan ditentukan.
-     Alejo adalah Hunter Rank-D. Batu ajaib yang dia bawa juga memiliki nilai D-Rank. Singkatnya, Anda hanya perlu menang.
-     Apakah kalian berdua baik-baik saja dengan itu? "
-" Aku tidak bisa mengatakan tidak, ya? Jadi jika Aku mengalahkan gadis kecil ini seperti kain lap, Anda akan menerima bahwa batu ajaib itu milik Aku, bukan? "
+"Jadi, Aku akan yang akan mengawasi ujiannya. Aturannya sederhana. Sesuatu-chan dan Alejo akan bertarung dan berdasarkan bagaimana pertandingan berjalan, kepemilikan batu magic yang dia bawa dan peringkat Hunternya akan ditentukan. Alejo adalah Hunter Rank-D. Batu magic yang dia bawa juga memiliki nilai peringkat D. Singkatnya, kamu hanya perlu menang. Apakah kalian berdua baik-baik saja dengan itu?"
 
-Skinhead - Alejo menyeringai dan melirikku.
-Resepsionis Celia- san terlihat sedih, tapi Aku tidak punya keluhan apapun. Saat aku mengangguk, Carol- san dengan sugestif tersenyum mengatakan "Namun, membunuh dilarang."
+"Aku tidak bisa mengatakan tidak, kan? Jadi jika Aku mengalahkan gadis kecil ini seperti kain lap, kamu akan menerima bahwa batu magic itu milikku, kan?"
 
-"Jika terjadi sesuatu, Aku akan menghentikan pertandingan. Jika Anda tidak berhenti bahkan setelah itu, Aku tidak dapat menjamin apa yang akan terjadi selanjutnya. "
-" Perhatikan baik-baik, Ms. B-Rank Hunter. Aku mungkin secara tidak sengaja memukul terlalu keras. "
-" Ya, tentu saja. Lagipula, akan menjengkelkan jika seseorang meninggal di bawah pengawasanku.
-     Dan, sesuatu- chan … Agak canggung untuk terus memanggilmu seperti itu. Maukah Anda memberi Aku nama Anda? "
-" Nama Aku Cielmer. "
+Sibotak - Alejo menyeringai dan melirikku.
 
-Saat aku masih menerima fakta bahwa Carol- san adalah Pemburu Rank-B, tiba-tiba aku ditanyai tentang namaku.
+Resepsionis Celia-san terlihat sedih, tapi Aku tidak punya keluhan apapun. Saat aku mengangguk, Carol-san dengan sugestif tersenyum mengatakan "tapi, membunuh dilarang."
+
+"Jika terjadi sesuatu, Aku akan menghentikan pertandingan. Jika Kamu tidak berhenti bahkan setelah itu, Aku tidak dapat menjamin apa yang akan terjadi selanjutnya."
+
+"hei, nona hunter peringkat B. Aku mungkin secara tidak sengaja memukul terlalu keras."
+
+"Ya, tentu saja. Lagipula, akan menjengkelkan jika seseorang mati di bawah pengawasanku. Dan, sesuatu-chan ... Agak canggung untuk terus memanggilmu seperti itu. Maukah kamu memberiku namamu?"
+
+a"Nama Aku Cielmer."
+
+Saat aku masih menerima fakta bahwa Carol-san adalah Pemburu Rank-B, tiba-tiba aku ditanyai tentang namaku.
 Pembicaraannya terlalu cepat sekarang. Juga, aku merasa dia sedang menyuruh kita untuk tidak membunuh sekarang.
 Alejo adalah D-Rank, karena laba-laba itu juga D-Rank, tidak mungkin kita kalah. Selain itu, ini berarti bahwa raksasa bermata satu yang memiliki batu ajaib lebih besar kemungkinan besar adalah monster Rank-C.
 
