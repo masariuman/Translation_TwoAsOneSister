@@ -222,15 +222,19 @@ a"Aku hanya berpikir ini akan sedikit merepotkan."
 
 c"tidak perlu khawatir tentang itu. Ini juga merupakan kesempatan untuk menyingkirkan batu magic itu."
 
-Mendengar motif Ciel yang sebenarnya, Aku memberi tahu resepsionis "Saya akan mengikuti ujian." Dan meletakkan batu ajaib yang kami dapatkan ketika kami mengalahkan laba-laba di atas meja.
+Mendengar motif Ciel yang sebenarnya, Aku memberi tahu resepsionis "aku akan mengikuti ujian." Dan meletakkan batu magic yang kami dapatkan ketika kami mengalahkan laba-laba di atas meja.
 
-"Apakah ini cukup untuk membuktikan kekuatan?"
-"...... Maafkan kekasaran Aku, tetapi apakah ini sesuatu yang Kamu dapatkan sendiri?"
-"Tentu saja ......"
-"Sobat, untuk berpikir bahwa gadis kecil ini di sini benar-benar mengambilnya."
+a"Apakah ini cukup untuk membuktikan kekuatanku?"
 
-Ketika Aku hendak menjawab resepsionis, cukup yakin salah satu Pemburu yang melihat kami memotong dengan nada kasar.
-Setidaknya aku mengharapkan sesuatu seperti [Tidak mungkin bagimu menjadi pemburu. Aku akan mengajarimu dengan kekuatanku!] Tapi yang lebih serakah datang sebagai gantinya.
+"...... Maafkan kalau aku kasar, tetapi apakah ini sesuatu yang Kamu dapatkan sendiri?"
+
+a"Tentu saja ......"
+
+"maan, untuk berpikir bahwa gadis kecil ini di sini benar-benar mengambilnya."
+
+Ketika Aku hendak menjawab resepsionis, cukup yakin salah satu hunter yang melihat kami memotong dengan nada kasar.
+
+Setidaknya aku mengharapkan sesuatu seperti [Tidak mungkin bagimu menjadi huter. Aku akan mengajarimu dengan kekuatanku!] Tapi yang lebih serakah datang sebagai gantinya.
 Karena resepsionis juga mengerutkan kening, dia mungkin bukan pemburu yang disukai. Namun, daripada seorang gadis yang baru berusia 10 tahun mengalahkan monster, lebih bisa dipercaya bahwa Hunter yang terkenal kejam tetapi aktif melayani mengalahkan monster itu.
 
 Aku bertanya-tanya orang macam apa yang datang untuk berkelahi, tetapi ketika aku berbalik dan melihat ke arah dari mana suara itu berasal, aku melihat tampilan yang indah dari seorang pria skinhead berwajah jahat yang mengenakan senyuman vulgar.
