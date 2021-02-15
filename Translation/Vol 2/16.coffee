@@ -234,7 +234,8 @@ a"Tentu saja ......"
 
 Ketika Aku hendak menjawab resepsionis, cukup yakin salah satu hunter yang melihat kami memotong dengan nada kasar.
 
-Setidaknya aku mengharapkan sesuatu seperti [Tidak mungkin bagimu menjadi huter. Aku akan mengajarimu dengan kekuatanku!] Tapi yang lebih serakah datang sebagai gantinya.
+Setidaknya aku mengharapkan sesuatu seperti [Tidak mungkin bagimu menjadi huter. Aku akan mengajarimu dengan kekuatanku!] Tapi orang yang serakah datang kepadaku.
+
 Karena resepsionis juga mengerutkan kening, dia mungkin bukan pemburu yang disukai. Namun, daripada seorang gadis yang baru berusia 10 tahun mengalahkan monster, lebih bisa dipercaya bahwa Hunter yang terkenal kejam tetapi aktif melayani mengalahkan monster itu.
 
 Aku bertanya-tanya orang macam apa yang datang untuk berkelahi, tetapi ketika aku berbalik dan melihat ke arah dari mana suara itu berasal, aku melihat tampilan yang indah dari seorang pria skinhead berwajah jahat yang mengenakan senyuman vulgar.
