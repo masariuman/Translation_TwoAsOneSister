@@ -101,48 +101,62 @@ a"Kamu 'meminta' untuk melakukan ini, kan?"
 
 Setelah mengajukan beberapa pertanyaan lagi kepada Carol-san , Aku mempertimbangkan apakah kita bisa memercayainya atau tidak.
 
-Kerugian menerima itu adalah kekuatan kita akan terekspos lebih dari pertempuran sebelumnya. Namun mengenai hal itu, seberapa banyak yang bisa kami tunjukkan ditentukan.
-Kelebihannya adalah kita bisa belajar seberapa kuat Hunter tingkat tinggi. Berdasarkan reaksi Alejo, aku yakin dia setidaknya C-Rank atau lebih tinggi.
-Dengan itu sebagai referensi minimum kami, Aku pikir tidak ada keraguan bahwa Carol san adalah seorang B-Ranker. Dan jika dia mau membantu kita setelah ini, tidak ada alasan untuk menolak.
+Kerugian menerima itu adalah kekuatan kami akan terekspos lebih dari pertempuran sebelumnya. tapi mengenai hal itu, seberapa banyak yang bisa kami tunjukkan dapat ditentukan.
 
-"Secara pribadi, dengan beberapa kondisi, Aku pikir tidak apa-apa menerimanya, tapi bagaimana menurut Kamu?"
-"Maksud Kamu dengan kondisi?"
-"Kemampuan Job yang mana, Aku kira? Setidaknya, Aku ingin menyembunyikan fakta bahwa kita memiliki dua Pekerjaan.
-     Mungkin yang terbaik adalah membatasi kekuatan Putri Penari sampai disalahartikan sebagai sihir tanpa mantra. Setelah menahan sebanyak itu, Aku tidak yakin apakah kami masih bisa menang; tetapi jika itu menjadi terlalu banyak, tolong tukar dengan Aku. "
-" Tidak. Bertarung adalah peran Aku, Kamu tahu? "
+Kelebihannya adalah kami bisa belajar seberapa kuat Hunter tingkat tinggi. Berdasarkan reaksi Alejo, aku yakin dia setidaknya di tingkat C atau lebih tinggi.
 
-Jika terjadi sesuatu, dikenal sebagai Putri Song daripada Putri Tari jauh lebih nyaman untuk menghindari Duke Rispelgia, tapi aku tidak bisa mengabaikan perasaan Ciel. Dan yang terpenting, Aku juga orang yang menyarankan agar kita tetap berpegang pada peran kita.
-Aku mengabaikan itu tidak akan meninggalkan kesan yang baik pada Ciel.
-"Aku mengerti. Namun, tolong bertarung dengan cara yang tidak akan membuat mereka menyadari bahwa kamu adalah Putri Tari.
-     Sebagai gantinya, jika penghalang baik-baik saja, maka Aku tidak keberatan jika Kamu mengandalkannya. "
-" Dimengerti. "
+Dengan itu sebagai referensi minimum kami, Aku pikir tidak ada keraguan bahwa Carol san adalah seorang di tingkat B. Dan jika dia mau membantu kami setelah ini, tidak ada alasan untuk menolak.
 
-Karena kami telah memutuskan, Aku memberi tahu Carol- san"Aku akan melakukannya."
-Meskipun Aku memberi tahu Ciel bahwa tidak masalah untuk mengandalkan penghalang Aku, tidak ada jaminan bahwa Carol- san tidak akan menghancurkannya.
-Aku hanya bisa berdoa agar dia tidak menyerang kita dengan sesuatu yang sekuat itu.
-Tampak senang dengan jawabanku, Carol- san hampir saja melompat ke tengah kubah.
+a"Secara pribadi, dengan beberapa kondisi, Aku pikir tidak apa-apa menerimanya, tapi bagaimana menurut Kamu?"
 
-"Ngomong-ngomong, apakah tidak apa-apa bagiku untuk menjaga penghalang ini ?"
-"Nah, ini ronde kedua; Aku akan memperlakukan itu sebagai salah satu cacat Aku. "
-" Lalu terima kasih atas pertimbangan Kamu. Dan Aku minta maaf jika Aku tidak memenuhi harapan Kamu. "
-"Nu-uh . Bagi Aku, Aku sudah punya cukup materi baru. Tetap saja, orang menjadi semakin memanjakan ketika mereka melihat kesuksesan yang mudah. ​​"
+c"Maksud Kamu dengan kondisi?"
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+a"kurasa Kemampuan Job yang akan digunakan? Setidaknya, Aku ingin menyembunyikan fakta bahwa kita memiliki dua job. Mungkin yang terbaik adalah membatasi kekuatan dance princess sampai disalahartikan sebagai sihir tanpa mantra. Setelah menahan sebanyak itu, Aku tidak yakin apakah kita masih bisa menang; tetapi jika itu menjadi terlalu susah, tolong bergantilah denganku."
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+c"Tidak. Bertarung adalah peranku lho..."
 
-Yah, Aku mengerti bagaimana perasaan Kamu tetapi Aku pikir, dengan pola pikir itu, Kamu hanya akan lebih kecewa ketika Kamu tidak mendapatkan hasil yang baik.
-Tapi karena kami hanya diminta bertempur, jangan mengeluh tentang bagaimana kami memenuhi permintaan itu.
+Jika terjadi sesuatu, dikenal sebagai song princess daripada dance princess jauh lebih nyaman untuk menghindari Duke Rispelgia, tapi aku tidak bisa mengabaikan perasaan Ciel. Dan yang terpenting, Aku juga orang yang menyarankan agar kita tetap berpegang pada peran kami.
 
-"Nah, cukup dengan detail kecil, mari kita lakukan. Saat pisau ini mendarat di lantai, pertempuran dimulai. Apakah itu bagus? "
-" Aku mengerti. "
+Aku yang mengabaikan hal itu tidak akan meninggalkan kesan yang baik pada Ciel.
 
-Melemparkan pisau di sekitar suara berbahaya untuk Aku, tapi tidak ada cabang nyaman atau batu peletakan di sekitar, jadi mungkin untuk Carol san pisau adalah hal yang tepat untuk melempar.
-Karena kita akan bertengkar, aku harus berhenti membuat sindiran aneh sekarang. Sementara Carol- san membuat jarak di antara kami, Aku beralih dengan Ciel dan menyerahkan pertempuran padanya.
-Saat mereka berdua saling berhadapan, Carol- san melemparkan pisaunya tinggi-tinggi ke udara.
+a"Aku mengerti. tapi, tolong bertarung dengan cara yang tidak akan membuat mereka menyadari bahwa kamu adalah dance princess. Sebagai gantinya, jika +BARRIER baik-baik saja, maka Aku tidak keberatan jika Kamu mengandalkannya."
 
-Saat pisau itu mendarat setelah beberapa detik airtime, aku merasakan reaksi kekuatan sihir yang tak terhitung jumlahnya muncul di hadapan kami.
-Dalam penglihatan Aku, Aku melihat banyak panah es yang menghadap ke arah kami tergantung di udara.
+c"Baiklah."
+
+Karena kami telah memutuskan, Aku memberi tahu Carol-san "Aku akan melakukannya."
+
+Meskipun Aku memberi tahu Ciel bahwa tidak masalah untuk mengandalkan +BARRIERku, tidak ada jaminan bahwa Carol-san tidak akan menghancurkannya.
+
+Aku hanya bisa berdoa agar dia tidak menyerang kami dengan sesuatu yang sekuat itu.
+
+Tampak senang dengan jawabanku, Carol-san hampir saja melompat ke tengah Ruangan.
+
+a"Ngomong-ngomong, apakah tidak apa-apa bagiku untuk menjaga +BARRIER ini ?"
+
+"Nah, ini ronde kedua; Aku akan memperlakukan itu sebagai salah satu kondisiku."
+
+a"Terima kasih atas pertimbanganmu. Dan Aku minta maaf jika Aku tidak memenuhi harapanmu."
+
+"Nu-uh . Bagiku, Aku sudah punya cukup materi baru. Tetap saja, orang menjadi semakin manja ketika mereka melihat kesuksesan yang mudah."
+
+Yah, Aku mengerti bagaimana perasaanmu tetapi Aku pikir, dengan pola pikir itu, Kamu hanya akan lebih kecewa ketika Kamu tidak mendapatkan hasil yang baik.
+
+Tapi karena kami hanya diminta bertarung, jangan mengeluh tentang bagaimana kami memenuhi permintaan itu.
+
+"Nah, cukup dengan detail kecil, mari kita lakukan. Saat pisau ini mendarat di lantai, pertempuran dimulai. Apakah itu ok?"
+
+a"Aku mengerti."
+
+Melemparkan pisau kedengarannya berbahaya untukku, tapi tidak ada ranting atau batu di sekitar, jadi mungkin untuk pisau carol-san adalah hal yang tepat untuk dilempar.
+
+Karena kita akan bertarung, aku harus berhenti membuat sindiran aneh sekarang. Sementara Carol-san membuat jarak di antara kami, Aku berganti dengan Ciel dan menyerahkan pertempuran padanya.
+
+Saat mereka berdua saling berhadapan, Carol-san melemparkan pisaunya tinggi-tinggi ke udara.
+
+Saat pisau itu mendarat setelah beberapa detik, aku merasakan reaksi kekuatan sihir yang tak terhitung jumlahnya muncul di hadapan kami.
+
+Dalam penglihatanku, Aku melihat banyak panah es yang menghadap ke arah kami melayang di udara.
+
 Biarpun semua itu ditembakkan pada kita, itu masih akan bergantung pada kekuatan masing-masing dan setiap dari mereka tapi kupikir perisai Aku mungkin bisa memblokir mereka semua.
 Namun, Carol- san kemungkinan besar juga tahu itu. Kalau begitu, mungkin ada sesuatu di panah itu.
 
