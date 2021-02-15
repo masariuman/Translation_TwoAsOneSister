@@ -50,21 +50,28 @@ Resepsionis Celia-san terlihat sedih, tapi Aku tidak punya keluhan apapun. Saat 
 
 a"Nama Aku Cielmer."
 
-Saat aku masih menerima fakta bahwa Carol-san adalah Pemburu Rank-B, tiba-tiba aku ditanyai tentang namaku.
-Pembicaraannya terlalu cepat sekarang. Juga, aku merasa dia sedang menyuruh kita untuk tidak membunuh sekarang.
-Alejo adalah D-Rank, karena laba-laba itu juga D-Rank, tidak mungkin kita kalah. Selain itu, ini berarti bahwa raksasa bermata satu yang memiliki batu ajaib lebih besar kemungkinan besar adalah monster Rank-C.
+Saat aku masih menerima fakta bahwa Carol-san adalah hunter peringkat B, tiba-tiba aku ditanyai tentang namaku.
 
-"Apakah Anda juga baik-baik saja dengan itu, Cielmer- chan ?"
-"Ya, Aku akan melakukan yang terbaik."
-"Lalu, Celia. Aku akan meminjam kamar. "
-" Ya, tentu. Pastikan tidak ada yang terjadi, oke? "
-" Aku tahu, Aku tahu. Sekarang, ikuti aku. "
+Pembicaraannya terlalu cepat sekarang. Juga, aku merasa dia sedang memberitahu kami untuk tidak membunuh sekarang.
 
-Sambil melambaikan tangannya, Carol- san mulai membawa kami masuk
+Alejo adalah peringkat D, karena laba-laba itu juga peringkat D, tidak mungkin kita kalah. Selain itu, ini berarti bahwa raksasa bermata satu yang memiliki batu magic lebih besar kemungkinan besar adalah monster peringkat C.
+
+"Apakah kamu juga baik-baik saja dengan itu, Cielmer-chan ?"
+
+a"Ya, Aku akan melakukan yang terbaik."
+
+"Lalu, Celia. Aku akan meminjam ruangan."
+
+"Ya, tentu. Pastikan tidak terjadi apa-apa, oke?"
+
+"Aku tahu, Aku tahu. Sekarang, ikuti aku."
+
+Sambil melambaikan tangannya, Carol-san mulai membawa kami masuk
 
 ◇◇◇
 
 Sambil menahan tatapan haus darah Alejo, kami tiba di tempat seperti arena.
+
 Sebenarnya tidak ada kursi penonton, tapi area itu tertutup semacam kubah dan terlihat selebar jalur lari. Selain jendela untuk menerima sinar matahari, tidak ada yang istimewa dari itu.
 Aku berasumsi bahwa mereka tidak memproses tanah karena tidak rata seperti di dataran. Kami dibawa ke tengah lapangan.
 
