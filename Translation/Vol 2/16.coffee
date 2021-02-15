@@ -132,16 +132,17 @@ a"Jadi bekerja secara teratur adalah yang terbaik ya..."
 
 Mendengarnya dengan terus terang mengatakan ini benar-benar menggambarkan betapa mudahnya kehilangan hidupmu di dunia ini.
 
-Jika Kamu melangkah ke hutan sebentar dan bertemu dengan raksasa bermata satu itu, Kamu biasanya akan mati begitu saja. Bahkan tanpa itu, beberapa dari cebol hijau itu seringkali cukup berbahaya.
+Jika Kamu melangkah ke hutan sebentar dan bertemu dengan raksasa bermata satu itu, Kamu biasanya akan mati begitu saja. Bahkan tanpa itu, beberapa dari sicebol hijau(goblin) itu seringkali cukup berbahaya.
 
-"Saya akan melanjutkan penjelasannya, oke? Di antara permintaan tersebut, ada permintaan umum yang diajukan oleh guild yang tersedia setiap saat.
-     Ini karena guild membeli material dari monster yang dapat digunakan untuk senjata dan batu ajaib yang dikatakan dibuat dari monster. Yang ini tidak memiliki Peringkat yang dibutuhkan. Mengenai permintaan tersebut, Aku yakin akan ada penjelasan yang jauh lebih detail saat Kamu menerimanya. "
+"Aku akan melanjutkan penjelasannya, oke? Di antara permintaan tersebut, ada permintaan umum yang diajukan oleh guild yang tersedia setiap saat. Ini karena guild membeli material dari monster yang dapat digunakan untuk senjata dan batu magic yang didapat dari monster. Ini tidak memiliki Peringkat yang dibutuhkan. Mengenai permintaan tersebut, Aku yakin akan ada penjelasan yang jauh lebih detail saat Kamu menerimanya."
 
 Tepat setelah menjelaskan hal-hal yang umumnya ditanyakan, seorang pria membisikkan sesuatu ke telinga resepsionis.
+
 Kemudian setelah mengangguk beberapa kali, dia sekali lagi menatapku.
 
-"Tampaknya surat itu telah divalidasi saat kami berbicara. Jadi setelah memberikan penjelasan singkat tentang Anggaran Rumah Tangga, Aku ingin mengajukan beberapa pertanyaan. Baiklah? "
-" Ya. Tolong lanjutkan."
+"Tampaknya surat itu telah divalidasi saat kita berbicara. Jadi setelah memberikan penjelasan singkat, Aku ingin mengajukan beberapa pertanyaan. Baiklah?"
+
+a"Ya. Tolong lanjutkan."
 
 Di antara apa yang dia katakan setelah itu, poin utamanya adalah:
 ・ Perselisihan antara Pemburu dilarang. Jika itu tidak dapat dihindari, maka pertempuran formal akan diizinkan.
