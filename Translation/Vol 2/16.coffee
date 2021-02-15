@@ -188,35 +188,40 @@ a"aku bisa menggunakan sihir."
 
 a"Aku berencana untuk bertindak sendiri."
 
-Setelah dengan terus terang mengatakan kepadanya bahwa Aku ingin bersolo karier, resepsionis itu menatap Aku dengan cemas sebelum mengatakan "Itu saja." Dan memberikan kertas itu kepada Aku. Dia mungkin ingin Aku memeriksa apakah dia salah menulis sesuatu.
+Setelah dengan terus terang mengatakan kepadanya bahwa Aku ingin bersolo karier, resepsionis itu menatapku dengan cemas sebelum mengatakan "Itu saja." Dan memberikan kertas itu kepadaku. Dia mungkin ingin Aku memeriksa apakah dia salah menulis sesuatu.
 
-"Kurasa kita sedang berpesta, bukan begitu?"
-"Itu benar. Tapi kemungkinan besar mereka tidak akan mengenalinya. Dan bahkan jika mereka melakukannya, Aku pikir lebih baik kita tidak melakukannya. "
-" Kita memang perlu menyembunyikan keberadaan Ain sebanyak mungkin. "
+c"Kurasa kita sedang berada dalam tim, kan?"
 
-Saat melakukan pertukaran itu dengan Ciel, Aku mengkonfirmasi bahwa tidak ada kesalahan dan mengembalikan kertas itu.
+a"Itu benar. Tapi kemungkinan besar mereka tidak akan mengetahuinya. Dan bahkan jika mereka mengetahuinya, Aku pikir lebih baik kita tidak melakukannya."
 
-"Kemudian mulai sekarang, Cielmer -san sekarang menjadi Hunter.
-     Terakhir, apakah Kamu ingin mengikuti ujian sehingga Kamu dapat mulai dari E Rank? "
-" Bolehkah berpikir sebentar? "
-" Tentu saja tidak apa-apa, tetapi jika Kamu ingin mengikuti ujian, tolong tunjukkan sesuatu yang tunjukkan bahwa Kamu memiliki kekuatan.
-     Para penguji juga tidak punya banyak waktu luang, jadi harap dipahami. "
+c"Kita memang perlu menyembunyikan keberadaan Ain sebanyak mungkin."
+
+Saat berbicara dengan Ciel, Aku mengkonfirmasi bahwa tidak ada kesalahan dan mengembalikan kertas itu.
+
+"Kemudian mulai sekarang, Cielmer-san sekarang menjadi Hunter. Terakhir, apakah Kamu ingin mengikuti ujian sehingga Kamu dapat mulai dari E Rank?"
+
+a"Bolehkah berpikir sebentar?"
+
+"Tentu saja tidak apa-apa, tetapi jika Kamu ingin mengikuti ujian, tolong tunjukkan sesuatu yang dapat memberitahu bahwa Kamu memiliki kekuatan. Para penguji juga tidak punya banyak waktu luang, jadi harap dipahami."
 
 Mungkin ada banyak pemula yang mengikuti ujian tetapi sama sekali tidak memiliki kekuatan.
+
 Dari kata-kata resepsionis, aku agak merasa dia muak dengan itu.
-Bagaimanapun, karena kami diberi waktu, Aku memutuskan untuk berdiskusi dengan Ciel. Padahal, daripada diskusi, itu sebenarnya lebih merupakan konfirmasi. Juga, Aku merasakan seseorang bertindak mencurigakan dari deteksi Aku.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+Karena kami diberi waktu, Aku memutuskan untuk berdiskusi dengan Ciel. Daripada diskusi, itu sebenarnya lebih merupakan konfirmasi. Juga, Aku merasakan seseorang bertindak mencurigakan dari +DETECTIONku.
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
+a"Bagaimana menurutmu?"
 
-"Bagaimana menurutmu?"
-"Kamu sudah berencana untuk mengambilnya, kan? Ketika kamu bertanya apakah aku bisa bertarung, bukankah itu karena kamu sudah mengharapkan ini terjadi? "
-" Yah, ini sedikit berbeda tapi ...... Sepertinya apa yang kuharapkan akan terjadi juga. "
-" Tidak masalah apa, kita perlu mencapai Peringkat B secepat kita bisa.
-     Ain, apakah Kamu mungkin berpikir bahwa ini tidak akan berjalan dengan baik? "
-" Aku hanya berpikir ini akan sedikit mengganggu. "
-" Jadi tidak perlu khawatir tentang itu. Ini juga merupakan kesempatan untuk menyingkirkan batu ajaib itu . "
+c"Kamu sudah berencana untuk mengambilnya, kan? Ketika kamu bertanya apakah aku bisa bertarung, bukankah itu karena kamu sudah mengharapkan ini terjadi?"
+
+a"Yah, ini sedikit berbeda tapi ...... Sepertinya apa yang kuharapkan akan terjadi juga."
+
+c"Tidak masalah apa, kita perlu mencapai Peringkat B secepat kita bisa. Ain, apakah Kamu mungkin berpikir bahwa ini tidak akan berjalan dengan baik?"
+
+a"Aku hanya berpikir ini akan sedikit merepotkan."
+
+c"tidak perlu khawatir tentang itu. Ini juga merupakan kesempatan untuk menyingkirkan batu magic itu."
+
 Mendengar motif Ciel yang sebenarnya, Aku memberi tahu resepsionis "Saya akan mengikuti ujian." Dan meletakkan batu ajaib yang kami dapatkan ketika kami mengalahkan laba-laba di atas meja.
 
 "Apakah ini cukup untuk membuktikan kekuatan?"
