@@ -34,11 +34,14 @@ c"Aku tidak keberatan tetap seperti ini lho..."
 
 a"itu tidak baik."
 
-Ciel memakainya berarti aku akan memakainya juga, tapi mungkin karena aku terlihat sangat berbeda dari sebelumnya; rasanya seperti bermain dengan boneka berdandan.
-Sebaliknya, Aku kira itu lebih mirip dengan pembuatan avatar game.
-Dalam game online, ada orang yang sangat terobsesi dengan permainan peran sehingga mereka memilih bagaimana peralatan mereka terlihat daripada kepraktisan, tetapi sekarang Aku tahu bagaimana perasaan mereka.
+Ciel memakainya berarti aku akan memakainya juga, tapi mungkin karena aku terlihat sangat berbeda dari sebelumnya; rasanya seperti bermain dengan boneka.
 
-Ngomong-ngomong, aku sangat khawatir dengan fakta bahwa dalam hidup kita sejauh ini, Ciel belum menunjukkan minat pada fashion. Aku bukan tipe yang berpikir untuk menjadi modis juga, tapi mungkin yang terbaik adalah menyadari bagaimana penampilan Ciel jika memungkinkan. Karena Ciel cantik untuk memulai, akan sia-sia jika dibiarkan begitu saja.
+Aku kira itu lebih mirip dengan pembuatan avatar game.
+
+Dalam game online, ada orang yang sangat terobsesi dengan permainan sehingga mereka memilih bagaimana peralatan mereka terlihat daripada cara pemakaiannya, tetapi sekarang Aku tahu bagaimana perasaan mereka.
+
+Ngomong-ngomong, aku sangat khawatir dengan fakta bahwa dalam hidup kami sejauh ini, Ciel belum menunjukkan minat pada fashion. Aku bukan tipe yang berpikir untuk menjadi modis juga, tapi mungkin yang terbaik adalah menyadari bagaimana penampilan Ciel. Karena pada dasarnya Ciel cantik, akan sia-sia jika dibiarkan begitu saja.
+
 Tapi sekarang setelah kupikir-pikir, mungkin aku juga tidak hanya perlu memikirkan pakaiannya, tapi juga bagaimana merawat kulitnya dan juga menata rambutnya.
 
 Seperti yang diharapkan, Aku sebenarnya enggan melangkah sejauh itu; tapi jika aku tidak melakukannya, Ciel sepertinya akan malas juga. Yang terpenting, karena akulah yang aktif bergerak untuk sementara waktu, mungkin itu bagian dari hal-hal yang harus aku lakukan.
