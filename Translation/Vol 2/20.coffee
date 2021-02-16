@@ -1,4 +1,4 @@
-ch 20 : Kejadian, Hukuman dan Hadiah (Bagian 1)
+ch 20 : Jalan Kejadian, Hukuman dan Hadiah (Bagian 1)
 
 "Jadi dari apa yang Aku pahami, Cielmer-san menangkis tombak es Carol di bagian paling akhir tetapi ... Untuk memulainya, maukah Kamu menjelaskan bagaimana ini terjadi?"
 
