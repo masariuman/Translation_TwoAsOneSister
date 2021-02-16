@@ -14,35 +14,49 @@ Bukannya Ciel berlarian secara acak, dia sebenarnya berlari ke tempat lingkaran 
 
 Mungkin dengan menyadari fakta itu juga, Carol-san menjadi waspada dan memulai kembali serangan sihirnya.
 
-Ciel menuangkan kekuatan sihirnya ke lingkaran sihir dan mengaktifkan sihir. Sihir di sini adalah peluru angin yang secara otomatis mencegat sihir musuh.
-Singkatnya, dia memutuskan untuk menembak jatuh panah es yang diblokir penghalang sebelumnya.
-Dan karena kita tidak bisa menang hanya dengan bertahan, Ciel mengacungkan tangannya ke depan tubuhnya dan mengunci ke Carol- san .
+Ciel menuangkan energi sihirnya ke lingkaran sihir dan mengaktifkan sihir. Sihir yang aktif adalah peluru angin yang secara otomatis menangkis sihir musuh.
 
-"Faraalu Entendi Fralie (Peluru api, berbaris, terbang)"
+Singkatnya, dia memutuskan untuk menembak jatuh panah es yang diblokir +BARRIER sebelumnya.
 
-Setelah nyanyian, peluru api terbang menuju Carol- san . Sama seperti panah es, mereka terbang sambil berbaris di belakang satu sama lain. Jadi biarpun dia mencegat yang di depan, yang di belakang kemungkinan akan terus menyala.
-Dengan mata terbelalak karena terkejut, Carol- san kemudian tersenyum senang dan bergumam menggerakkan bibirnya.
-Tidak lama kemudian, dinding es transparan muncul tepat di depan Carol- san . Dengan permukaan halus yang memantulkan cahaya, itu memblokir semua peluru api dengan mudah.
-Setelah melihat itu, Ciel dengan anggun menggerakkan lengannya dan membuat paku tanah yang diproyeksikan di bawah kaki Carol- san , tapi dia membekukannya untuk mencegah serangan itu.
-Meskipun berada di tengah-tengah pertarungan sihir super mencolok yang hampir terlihat seperti dari sebuah film, mungkin tidak dapat dihindari bagi Aku untuk menjadi sangat bersemangat. Aku harap Aku bisa dimaafkan karena depresi oleh kenyataan bahwa Aku tidak bisa menjadi bagian darinya.
+Dan karena kami tidak bisa menang hanya dengan bertahan, Ciel mengarahkan tangannya ke depan tubuhnya ke Carol-san .
 
-Bagaimanapun, tentang kondisi kami saat ini, kami cukup dirugikan sehingga bahkan Ciel tampak gelisah.
-Pertama-tama, kendali Ciel tidak cukup baik untuk menggunakan lingkaran sihir, nyanyian, dan kemampuan Putri Penari untuk menyerang pada saat yang sama. Dan satu hal lagi, setiap serangan tidak memiliki kekuatan yang cukup di belakang mereka.
-Akan mudah untuk memperbaiki ini jika aku menggunakan kekuatanku sebagai Putri Lagu; tapi karena aku tidak ingin merusak pengalaman Ciel, dan karena aku juga ingin melihat seberapa jauh dia bisa melangkah, aku akan tetap diam untuk saat ini.
+c"Faraalu Entendi Fralie"+
 
-Ini hanya firasatku, tapi aku curiga Ciel mungkin memiliki daya tahan yang lebih tinggi dalam pertarungan sihir sementara Carol- san memiliki lebih banyak daya tembak.
-Untuk menang, Ciel harus mempertahankan status quo. Jika dia melakukannya, Carol- san pada akhirnya akan kehabisan kekuatan sihirnya terlebih dahulu.
-Namun, untuk mempertahankan status quo, Ciel membutuhkan kontrol yang halus atas sihir untuk mengimbangi kurangnya daya tembaknya.
-Bahkan sekarang aku sudah bisa melihat kendalinya kurang. Terlebih lagi, bahkan jika dia memiliki kekuatan sihir yang lebih dari cukup untuk terus maju, aku tidak dapat memastikan bahwa dia dapat mempertahankan fokus dan kekuatan keinginannya.
+Setelah membaca mantra, peluru api terbang menuju Carol-san. Sama seperti panah es, mereka terbang sambil berbaris di belakang satu sama lain. Jadi biarpun dia menangkis yang di depan, yang di belakang kemungkinan akan terus menyerang.
 
-Dan sementara aku berpikir demikian, kekuatan sihir Carol- san tiba-tiba membengkak. Sepertinya dia agak kehilangan akal sehatnya. Mungkin berlebihan, tapi dia seperti anak kecil yang begitu asyik bermain sehingga dia kehilangan jejak di sekitarnya.
+Dengan mata terbuka lebar karena terkejut, Carol-san kemudian tersenyum senang dan bergumam menggerakkan bibirnya.
+
+Tidak lama kemudian, dinding es transparan muncul tepat di depan Carol-san . Dengan permukaan halus yang memantulkan cahaya, dinding itu memblokir semua peluru api dengan mudah.
+
+Setelah melihat itu, Ciel dengan anggun menggerakkan lengannya dan membuat paku tanah yang diproyeksikan di bawah kaki Carol-san , tapi dia membekukannya untuk mencegah serangan itu.
+
+Meskipun berada di tengah-tengah pertarungan sihir super mencolok yang hampir terlihat seperti dari sebuah film, mungkin tidak dapat dihindari bagiku untuk menjadi sangat bersemangat. Aku harap Aku bisa dimaafkan karena depresi oleh kenyataan bahwa Aku tidak bisa menjadi bagian dari pertarungan ini.
+
+tentang kondisi kami saat ini, kami cukup dirugikan sehingga bahkan Ciel tampak gelisah.
+
+Pertama-tama, kendali Ciel tidak cukup baik untuk menggunakan lingkaran sihir, nyanyian, dan kemampuan Dance Princess untuk menyerang pada saat yang sama. Dan satu hal lagi, setiap serangan tidak memiliki kekuatan yang cukup juga.
+
+Akan mudah untuk memperbaiki ini jika aku menggunakan kekuatanku sebagai song princess; tapi karena aku tidak ingin merusak pengalaman Ciel, dan karena aku juga ingin melihat seberapa jauh dia bisa melangkah, aku akan tetap diam untuk saat ini.
+
+Ini hanya firasatku, tapi aku curiga Ciel mungkin memiliki daya tahan yang lebih tinggi dalam pertarungan sihir sementara Carol-san memiliki lebih banyak kekuatan dalam serangannya.
+
+Untuk menang, Ciel harus mempertahankan status quo+. Jika dia melakukannya, Carol-san pada akhirnya akan kehabisan kekuatan sihirnya terlebih dahulu.
+
+tapi, untuk mempertahankan status quo, Ciel membutuhkan kontrol yang halus atas sihir untuk mengimbangi kurangnya kekuatan sihirnya.
+
+Bahkan sekarang aku sudah bisa melihat kendalinya kurang. Terlebih lagi, walaupun dia memiliki energi sihir yang lebih dari cukup untuk terus maju, aku tidak dapat memastikan bahwa dia dapat mempertahankan fokus dan kekuatan keinginannya.
+
+Dan sementara aku berpikir demikian, kekuatan sihir Carol-san tiba-tiba meningkat. Sepertinya dia agak kehilangan akal sehatnya. Mungkin berlebihan, tapi dia seperti anak kecil yang begitu asyik bermain sehingga dia lupa akan sekitarnya.
 
 Begitu, jadi sampai sekarang, dia hanya menjaga dirinya di level Ciel. Karena dia bersenang-senang sekarang, dia mulai lupa menahan diri. Dan mungkin karena dia terlalu fokus, Ciel belum menyadarinya.
-Karena sepertinya kami akan kewalahan, Aku mulai bernyanyi untuk memberinya dukungan.
-Saat ini, Aku ingin Ciel tenang jadi Aku sengaja memilih lagu yang menenangkan untuk dinyanyikan. Dan setelah menyadari keadaan Carol- san saat ini, Ciel mengangguk dengan ekspresi serius di wajahnya.
 
-Jadi soal kekuatan Putri Lagu, pada dasarnya ciri-ciri sebuah lagu dan efeknya akan mirip satu sama lain. Misalnya, lagu yang ceria akan membuat pendengarnya ceria. Ini memperkuat efek yang dapat dirasakan bahkan dari lagu biasa, jadi menyanyikan lagu yang menenangkan akan menenangkan pendengar dan menyanyikan lagu pengantar tidur mungkin akan membuat mereka mengantuk.
-Mengenai Pekerjaan kami, Ciel dan Aku masih dalam tahap pengujian.
+Karena sepertinya kami akan kewalahan, Aku mulai bernyanyi untuk memberinya dukungan.
+
+Saat ini, Aku ingin Ciel tenang jadi Aku sengaja memilih lagu yang bisa menenangkan. Dan setelah menyadari keadaan Carol-san saat ini, Ciel mengangguk dengan ekspresi serius di wajahnya.
+
+Jadi soal kekuatan Song Princess, pada dasarnya ciri-ciri sebuah lagu dan efeknya akan mirip satu sama lain. Misalnya, lagu yang ceria akan membuat pendengarnya ceria. Ini memperkuat efek yang dapat dirasakan bahkan dari lagu biasa, jadi menyanyikan lagu yang menenangkan akan menenangkan pendengar dan menyanyikan lagu pengantar tidur mungkin akan membuat mereka mengantuk.
+
+Mengenai job kami, Ciel dan Aku masih dalam tahap pengujian.
 
 Apa yang terbang dari arah Carol- san adalah tombak es yang tebal dan tajam yang membuat panah es sebelumnya terlihat lucu jika dibandingkan.
 Sepertinya ini juga cukup rumit. Alih-alih memiliki desain tongkat runcing yang sederhana, ia memiliki tampilan unik dengan ujung yang tampak seperti bengkok dan meruncing menjadi ujung yang tajam.
