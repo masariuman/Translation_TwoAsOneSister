@@ -110,41 +110,54 @@ Itu menghabiskan sejumlah besar energi sihir dan setelah +BARRIER mengimbangi sa
 
 Jadi Aku masih perlu lebih meningkatkan sihir +BARRIERku.
 
-Karena kami masih di tengah-tengah pertandingan penting, Aku mengakhiri refleksi Aku di sini. Meskipun Aku menggunakan deteksi, menurut Aku tidak baik untuk mengalihkan perhatian tentang hal-hal lain.
-Tapi karena rentetan sihir telah mereda, mungkinkah pertempurannya sudah selesai? Jika Carol- san menggunakan sihir yang lebih kuat dari tombak es, aku benar-benar akan kehilangan kepercayaan pada kemampuanku untuk membela Ciel, jadi tolong biarkan ini menjadi akhir.
-Aku melihat Carol- san mendekati kami dengan deteksi ku, dan dia sepertinya tidak menggunakan sihir apapun, jadi seharusnya aman untuk berpikir bahwa kita sudah selesai.
+Karena kami masih di tengah-tengah pertandingan penting, Aku mengakhiri pemikiranku di sini. Meskipun Aku menggunakan +DETECTION, menurutku tidak baik untuk mengalihkan perhatian tentang hal-hal lain.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+Tapi karena rentetan sihir telah mereda, mungkinkah pertempurannya sudah selesai? Jika Carol-san menggunakan sihir yang lebih kuat dari tombak es, aku benar-benar akan kehilangan kepercayaan pada kemampuanku untuk melindungi Ciel, jadi semoga saja ini sudah selesai.
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Aku melihat Carol-san mendekati kami dengan +DETECTIONku, dan dia sepertinya tidak menggunakan sihir apapun, jadi sepertinya ini sudah selesai.
 
-"Karena tampaknya pertempuran telah selesai, maukah kamu beralih denganku?"
-"Benar, aku akan segera melakukannya. Tetap saja, apakah kita sudah menang?
-     Karena, Kamu tahu, kami bertahan dari awal hingga akhir. "
-" Meskipun kami dalam posisi bertahan, kami akan menang jika kami terus melakukannya sampai dia kehabisan kekuatan sihir, jadi Aku tidak berpikir ini akan terjadi dianggap sebagai kerugian. "
+a"Karena tampaknya pertarungan sudah selesai, maukah kamu bergantu denganku?"
 
-Sebaliknya, jika Carol- san memberi tahu kami bahwa kami kalah setelah sejauh ini, Aku tidak akan ragu untuk melakukan pertempuran yang sangat panjang.
-Sekarang, berbicara tentang Carol- san , saat dia mendekati kami, dia sangat gelisah karena suatu alasan. Yah, tidak, bukannya aku tidak mengerti.
-Dengan betapa khawatirnya penampilannya, sungguh mengejutkan bahwa dia tidak berlari ke arah kita.
-Kalau dipikir-pikir, kami masih duduk di posisi persis seperti saat kami pingsan, jadi aku berdiri dan Carol- san menunjukkan ekspresi lega.
+c"oh iya, aku akan segera melakukannya. Apakah kita sudah menang? Karena, Kamu tahu, kita bertahan dari awal hingga akhir."
 
-"Kamu masih hidup, kan? Kamu baik-baik saja, kan? "
-" Aku masih hidup. Meskipun Aku benar-benar terkejut bahwa penghalang Aku yang sebenarnya dihancurkan. "
-" Yang terakhir itu, kan? Tapi itu pasti terlihat seperti Glacio Lentso memukulmu, jadi kamu baik-baik saja berarti… "
+a"Meskipun kita dalam posisi bertahan, kita akan menang jika kita terus melakukannya sampai dia kehabisan energi sihir, jadi Aku tidak berpikir ini akan terjadi dianggap sebagai kerugian."
 
-Dia cepat berubah dari rasa khawatir. Segera setelah Aku berbicara tentang penghalang, dia mulai berbicara dengan cepat dan perlahan-lahan mendekati Aku.
-Glacio Lentso ... jadi sihir itu punya semacam nama ... tapi ini bukan waktunya untuk memikirkan hal itu.
-Dia mendekatiku dengan mata penuh keingintahuan, dan saat aku perlahan didorong mundur ke dinding, "Carol?" Sebuah suara dingin mencapai telingaku. Mengalihkan pandanganku, aku melihat Celia- san berdiri dengan ekspresi geram.
+Sebaliknya, jika Carol-san memberi tahu kami bahwa kami kalah setelah sejauh ini, Aku tidak akan ragu untuk melakukan pertarungan yang sangat panjang.
+
+Sekarang, berbicara tentang Carol-san , saat dia mendekati kami, dia sangat gelisah karena suatu alasan. Yaaah, bukannya aku tidak mengerti.
+
+Dengan betapa khawatirnya penampilannya, sungguh mengejutkan bahwa dia tidak berlari ke arah kami.
+
+Kalau dipikir-pikir, kami masih duduk di posisi persis seperti saat kami terjatuh, jadi aku berdiri dan Carol-san menunjukkan ekspresi lega.
+
+"Kamu masih hidup, kan? Kamu baik-baik saja, kan?"
+
+a"Aku masih hidup. Meskipun Aku benar-benar terkejut bahwa +BARRIERku dihancurkan."
+
+"Yang terakhir itu, kan? Tapi itu pasti terlihat seperti +GLACIO LENTSO menghantammu, kalau kamu baik-baik saja berarti..."
+
+Dia cepat berubah dari rasa khawatir. Segera setelah Aku berbicara tentang +BARRIER, dia mulai berbicara dengan cepat dan perlahan-lahan mendekatiku.
+
++GLACIO LENTSO ... jadi sihir itu punya semacam nama ... tapi ini bukan waktunya untuk memikirkan hal itu.
+
+Dia mendekatiku dengan mata penuh keingintahuan, dan saat aku perlahan didorong mundur ke dinding, "Carol?" Sebuah suara dingin mencapai telingaku. Mengalihkan pandanganku, aku melihat Celia-san berdiri dengan ekspresi geram.
 
 "Geh ......"
-"Jangan Geh aku. Tepat ketika Aku datang untuk memeriksa Kamu karena Kamu terlalu lama, mengapa Kamu mencoba membunuh Cielmer- san ? "
-" A-aku tidak mencoba membunuhnya atau apalah- ...... "
-" Apakah Kamu pikir Kamu dapat meyakinkan Aku setelah menggunakan tombak es itu? "
-" Tidak ...... Lupakan. "
 
-Setelah melihat Carol- san menundukkan kepalanya, Celia- san menghela nafas panjang dan menggelengkan kepalanya.
-Seperti yang diharapkan, sepertinya Carol- san bertindak terlalu jauh. Sihir dengan kekuatan itu pasti bukan sesuatu yang harus Kamu gunakan pada orang, satu kesalahan dan seseorang mungkin akan mati.
+"Jangan Geh kepadaku! Tepat ketika Aku datang untuk memeriksamu karena Kamu terlalu lama, mengapa Kamu mencoba membunuh Cielmer-san ?"
+
+"A-aku tidak mencoba membunuhnya atau apalah- ......"
+
+"Apakah Kamu pikir Kamu dapat meyakinkanku setelah menggunakan tombak es itu?"
+
+"Tidak ...... Lupakan itu."
+
+Setelah melihat Carol-san menundukkan kepalanya, Celia-san menghela nafas panjang dan menggelengkan kepalanya.
+
+Seperti yang diharapkan, sepertinya Carol-san bertindak terlalu jauh. Sihir dengan kekuatan itu pasti bukan sesuatu yang harus Kamu gunakan pada orang lain, satu kesalahan dan seseorang mungkin akan mati.
+
 Untungnya itu adalah Ciel, jadi tidak ada korban jiwa, tapi tidak masalah jika Kamu menganggapnya sebagai kecelakaan. Tetapi pada saat yang sama, karena dunia ini mementingkan pencapaian dan kemampuan, Aku pikir mereka mungkin menyalahkan orang yang mati karena sekarat atau sesuatu, tetapi tampaknya tidak seperti itu.
 
 Seperti yang Aku pikirkan, sulit untuk menilai hal-hal seperti ini jika Aku tidak tahu akal sehat dunia ini.
-Untuk saat ini, saat aku berpikir untuk mendapatkan jawaban yang jelas tentang hasil pertandingan dan janji yang kami buat sebelumnya, Celia- san yang sangat menyesal membawaku dan Carol- san ke ruangan yang berbeda.
+
+Untuk saat ini, saat aku berpikir untuk mendapatkan jawaban yang jelas tentang hasil pertandingan dan janji yang kami buat sebelumnya, Celia-san yang sangat menyesal membawaku dan Carol-san ke ruangan yang berbeda.
