@@ -18,38 +18,47 @@ a"Apakah Aku perlu menjelaskan dari Aku menang melawan Alejo-san ? Aku tidak ben
 
 "Tidak, tidak apa-apa. Lagipula, yang ingin Aku ketahui adalah tentang bagaimana kalian berdua akhirnya bertarung dan ringkasan umum dari pertempuran tersebut. Secara khusus, masalah tentang tombak es."
 
-a"Aku mengerti. Kami akhirnya bertarung karena Carol-san memintaku untuk menunjukkan sihirku padanya. Dan sebagai kompensasinya, dia berkata bahwa jika Aku menang, Aku akan lulus ujian Rank B. Kemudian dia juga mengatakan bahwa dia akan mengawasiku sampai Aku mencapai Rank D. "
+a"Aku mengerti. Kami akhirnya bertarung karena Carol-san memintaku untuk menunjukkan sihirku padanya. Dan sebagai kompensasinya, dia berkata bahwa jika Aku menang, Aku akan lulus ujian Rank B. Kemudian dia juga mengatakan bahwa dia akan mengawasiku sampai Aku mencapai Rank D."
 
 Dan karena itu, Aku ingin mengklarifikasi hasil pertandingan kami tetapi mungkin sulit untuk bertanya sekarang.
-Bagaimanapun, karena kita berbicara tentang detail pertempuran, Aku berharap kita mendapatkan jawabannya juga.
-Mungkin untuk mempertahankan reaksi netralnya, Celia- san menjawab, "Begitu " dengan nada datar.
+
+Karena kami berbicara tentang detail pertempuran, Aku berharap kami mendapatkan jawabannya juga.
+
+Mungkin untuk mempertahankan reaksi netralnya, Celia-san menjawab, "Begitu" dengan nada datar.
 
 "Jika hanya itu, sepertinya dia tidak melakukan apa pun yang akan menyebabkan masalah tertentu."
-"Itu tidak akan menimbulkan masalah?"
-"Itu benar. Ini tidak terlalu umum tetapi ada kasus di mana, misalnya, mantan tentara mendaftar ke guild.
-     Ketika itu terjadi, mereka dapat menggunakan peringkat sebelumnya sebagai dasar pencapaian mereka dan diizinkan untuk mengikuti ujian Naik Peringkat.
-     Tidak hanya itu, ada juga kalanya orang dengan kekuatan luar biasa ingin mendaftar. Dalam hal ini, membuat mereka memulai dari E-Rank adalah kerugian bahkan bagi Hunter's Guild. Jadi, ada sistem khusus yang memungkinkan E-Ranker tertentu menyelesaikan permintaan peringkat tinggi. Berdasarkan permintaan peringkat yang mereka selesaikan saat itu, mereka dapat Naik Peringkat ke peringkat yang sama tanpa mengikuti ujian.
-     Pertandingan ini bisa dilihat sebagai penerapannya.
 
-     Carol memutuskan untuk mendukung Cielmer- san adalah masalah pribadinya, jadi itu bukan sesuatu yang menjadi perhatian guild. Namun, ini memberi Carol tanggung jawab besar. "
+a"Itu tidak akan menimbulkan masalah?"
 
-Karena tidak ada masalah dengan janjiku dengan Carol-san, sepertinya tidak ada kerugian bagi kami.　
-Aku benar-benar gugup karena Aku mungkin juga akan dianggap bertanggung jawab untuk melakukan pertandingan formal, atau lebih tepatnya ujian, sendiri, tetapi Aku senang melihat bahwa bukan itu masalahnya.
-Berbeda dengan perasaan lega Aku, wajah Carol- san menjadi kaku. Saat dia masih tersenyum, pipinya berkedut dan aku bisa melihat dia memaksakan dirinya untuk tersenyum.
+"Itu benar. Ini tidak terlalu umum tetapi ada kasus di mana, misalnya, mantan tentara mendaftar ke guild. Ketika itu terjadi, mereka dapat menggunakan rank sebelumnya sebagai dasar pencapaian mereka dan diizinkan untuk mengikuti ujian menaikkan rank. Tidak hanya itu, ada juga kalanya orang dengan kekuatan luar biasa ingin melakukannya. Dalam hal ini, membuat mereka memulai dari Rank E adalah kerugian bahkan bagi guild Hunter. Jadi, ada sistem khusus yang memungkinkan orang dengan rank tertentu menyelesaikan permintaan tingkat tinggi. Berdasarkan permintaan rank yang mereka selesaikan saat itu, mereka dapat Naik rank ke rank yang sama tanpa mengikuti ujian. Pertandingan ini bisa dilihat sebagai penerapannya. Carol memutuskan untuk mendukung Cielmer-san adalah masalah pribadinya, jadi itu bukan sesuatu yang menjadi perhatian guild. tapi, ini memberi Carol tanggung jawab besar."
 
-Sekarang, Celia- san menanyakan detail pertempuran itu, tapi seberapa banyak aku harus membicarakannya?
-Adapun apa yang kami lakukan, Aku menggunakan penghalang bola bersama dengan yang biasa yang sesuai dengan bentuk tubuh Ciel dan juga mendukungnya dengan lagu Aku.
-Adapun Ciel, dia menggunakan sihir melalui mantra, lingkaran sihir, dan Putri Tari.
-Namun, dia hampir tidak menggunakan 10% dari kekuatan sebenarnya dari Putri Dansa sementara dukungan Aku melalui Song Princess bukanlah sesuatu yang orang akan sadari. Selain itu, sejak Ciel berhenti menggunakan kekuatan Putri Penari begitu aku mulai mendukungnya, kami belum menunjukkan sinergi Putri Penari dan Putri Lagu juga.
+Karena tidak ada masalah dengan janjiku dengan Carol-san, sepertinya tidak ada kerugian untuk kami.　
 
-Mungkin demi memamerkan sedikit kemampuan kita juga, mungkin yang terbaik adalah menceritakan semua yang terjadi padanya.
-Sebagai kesimpulan, Aku memutuskan untuk memberitahunya tentang segala hal kecuali tentang Pekerjaan kami.
-Saat aku mencapai bagian di mana penghalang bola dihancurkan dan itu berubah menjadi pertarungan sihir, Celia- san tiba-tiba menyela.
+Aku benar-benar gugup karena Aku mungkin juga akan dianggap bertanggung jawab untuk melakukan pertandingan formal, atau lebih tepatnya ujian, tetapi Aku senang bahwa bukan itu masalahnya.
 
-"Mungkin agak terlambat untuk bertanya setelah mendengar begitu banyak tetapi bisakah Aku mengkonfirmasi sesuatu, Kamu adalah seorang penyihir kan, Cielmer- san ?"
-"Ya. Jika Aku tidak menggunakan sihir, Aku mungkin tidak bisa melakukan apa-apa. "
-" Dengan kata lain, Kamu melawan Carol tanpa persiapan sebelumnya? "
-" Persiapan? Dari apa?"
+Berbeda dengan perasaan legaku, wajah Carol-san menjadi kaku. Saat dia masih tersenyum, pipinya berkedut dan aku bisa melihat dia memaksakan dirinya untuk tersenyum.
+
+Sekarang, Celia-san menanyakan detail pertempuran itu, tapi seberapa banyak aku harus membicarakannya?
+
+Adapun apa yang kami lakukan, Aku menggunakan +BARRIER bola bersama dengan +BARRIER biasa yang sesuai dengan bentuk tubuh Ciel dan juga mendukungnya dengan laguku.
+
+untuk Ciel, dia menggunakan sihir melalui mantra, lingkaran sihir, dan Dance Princess.
+
+Tapi, dia hampir tidak menggunakan 10% dari kekuatan sebenarnya dari Dance Princess sementara dukunganku melalui Song Princess bukanlah sesuatu yang orang akan sadari. Selain itu, sejak Ciel berhenti menggunakan kekuatan Dance Princess begitu aku mulai mendukungnya, kami belum menunjukkan sinergi Dance Princess dan Song Princess juga.
+
+Mungkin demi memamerkan sedikit kemampuan kami juga, mungkin yang terbaik adalah menceritakan semua yang terjadi padanya.
+
+Sebagai kesimpulan, Aku memutuskan untuk memberitahunya tentang segala hal kecuali tentang job kami.
+
+Saat aku mencapai bagian di mana +BARRIER bola dihancurkan dan itu berubah menjadi pertarungan sihir, Celia-san tiba-tiba menyela.
+
+"Mungkin agak terlambat untuk bertanya setelah mendengar begitu banyak tetapi bisakah Aku mengkonfirmasi sesuatu, Kamu adalah seorang penyihir kan, Cielmer-san ?"
+
+a"Ya. Jika Aku tidak menggunakan sihir, Aku mungkin tidak bisa melakukan apa-apa."
+
+"Dengan kata lain, Kamu melawan Carol tanpa persiapan sebelumnya?"
+
+a"Persiapan? Dari apa?"
 
 Karena Aku terus-menerus memiliki penghalang dan kami bisa mengakhiri sebagian besar perkelahian hanya dengan Aku bernyanyi dan menari Ciel jika kami tidak membatasi diri seperti yang kami lakukan kali ini, selalu terasa seperti kami selalu siap.
 Namun, dari sudut pandang penyihir, mungkin masuk akal untuk memiliki jenis persiapan yang berbeda.
