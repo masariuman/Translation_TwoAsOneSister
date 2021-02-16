@@ -1,5 +1,8 @@
 Ch 19 : Pertarungan Sengit dan dan Tombak Es
 
+rank di ubah dari peringkat
+----------
+
 "Dengan ini, +BARRIER yang mengganggu itu akhirnya hilang. Sekarang, bukankah sudah waktunya Kamu menunjukkan sihirmu berikutnya?"
 
 Setelah menerobos +BARRIERku, Carol-san meletakkan tangannya di pinggul dan yakin akan kemenangan.

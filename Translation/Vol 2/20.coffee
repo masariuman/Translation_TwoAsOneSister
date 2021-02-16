@@ -6,16 +6,19 @@ Celia-san membawa kami ke ruang interogasi berukuran sedang dengan meja di tenga
 
 Menurutku, bertanya pada Carol-san akan lebih baik karena dia tahu semua yang terjadi tapi itu mungkin salah dalam situasi ini.
 
-Mungkin dia akan meminta konfirmasi kepada Carol- san setelah Aku berbicara untuk memastikan bahwa Aku tidak berbohong.
+Mungkin dia akan meminta konfirmasi kepada Carol-san setelah Aku berbicara untuk memastikan bahwa Aku tidak berbohong.
 
-Nah, begitulah cara Aku melihat situasi ini dari lensa kalkulasi, tetapi yang sedang dicoba saat ini mungkin adalah Carol- san . Aku pikir Celia- san ingin mendengar cerita dari sudut pandang Aku terlebih dahulu sebelum menanyakannya.
-Bagaimanapun, situasi saat ini adalah akibat dari kesalahan Carol- san sejak awal.
-Celia- san duduk di sisi lain meja sementara Aku dan Carol- san berada di sisi yang sama, dan setelah Celia- san selesai berbicara, Aku merasakan tekanan aneh yang berasal dari Carol- san di samping Aku.
+Nah, begitulah cara Aku melihat situasi ini dari perhitunganku, tetapi yang sedang dianggap bersalah saat ini mungkin adalah Carol-san . Aku pikir Celia-san ingin mendengar cerita dari sudut pandangku terlebih dahulu sebelum menanyakannya.
 
-"Apakah Aku perlu menjelaskan sejak Aku menang melawan Alejo- san ? Aku tidak benar-benar berpikir ada banyak yang bisa Aku jelaskan tentang itu. "
-" Tidak, tidak apa-apa. Lagipula, yang ingin Aku ketahui adalah tentang bagaimana kalian berdua akhirnya bertarung dan ringkasan umum dari pertempuran tersebut. Secara khusus, masalah tentang tombak es. "
-" Aku mengerti. Kami akhirnya bertengkar karena Carol- san meminta Aku untuk menunjukkan sihir Aku padanya.
-     Dan sebagai kompensasinya, dia berkata bahwa dia akan membuatnya sehingga jika Aku menang, Aku akan lulus ujian B-Rank. Kemudian dia juga mengatakan bahwa dia akan mengawasi Aku sampai Aku mencapai D-Rank. "
+yaaah, Situasi saat ini adalah akibat dari kesalahan Carol-san dari awal.
+
+Celia-san duduk di sisi lain meja sementara Aku dan Carol-san berada di sisi yang sama, dan setelah Celia-san selesai berbicara, Aku merasakan tekanan aneh yang berasal dari Carol-san di sampingku.
+
+a"Apakah Aku perlu menjelaskan dari Aku menang melawan Alejo-san ? Aku tidak benar-benar berpikir ada banyak yang bisa Aku jelaskan."
+
+"Tidak, tidak apa-apa. Lagipula, yang ingin Aku ketahui adalah tentang bagaimana kalian berdua akhirnya bertarung dan ringkasan umum dari pertempuran tersebut. Secara khusus, masalah tentang tombak es."
+
+a"Aku mengerti. Kami akhirnya bertarung karena Carol-san memintaku untuk menunjukkan sihirku padanya. Dan sebagai kompensasinya, dia berkata bahwa jika Aku menang, Aku akan lulus ujian Rank B. Kemudian dia juga mengatakan bahwa dia akan mengawasiku sampai Aku mencapai Rank D. "
 
 Dan karena itu, Aku ingin mengklarifikasi hasil pertandingan kami tetapi mungkin sulit untuk bertanya sekarang.
 Bagaimanapun, karena kita berbicara tentang detail pertempuran, Aku berharap kita mendapatkan jawabannya juga.
