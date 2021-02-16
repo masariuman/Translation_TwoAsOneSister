@@ -59,34 +59,41 @@ Tapi menyebut gadis 10 tahun itu gila, bukankah itu berlebihan?
 
 "Jadi maksudmu, Kamu tidak menggunakannya karena Kamu tahu tentang +BARRIERnya?"
 
-Sungguh, jika bukan Cielmer-san , kepalaku mungkin akan terbang sekarang.
+Sungguh, kalau bukan Cielmer-san , kepalaku mungkin akan terbang sekarang.
 
-Tidak, mungkin itu tidak akan menjadi masalah sama sekali. Pangkat Carol cukup tinggi sehingga dia akan diampuni untuk sebuah "kecelakaan kecil" seperti membunuh seorang pemula.
-Jika Aku terpaksa mengatakannya, satu-satunya masalah adalah kondisi kesehatan mental Aku.
+Tidak, mungkin itu tidak akan menjadi masalah sama sekali. rank Carol cukup tinggi sehingga dia akan diampuni sebagai sebuah "kecelakaan kecil" seperti membunuh seorang pemula.
 
-"Pertama-tama, mengapa Kamu mendekatinya?"
-"Yah, maksud Aku, dia memiliki 2 batu ajaib dari monster peringkat-B, Kamu tahu?
-     Jika dia mendapatkannya sendiri pada usia itu, tidak mungkin Aku tidak tertarik dengannya. "
-" Bahkan jika Kamu tahu bahwa dia dapat mengalahkan monster peringkat-B, Aku tidak berpikir itu perlu menggunakan tombak es padanya. "
-" Kamu sangat repetitif hari ini, kamu tahu? Aku benar-benar merenungkannya, dan meskipun itu mungkin menjadi gangguan nyata baginya, bukankah bagus bagi Kamu bahwa kami dapat mengukur kekuatan aslinya secara akurat? "
+Jika Aku terpaksa mengatakannya, satu-satunya masalah adalah kondisi kesehatan mentalku.
 
-Pastinya, biarpun aku tahu dia kuat, fakta bahwa aku melihatnya memblokir tombak es tepat di depan mataku benar-benar mengubah pendapatku tentang dia.
-Aku juga telah melihat Carol menggunakan tombak es beberapa kali tetapi 10 di antaranya akan lebih dari cukup untuk dengan mudah membekukan tempat latihan sebesar itu.
-Tepat di depan mataku, Cielmer- san memblokir sesuatu yang memiliki energi sebanyak itu di dalamnya sambil mencegah kerusakan tambahan. Penilaian pribadi Aku tentang dia berubah seketika.
+"Pada dasarnya, mengapa Kamu mendekatinya?"
 
-"Jadi, lebih banyak tentang penghalang itu, dia terus-menerus memberitahunya?"
+"Yaaaaah, dia memiliki 2 batu magic dari monster rank B, Kamu tahu? Jika dia mendapatkannya sendiri pada usia itu, tidak mungkin Aku tidak tertarik dengannya."
+
+"Bahkan jika Kamu tahu bahwa dia dapat mengalahkan monster rank B, Aku tidak berpikir kamu perlu menggunakan tombak es padanya."
+
+"Kamu sangat repetitif hari ini lho... Aku benar-benar merenungkannya, dan meskipun itu mungkin menjadi gangguan nyata baginya, bukankah bagus bagimu bahwa kita dapat mengukur kekuatan aslinya secara akurat?"
+
+Pastinya, biarpun aku tahu dia kuat, fakta bahwa aku melihatnya menangkis tombak es tepat di depan mataku benar-benar mengubah pendapatku tentangnya.
+
+Aku juga telah melihat Carol menggunakan tombak es beberapa kali tetapi 10 sekaligus sudah lebih dari cukup untuk dengan mudah membekukan tempat latihan sebesar itu.
+
+Tepat di depan mataku, Cielmer-san menangkis sesuatu yang memiliki energi sebanyak itu sambil mencegah kerusakan tambahan. Penilaian pribadiku tentang dia berubah seketika.
+
+"Jadi, tahukah kamu, tentang +BARRIER itu, dia terus-menerus memakainya?"
+
 "Terus-menerus?"
-"Maksud Aku secara harfiah. Berdasarkan apa yang Aku perhatikan, pada saat Aku mendekatinya di akhir pertandingan, itu mungkin sudah diatur lagi.
-     Sejak itu, bahkan ketika kami berbicara di sini dan bahkan ketika Kamu pergi untuk membimbingnya ke penginapan, dia terus-menerus menyalakannya. "
-" Aku tidak menyadarinya. "
-" Sangat tipis sehingga Aku hampir tidak menyadarinya setelah itu. sangat berkonsentrasi. Dan meski begitu, itu bisa menghalangi tombak es.
-     Dan itu selalu ada padanya. Lihat, bukankah itu gila? "
 
-Aku hampir mengangguk pada kata-kata Carol. Aku tidak akan menyebutnya gila tetapi Aku pasti merasa itu menyimpang dari norma.
-Pertama-tama, Aku belum pernah melihat situasi di mana tombak es tidak efektif. Dan karena Cielmer- san memblokirnya, ini berarti cara dia menangani 9 tombak sebelumnya mungkin sudah cukup gila juga.
+"Maksudku secara harfiah. Berdasarkan apa yang Aku perhatikan, pada saat Aku mendekatinya di akhir pertarungan, +BARRIER itu mungkin sudah dibuat lagi. Sejak itu, bahkan ketika kita berbicara di sini dan bahkan ketika Kamu pergi untuk membawanya ke penginapan, dia terus-menerus mengaktifkan +BARRIER itu."
 
-"Jika itu berkembang lebih jauh, Kamu bisa menyebutnya sebagai bentuk terakhir dari sihir penghalang. Ini sudah pada level yang bisa Kamu beri nama mantra.
-     Mengurangi konsumsi kekuatan sihir adalah satu masalah yang harus diselesaikan tetapi bahkan dari sudut pandang itu, penghalang itu adalah contoh yang luar biasa. Bahkan tekniknya dalam menyembunyikan fakta bahwa dia menggunakan sihir sudah kelas atas. "
+"Aku tidak menyadarinya."
+
+"+BARRIER itu Sangat tipis sehingga Aku hampir tidak menyadarinya. aku perlu sangat berkonsentrasi untuk menyadarinya. Dan meski begitu, +BARRIER itu bisa menahan tombak es. Dan itu selalu ada padanya. kaaan, bukankah itu gila?"
+
+Aku hampir mengangguk pada kata-kata Carol. Aku tidak akan menyebutnya gila tetapi Aku pasti merasa itu tidak normal.
+
+Pertama-tama, Aku belum pernah melihat situasi di mana tombak es tidak efektif. Dan karena Cielmer-san menangkisnya, ini berarti cara dia menangani 9 tombak sebelumnya mungkin sudah cukup gila juga.
+
+"Jika +BARRIER itu berkembang lebih jauh, Kamu bisa menyebutnya sebagai bentuk terakhir dari sihir +BARRIER. Ini sudah pada level dimana kamu bisa memberinya nama baru untuk sihir itu. Mengurangi konsumsi energi sihir adalah satu masalah yang harus diselesaikan tetapi bahkan dari sudut pandang itu, penghalang itu adalah contoh yang luar biasa. Bahkan tekniknya dalam menyembunyikan fakta bahwa dia menggunakan sihir sudah kelas atas. "
 " Ya ya. "
 " Jangan terlalu acuh tak acuh. Hal lain, Aku katakan sebelumnya bahwa Aku akan menang jika Aku menggunakan Pekerjaan Aku, kan? Tapi Aku juga curiga dia menyembunyikan sesuatu yang lain, jadi Aku tidak yakin siapa yang akan menang jika kita berdua bertarung dengan kekuatan penuh. "
 " Tunggu, dia masih bisa menjadi lebih kuat? "
