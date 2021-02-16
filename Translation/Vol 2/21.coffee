@@ -56,27 +56,37 @@ Di luar Guild Hunter, sekarang benar-benar sudah gelap tetapi, dari jendela bang
 
 Ini bukan cahaya yang berkedip-kedip seperti yang dibuat oleh api, dan meskipun tidak secerah lampu neon, itu mungkin masih cukup terang untuk membaca buku di tengah malam.
 
-"Ini benar-benar cerah meskipun malam hari."
-"Apakah ini pertama kalinya Kamu melihat item sihir lampu?"
-"Ya. Aku khawatir Aku tidak akan tahu cara menggunakan yang mereka miliki di penginapan. "
-" Kamu hanya perlu membalik sakelar, tidak terlalu rumit. Dan jika lampunya tidak menyala, itu berarti batu ajaib telah kehabisan kekuatan sihir, jadi tidak apa-apa jika Kamu memberi tahu pemiliknya tentang itu. "
+a"Ini benar-benar cerah meskipun malam hari."
 
-Aku mengumpulkan keberanian Aku dan bertanya tentang hal itu tetapi tampaknya dia tidak menganggapnya aneh. Dalam hal ini, item sihir mungkin tidak tersedia di desa kecil dan semacamnya.
-Saat aku menghela nafas lega dalam pikiranku, dengan "Jika kamu tidak keberatan menjawab…" sebagai pengantar, Celia- san menanyakanku sebuah pertanyaan.
+"Apakah ini pertama kalinya Kamu melihat item sihir lampu?"
+
+a"Ya. Aku khawatir Aku tidak akan tahu cara menggunakan yang mereka miliki di penginapan."
+
+"Kamu hanya perlu membalik sakelarnya, tidak terlalu rumit. Dan jika lampunya tidak menyala, itu berarti batu magic telah kehabisan energi sihir, jadi tidak apa-apa jika Kamu memberi tahu pemiliknya tentang itu."
+
+Aku mengumpulkan keberanianku dan bertanya tentang hal itu tetapi tampaknya dia tidak menganggapnya aneh. Dalam hal ini, item sihir mungkin tidak tersedia di desa kecil dan semacamnya.
+
+Saat aku menghela nafas lega dalam pikiranku, dengan "Jika kamu tidak keberatan menjawab..." sebagai pengantar, Celia-san menanyakanku sebuah pertanyaan.
 
 "Mengapa Kamu terburu-buru untuk naik peringkat?"
-"Karena Aku ingin keluar dari negara ini?"
-"Keluar, bukan?"
-"Apakah Kamu menentang Aku meninggalkan kota ini?"
 
-Aku mengajukan pertanyaan yang sedikit melibatkan dan dengan hati-hati memandang ke Celia- san . Karena Aku menjawab pertanyaan dengan pertanyaan lain, Aku khawatir Celia- san akan menganggapnya menyinggung tapi sepertinya itu bukan masalah.
+a"Karena Aku ingin keluar dari negara ini?"
+
+"Keluar?"
+
+a"Apakah Kamu menentangku meninggalkan kota ini?"
+
+Aku mengajukan pertanyaan dengan hati-hati memandang ke Celia-san . Karena Aku menjawab pertanyaan dengan pertanyaan lain, Aku khawatir Celia-san akan menganggapnya menyinggung tapi sepertinya itu bukan masalah.
+
 Setelah menggelengkan kepalanya, dia menatap langsung ke mataku dan menjawab "Aku setuju dengan itu."
 
-"Cielmer- san , menurut pendapat Aku, Kamu adalah individu yang tidak boleh ditahan di kota seperti ini.
-     Jadi mengenai itu, bolehkah Aku bertanya mengapa Kamu ingin keluar dari negara? "
-" Celia- san , apakah Kamu masih ingat berapa umur Kamu, pertama kali Kamu makan sesuatu? "
-" Mari kita lihat. Aku tidak begitu ingat tetapi Aku percaya bahwa anak-anak pada umumnya dapat mulai makan oatmeal setengah tahun setelah kelahiran mereka. "
-" Pertama kali Aku makan sesuatu, adalah ketika Aku berusia 5 tahun. "
+"Cielmer-san , menurut pendapatku, Kamu adalah individu yang tidak boleh ditahan di kota seperti ini. Jadi mengenai itu, bolehkah Aku bertanya mengapa Kamu ingin keluar dari negara ini?"
+
+a"Celia-san , apakah Kamu masih ingat berapa umurmu, pertama kali Kamu makan sesuatu?"
+
+"hmmmm... Aku tidak begitu ingat tetapi Aku percaya bahwa anak-anak pada umumnya dapat mulai makan bubur setengah tahun setelah kelahiran mereka."
+
+"Pertama kali Aku makan sesuatu, adalah ketika Aku berusia 5 tahun."
 
 Saat aku mengingat untuk mengatakannya sesantai mungkin, Celia- san tidak bisa berkata-kata dan tidak dapat menemukan apa pun untuk menjawab.
 Aku tidak benar-benar mencoba untuk membual tentang kemalangan kami tetapi karena sepertinya dia mungkin mendukung kami, Aku memutuskan untuk berbicara lebih banyak tentang kami.
