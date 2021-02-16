@@ -2,15 +2,19 @@ Ch 19 : Pertarungan Sengit dan dan Tombak Es
 
 "Dengan ini, +BARRIER yang mengganggu itu akhirnya hilang. Sekarang, bukankah sudah waktunya Kamu menunjukkan sihirmu berikutnya?"
 
-Setelah menerobos penghalang Aku, Carol- san meletakkan tangannya di pinggul dan mendengus penuh kemenangan.
-Kesan pertamaku tentang dia adalah seorang wanita dewasa yang matang, tetapi melihat dia sekarang, dia tampak lebih seperti wanita dewasa yang belum dewasa.
-Mengingat bahwa itu hanya menunjukkan betapa dia mencintai sihir, itu cukup menghangatkan hati untuk melihatnya dan pada saat yang sama, sedikit membuat iri.
+Setelah menerobos +BARRIERku, Carol-san meletakkan tangannya di pinggul dan yakin akan kemenangan.
 
-Jika ditanya, apakah Aku benar-benar punya waktu untuk memikirkan komentar kasar seperti itu? Aku akan menjawab, tentu saja ya.
-Bukannya Ciel berlarian sembarangan, dia sebenarnya berlari ke tempat lingkaran sihir yang kami gunakan selama pertandingan dengan Alejo berada. Bagaimanapun, kita dapat dengan mudah menggunakannya kembali setelah menulis ulang sedikit. Selain itu, kami juga dapat mengubah berbagai mantra tertulis yang digunakan untuk menahan selama pertarungan dengan Alejo menjadi yang lebih berorientasi pada pertempuran.
+Kesan pertamaku tentangnya adalah seorang wanita dewasa yang matang, tetapi melihat dia sekarang, dia tampak lebih seperti wanita dewasa yang belum dewasa.
 
-Mungkin dengan menyadari fakta itu juga, Carol- san menjadi waspada dan memulai kembali serangan sihirnya.
-Mencocokkan itu, Ciel menuangkan kekuatan sihirnya ke lingkaran sihir dan mengaktifkan sihir. Sihir di sini adalah peluru angin yang secara otomatis mencegat sihir musuh.
+Mengingat itu hanya menunjukkan betapa dia mencintai sihir, cukup menghangatkan hati melihatnya dan pada saat yang sama, sedikit membuat iri.
+
+Jika ditanya, apakah Aku benar-benar punya waktu untuk memikirkan hal seperti itu? Aku akan menjawab, tentu saja.
+
+Bukannya Ciel berlarian secara acak, dia sebenarnya berlari ke tempat lingkaran sihir yang kami gunakan selama pertarungan dengan Alejo. Kami dapat dengan mudah menggunakannya kembali setelah mengubah sedikit. Selain itu, kami juga dapat mengubah berbagai mantranya.
+
+Mungkin dengan menyadari fakta itu juga, Carol-san menjadi waspada dan memulai kembali serangan sihirnya.
+
+Ciel menuangkan kekuatan sihirnya ke lingkaran sihir dan mengaktifkan sihir. Sihir di sini adalah peluru angin yang secara otomatis mencegat sihir musuh.
 Singkatnya, dia memutuskan untuk menembak jatuh panah es yang diblokir penghalang sebelumnya.
 Dan karena kita tidak bisa menang hanya dengan bertahan, Ciel mengacungkan tangannya ke depan tubuhnya dan mengunci ke Carol- san .
 
