@@ -77,65 +77,82 @@ Itu pasti dari kesan setelah melawannya. Karena Carol tampaknya sangat yakin ten
 
 Menjadi hebat dalam ilmu sihir dengan rambut putih adalah satu hal, fakta bahwa itu adalah ciri khas yang diperoleh adalah sesuatu yang tidak dapat diketahui orang lain.
 
-"Itu tentang semua informasi yang kami miliki saat ini, tapi apa pendapat Kamu tentang dia, Celia?"
+"Itu tentang semua informasi yang kita miliki saat ini, tapi apa pendapatmu tentang dia, Celia?"
+
 "Pertama-tama, dia mungkin seorang anak bangsawan yang digunakan sebagai subjek tes."
-"Dengan rambut putihnya, itu satu-satunya menjawab. Selain itu, dia pasti putri bangsawan. "
-" Yah karena dia bisa menggunakan sihir sejauh itu, praktis tidak mungkin baginya untuk menjadi orang biasa yang sederhana.
-     Ini hanya spekulasi Aku, tapi dia mungkin anak kandung orang tersebut. Lagipula, bangsawan memiliki kecenderungan yang kuat untuk memperlakukan anak-anak sebagai milik orang tua. Dan terlebih lagi, jika mereka menculik atau membeli anak dari rumah lain, risikonya akan terlalu besar. "
-"Dan setelah itu, dia dikurung sampai dia berusia 10 tahun. Itu mungkin alasannya, meskipun dia terlahir sebagai bangsawan, dia belum pernah melihat item sihir sebelumnya.
-     Mungkin ada titik balik ketika dia berusia 5 tahun, tetapi tidak ada cara untuk mengetahui apa yang mungkin terjadi.
-     Juga, Aku tidak benar-benar ingin memikirkannya, tetapi dia mungkin memiliki Pekerjaan yang mengecewakan. "
-" Jangan gunakan istilah mengecewakan - ...... Aku akan menyimpannya untuk nanti.
-     Tetap saja, bisa menggunakan sihir yang bisa memblokir tombak es sementara tidak memiliki Pekerjaan Sihir, bukankah itu terlalu mendorongnya? "
-" Sudah kubilang, itulah mengapa aku tidak ingin memikirkannya . Tetap saja, dia terdaftar di sini sebagai Hunter, kan?
-     Dalam hal ini, sangat mungkin dia meninggalkan rumahnya baru-baru ini. Dengan kata lain, dia pergi ketika dia berusia 10 tahun atau mungkin sedikit setelahnya.
-     Nah, apakah saat ini ada permintaan pencarian berafiliasi bangsawan di guild negara ini? "
-" Tidak ada. Jadi, apakah itu berarti bahwa dia dibatasi sampai mereka dapat mempelajari pekerjaannya dan meninggalkannya karena pekerjaannya tidak memuaskan? "
+
+"Dengan rambut putihnya, itu satu-satunya jawabannya. Selain itu, dia pasti putri bangsawan."
+
+"Yaaah karena dia bisa menggunakan sihir sejauh itu, tentu saja tidak mungkin baginya untuk menjadi orang biasa yang sederhana. Ini hanya spekulasiku, tapi dia mungkin anak kandung bangsawan tersebut. Lagipula, bangsawan memiliki kecenderungan yang kuat untuk memperlakukan anak-anak sebagai kepemilikan orang tua. Dan terlebih lagi, jika mereka menculik atau membeli anak dari tempat lain, risikonya akan terlalu besar."
+
+"Dan setelah itu, dia dikurung sampai dia berusia 10 tahun. Itu mungkin alasannya, meskipun dia terlahir sebagai bangsawan, dia belum pernah melihat item sihir sebelumnya. Mungkin ada sesuatu terjadi ketika dia berusia 5 tahun, tetapi tidak ada cara untuk mengetahui apa yang mungkin terjadi. Juga, Aku tidak benar-benar ingin memikirkannya, tetapi dia mungkin memiliki job yang mengecewakan."
+
+"Jangan gunakan istilah mengecewakan...... Aku akan menyimpannya untuk nanti. Tetap saja, bisa menggunakan sihir yang bisa menangkis tombak es sementara tidak memiliki job Sihir, bukankah itu terlalu aneh?"
+
+"Sudah kubilang, itulah mengapa aku tidak ingin memikirkannya. Tetap saja, dia terdaftar di sini sebagai Hunter, kan? Dalam hal ini, sangat mungkin dia meninggalkan rumahnya baru-baru ini. Dengan kata lain, dia pergi ketika dia berusia 10 tahun atau mungkin tidak lama setelahnya. Nah, apakah saat ini ada permintaan pencarian berafiliasi bangsawan di guild negara ini?"
+
+"Tidak ada. Jadi, apakah itu berarti bahwa dia dikurung sampai mereka dapat mengetahui jobnya dan meninggalkannya karena jobnya tidak memuaskan?"
 
 Carol mengangguk puas.
-Tentu saja, Carol memang membuat poin yang bagus. Di dalam guild, kami mengajari orang-orang bahwa tidak ada pasang surut antara Pekerjaan tetapi pada kenyataannya, diskriminasi Pekerjaan dapat dilihat bahkan di antara Pemburu.
-Di antara Pemburu peringkat tinggi, jenis diskriminasi ini praktis tidak ada. Tetapi di antara Pemburu peringkat rendah, banyak dari mereka menilai individu berdasarkan Pekerjaan mereka. Alejo juga salah satunya.
 
-Kembali ke Cielmer- san , jika dia memiliki Sorcery Job selain bisa menggunakan sihir setingkat itu, mereka tidak akan begitu saja menyerahkannya bahkan jika dia kabur.
-Dalam sembilan dari sepuluh kasus, mereka kemungkinan akan mengirim permintaan pencarian ke guild dengan detail yang tidak bisa diungkapkan. Dalam kasus bangsawan tinggi, bahkan mungkin bagi mereka untuk menugaskan Hunter veteran di balik pintu tertutup. Jika asumsi kami sejauh ini benar, mereka hanya perlu meminta pencarian anak hilang dan karena itu, guild sendiri kemungkinan akan mengotorisasi jika mereka mengajukannya.
+Tentu saja, Carol memang membuat poin yang bagus. Di dalam guild, kami mengajari orang-orang bahwa tidak ada perbedaan antara job tetapi pada kenyataannya, diskriminasi job dapat dilihat bahkan di antara Hunter.
 
-Jadi, karena tidak ada permintaan seperti itu, bisa dibilang begitu: mereka tidak mencarinya, jadi dia sudah pasti ditinggalkan. Jika benar-benar ada seseorang yang membuntutinya secara diam-diam, kemungkinan besar mereka tidak akan memberinya kebebasan sebanyak ini. Dia akan ditangkap bahkan sebelum dia bisa mencapai guild.
-Aku tidak tahu untuk alasan apa mereka membiarkannya sebebas ini, dan dia ditinggalkan karena tidak berguna setelah dibesarkan selama 10 tahun jauh lebih meyakinkan bagiku.
-Siapa tahu? Dia mungkin telah menyembunyikan bakatnya dalam sihir sambil mengincar Job yang mengecewakan juga, aku tidak dapat menyangkal kemungkinan itu.
+Di antara Hunter rank tinggi, jenis diskriminasi ini tentu tidak ada. Tetapi di antara Hunter rank rendah, banyak dari mereka menilai individu berdasarkan Job mereka. Alejo juga salah satunya.
 
-"Ada juga kemungkinan dia dijual dan melarikan diri dari gerbong yang bergerak saat bepergian ke tujuan mereka.
-     Singkatnya, dia adalah mantan putri bangsawan yang ditinggalkan oleh rumah dan merupakan gadis dengan Pekerjaan yang mengecewakan, itu saja. "
-" Dan alasan dia ingin meninggalkan negara itu mungkin agar dia bisa sejauh mungkin dari tempat dia sebelumnya dikurung untuk menghindari dibawa kembali. "
-" Sepertinya masih ada lebih banyak rahasia tetapi itu tentang apa yang kita ketahui, kan?
-Jadi Celia, apakah Kamu ingin membantunya? "
+Kembali ke Cielmer-san , jika dia memiliki Job Sorcery selain bisa menggunakan sihir setingkat itu, mereka tidak akan begitu saja menyerahkannya bahkan jika dia kabur.
+
+Dalam sembilan dari sepuluh kasus, mereka kemungkinan akan mengirim permintaan pencarian ke guild dengan detail yang tidak bisa diungkapkan. Dalam kasus bangsawan tinggi, bahkan mungkin bagi mereka untuk menugaskan Hunter veteran di belakang layar. Jika asumsi kami sejauh ini benar, mereka hanya perlu meminta pencarian anak hilang dan karena itu, guild sendiri kemungkinan akan mengotorisasi jika mereka mengajukannya.
+
+Jadi, karena tidak ada permintaan seperti itu, bisa dibilang kalau mereka tidak mencarinya, jadi dia sudah pasti dibuang. Jika benar-benar ada seseorang yang membuntutinya secara diam-diam, kemungkinan besar mereka tidak akan memberinya kebebasan sebanyak ini. Dia akan ditangkap bahkan sebelum dia bisa mencapai guild.
+
+Aku tidak tahu untuk alasan apa mereka membiarkannya sebebas ini, dan dia dibuang karena tidak berguna setelah dibesarkan selama 10 tahun jauh lebih meyakinkan bagiku.
+
+entahlah... Dia mungkin telah menyembunyikan bakatnya dalam sihir sambil mengincar Job yang mengecewakan juga, aku tidak dapat menyangkal kemungkinan itu.
+
+"Ada juga kemungkinan dia dijual dan melarikan diri dari kereta kuda yang bergerak saat bepergian ke tujuan mereka. Singkatnya, dia adalah mantan putri bangsawan yang dibuang dan merupakan gadis dengan job yang mengecewakan, itu saja."
+
+"Dan alasan dia ingin meninggalkan negara itu mungkin agar dia bisa sejauh mungkin dari tempat dia sebelumnya dikurung untuk menghindari dibawa kembali."
+
+"Sepertinya masih ada lebih banyak rahasia tetapi itulah yang kita ketahui saja, kan? Jadi Celia, apakah Kamu ingin membantunya?"
 
 Itulah masalahnya. Jika Aku terlibat dengannya, ada kemungkinan besar masalah datang bersamanya juga.
-Bahkan memahami fakta itu, Cielmer- san meminta bantuanku. Dia bertanya kepada Aku apakah Aku menentangnya meninggalkan kota ini juga dapat dilihat ketika dia bertanya kepada Aku seberapa besar Aku berpihak pada negara ini.
-Bagaimanapun, dengan kemampuannya, guild kota ini akan aman. Karena itu, seseorang dari guild ini secara tidak langsung akan mencoba menahannya di sini.
-Kemungkinan besar pada tahap ini, dia mempercayai Aku, tidak, dia mempertaruhkan peluangnya pada Aku. Jika asumsi kami benar, dia sama sekali tidak memiliki siapa pun untuk diandalkan. Meski begitu, bagi gadis 10 tahun seperti dia, mungkin tak tertahankan baginya untuk tetap hidup sendiri.
-Karena alasan itu, dia bertaruh. Mungkin itu sebabnya dia membicarakan masa lalunya.
-Namun, alasan dia tidak menjelaskan secara detail adalah karena dia tahu bahwa melakukan hal itu mungkin akan membuatku dalam bahaya juga.
 
-"Nah karena kesalahan seseorang tertentu, Aku tidak benar-benar punya pilihan selain membantunya, Kamu tahu?"
-"Kamu berniat membantunya lebih dari yang diperlukan, bukan? Apakah Kamu bersimpati padanya? "
-" Aku merasa kasihan padanya, tetapi Aku tidak dapat menempatkan diri Aku dalam bahaya hanya karena itu. Namun, dia akan menjadi Hunter yang luar biasa di masa depan, bukan begitu? Jadi sebagai anggota staf Hunter's Guild, tidak ada salahnya untuk menghiburnya sedini mungkin, kan? "
-" Untuk saat ini, sepertinya dia akan memecahkan rekor untuk promosi peringkat-C tercepat. Mempertimbangkan fakta bahwa dia akan naik ke peringkat-B tidak terlalu jauh di masa depan, dia sudah menjadi Hunter yang luar biasa. "
-" Yang terpenting, masalah yang akan dia bawa bersamanya kemungkinan besar akan sebagian besar terkait dengan guild setelahnya. semua."
+Bahkan memahami fakta itu, Cielmer-san meminta bantuanku. Dia bertanya kepadaku apakah Aku menentangnya meninggalkan kota ini juga dapat dilihat sebagai dia bertanya kepadaku seberapa besar Aku berpihak pada negara ini.
+
+Bagaimanapun juga, dengan kemampuannya, guild kota ini akan aman. Karena itu, seseorang dari guild ini secara tidak langsung akan mencoba menahannya di sini.
+
+Kemungkinan besar pada tahap ini, dia mempercayaiku, tidak, dia mempertaruhkan peluangnya padaku. Jika asumsi kami benar, dia sama sekali tidak memiliki siapa pun untuk diandalkan. Meski begitu, bagi gadis 10 tahun seperti dia, mungkin tak tertahankan baginya untuk tetap hidup sendiri.
+
+Karena alasan itu, dia bertaruh. Mungkin itu sebabnya dia membicarakan masa lalunya.
+
+tapi, alasan dia tidak menjelaskan secara detail adalah karena dia tahu bahwa melakukan hal itu mungkin akan membuatku dalam bahaya juga.
+
+"Nah karena kesalahan seseorang tertentu, Aku tidak benar-benar punya pilihan selain membantunya, kan?"
+
+"Kamu berniat membantunya lebih dari yang diperlukan, kan? Apakah Kamu bersimpati padanya?"
+
+"Aku merasa kasihan padanya, tetapi Aku tidak dapat menempatkan diriku dalam bahaya hanya karena itu. tapi, dia akan menjadi Hunter yang luar biasa di masa depan, kan? Jadi sebagai anggota staf guild Hunter, tidak ada salahnya untuk menduungnya dari sekarang, kan?"
+
+"Untuk saat ini, sepertinya dia akan memecahkan rekor untuk promosi rank C tercepat. Mempertimbangkan fakta bahwa dia akan naik ke rank B tidak terlalu lama di masa depan, dia sudah menjadi Hunter yang luar biasa."
+
+"Yang terpenting, masalah yang akan dia bawa bersamanya kemungkinan besar sebagiannya akan terkait dengan guild."
+
 "Yah itu benar."
 
-Bagaimanapun, itu hanya asumsi Aku, tetapi individu yang mengurungnya sudah kehilangan minat padanya.
+Bagaimanapun juga, itu hanya asumsiku, tetapi individu yang mengurungnya sudah kehilangan minat padanya.
+
 Sebagian besar masalah pasti akan berasal dari berurusan dengan Hunter yang akan berkelahi dengannya dan meremehkannya karena jenis kelamin dan penampilannya.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+"Nah jika Kamu ingin melakukannya, Aku akan membantu dia juga. Aku sudah berjanji untuk menjaganya sampai dia mencapai rank D dan Aku harus menebus apa yang Aku lakukan juga."
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"waaah, itu tidak biasa. Tetapi bahkan setelah mengatakan itu, kamu hanya tertarik pada sihirnya, kan?"
 
-"Nah jika Kamu ingin melakukannya, Aku akan membantu dia juga.
-     Aku sudah berjanji untuk menjaganya sampai dia mencapai peringkat-D dan Aku harus menebus apa yang Aku lakukan juga. "
-" Ya ampun, itu tidak biasa. Tetapi bahkan setelah mengatakan itu, kamu hanya tertarik pada sihirnya, kan? "
-" Aku tidak akan menyangkal itu. Tetap saja, bagian penebusan juga benar, oke? "
-" Betapa mengaguminya kamu. "
+"Aku tidak akan menyangkal itu. Tetap saja, bagian penebusan juga benar, oke?"
 
-Aku mengatakan itu padanya dan secara implisit mengakhiri topik ini.
-Setelah ini, itu akan tergantung pada apa yang terjadi besok ketika Aku bertemu dengan Cielmer- san .
-Sementara itu, Aku akan menguliahi Carol untuk saat ini.
+"Betapa hebatnya kamu."
+
+Aku mengatakan itu padanya dan secara implisit untuk mengakhiri topik ini.
+
+Setelah ini, itu akan tergantung pada apa yang terjadi besok ketika Aku bertemu dengan Cielmer-san.
+
+Sementara itu, Aku akan memarahi Carol untuk saat ini.
