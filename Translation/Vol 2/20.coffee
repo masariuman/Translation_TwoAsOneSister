@@ -118,23 +118,29 @@ a"Ya, tolong jangan pedulikan Aku."
 
 Setelah mendapatkan konfirmasiku, dia mengirim tatapan dingin ke arah Carol-san.
 
-Carol- san dengan canggung mengalihkan pandangannya tapi sepertinya dia tidak bisa melarikan diri.
+Carol-san dengan canggung mengalihkan pandangannya tapi sepertinya dia tidak bisa melarikan diri.
 
-"Katakan Carol. Apa yang kamu lawan? "
-" ...... Seorang gadis berusia 10 tahun. "
-" Aku tahu kan? Kamu tidak benar-benar melawan wyvern, kan?
-     Lalu mengapa Kamu menggunakan 10 di antaranya? Bahkan ada yang berlebihan, kan? Pertama-tama, tidakkah kamu tahu bahwa bahkan menggunakan hanya salah satu dari mereka di dalam fasilitas guild tanpa izin akan memberimu denda? "
-" Aku tidak bisa menahannya. Itu sangat menyenangkan. Anak ini sungguh luar biasa, lho?
-     Semakin sering Kamu mendekatinya, semakin dia menyukai sesuatu yang baru. Seperti, itu membuat Kamu ingin menyerangnya dengan seluruh kekuatan Kamu, Kamu tahu? "
-" Kamu bisa bersikap defensif seperti yang Kamu inginkan tetapi denda tidak masalah. 10 koin emas per tombak. Dan karena Kamu menggunakan 10 dari mereka, 100 koin emas. "
-"Haa ... Mau bagaimana lagi. "
+"hey Carol. Apa yang kamu lawan?"
 
-Sambil menghela nafas panjang, Carol- san mengeluarkan kantong kulit dengan cara yang sama seperti yang dia lakukan dengan battle axe dan pisaunya.
+" ...... Seorang anak berusia 10 tahun."
+
+"iya kan? Kamu tidak benar-benar melawan wyvern, kan? Lalu mengapa Kamu menggunakan 10 tombak? Bahkan satu saja sudah berlebihan, kan? Pertama-tama, tidakkah kamu tahu bahwa bahkan menggunakan hanya satu saja di dalam fasilitas guild tanpa izin akan memberimu denda?"
+
+"Aku tidak bisa menahannya. Itu sangat menyenangkan. Anak ini sungguh luar biasa... Semakin sering Kamu mendekatinya, semakin dia mengeluarkan sesuatu yang baru. Seperti, itu membuatmu ingin menyerangnya dengan seluruh kekuatanmu..."
+
+"Kamu bisa bersikap defensif seperti yang Kamu inginkan tetapi denda tetap ada. 10 koin emas per tombak. Dan karena Kamu menggunakan 10, 100 koin emas."
+
+"Haaaaa ... Mau bagaimana lagi."
+
+Sambil menghela nafas panjang, Carol-san mengeluarkan kantong kulit dengan cara yang sama seperti yang dia lakukan dengan battleaxe dan pisaunya.
+
 Kelihatannya cukup berat jadi Aku mungkin tidak salah mengira bahwa itu mungkin diisi dengan koin emas.
-Karena satu malam di penginapan berharga 2 koin perak, 100 koin emas bisa memberi Kamu 5000 malam untuk menginap, jadi sekarang Aku mengerti bahwa itu adalah jumlah uang yang sangat besar. Jadi Hunter peringkat tinggi bisa mendapatkan cukup uang untuk menghabiskan sebanyak ini tanpa masalah?
 
-Sebaliknya, berapa genap 5000 malam? Berdasarkan kehidupan Aku sebelumnya, menurut Aku hotel murah harganya sekitar 3000 ~ 5000 yen, jadi 100 koin emas mungkin bernilai sekitar 1,5 juta ~ 2,5 juta yen.
-Bahkan jika Aku salah tentang itu, karena sekarang Aku melihat Carol- san sebagai seseorang yang tidak terjangkau, kekuatan uang benar-benar hebat.
+Karena satu malam di penginapan berharga 2 koin perak, 100 koin emas bisa memberi Kamu 5000 malam untuk menginap, jadi sekarang Aku mengerti bahwa itu adalah jumlah uang yang sangat besar. Jadi Hunter peringkat tinggi bisa mendapatkan cukup uang dan menghabiskan sebanyak ini tanpa masalah?
+
+Sebaliknya, 5000 malam? Berdasarkan kehidupanku sebelumnya, menurutku hotel murah harganya sekitar 3000 ~ 5000 yen, jadi 100 koin emas mungkin bernilai sekitar 1,5 juta ~ 2,5 juta yen.
+
+Bahkan jika Aku salah tentang itu, sekarang Aku melihat Carol-san sebagai seseorang yang tidak terjangkau. kekuatan uang benar-benar hebat.
 
 "Terima kasih telah menunggu. Maukah kamu jika kita melanjutkan? "
 " Ini tidak terlalu merupakan kelanjutan, tetapi setelah itu, Aku menghancurkan 9 dari mereka dengan lingkaran sihir intersepsi dan memblokir yang terakhir dengan penghalang Aku. "
