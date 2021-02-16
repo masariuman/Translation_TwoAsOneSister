@@ -90,15 +90,20 @@ Paling tidak, bisa untuk menghindari skenario terburuk jika penyergapan musuh di
 
 Saat menggunakan sihir dengan mantra, itu hanya untuk menggunakan satu sihir per mantra tetapi dengan kasus menggunakan lingkaran sihir, bisa menggunakan berbagai jenis sihir dan pada saat yang sama menjadi keuntungan besar.
 
-Jelas bahwa menangani banyak lingkaran sihir membutuhkan kontrol yang baik. Tetapi jika hanya Ciel yang menggunakannya, kami mungkin bisa menangani 3 lingkaran sihir lagi selain berada dalam mode pertempuran tiruan.
-Dan memiliki lebih banyak pilihan mungkin akan memberi kita keuntungan yang lebih besar di pertempuran terakhir.
+Jelas bahwa menangani banyak lingkaran sihir membutuhkan kontrol yang baik. Tetapi jika hanya Ciel yang menggunakannya, kami mungkin bisa menangani 3 lingkaran sihir lagi selain berada dalam mode latihan.
+
+Dan memiliki lebih banyak pilihan mungkin akan memberi kami keuntungan yang lebih besar di pertempuran terakhir.
+
 Tetap saja, Aku tidak berpikir bahwa 3 lingkaran sihir lagi akan melakukan apa pun untuk menghentikan tombak es itu.
 
-Dan ketika Aku akan beralih dari pertempuran sihir untuk berbicara tentang tombak es, Aku merasakan tarikan ringan di lengan Aku.
-Saat Aku bertanya-tanya tentang apa ini, Aku melihat Carol- san menggelengkan kepalanya dan dia memohon sesuatu dengan matanya.
-Hmm , jadi Kamu tidak ingin Aku terlalu banyak berbicara tentang tombak es, ya . Tapi karena Celia- san sudah mengetahuinya, kurasa tidak ada gunanya menyembunyikannya.
+Dan ketika Aku akan beralih dari pertempuran sihir untuk berbicara tentang tombak es, Aku merasakan tarikan ringan di lenganku.
 
-Selain itu, Aku tidak memiliki kewajiban untuk membuat detailnya lebih menguntungkan untuknya saat ini, bahkan sedikit pun. Jadi Aku membalas Carol- san dengan mengarahkan pandangan Aku ke bawah dan menggelengkan kepala.
+Saat Aku bertanya-tanya ada apa ini, Aku melihat Carol-san menggelengkan kepalanya dan dia memohon sesuatu dengan matanya.
+
+Hmm , jadi Kamu tidak ingin Aku terlalu banyak berbicara tentang tombak es ya... Tapi karena Celia-san sudah mengetahuinya, kurasa tidak ada gunanya menyembunyikannya.
+
+Selain itu, Aku tidak memiliki kewajiban untuk membuat detailnya untuk saat ini. Jadi Aku membalas Carol-san dengan mengarahkan pandangan Aku ke bawah dan menggelengkan kepala.
+
 Aku melihat keputusasaan tertulis di seluruh wajahnya, tetapi Kamu menuai apa yang Kamu tabur.
 
 (Bab ini disediakan untuk Kamu oleh Re: Library)
