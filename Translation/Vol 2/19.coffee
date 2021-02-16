@@ -58,23 +58,34 @@ Jadi soal kekuatan Song Princess, pada dasarnya ciri-ciri sebuah lagu dan efekny
 
 Mengenai job kami, Ciel dan Aku masih dalam tahap pengujian.
 
-Apa yang terbang dari arah Carol- san adalah tombak es yang tebal dan tajam yang membuat panah es sebelumnya terlihat lucu jika dibandingkan.
-Sepertinya ini juga cukup rumit. Alih-alih memiliki desain tongkat runcing yang sederhana, ia memiliki tampilan unik dengan ujung yang tampak seperti bengkok dan meruncing menjadi ujung yang tajam.
-Ada sekitar sepuluh dari mereka dan masing-masing lebih tinggi dari Ciel.
-Carol- san , apa kau melawan monster besar sekarang? Tidak peduli bagaimana Kamu melihatnya, itu terlalu berlebihan untuk target manusia.
+Apa yang terbang dari arah Carol-san adalah tombak es yang tebal dan tajam yang membuat panah es sebelumnya terlihat lucu jika dibandingkan.
 
-Benar saja, Carol- san tampaknya telah menyadari fakta tersebut setelah meluncurkan sihirnya.
+Sepertinya ini juga cukup sulit. daripada memiliki desain tongkat runcing yang sederhana, ia memiliki tampilan unik dengan ujung yang tampak seperti bengkok dan meruncing menjadi ujung yang tajam.
+
+Ada sekitar sepuluh dari mereka dan masing-masing lebih tinggi dari Ciel.
+
+Carol-san , apa kau melawan monster besar sekarang? Tidak peduli bagaimana Kamu melihatnya, itu terlalu berlebihan untuk target manusia.
+
+Benar saja, Carol-san tampaknya telah menyadari fakta tersebut setelah meluncurkan sihirnya.
+
 Begitu tombak mulai terbang ke arah kami, meskipun Aku tidak bisa mendengarnya mengatakannya, Aku bisa melihat "Oh sial" tertulis di seluruh wajahnya.
-Pada titik ini, aku hanya ingin mengalihkan pandanganku, tetapi Ciel menatap langsung ke tombak es yang mendekat dan berkonsentrasi untuk menuangkan kekuatan sihir ke dalam lingkaran sihir.
+
+Pada titik ini, aku hanya ingin mengalihkan pandanganku, tetapi Ciel menatap langsung ke tombak es yang mendekat dan berkonsentrasi untuk menuangkan energi sihir ke dalam lingkaran sihir.
+
 Saat salah satu dari mereka memasuki jangkauan intersepsi lingkaran sihir, wajah Ciel sedikit tersentak.
 
 Dan setelah beberapa saat, tombak pertama hancur. Berubah menjadi debu oleh kekuatan angin, potongan tombak es berkilau indah, tapi ini bukan waktunya untuk mengalihkan perhatiannya.
-Reaksi Ciel kemungkinan besar karena itu cukup kuat dan kokoh sehingga butuh waktu untuk menghancurkan tombak esnya.
-Dengan tombak kedua dan ketiga, tempat dimana mereka dihancurkan secara bertahap semakin dekat dan dekat.
-Pada yang ketujuh dan kedelapan, mungkin jaraknya hanya beberapa sentimeter dari kami. Dan saat dia menghancurkan yang kesembilan, tombak kesepuluh sudah tepat di depan mata kita.
 
-Sangat tidak mungkin dia bisa menghancurkannya tepat waktu, yang paling bisa dia lakukan adalah mengeluarkan tanda vital kita.
+Reaksi Ciel kemungkinan besar karena itu cukup kuat dan kokoh sehingga butuh waktu untuk menghancurkan tombak esnya.
+
+Dengan tombak kedua dan ketiga, tempat dimana mereka dihancurkan secara bertahap semakin dekat dan dekat.
+
+Pada yang ketujuh dan kedelapan, mungkin jaraknya hanya beberapa sentimeter dari kami. Dan saat dia menghancurkan yang kesembilan, tombak kesepuluh sudah tepat di depan mata kami.
+
+Sangat tidak mungkin dia bisa menghancurkannya tepat waktu, yang paling bisa dia lakukan adalah menghindar.
+
 Segera setelah dia hampir tidak bergerak, tombak es mengenai sisi kami dan Ciel jatuh di punggungnya saat dia tersapu oleh hantaman itu.
+
 Namun, tombak itu tidak mampu menembus kulit Ciel dan tetap mencuat ke luar. Melihat lebih dekat, tampaknya bagian yang terkena perlahan membeku dan secara bertahap tertutup es.
 Setelah es menyebar beberapa saat, itu hancur bersama dengan perisai Aku yang biasa dan lenyap.
 Aku bisa membuat penghalang lain kapan saja. Tidak perlu banyak jika Aku hanya perlu memeliharanya tetapi membuat yang baru menghabiskan sedikit kekuatan sihir.
