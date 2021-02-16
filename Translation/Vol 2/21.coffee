@@ -136,14 +136,20 @@ Karena cara mereka berbicara tampaknya dekat, Celia-san mungkin mengenalnya seca
 
 Setelah berbicara beberapa lama, Celia-san tiba-tiba menghadapku.
 
-"Jadi dengan itu, Nilda- san , tolong jaga Cielmer- san ."
-"Tentu saja. Cielmer- san , senang bertemu denganmu hari ini. "
-" Ya. Tolong jaga aku. "
+"Jadi dengan itu, Nilda-san , tolong jaga Cielmer-san."
 
-Nilda- san menatapku dengan senyum ramah tapi aku ingin tahu seperti apa dia melihatku.
-Apakah dia menganggap Aku sebagai orang desa yang berasal dari desa yang menurun? Aku seharusnya mendengarkan percakapan mereka.
-Nilda- san mengeluarkan kunci dan memberikan kepada Aku sambil mengatakan "Kamu mungkin lelah untuk hari ini, jadi Aku akan makan malam dibawa ke kamar Kamu. Kamar Kamu berada di area paling dalam di lantai 2. Agak jauh tapi lakukan yang terbaik. "
+"Tentu saja. Cielmer-san , senang bertemu denganmu hari ini."
+
+a"iYa. Tolong jaga aku."
+
+Nilda-san menatapku dengan senyum ramah tapi aku penasaran seperti apa dia melihatku.
+
+Apakah dia menganggapku sebagai orang desa yang berasal dari desa rendahan? Aku seharusnya mendengarkan percakapan mereka.
+
+Nilda-san mengeluarkan kunci dan memberikan kepadaku sambil mengatakan "Kamu mungkin lelah untuk hari ini, jadi Aku akan membawa makan malam ke kamar Kamu. Kamar Kamu berada di area paling dalam di lantai 2. Agak jauh tapi, berusahalah untuk berjalan kesana."
+
 Setelah menerima kunci dan berterima kasih padanya, Aku melakukan apa yang dia katakan dan naik ke lantai 2.
-Aku memasuki kamar yang sesuai dengan kunci Aku dan memutuskan untuk beristirahat sambil menunggu makanan datang.
+
+Aku memasuki kamar yang sesuai dengan kunciku dan memutuskan untuk beristirahat sambil menunggu makanan datang.
 
 Hari ini entah bagaimana sangat melelahkan.
