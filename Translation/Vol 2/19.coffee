@@ -84,22 +84,31 @@ Pada yang ketujuh dan kedelapan, mungkin jaraknya hanya beberapa sentimeter dari
 
 Sangat tidak mungkin dia bisa menghancurkannya tepat waktu, yang paling bisa dia lakukan adalah menghindar.
 
-Segera setelah dia hampir tidak bergerak, tombak es mengenai sisi kami dan Ciel jatuh di punggungnya saat dia tersapu oleh hantaman itu.
+Segera setelah dia hampir tidak bergerak, tombak es mengenai sisi samping kami dan Ciel jatuh di punggungnya ketika dia terkena ledakan itu.
 
-Namun, tombak itu tidak mampu menembus kulit Ciel dan tetap mencuat ke luar. Melihat lebih dekat, tampaknya bagian yang terkena perlahan membeku dan secara bertahap tertutup es.
-Setelah es menyebar beberapa saat, itu hancur bersama dengan perisai Aku yang biasa dan lenyap.
-Aku bisa membuat penghalang lain kapan saja. Tidak perlu banyak jika Aku hanya perlu memeliharanya tetapi membuat yang baru menghabiskan sedikit kekuatan sihir.
+tapi, tombak itu tidak mampu menembus kulit Ciel dan tetap berada di sisi tubuh. Melihat lebih dekat, tampaknya bagian yang terkena perlahan membeku dan secara bertahap tertutup es.
 
-Meskipun untuk saat-saat seperti inilah aku membuat perisai itu, aku bertanya-tanya kapan terakhir kali perisai Aku dihancurkan seperti ini?
-Saat aku masih terbiasa dengannya, sebelum Ciel berusia 5 tahun, perisai ku hancur beberapa kali dan aku bahkan kehabisan kekuatan sihir. Tapi kami tidak menghadapi bahaya apa pun selama lima tahun yang kami habiskan dengan mengunci diri di ruang buku, jadi sudah lama sejak hal ini terjadi.
-Bagaimanapun, hanya pertarungan kedua kami dengan seseorang dan ini terjadi. Apakah pemburu B-Rank kuat atau Carol- san lebih kuat dari B-Ranker biasa?
-"Ciel, kamu baik-baik saja?"
-"Ya, Aku baik-baik saja. Bagaimanapun, Aku memiliki keyakinan penuh bahwa Ain akan dapat melindungi Aku. "
+Setelah es menyebar beberapa saat, itu hancur bersama dengan +BARRIERku juga lenyap.
+
+Aku bisa membuat +BARRIER lain kapan saja. Tidak perlu banyak jika Aku hanya perlu memperbaiki +BARRIER tetapi membuat +BARRIER baru memerlukan sedikit banya energi sihir.
+
+Meskipun untuk saat-saat seperti inilah aku membuat +BARRIER itu, aku bertanya-tanya kapan terakhir kali BARRIERku dihancurkan seperti ini?
+
+Sebelum Ciel berusia 5 tahun, +BARRIERku hancur beberapa kali dan aku bahkan kehabisan energi sihir. Tapi kami tidak menghadapi bahaya apa pun selama lima tahun yang kami habiskan dengan mengunci diri di ruang buku, jadi sudah lama sejak hal ini terjadi.
+
+Hanya pertarungan kedua kami dengan seseorang dan ini terjadi. Apakah Hunter Rank B kuat atau Carol-san lebih kuat dari Hunter Rank B biasa?
+
+a"Ciel, kamu baik-baik saja?"
+
+c"Ya, Aku baik-baik saja. Aku sangat yakin kalau Ain akan dapat melindungiku."
 
 Ciel menjawabnya dengan percaya diri, tetapi sekarang Aku menyadari bahwa terlalu banyak dipercaya mungkin menjadi masalah juga.
-Jika aku perlu melindunginya dari sepuluh tombak itu, aku ragu itu akan memblokir semuanya.
-Bagaimanapun, itu menghabiskan sejumlah besar kekuatan sihir dan setelah penghalang mengimbangi satu tombak, aku bahkan tidak tahu apakah aku bisa membuat yang baru sebelum tombak berikutnya datang.
-Jadi Aku masih perlu lebih meningkatkan sihir penghalang Aku.
+
+Jika aku perlu melindunginya dari sepuluh tombak itu, aku ragu aku dapat menangkis semuanya.
+
+Itu menghabiskan sejumlah besar energi sihir dan setelah +BARRIER mengimbangi satu tombak, aku bahkan tidak tahu apakah aku bisa membuat yang baru sebelum tombak berikutnya datang kepada kami.
+
+Jadi Aku masih perlu lebih meningkatkan sihir +BARRIERku.
 
 Karena kami masih di tengah-tengah pertandingan penting, Aku mengakhiri refleksi Aku di sini. Meskipun Aku menggunakan deteksi, menurut Aku tidak baik untuk mengalihkan perhatian tentang hal-hal lain.
 Tapi karena rentetan sihir telah mereda, mungkinkah pertempurannya sudah selesai? Jika Carol- san menggunakan sihir yang lebih kuat dari tombak es, aku benar-benar akan kehilangan kepercayaan pada kemampuanku untuk membela Ciel, jadi tolong biarkan ini menjadi akhir.
