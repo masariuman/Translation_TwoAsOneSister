@@ -142,39 +142,46 @@ Sebaliknya, 5000 malam? Berdasarkan kehidupanku sebelumnya, menurutku hotel mura
 
 Bahkan jika Aku salah tentang itu, sekarang Aku melihat Carol-san sebagai seseorang yang tidak terjangkau. kekuatan uang benar-benar hebat.
 
-"Terima kasih telah menunggu. Maukah kamu jika kita melanjutkan? "
-" Ini tidak terlalu merupakan kelanjutan, tetapi setelah itu, Aku menghancurkan 9 dari mereka dengan lingkaran sihir intersepsi dan memblokir yang terakhir dengan penghalang Aku. "
-" Begitu. Dimengerti. "
+"Terima kasih telah menunggu. apakah tidak apa-apa jika kita melanjutkannya?"
 
-Mengatakan demikian, setelah merenung sebentar, Celia- san bertanya pada Carol- san"Apakah semuanya benar?" Untuk konfirmasi.
-Dan saat dia menjawab "Ya" Celia- san menundukkan kepalanya.
+a"ini bukan lanjutannya sih tapi, tetapi setelah itu, Aku menghancurkan 9 tombak itu dengan lingkaran sihir intersepsi dan menangkis yang terakhir dengan +BARRIERku."
+
+"Begitu ya. Baiklah."
+
+Setelah merenung sebentar, Celia-san bertanya pada Carol-san "Apakah semuanya benar?" Untuk mengkonfirmasi.
+Dan saat dia menjawab "Ya" Celia-san menundukkan kepalanya.
 
 "Aku sangat menyesal atas kejadian ini."
-"Apa yang Kamu minta maaf?"
-"Karena mempercayakan masalah ini kepada Carol. Kali ini, Aku berusaha menyelesaikan perselisihan dengan mempercayakan Carol menjadi penguji.
-     Namun, Carol sendiri menggunakan sihir yang seharusnya tidak digunakan pada Kamu.
-     Tanggung jawab terletak pada Hunter's Guild karena menunjuk Carol dan Carol akan dihukum oleh Hunter's Guild di lain waktu. "
-" Begitu. Dalam situasi ini, apa yang akan terjadi? "
-" Saat ini, posisi Cielmer- san cukup ambigu. Dapat dikatakan bahwa Kamu sekarang adalah seorang Hunter, tetapi pada saat yang sama, Kamu masih belum dianggap sebagai Hunter.
-     Fakta bahwa Carol hampir membunuh seseorang dalam situasi itu, dan jelas tidak untuk membela diri, adalah situasi yang gawat.
-     Oleh karena itu, guild akan menjawab keinginanmu sebanyak mungkin.
-     Jika Kamu ingin menghukum Aku selain Aku dipecat, itu juga mungkin. "
-" Celia itu- "
-Melihat Celia- san dengan rela menawarkan pemecatannya sendiri, Carol- san secara refleks membuka mulutnya.
-Namun, Celia- san hanya mengatakan "Diam, Carol" dan melanjutkan.
 
-"Namun, Aku sangat menyesal tentang ini, tetapi Kamu tidak dapat mengasingkan Carol dari Hunter's Guild.
-     Cielmer- san dianggap setengah Hunter dalam kedudukannya. Selain itu, karena Kamu berada pada peringkat yang jauh lebih rendah dibandingkan dengan Carol, bahkan jika Kamu telah mati, hukuman terberat yang akan dia terima adalah penurunan peringkat sementara. "
+a"mengapa kamu meminta maaf?"
 
-Jadi itu berarti Hunter peringkat tinggi mendapat perlakuan khusus sebanyak itu. Di dunia di mana monster ada, bahkan hanya satu Hunter peringkat tinggi yang mungkin bisa melindungi kota kecil, jadi membandingkan nilai orang itu dan Hunter pemula adalah tidak terpikirkan.
+"Karena mempercayakan ini kepada Carol. Kali ini, Aku berusaha menyelesaikan perselisihan dengan mempercayakan Carol menjadi penguji. Tapi, Carol sendiri menggunakan sihir yang seharusnya tidak digunakan padamu. Tanggung jawab terletak pada Guild Hunter karena menunjuk Carol dan Carol akan dihukum oleh Guild Hunter nanti."
+
+a"Begitu ya... Dalam situasi ini, apa yang akan terjadi?"
+
+"Saat ini, posisi Cielmer-san cukup ambigu. Dapat dikatakan bahwa Kamu sekarang adalah seorang Hunter, tetapi pada saat yang sama, Kamu masih belum dianggap sebagai Hunter. Fakta bahwa Carol hampir membunuh seseorang dalam situasi itu, dan jelas tidak untuk membela diri, adalah situasi yang gawat. Oleh karena itu, guild akan menjawab kemauanmu sebanyak yang bisa dilakukan. Jika Kamu ingin menghukumku agar Aku dipecat, itu juga bisa."
+
+"Celia... itu-"
+
+Melihat Celia-san dengan rela menawarkan pemecatannya sendiri, Carol-san secara refleks membuka mulutnya.
+
+tapi, Celia-san hanya mengatakan "Diam, Carol" dan melanjutkan.
+
+"aku sangat meminta Maaf tentang ini, tetapi Kamu tidak dapat mengeluarkan Carol dari Guild Hunter. Cielmer-san dianggap setengah Hunter dalam kedudukannya. Selain itu, karena Kamu berada pada rank yang jauh lebih rendah dibandingkan dengan Carol, bahkan jika Kamu telah mati, hukuman terberat yang akan dia terima adalah penurunan rank sementara."
+
+Jadi itu berarti Hunter rank tinggi mendapat perlakuan khusus sebanyak itu. Di dunia di mana monster ada, bahkan hanya satu Hunter rank tinggi mungkin bisa melindungi kota kecil. jadi membandingkan nilai orang itu dan Hunter pemula sungguh tidak masuk akal.
+
 Ini dunia aristokrasi. Nilai kehidupan seseorang sangat berbeda dengan kehidupan di bumi.
 
 Aku memang punya masalah hampir terbunuh.
-Itulah mengapa aku tidak akan puas kecuali Carol- san menerima semacam hukuman tapi dia membayar 100 koin emas lebih awal, jadi kurasa itu bisa dianggap hukuman.
-Selain itu, membuat Celia- san berhenti akan menjadi kerugian bagi kami mengingat kami akan bekerja di sini mulai sekarang. Ini akan terasa canggung, tentu saja, tapi sebagai anggota di sini, memiliki 1 orang lebih sedikit yang dapat memperlakukan anak berusia 10 tahun dengan ketulusan sebanyak ini tidaklah baik.
 
-Dalam hal ini, mungkin lebih baik membuat pilihan yang akan memberi Aku keuntungan.
-Namun, sebelum memutuskan sendiri, Aku harus meminta pendapat Ceil.
+Itulah mengapa aku tidak akan puas kecuali Carol-san menerima semacam hukuman tapi dia membayar 100 koin emas, jadi kurasa itu bisa dianggap hukuman.
+
+Selain itu, membuat Celia-san berhenti akan menjadi kerugian bagi kami mengingat kami akan bekerja di sini mulai sekarang. Ini akan terasa canggung, tentu saja, sebagai anggota di sini, kekuarangan 1 orang yang dapat memperlakukan anak berusia 10 tahun dengan ketulusan sebanyak ini tidaklah bagus.
+
+Dalam hal ini, mungkin lebih baik membuat pilihan yang akan memberiku keuntungan.
+
+Tapi, sebelum memutuskannya sendiri, Aku harus meminta pendapat Ceil.
 
 "Jika Kamu baik-baik saja dengan itu, Aku ingin melihat apakah kita dapat menggunakan ini untuk meminta peringkat tinggi, tapi bagaimana dengan itu?"
 "Errrr , um . Baik. Kamu harus melakukan apa yang Kamu inginkan, Ain. "
