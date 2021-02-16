@@ -14,21 +14,25 @@ Lagipula, bagian dirinya seperti ini mungkin menjadi alasan Celia-san memutuskan
 
 a"Berarti Aku lulus ujian kualifikasi Rank B, kan?"
 
-"Mungkin perlu waktu untuk membuatnya disetujui, tetapi seharusnya tidak ada masalah. Bagaimanapun, Kamu telah membuktikan kepada kami bahwa Kamu memiliki kekuatan yang cukup untuk memenuhi kualifikasi, Cielmer- san . "
-" Jadi, tolong naikkan peringkat Hunter Aku setinggi mungkin. Jika memungkinkan, Aku ingin menjadi B-Rank dan jika Aku tidak bisa, Aku ingin setidaknya cukup tinggi sehingga Aku tidak akan diperlakukan buruk jika Aku mendapat masalah dengan Hunter peringkat tinggi. "
-" Aku sangat menyesal. Mengenai peringkat, ada batasan untuk apa yang bisa kami lakukan.
-     Namun, selama Kamu berada di kota ini, Aku bisa mengaturnya sehingga Kamu bisa yakin untuk membuat pencapaian. Aku tidak bisa memastikannya, tetapi kami akan mendukung Kamu sehingga Kamu mencapai C-Rank dalam satu tahun. "
-"Berapa lama biasanya dibutuhkan?"
-"Biasanya dikatakan bahwa dibutuhkan 5 tahun untuk mencapai D-Rank dan 5 tahun lagi untuk mencapai C-Rank. Bahkan orang yang cakap pun kemungkinan akan membutuhkan beberapa tahun untuk mencapai C-Rank. Selanjutnya, karena C-Ranker dan di atasnya diakui sebagai Hunter Veteran, perlakuan guild terhadap mereka juga akan berubah.
-     Namun, sama seperti C-Ranker dan di atasnya dianggap sebagai Hunter top, itu bukanlah level yang bisa dicapai siapa pun hanya dengan mencoba. "
+"Mungkin perlu waktu untuk membuatnya disetujui, tetapi seharusnya tidak ada masalah. Bagaimanapun juga, Kamu telah membuktikan kepada kami bahwa Kamu memiliki kekuatan yang cukup untuk memenuhi kualifikasi, Cielmer-san."
 
-Kalau begitu, mencapai C-Rank dalam satu tahun mungkin cukup besar.
+a"Tolong naikkan rank Hunterku setinggi mungkin. Jika memungkinkan, Aku ingin menjadi rank B dan jika Aku tidak bisa, Aku ingin setidaknya cukup tinggi sehingga Aku tidak akan diperlakukan buruk jika Aku mendapat masalah dengan Hunter rank tinggi."
 
-"Kemudian dari kejadian hari ini, Aku ingin meminta bantuan guild sampai Aku mencapai C-Rank.
-     Selain itu, Aku hanya ingin meminta Celia- san untuk menangani Aku di meja resepsionis. Bagaimanapun, Aku tidak berpikir bahwa percakapan akan berjalan mulus ketika berbicara dengan orang lain. "
-" Dimengerti. Kalau begitu izinkan Aku untuk mengaturnya. "
-" Juga, jika Kamu tahu ada penginapan yang bisa Aku tinggali sekarang, tolong didik Aku. "
-" Dimengerti, mari kita lihat. Karena matahari akan segera terbenam, izinkan Aku untuk memandu Kamu ke sebuah penginapan atas rujukan Hunter's Guild. Apakah Kamu punya permintaan? "
+"Aku minta maaf. Mengenai rank, ada batasan untuk apa yang bisa kami lakukan. Tapi, selama Kamu berada di kota ini, Aku bisa mengaturnya sehingga Kamu bisa yakin untuk membuat pencapaian. Aku tidak bisa memastikannya, tetapi kami akan mendukungmu sehingga Kamu mencapai Rank C dalam satu tahun."
+
+a"Berapa lama waktu biasanya dibutuhkan?"
+
+"Biasanya dibutuhkan 5 tahun untuk mencapai Rank D dan 5 tahun lagi untuk mencapai Rank C. Bahkan orang yang hebat pun kemungkinan akan membutuhkan beberapa tahun untuk mencapai Rank C. Selanjutnya, karena para hunter Rank C dan di atasnya diakui sebagai Hunter Veteran, perlakuan guild terhadap mereka juga akan berubah. Tapi, sama seperti Hunter Rank C dan di atasnya dianggap sebagai Hunter top, itu juga bukanlah level yang bisa dicapai siapa pun hanya dengan mencoba saja."
+
+Kalau begitu, mencapai Rank C dalam satu tahun mungkin cukup besar.
+
+a"Kalau begitu, dari kejadian hari ini, Aku ingin meminta bantuan guild sampai Aku mencapai Rank C. Selain itu, Aku hanya ingin meminta Celia-san yang menanganiku di meja resepsionis. yaaah, Aku tidak berpikir bahwa percakapan akan berjalan mulus ketika berbicara dengan orang lain."
+
+"Baiklah. Kalau begitu izinkan Aku untuk mengaturnya."
+
+a"Dan Juga, jika Kamu tahu ada penginapan yang bisa Aku tinggali sekarang, tolong beritahu aku."
+
+"Baiklah, mari kita lihat. Karena matahari akan segera terbenam, izinkan Aku untuk memandu Kamu ke sebuah penginapan atas rujukan Hunter's Guild. Apakah Kamu punya permintaan? "
 
 Aku baik-baik saja dengan hanya mengetahui tempat itu tetapi tampaknya dia akan membimbing Aku juga.
 Yah, lagipula itu bukan Jepang, jadi mungkin berbahaya bagi seorang gadis berjalan sendirian di malam hari. Berdasarkan media kreatif misalnya, Aku bahkan mungkin bertemu dengan penculik.
