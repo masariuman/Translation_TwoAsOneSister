@@ -93,22 +93,29 @@ Aku hampir mengangguk pada kata-kata Carol. Aku tidak akan menyebutnya gila teta
 
 Pertama-tama, Aku belum pernah melihat situasi di mana tombak es tidak efektif. Dan karena Cielmer-san menangkisnya, ini berarti cara dia menangani 9 tombak sebelumnya mungkin sudah cukup gila juga.
 
-"Jika +BARRIER itu berkembang lebih jauh, Kamu bisa menyebutnya sebagai bentuk terakhir dari sihir +BARRIER. Ini sudah pada level dimana kamu bisa memberinya nama baru untuk sihir itu. Mengurangi konsumsi energi sihir adalah satu masalah yang harus diselesaikan tetapi bahkan dari sudut pandang itu, penghalang itu adalah contoh yang luar biasa. Bahkan tekniknya dalam menyembunyikan fakta bahwa dia menggunakan sihir sudah kelas atas. "
-" Ya ya. "
-" Jangan terlalu acuh tak acuh. Hal lain, Aku katakan sebelumnya bahwa Aku akan menang jika Aku menggunakan Pekerjaan Aku, kan? Tapi Aku juga curiga dia menyembunyikan sesuatu yang lain, jadi Aku tidak yakin siapa yang akan menang jika kita berdua bertarung dengan kekuatan penuh. "
-" Tunggu, dia masih bisa menjadi lebih kuat? "
-" Aku pikir hanya dengan memiliki penghalang itu membuatnya tidak terkalahkan oleh Hunter di bawah peringkat B. "
-" Itu benar, tapi… "
-"Nah, ini semua hanya spekulasi Aku. Hanya dari caranya bertarung tapi aku merasakan ketenangan dari setiap gerakannya. Sulit untuk dijelaskan tetapi dia memiliki perasaan seperti "Aku bisa mengatur ini jika Aku serius" padanya.
-     Tentu saja dia mungkin percaya diri tanpa alasan, jadi Aku tidak bisa terlalu yakin.
-     Tetap saja, dia memiliki kekuatan untuk menjamin kepercayaan itu. Aku masih tidak dapat menyangkal bahwa dia yang terakhir, jadi mungkin yang terbaik adalah merahasiakan peringkat Aku. Lagipula, dia mengira aku seorang B-ranker. "
-" Aku tidak benar-benar berpikir bahwa Cielmer- san akan menjadi sombong tetapi itu masuk akal.
-     Dia tidak salah tentang kamu menjadi peringkat B. "
-Carol mungkin seorang Hunter peringkat-B, tapi dia bukan sembarang pelari pabrik B-ranker.
-Meskipun di tempat pertama, peringkat B bukan hanya Hunter "run of the mill".
+"Jika +BARRIER itu berkembang lebih jauh, Kamu bisa menyebutnya sebagai bentuk terakhir dari sihir +BARRIER. Ini sudah pada level dimana kamu bisa memberinya nama baru untuk sihir itu. Mengurangi konsumsi energi sihir adalah satu masalah yang harus diselesaikan tetapi bahkan dari sudut pandang itu, +BARRIER itu adalah contoh yang luar biasa. Bahkan tekniknya dalam menyembunyikan fakta bahwa dia menggunakan sihir sudah berada pada kelas atas."
 
-"Kami dapat berspekulasi tentang situasinya semau kami, tetapi kami membutuhkan informasi terlebih dahulu. Dia memberitahumu hal-hal yang benar? Jadi, apa yang kamu tanyakan padanya? "
-" Aku bertanya mengapa dia terburu-buru untuk menaikkan peringkatnya.
+"Ya ya~"
+
+"Jangan terlalu acuh tak acuh. sudah Aku katakan sebelumnya bahwa Aku akan menang jika Aku menggunakan jobku, kan? Tapi Aku juga curiga dia menyembunyikan sesuatu yang lain, jadi Aku tidak yakin siapa yang akan menang jika kami berdua bertarung dengan kekuatan penuh."
+
+"Tunggu, dia masih bisa menjadi lebih kuat?"
+
+"Aku pikir hanya dengan memiliki +BARRIER itu membuatnya tidak terkalahkan oleh Hunter di bawah rank B."
+
+"Itu benar, tapi..."
+
+"Nah, ini semua hanya spekulasiku. Hanya dari caranya bertarung tapi aku merasakan ketenangan dari setiap gerakannya. Sulit untuk dijelaskan tetapi dia memiliki perasaan seperti 'Aku dapat dengan mudah melakukan ini jika Aku serius' padanya. Tentu saja dia mungkin percaya diri tanpa alasan, jadi Aku tidak bisa terlalu yakin. Tetap saja, dia memiliki kekuatan untuk menjamin kepercayaan itu. Aku masih tidak dapat menyangkal bahwa dia mungkin punya kekuatan lebih dari itu, jadi mungkin yang terbaik adalah merahasiakan rankku. Lagipula, dia mengira aku seorang hunter rank B."
+
+"Aku tidak benar-benar berpikir bahwa Cielmer-san akan menjadi sombong tetapi itu masuk akal. Dia tidak salah tentangmu yaitu hunter rank B."
+
+Carol mungkin seorang Hunter rank B, tapi dia bukan hunter rank B sembarangan.
+
+pada dasarnya, rank B bukan hanya Hunter "biasa saja".
+
+"Kami dapat berspekulasi tentang situasinya semau kami, tetapi kami membutuhkan informasi terlebih dahulu. Dia memberitahumu beberapa hal kan? Jadi, apa yang kamu tanyakan padanya?"
+
+"Aku bertanya mengapa dia terburu-buru untuk menaikkan peringkatnya.
      Lagipula, yang dia minta adalah peningkatan peringkat. Ingin memiliki peringkat yang lebih tinggi bukanlah sesuatu yang tidak biasa dengan sendirinya tetapi ... Bukankah jika terasa berbeda untuknya? "
 " Yah, ya. Lalu, bagaimana dia menjawab? "
 " Dia ingin melarikan diri dari negara ini. "
