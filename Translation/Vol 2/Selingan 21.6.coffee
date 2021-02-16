@@ -48,26 +48,34 @@ Tapi, melakukan itu pada anak yang sadar hanyalah kegilaan. Tetap saja, semua in
 
 "Kemahirannya yang luar biasa dalam sihir mungkin juga bisa dijelaskan jika dia telah menggunakan sihir sejak dia lahir. Terus terang, Aku tidak percaya ada orang yang bisa mencapai tingkat itu hanya dalam 10 tahun tetapi jauh lebih meyakinkan jika seperti itu."
 
-Aku tahu bahwa Aku mungkin berbicara omong kosong tetapi sejujurnya, Aku tidak dapat membayangkan bahwa Cielmer- san berbohong kepada Aku.
-Sebagian karena insting Aku sebagai resepsionis, tapi juga tidak pantas baginya untuk mengatakan sesuatu yang jelas terdengar seperti kebohongan.
+Aku tahu bahwa Aku mungkin berbicara omong kosong tetapi sejujurnya, Aku tidak dapat membayangkan bahwa Cielmer-san berbohong kepadaku.
+
+Sebagian karena instingku sebagai resepsionis, tapi juga tidak pantas baginya untuk mengatakan sesuatu yang jelas terdengar seperti kebohongan.
+
 Karena dia baru berusia 10 tahun, ada kemungkinan dia hanya berbohong untuk mendapatkan perhatian tetapi berdasarkan percakapan kami sampai sekarang, Aku seharusnya tidak menganggapnya hanya sebagai gadis berusia 10 tahun biasa dalam hal ini.
+
 Sebaliknya, jika itu benar-benar bohong, Aku hanya akan ditertawakan karena salah menilai situasi.
 
-"Terakhir, dia berusaha keras untuk mengatakan ini tetapi rambutnya tampaknya aslinya berwarna pirang.
-     Dan kemudian, menjadi putih. "
-" Salah satu alasan Aku menggunakan tombak es adalah karena rambutnya putih tapi, ini semakin tidak masuk akal. "
-" "Penyihir berambut putih dipotong di atas yang lain", kan? "
-" Banyak yang bilang itu hanya mitos. Padahal, Aku akan mengatakannya sekarang, Aku menggunakan tombak es meskipun Aku pikir itu hanya mitos.
-     Pada saat itu, Aku sangat bersemangat, oke. "
+"Terakhir, dia berusaha keras untuk mengatakan ini tetapi rambutnya tampaknya aslinya berwarna pirang. Dan kemudian, menjadi putih."
+
+"Salah satu alasan Aku menggunakan tombak es adalah karena rambutnya putih tapi, ini semakin tidak masuk akal."
+
+
+"'Penyihir berambut putih adalah yang terhebat', kan?"
+
+"Banyak yang bilang itu hanya mitos. yaaaaa, Aku akan mengatakannya sekarang, Aku menggunakan tombak es meskipun Aku pikir itu hanya mitos. Pada saat itu, Aku sangat bersemangat, oke."
 
 Mendengar Carol mengatakannya dengan nada meminta maaf, Aku rasa Aku mungkin telah melakukannya secara berlebihan sebelumnya.
-Bagaimanapun, aku akan menguliahi dia nanti jadi tidak perlu mendalami ini sekarang.
 
-"Apa yang Kamu maksud dengan absurd adalah fakta bahwa rambut putihnya, yang dilihat sebagai keuntungan dalam sihir, adalah sifat yang didapat, kan?"
-"Aku tidak tahu apakah rambut putihnya karena alasan lingkungan atau karena trauma tapi, Aku mendorong yang pertama. "
+Bagaimanapun juga, aku akan memarahi dia nanti jadi tidak perlu mendalami ini sekarang.
 
-Itu pasti dari kesan setelah melawannya. Karena Carol tampaknya sangat yakin tentang itu, Aku harus memberi tahu Cielmer- san untuk berhati-hati tentang ini besok.
-Menjadi hebat dalam ilmu sihir dengan rambut putih adalah satu hal, fakta bahwa itu adalah sifat yang diperoleh adalah sesuatu yang tidak dapat diketahui orang lain.
+"Apa yang Kamu maksud dengan absurd adalah fakta bahwa rambut putihnya, yang dilihat sebagai keuntungan dalam sihir, adalah ciri khas yang didapat, kan?"
+
+"Aku tidak tahu apakah rambut putihnya karena alasan lingkungan atau karena trauma tapi, Aku pikir karena lingkungannya."
+
+Itu pasti dari kesan setelah melawannya. Karena Carol tampaknya sangat yakin tentang itu, Aku harus memberi tahu Cielmer-san untuk berhati-hati tentang ini besok.
+
+Menjadi hebat dalam ilmu sihir dengan rambut putih adalah satu hal, fakta bahwa itu adalah ciri khas yang diperoleh adalah sesuatu yang tidak dapat diketahui orang lain.
 
 "Itu tentang semua informasi yang kami miliki saat ini, tapi apa pendapat Kamu tentang dia, Celia?"
 "Pertama-tama, dia mungkin seorang anak bangsawan yang digunakan sebagai subjek tes."
