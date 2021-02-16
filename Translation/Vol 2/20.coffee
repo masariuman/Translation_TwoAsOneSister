@@ -183,16 +183,22 @@ Dalam hal ini, mungkin lebih baik membuat pilihan yang akan memberiku keuntungan
 
 Tapi, sebelum memutuskannya sendiri, Aku harus meminta pendapat Ceil.
 
-"Jika Kamu baik-baik saja dengan itu, Aku ingin melihat apakah kita dapat menggunakan ini untuk meminta peringkat tinggi, tapi bagaimana dengan itu?"
-"Errrr , um . Baik. Kamu harus melakukan apa yang Kamu inginkan, Ain. "
-" Ciel, apa pendapat Kamu tentang keduanya? "
-" Mereka tampaknya orang yang jauh lebih baik daripada bangsawan di suatu tempat. Tetap saja, meskipun Kamu bertanya kepada Aku, cukup sulit untuk menjawabnya.
-     Untuk memulainya, rasanya tidak seperti dia akan membunuhku. "
-"Begitu . Kalau begitu untuk saat ini, izinkan aku melakukan apa yang kuinginkan. "
+a"Jika Kamu tidak masalah dengan itu, Aku ingin melihat apakah kita dapat menggunakan ini untuk meminta rank tinggi, tapi bagaimana menurutmu?"
+
+c"Errrr, um. iya. Kamu harus melakukan apa yang Kamu inginkan, Ain."
+
+a"Ciel, apa pendapat Kamu tentang mereka berdua?"
+
+c"Mereka tampaknya orang yang jauh lebih baik daripada bangsawan di suatu tempat. Tetap saja, meskipun Kamu bertanya kepadaku, cukup sulit untuk menjawabnya. Rasanya tidak seperti dia akan membunuhku."
+
+a"Begitu ya... Kalau begitu untuk saat ini, izinkan aku melakukan apa yang kuinginkan."
 
 Mendengar nada Ciel yang benar-benar bermasalah, Aku mengakhiri diskusi kami.
-Karena hidupnya terus-menerus menjadi sasaran niat jahat, hampir terbunuh karena kegembiraan yang berlebihan mungkin bukan apa-apa bagi Ciel.
-Selain itu, dia bertemu terlalu sedikit orang untuk bisa memberikan penilaian. Dalam hal ini, dia mungkin tidak sepenuhnya memahami hukuman dan menghentikan sebagian percakapan.
-Dalam hal ini, alasan dia membentak saat bertarung dengan Alejo mungkin karena dia laki-laki atau karena penghinaan.
 
-Nah, jika ditanya siapa yang tidak akan aku maafkan antara Alejo dan Carol- san , itu pasti Alejo.
+Karena hidupnya terus-menerus menjadi sasaran niat jahat, hampir terbunuh karena kegembiraan yang berlebihan mungkin bukan apa-apa bagi Ciel.
+
+Selain itu, dia bertemu terlalu sedikit orang untuk bisa menilai hal ini. Dalam hal ini, dia mungkin tidak sepenuhnya memahami hukuman dan menghentikan sebagian percakapan.
+
+Dalam hal ini, alasan dia marah saat bertarung dengan Alejo mungkin karena dia laki-laki atau karena menghinanya.
+
+Nah, jika ditanya siapa yang tidak akan aku maafkan antara Alejo dan Carol-san , tentu saja Alejo.
