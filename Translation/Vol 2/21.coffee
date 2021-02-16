@@ -10,9 +10,10 @@ a"Dan ada sesuatu yang ingin Aku konfirmasi tetapi, setelah apa yang terjadi, ap
 
 Carol-san segera menjawab pertanyaanku. Aku sangat suka cara dia adil dan tulus tapi mengapa dia harus begitu sembrono. Tidak, mungkin kami hanya kebetulan tipe yang memicu kecerobohan dalam perilakunya.
 
-Lagipula, bagian dirinya yang menyenangkan ini mungkin menjadi alasan Celia- san memutuskan untuk membiarkannya menangani ujian. Di satu sisi, dia hanya tidak beruntung tetapi, sebagai pihak yang terlibat, Aku pasti tidak memiliki simpati untuknya.
+Lagipula, bagian dirinya seperti ini mungkin menjadi alasan Celia-san memutuskan untuk membiarkannya menangani ujian. Di satu sisi, dia hanya tidak beruntung tetapi, sebagai pihak yang terlibat, Aku tidak memiliki simpati untuknya.
 
-"Maka itu berarti Aku lulus ujian kualifikasi B-Rank, kan?"
+a"Berarti Aku lulus ujian kualifikasi Rank B, kan?"
+
 "Mungkin perlu waktu untuk membuatnya disetujui, tetapi seharusnya tidak ada masalah. Bagaimanapun, Kamu telah membuktikan kepada kami bahwa Kamu memiliki kekuatan yang cukup untuk memenuhi kualifikasi, Cielmer- san . "
 " Jadi, tolong naikkan peringkat Hunter Aku setinggi mungkin. Jika memungkinkan, Aku ingin menjadi B-Rank dan jika Aku tidak bisa, Aku ingin setidaknya cukup tinggi sehingga Aku tidak akan diperlakukan buruk jika Aku mendapat masalah dengan Hunter peringkat tinggi. "
 " Aku sangat menyesal. Mengenai peringkat, ada batasan untuk apa yang bisa kami lakukan.
