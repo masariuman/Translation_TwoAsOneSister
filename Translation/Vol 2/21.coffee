@@ -1,11 +1,15 @@
 Ch 21 : Jalan Kejadian, Hukuman dan Hadiah (Bagian 2)
 
-"Aku melihat. Mengenai hukuman Carol- san , Aku serahkan pada Hunter's Union. Tapi tolong jangan biarkan dia pergi tanpa hukuman. "
-" Tentu saja. Tentu. "
-" Dan ada sesuatu yang ingin Aku konfirmasi tetapi, setelah apa yang terjadi, apa sebenarnya hasil pertandingannya? "
-" Ini kemenangan Kamu. "
+a"Aku mengerti. untuk hukuman Carol-san , Aku serahkan kepada Guild Hunter. Tapi tolong jangan biarkan dia pergi tanpa hukuman."
 
-Carol- san segera menjawab pertanyaanku. Aku sangat suka cara dia adil dan tulus tapi mengapa dia harus begitu sembrono. Tidak, mungkin kami hanya kebetulan tipe yang memicu kecerobohan dalam perilakunya.
+"Tentu saja."
+
+a"Dan ada sesuatu yang ingin Aku konfirmasi tetapi, setelah apa yang terjadi, apa sebenarnya hasil pertandingannya?"
+
+"Ini kemenanganmu."
+
+Carol-san segera menjawab pertanyaanku. Aku sangat suka cara dia adil dan tulus tapi mengapa dia harus begitu sembrono. Tidak, mungkin kami hanya kebetulan tipe yang memicu kecerobohan dalam perilakunya.
+
 Lagipula, bagian dirinya yang menyenangkan ini mungkin menjadi alasan Celia- san memutuskan untuk membiarkannya menangani ujian. Di satu sisi, dia hanya tidak beruntung tetapi, sebagai pihak yang terlibat, Aku pasti tidak memiliki simpati untuknya.
 
 "Maka itu berarti Aku lulus ujian kualifikasi B-Rank, kan?"
