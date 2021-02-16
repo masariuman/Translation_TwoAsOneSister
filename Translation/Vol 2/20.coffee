@@ -102,21 +102,22 @@ Saat Aku bertanya-tanya ada apa ini, Aku melihat Carol-san menggelengkan kepalan
 
 Hmm , jadi Kamu tidak ingin Aku terlalu banyak berbicara tentang tombak es ya... Tapi karena Celia-san sudah mengetahuinya, kurasa tidak ada gunanya menyembunyikannya.
 
-Selain itu, Aku tidak memiliki kewajiban untuk membuat detailnya untuk saat ini. Jadi Aku membalas Carol-san dengan mengarahkan pandangan Aku ke bawah dan menggelengkan kepala.
+Selain itu, Aku tidak memiliki kewajiban untuk membuat detailnya untuk menolongnya saat ini, walau sedikit. Jadi Aku membalas Carol-san dengan mengarahkan pandangan Aku ke bawah dan menggelengkan kepala.
 
 Aku melihat keputusasaan tertulis di seluruh wajahnya, tetapi Kamu menuai apa yang Kamu tabur.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+a"Carol-san menggunakan tombak es, +GLACIA LENTSO? dan menembak 10 tombak es."
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"maaf, 10?"
 
-"Saat jalan buntu, Carol- san menggunakan tombak es, Glacia Lentso kan? dan menembak 10 dari mereka. "
-" Permisi. 10 dari mereka? "
-" Aku yakin ada 10 dari mereka, Aku pikir. Aku benar-benar berpikir Aku akan mati, jadi itu seharusnya benar. "
-" Aku sangat menyesal. Saat ini, ada sesuatu yang perlu Aku tanyakan pada Carol, jadi bisakah Aku meminta sedikit waktu? "
-" Ya, tolong jangan pedulikan Aku. "
+a"Aku yakin ada 10. Aku benar-benar berpikir Aku akan mati, jadi itu pasti benar."
 
-Setelah mendapatkan konfirmasiku, dia mengirim tatapan dingin ke arah Carol- san .
+"Maafkan aku. Saat ini, ada sesuatu yang perlu Aku tanyakan pada Carol, jadi bisakah Aku meminta sedikit waktu?"
+
+a"Ya, tolong jangan pedulikan Aku."
+
+Setelah mendapatkan konfirmasiku, dia mengirim tatapan dingin ke arah Carol-san.
+
 Carol- san dengan canggung mengalihkan pandangannya tapi sepertinya dia tidak bisa melarikan diri.
 
 "Katakan Carol. Apa yang kamu lawan? "
