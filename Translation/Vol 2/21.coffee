@@ -86,44 +86,55 @@ a"Celia-san , apakah Kamu masih ingat berapa umurmu, pertama kali Kamu makan ses
 
 "hmmmm... Aku tidak begitu ingat tetapi Aku percaya bahwa anak-anak pada umumnya dapat mulai makan bubur setengah tahun setelah kelahiran mereka."
 
-"Pertama kali Aku makan sesuatu, adalah ketika Aku berusia 5 tahun."
+a"Pertama kali Aku makan sesuatu, adalah ketika Aku berusia 5 tahun."
 
-Saat aku mengingat untuk mengatakannya sesantai mungkin, Celia- san tidak bisa berkata-kata dan tidak dapat menemukan apa pun untuk menjawab.
-Aku tidak benar-benar mencoba untuk membual tentang kemalangan kami tetapi karena sepertinya dia mungkin mendukung kami, Aku memutuskan untuk berbicara lebih banyak tentang kami.
-"Celia- san , apakah kamu sudah melihat rambutku?"
-"...... Ya. Aku sudah. Karena sepertinya Kamu ingin menyembunyikannya, Aku mencoba untuk tidak terlalu banyak menatap. "
-" Awalnya, rambut Aku pirang keemasan. Sejak menjadi putih, Aku menyembunyikannya seperti ini tetapi sepertinya Aku tidak benar-benar perlu menyembunyikannya. "
-" Meskipun benar bahwa memiliki rambut putih tidak umum untuk dilihat, itu bukan warna yang tidak dapat Kamu Temukan. Sebagian penyihir tertentu bahkan akan menyimpan kekaguman hanya karena memiliki rambut putih. "
-" Maka sepertinya Aku bisa melepaskan rambut Aku mulai besok. "
-" Itu benar. Melakukannya juga akan sedikit membantu di pihak kami.
-     Dengan itu, bahkan jika Aku tidak ada di sana, itu akan membuat penerimaan lebih mudah. ​​"
+Saat aku berusaha untuk mengatakannya sesantai mungkin, Celia-san terdiam dan tidak dapat menjawab kami.
+
+Aku tidak benar-benar mencoba untuk berbohong tentang kemalangan kami tetapi karena sepertinya dia mungkin mendukung kami, Aku memutuskan untuk berbicara lebih banyak tentang kami.
+
+a"Celia-san, apakah kamu sudah melihat rambutku?"
+
+"...... Ya. Aku sudah melihatnya. Karena sepertinya Kamu ingin menyembunyikannya, Aku mencoba untuk tidak terlalu banyak menatapnya."
+
+a"Awalnya, rambutku pirang keemasan. Sejak menjadi putih, Aku menyembunyikannya seperti ini tetapi sepertinya Aku tidak benar-benar perlu menyembunyikannya."
+
+"Meskipun benar bahwa memiliki rambut putih tidak umum untuk dilihat, itu bukan warna yang tidak dapat Kamu Temukan. Sebagian penyihir tertentu bahkan akan menganggapnya cantik hanya karena memiliki rambut putih."
+
+a"Sepertinya Aku tidak perlu menyembunyikan rambutku besok."
+
+"Itu benar. Melakukannya itu juga akan sedikit membantu di pihak kami. Dengan itu, bahkan jika Aku tidak ada di sana, itu akan membuat penerimaan dari sisi resepsionis lebih mudah. ​"
 
 Ini berarti bahwa dia dapat memberi tahu rekan kerjanya untuk berhati-hati terhadap seorang gadis berusia 10 tahun berambut putih.
+
 Dalam hal ini, menonjol tidak selalu buruk.
-Karena suasananya agak lebih ringan, Aku menanyakan sesuatu yang agak membuat Aku penasaran.
 
-"Ngomong-ngomong, tentang pertandingan Aku dengan Carol- san , apakah tidak apa-apa melihatnya sebagai kemenangan Aku?
-     Kami sudah membicarakannya sebelumnya, tapi Aku tidak benar-benar berpikir bahwa kami menyelesaikan pertarungan. "
-" Aku ingin mengonfirmasi, Kamu masih bisa bertarung dengan benar, Cielmer- san ? "
-" Aku mungkin masih bisa mengambil satu es lagi tombak. "
-" Karena Carol tidak memiliki cukup energi untuk menggunakan sihir yang tepat, kemungkinan besar Kamu akan menang jika pertarungan berlanjut.
-     Itu hanya seberapa banyak kekuatan sihir yang dikonsumsi Glacia Lentso. "
-" Lagi pula, itu tidak hanya menembus, itu juga membekukan tempat yang dihantamnya. "
-" Jadi Kamu juga memperhatikannya. "
+Karena suasananya agak lebih ringan, Aku menanyakan sesuatu yang agak membuatku penasaran.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+a"Ngomong-ngomong, tentang pertandingan Aku dengan Carol- san , apakah tidak apa-apa melihatnya sebagai kemenanganku? kita sudah membicarakannya sebelumnya, tapi Aku tidak benar-benar berpikir bahwa kami menyelesaikan pertarungan."
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"Aku ingin mengkonfirmasi, Kamu masih bisa bertarung dengan benar, Cielmer-san ?"
 
-Sepertinya tombak es adalah sesuatu yang luar biasa dibandingkan dengan mantra lainnya. Mungkin itu juga mengapa nama itu pantas.
-Saat aku mengangguk dengan samar, Celia- san berhenti di depan sebuah bangunan.
+a"Aku mungkin masih bisa menangkis satu tombak es lagi."
+
+"Karena Carol tidak memiliki cukup energi untuk menggunakan sihir yang tepat, kemungkinan besar Kamu akan menang jika pertarungan berlanjut. Itulah bukti banyaknya kekuatan sihir yang dikonsumsi +GLACIA LENTSO."
+
+a"iya, itu tidak hanya menembus, itu juga membekukan tempat yang dihantamnya."
+
+"Jadi Kamu juga memperhatikannya."
+
+Sepertinya tombak es adalah sesuatu yang luar biasa dibandingkan dengan sihir lainnya. Mungkin itu juga mengapa nama yang dipakai juga pantas untuk sihir itu.
+
+Saat aku mengangguk dengan samar, Celia-san berhenti di depan sebuah bangunan.
+
 Tampak akrab dengan tempat itu, dia memasuki gedung dengan interior yang terang benderang.
 
-Dan saat aku mengikutinya, sepertinya Celia- san membawaku ke tempat yang jauh lebih cantik dari yang kubayangkan. Memiliki warna cerah yang menenangkan sebagai warna utama dari penginapan ini, Aku mungkin tidak salah mengira bahwa ini adalah penginapan yang berorientasi pada wanita.
-Di konter juga ada seorang wanita, yang cukup umur untuk memiliki anak seusiaku. Senyuman lembut dan tinggi badannya yang sedikit tinggi untuk seorang wanita, meninggalkan kesan yang kuat. Jadi dia tampaknya orang yang memanjakan dalam banyak hal.
+Dan saat aku mengikutinya, sepertinya Celia-san membawaku ke tempat yang jauh lebih bagus dari yang kubayangkan. Memiliki warna cerah yang menenangkan sebagai warna utama dari penginapan ini, Aku mungkin tidak salah mengira bahwa ini adalah penginapan yang berorientasi pada wanita.
 
-Karena cara mereka berbicara tampaknya dekat, Celia- san mungkin mengenalnya secara pribadi.
-Setelah berbicara beberapa lama, Celia- san tiba-tiba menghadapku.
+Di konter juga ada seorang wanita, yang cukup tua untuk memiliki anak seusiaku. Senyuman lembut dan tinggi badannya yang sedikit tinggi untuk seorang wanita, meninggalkan kesan yang kuat. Jadi dia tampaknya orang yang memanjakan dalam banyak hal.
+
+Karena cara mereka berbicara tampaknya dekat, Celia-san mungkin mengenalnya secara pribadi.
+
+Setelah berbicara beberapa lama, Celia-san tiba-tiba menghadapku.
 
 "Jadi dengan itu, Nilda- san , tolong jaga Cielmer- san ."
 "Tentu saja. Cielmer- san , senang bertemu denganmu hari ini. "
