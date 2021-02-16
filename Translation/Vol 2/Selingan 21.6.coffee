@@ -1,36 +1,52 @@
 Ch 21.6: Resepsionis, Penyihir, dan Gadis Kecil berumur 10 Tahun (bagian 2)
 
-"Ngomong-ngomong, Carol. Apakah Kamu masih ingat berapa usia Kamu ketika Kamu pertama kali makan sesuatu? "
-" Tidak mungkin Aku masih mengingat hal seperti itu. "
-" Cielmer- san , dia mengatakan itu ketika dia berusia 5 tahun. "
-" Haah? Apa artinya itu?"
+"Ngomong-ngomong, Carol. Apakah Kamu masih ingat berapa usiamu ketika Kamu pertama kali makan sesuatu?"
+
+"Tidak mungkin Aku masih mengingat hal seperti itu."
+
+"Cielmer-san, dia berkata ketika dia berusia 5 tahun."
+
+"Haah? Apa artinya itu?"
 
 Dengan tatapan bingung, Carol mengatakannya dengan nada berat.
-Aku mengerti bagaimana perasaannya. Ketika Aku mendengar dia mengatakan ini, Aku tidak dapat segera membalasnya.
-Meskipun mungkin tidak terlalu jelas, Aku telah bekerja dengan guild untuk waktu yang sangat lama. Aku telah melakukan percakapan yang berbeda dengan berbagai jenis orang, jadi seharusnya tidak sulit bagi Aku untuk melanjutkan percakapan.
-Namun, Aku sangat terkejut sehingga Aku bahkan tidak bisa melakukannya. Keunikan keadaannya dan keberadaannya sendiri terlihat jelas dengan kata-kata itu.
 
-"Ketika Aku bertanya mengapa dia ingin meninggalkan negara ini, dia menanyakan pertanyaan itu kepada Aku alih-alih menjawab Aku."
+Aku mengerti bagaimana perasaannya. Ketika Aku mendengarnya mengatakan ini, Aku tidak dapat segera membalasnya.
+
+Meskipun mungkin tidak terlalu jelas, Aku telah bekerja dengan guild untuk waktu yang sangat lama. Aku telah melakukan percakapan yang berbeda dengan berbagai jenis orang, jadi seharusnya tidak sulit bagiku untuk melanjutkan percakapan.
+
+tapi, Aku sangat terkejut sehingga Aku bahkan tidak bisa melakukannya. Keunikan keadaannya dan keberadaannya sendiri terlihat jelas dengan kata-kata itu.
+
+"Ketika Aku bertanya mengapa dia ingin meninggalkan negara ini, dia menanyakan pertanyaan itu kepada Aku daripada menjawabku."
+
 "Usia Kamu pertama kali makan sesuatu?"
-"Tepat. Ketika Aku berbicara tentang kapan penyapihan umumnya dimulai, dia mengatakan kepada Aku bahwa dalam kasusnya, saat itu dia berusia 5 tahun.
-     Dari cara dia mengatakannya, Aku hanya bisa berasumsi bahwa susu bayi mungkin bukan pengecualian. "
-" Lalu, bagaimana dia hidup selama 5 tahun ...... Tunggu, tidak. Tidak mungkin, tidak mungkin ada orang yang benar-benar melakukan sesuatu yang bodoh ...... "
-" Apakah kamu tahu sesuatu? "
-"Aku lakukan. Sekitar 10 tahun yang lalu, pernah ada seorang raja yang mengalami koma sehingga orang-orang berusaha untuk membuatnya tetap hidup sebisa mereka. Dan saat itu ada penelitian tertentu yang dipresentasikan. Dinyatakan bahwa, jika Kamu melarutkan makanan menjadi bentuk cair dan menuangkannya ke dalam darah yang mengalir ke seluruh tubuh, Kamu tidak akan mati.
-     Metodenya adalah membuat luka di suatu tempat dengan pisau dan kemudian secara paksa memasukkan cairan itu menggunakan sihir; tapi pada akhirnya, itu tidak diadopsi untuk digunakan. Aku bahkan mungkin dapat menemukan dokumen-dokumen itu jika Aku mencoba. "
-" Ada desas-desus tentang itu diterapkan? "
-" Tidak. Tetap saja, jika penelitian itu masih dilakukan secara rahasia, itu akan membuat hidup sampai 5 tahun tanpa makan sangat mungkin. "
 
-Penelitian ini adalah kegilaan …… sulit untuk menilai begitu saja. Hanya memikirkan berapa banyak orang yang meninggal karena kelaparan setelah tidak sadarkan diri karena penyakit dan sejenisnya, Aku dapat memahami pentingnya penelitian ini.
+"Tepat. Ketika Aku berbicara tentang kapan biasanya dimulai, dia mengatakan kepadaku bahwa dalam kasusnya, saat itu dia berusia 5 tahun. Dari cara dia mengatakannya, Aku hanya bisa berasumsi bahwa susu bayi mungkin bukan pengecualian."
+
+"Lalu, bagaimana dia hidup selama 5 tahun ...... Tunggu, tidak. Tidak mungkin, tidak mungkin ada orang yang benar-benar melakukan sesuatu yang bodoh ......"
+
+"Apakah kamu tahu sesuatu?"
+
+"Iya. Sekitar 10 tahun yang lalu, pernah ada seorang raja yang mengalami koma sehingga orang-orang berusaha untuk membuatnya tetap hidup sebisa mereka. Dan saat itu ada penelitian tertentu yaitu, jika Kamu melarutkan makanan menjadi bentuk cair dan menuangkannya ke dalam darah yang mengalir ke seluruh tubuh, Kamu tidak akan mati. Metodenya adalah membuat luka di suatu tempat dengan pisau dan kemudian secara paksa memasukkan cairan itu menggunakan sihir; tapi pada akhirnya, cara itu tidak digunakan. Aku bahkan mungkin dapat menemukan dokumen-dokumen itu jika Aku mencoba mencarinya."
+
+"apakah Ada isu cara itu diterapkan?"
+
+"Tidak. Tetap saja, jika penelitian itu masih dilakukan secara rahasia, hidup sampai 5 tahun tanpa makan itu sangat mungkin saja terjadi."
+
+Penelitian ini adalah hal gila...... sulit untuk menilai begitu saja. Hanya memikirkan berapa banyak orang yang mati karena kelaparan setelah tidak sadarkan diri karena penyakit dan sejenisnya, Aku dapat memahami pentingnya penelitian ini.
+
 Aku telah melihat orang-orang yang, meskipun luka mereka telah disembuhkan sepenuhnya oleh sihir, mereka tetap saja mati tanpa bangun.
-Jika bisa diimplementasikan untuk penggunaan praktis, semua orang yang sejauh ini hanya bisa dibiarkan mati, sekarang punya kesempatan untuk bertahan hidup. Itu hal yang luar biasa.
-Namun, melakukan itu pada anak yang sadar hanyalah kegilaan. Tetap saja, semua ini hanyalah spekulasi kami.
 
-"Keadaan kehidupannya mengerikan, tetapi bukankah cara dia menyebutkan" ini pertama kalinya dia makan sesuatu "juga cukup mencurigakan?"
-"Celia, apakah Kamu mungkin memberi tahu Aku bahwa dia mengingat semuanya sejak dia lahir? "
-" Tentu saja, dia mungkin hanya menyiratkan bahwa dia belum makan apa pun selama dia bisa ingat. Tetapi jika itu bukan Cielmer- san , maka Aku tidak akan curiga. "
-" Kemahirannya yang luar biasa dalam sihir mungkin juga bisa dijelaskan jika dia telah menggunakan sihir sejak dia lahir.
-     Terus terang, Aku tidak percaya ada orang yang bisa mencapai tingkat penguasaan itu hanya dalam 10 tahun tetapi jauh lebih meyakinkan seperti itu. "
+Jika bisa diimplementasikan untuk penggunaan sehari-hari, semua orang yang sejauh ini hanya bisa dibiarkan mati, sekarang punya kesempatan untuk bertahan hidup. Itu hal yang luar biasa.
+
+Tapi, melakukan itu pada anak yang sadar hanyalah kegilaan. Tetap saja, semua ini hanyalah spekulasi kami.
+
+"Keadaan kehidupannya mengerikan, tetapi bukankah cara dia menyebutkan 'ini pertama kalinya dia makan sesuatu' juga cukup mencurigakan?"
+
+"Celia, apakah Kamu mungkin memberi tahuku bahwa dia mengingat semuanya sejak dia lahir?"
+
+"Tentu saja, dia mungkin hanya menyiratkan bahwa dia belum makan apa pun selama dia bisa ingat. Tetapi jika itu bukan Cielmer-san , maka Aku tidak akan curiga."
+
+"Kemahirannya yang luar biasa dalam sihir mungkin juga bisa dijelaskan jika dia telah menggunakan sihir sejak dia lahir. Terus terang, Aku tidak percaya ada orang yang bisa mencapai tingkat itu hanya dalam 10 tahun tetapi jauh lebih meyakinkan jika seperti itu."
 
 Aku tahu bahwa Aku mungkin berbicara omong kosong tetapi sejujurnya, Aku tidak dapat membayangkan bahwa Cielmer- san berbohong kepada Aku.
 Sebagian karena insting Aku sebagai resepsionis, tapi juga tidak pantas baginya untuk mengatakan sesuatu yang jelas terdengar seperti kebohongan.
