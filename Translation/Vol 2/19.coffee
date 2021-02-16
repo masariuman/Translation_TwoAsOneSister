@@ -1,3 +1,5 @@
+Ch 19 : Pertarungan Sengit dan dan Tombak Es
+
 "Dengan ini, +BARRIER yang mengganggu itu akhirnya hilang. Sekarang, bukankah sudah waktunya Kamu menunjukkan sihirmu berikutnya?"
 
 Setelah menerobos penghalang Aku, Carol- san meletakkan tangannya di pinggul dan mendengus penuh kemenangan.
