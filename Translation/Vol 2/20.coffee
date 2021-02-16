@@ -60,15 +60,19 @@ a"Ya. Jika Aku tidak menggunakan sihir, Aku mungkin tidak bisa melakukan apa-apa
 
 a"Persiapan? Dari apa?"
 
-Karena Aku terus-menerus memiliki penghalang dan kami bisa mengakhiri sebagian besar perkelahian hanya dengan Aku bernyanyi dan menari Ciel jika kami tidak membatasi diri seperti yang kami lakukan kali ini, selalu terasa seperti kami selalu siap.
-Namun, dari sudut pandang penyihir, mungkin masuk akal untuk memiliki jenis persiapan yang berbeda.
-Aku segera melihat Carol- san dan dia langsung membuang muka.
+Karena Aku terus-menerus memiliki +BARRIER dan kami bisa mengakhiri sebagian besar pertarungan hanya dengan Aku bernyanyi dan tarian ciel, jika kami tidak membatasi diri seperti yang kami lakukan kali ini, selalu terasa seperti kami selalu siap.
 
-"Ahh , benar. Aku melihat. Jadi seseorang tertentu berkelahi dengan pemula yang tidak siap sementara dia sendiri benar-benar siap. "
-" Tapi seorang Hunter harus selalu siap untuk bertarung, kan? "
-" Itu benar. Aku hanya mengajarinya kenyataan pahit itu. "
-" Memang benar begitulah seharusnya seorang Hunter dan dalam hal itu, jika sesuatu terjadi pada Kamu, Cielmer- san , publik kemungkinan besar akan melihat itu sebagai kesalahan Kamu karena tidak sepenuhnya siap.
-     Namun, pendapat pribadi Aku tentang Carol merosot. Meskipun dia seorang Hunter yang bercita-cita tinggi, itu bukanlah sesuatu yang harus Kamu lakukan pada gadis berusia 10 tahun. "
+tapi, dari sudut pandang penyihir, mungkin masuk akal untuk memiliki jenis persiapan yang berbeda.
+
+Aku segera melihat Carol-san dan dia langsung membuang muka.
+
+"Ahh , benar. begitu ya... Jadi seseorang tertentu bertarung dengan pemula yang tidak siap sementara dia sendiri benar-benar siap."
+
+a"Tapi seorang Hunter harus selalu siap untuk bertarung, kan?"
+
+"Itu benar. Aku hanya mengajarinya kenyataan pahit itu."
+
+"Memang benar begitulah seharusnya seorang Hunter dan dalam hal itu, jika sesuatu terjadi padamu, Cielmer-san, publik kemungkinan besar akan melihat itu sebagai kesalahanmu karena tidak sepenuhnya siap. Tapi, pendapat pribadiku tentang Carol menurun. Meskipun dia seorang Hunter yang bercita-cita tinggi, itu bukanlah sesuatu yang harus Kamu lakukan pada gadis berusia 10 tahun."
 
 Untuk saat ini, Aku mengatakan demikian untuk memastikan apa yang saat ini Aku ketahui tetapi tiba-tiba pendapat Celia- san tentang Carol- san menjadi lebih rendah.
 Nah, karena dia memang mempermainkan pernyataan seorang anak untuk membenarkan tindakannya sendiri, mungkin pantas untuk merendahkan pendapat Kamu tentangnya.
