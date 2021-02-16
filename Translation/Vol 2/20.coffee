@@ -72,19 +72,24 @@ a"Tapi seorang Hunter harus selalu siap untuk bertarung, kan?"
 
 "Itu benar. Aku hanya mengajarinya kenyataan pahit itu."
 
-"Memang benar begitulah seharusnya seorang Hunter dan dalam hal itu, jika sesuatu terjadi padamu, Cielmer-san, publik kemungkinan besar akan melihat itu sebagai kesalahanmu karena tidak sepenuhnya siap. Tapi, pendapat pribadiku tentang Carol menurun. Meskipun dia seorang Hunter yang bercita-cita tinggi, itu bukanlah sesuatu yang harus Kamu lakukan pada gadis berusia 10 tahun."
+"Memang benar begitulah seharusnya seorang Hunter dan dalam hal itu, jika sesuatu terjadi padamu, Cielmer-san, publik kemungkinan besar akan melihat itu sebagai kesalahanmu karena tidak sepenuhnya siap. Tapi, pandangan pribadiku tentang Carol menurun. Meskipun dia seorang Hunter yang hebat, itu bukanlah sesuatu yang harus Kamu lakukan pada gadis berusia 10 tahun."
 
-Untuk saat ini, Aku mengatakan demikian untuk memastikan apa yang saat ini Aku ketahui tetapi tiba-tiba pendapat Celia- san tentang Carol- san menjadi lebih rendah.
-Nah, karena dia memang mempermainkan pernyataan seorang anak untuk membenarkan tindakannya sendiri, mungkin pantas untuk merendahkan pendapat Kamu tentangnya.
+Untuk saat ini, Aku berbicara untuk memastikan apa yang saat ini Aku ketahui tetapi tiba-tiba pandangan Celia-san tentang Carol-san menjadi lebih rendah.
 
-"Umm , jadi, apa yang kamu maksud dengan persiapan?"
-"Permisi. Para dukun umumnya menyiapkan lingkaran sihir pada pakaian, sepatu, dan sejenisnya, sehingga mereka dapat menggunakan sihirnya secepat mungkin.
-     Jumlah lingkaran sihir yang dapat dipersiapkan seseorang akan bergantung pada kemampuan mereka, tetapi dalam situasi seperti ini, di mana kamu mengikuti ujian, diharapkan kamu melakukan persiapan sebelumnya. Seperti yang Aku katakan sebelumnya, dalam kasus di mana Kamu tidak siap, itu umumnya dilihat sebagai kesalahan Kamu karena tidak siap. "
-" Begitu. Terima kasih untuk informasinya."
+Nah, karena dia memang mempermainkan pernyataan seorang anak untuk membenarkan tindakannya sendiri, mungkin pantas untuk merendahkan pandanganmu padanya.
 
-Tentu saja memiliki lingkaran sihir sebelumnya berarti sihir dapat segera digunakan dalam keadaan darurat, jadi itu sangat bagus bahkan sebagai pertahanan menit terakhir.
-Paling tidak, dimungkinkan untuk menghindari skenario terburuk jika penyergapan musuh diketahui sebelum mereka menyerang. Dalam kasus di mana penyihir hanya bisa menggunakan mantra, itu pasti membutuhkan waktu untuk mengucapkan mantra setelah memperhatikan musuh, jadi kemungkinan besar penyihir itu akan mati di tengah-tengahnya.
-Saat menggunakan sihir dengan mantra, itu hanya mungkin untuk menggunakan satu per mantra tetapi dengan kasus menggunakan lingkaran sihir, bisa menggunakan berbagai jenis sihir pada saat yang sama menjadi keuntungan besar.
+a"Umm , jadi, apa yang kamu maksud dengan persiapan?"
+
+"umm. Penyihir umumnya menyiapkan lingkaran sihir pada pakaian, sepatu, dan sejenisnya, sehingga mereka dapat menggunakan sihirnya secepat mungkin. Jumlah lingkaran sihir yang dapat dipersiapkan seseorang akan bergantung pada kemampuan mereka, tetapi dalam situasi seperti ini, di mana kamu mengikuti ujian, kamu diharapkan melakukan persiapan sebelumnya. Seperti yang Aku katakan sebelumnya, dalam kasus di mana Kamu tidak siap, itu umumnya dilihat sebagai kesalahanmu karena tidak siap."
+
+a"Begitu. Terima kasih untuk informasinya."
+
+Tentu saja memiliki lingkaran sihir sebelumnya berarti sihir dapat segera digunakan dalam keadaan darurat, jadi itu sangat bagus bahkan sebagai pertahanan dimenit terakhir.
+
+Paling tidak, bisa untuk menghindari skenario terburuk jika penyergapan musuh diketahui sebelum mereka menyerang. Dalam kasus di mana penyihir hanya bisa menggunakan sihir, itu pasti membutuhkan waktu untuk mengucapkan mantra setelah melihat musuh, jadi kemungkinan besar penyihir itu akan mati di ketika mengucapkan mantra.
+
+Saat menggunakan sihir dengan mantra, itu hanya untuk menggunakan satu sihir per mantra tetapi dengan kasus menggunakan lingkaran sihir, bisa menggunakan berbagai jenis sihir dan pada saat yang sama menjadi keuntungan besar.
+
 Jelas bahwa menangani banyak lingkaran sihir membutuhkan kontrol yang baik. Tetapi jika hanya Ciel yang menggunakannya, kami mungkin bisa menangani 3 lingkaran sihir lagi selain berada dalam mode pertempuran tiruan.
 Dan memiliki lebih banyak pilihan mungkin akan memberi kita keuntungan yang lebih besar di pertempuran terakhir.
 Tetap saja, Aku tidak berpikir bahwa 3 lingkaran sihir lagi akan melakukan apa pun untuk menghentikan tombak es itu.
