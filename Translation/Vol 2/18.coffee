@@ -157,18 +157,26 @@ Saat pisau itu mendarat setelah beberapa detik, aku merasakan reaksi kekuatan si
 
 Dalam penglihatanku, Aku melihat banyak panah es yang menghadap ke arah kami melayang di udara.
 
-Biarpun semua itu ditembakkan pada kita, itu masih akan bergantung pada kekuatan masing-masing dan setiap dari mereka tapi kupikir perisai Aku mungkin bisa memblokir mereka semua.
-Namun, Carol- san kemungkinan besar juga tahu itu. Kalau begitu, mungkin ada sesuatu di panah itu.
+Biarpun semua itu ditembakkan pada kami, tergantung dari kekuatannya juga tapi kupikir +BARRIERku mungkin bisa memblokir mereka semua.
+
+tapi, Carol-san kemungkinan besar juga tahu itu. Kalau begitu, mungkin ada sesuatu di panah itu.
 
 Saat Ciel hendak bergerak, anak panah ditembakkan ke arah kami.
-Aku berharap mereka datang secara bertubi-tubi untuk membatasi pergerakan kami, tetapi mereka ditembakkan dalam satu baris dan menghilang segera setelah mereka mencapai penghalang berbentuk bola.
-Sementara Ciel terlindungi, dia lari untuk melarikan diri dari serangan Carol- san , tapi dia tidak bisa melepaskan diri dari kejaran anak panah.
+
+Aku berharap mereka datang secara bertubi-tubi untuk membatasi pergerakan kami, tetapi mereka ditembakkan dalam satu baris dan menghilang segera setelah mereka mencapai +BARRIER berbentuk bola.
+
+Sementara Ciel terlindungi, dia lari untuk melarikan diri dari serangan Carol-san , tapi dia tidak bisa melepaskan diri dari kejaran anak panah.
+
 Masing-masing anak panah mengenai sekuat serangan Alejo tapi ini mungkin sedikit berbahaya.
-Melihat Carol- san , meskipun anak panah tidak mencapai Ciel, dia masih terlihat tenang.
 
-Dengan kata lain, dia mungkin melakukan ini dengan sengaja. Sederhananya, sihir penghalang menciptakan dinding dengan kekuatan sihir untuk bertahan dari serangan tetapi bisa ada ketidakkonsistenan dalam daya tahannya.
-Dengan kata lain, daya tahan penghalang tidak seragam, Kamu bisa memiliki titik kuat dan titik lemah.
-Dan anak panah Carol- san , secara akurat mengenai titik lemah. Ada batu ajaib sebelumnya juga, jadi kupikir kemampuannya untuk merasakan kekuatan sihir sangat tinggi.
+Melihat Carol-san , meskipun anak panah tidak mencapai Ciel, dia masih terlihat tenang.
 
-Mungkin memahami bahwa berlari tidak ada artinya, Ciel berhenti di jalurnya dan mulai menggambar sesuatu di tanah.
-Seolah-olah untuk mencegahnya melakukannya, jumlah dan kekuatan di balik panah meningkat; akhirnya sesuatu retak dan penghalang itu runtuh.
+Dengan kata lain, dia mungkin melakukan ini dengan sengaja. Sederhananya, sihir +BARRIER menciptakan dinding dengan kekuatan sihir untuk bertahan dari serangan tetapi bisa ada ketidakkonsistenan dalam daya tahannya.
+
+Dengan kata lain, daya tahan +BARRIER tidak seragam, Kamu bisa memiliki titik kuat dan titik lemah.
+
+Dan anak panah Carol- san , secara akurat mengenai titik lemah. Ada batu magic sebelumnya juga, jadi kupikir kemampuannya untuk merasakan kekuatan sihirnya sangat tinggi.
+
+Mungkin memahami bahwa berlari tidak ada artinya, Ciel berhenti dan mulai menggambar sesuatu di tanah.
+
+Seolah-olah untuk mencegahnya melakukannya, jumlah dan kekuatan di balik panah meningkat; akhirnya sesuatu retak dan +BARRIER itu hancur.
