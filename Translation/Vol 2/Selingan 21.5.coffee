@@ -115,28 +115,32 @@ pada dasarnya, rank B bukan hanya Hunter "biasa saja".
 
 "Kami dapat berspekulasi tentang situasinya semau kami, tetapi kami membutuhkan informasi terlebih dahulu. Dia memberitahumu beberapa hal kan? Jadi, apa yang kamu tanyakan padanya?"
 
-"Aku bertanya mengapa dia terburu-buru untuk menaikkan peringkatnya.
-     Lagipula, yang dia minta adalah peningkatan peringkat. Ingin memiliki peringkat yang lebih tinggi bukanlah sesuatu yang tidak biasa dengan sendirinya tetapi ... Bukankah jika terasa berbeda untuknya? "
-" Yah, ya. Lalu, bagaimana dia menjawab? "
-" Dia ingin melarikan diri dari negara ini. "
-" Jadi seorang gadis berusia 10 tahun yang ingin melarikan diri dari negara ini. "
-" Dia tidak memberi tahu Aku alasannya. Tidak, sebelum itu, dia bertanya apakah aku melarangnya meninggalkan negara. "
-" Celia, dia melibatkanmu dalam masalah, tahu? Jadi apa yang kamu katakan? "
+"Aku bertanya mengapa dia terburu-buru untuk menaikkan ranknya. Lagipula, yang dia minta adalah kenaikan rank. Ingin memiliki rank yang lebih tinggi bukanlah sesuatu yang tidak biasa tapi ... Bukankah jika terasa berbeda kalau itu dia?"
+
+"Yaaah, iya. Lalu, bagaimana dia menjawab?"
+
+"Dia ingin melarikan diri dari negara ini."
+
+"Jadi seorang gadis berusia 10 tahun yang ingin melarikan diri dari negara ini."
+
+"Dia tidak memberi tahuku alasannya. Tidak, sebelum itu, dia bertanya apakah aku melarangnya meninggalkan negara."
+
+"Celia, dia melibatkanmu dalam masalah lho... Jadi apa yang kamu katakan?"
 
 Carol menatapku dengan penuh minat. Tapi bukannya ketertarikan, itu mungkin hiburan.
-Dengan kata lain, dia mungkin ingin tahu tentang seberapa besar niat Aku untuk melibatkan diri dalam masalah ini.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+Dengan kata lain, dia mungkin ingin tahu tentang seberapa besar niatku untuk melibatkan diri dalam masalah ini.
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"Pada tahap ini, Aku setuju dengannya. Meskipun untuk guild kota ini, mereka mungkin tidak ingin dia pergi ke tempat lain, jadi mereka mungkin akan mencoba menahannya di sini."
 
-"Pada tahap ini, Aku setuju dengannya. Meskipun untuk guild kota ini, mereka mungkin tidak ingin dia pergi ke tempat lain, jadi mereka mungkin akan mencoba menahannya di sini. "
-" Jadi itu berarti kamu membantunya? "
-" Aku akan memutuskan nanti. Kali ini, Aku masih menilai apakah Aku harus membantunya.
-     Lagipula, dia mengatakan bahwa dia belum pernah melihat benda ajaib sebelumnya. Dia tidak tahu bagaimana menggunakannya. Dia dengan santai membicarakannya tetapi Aku curiga dia mencoba mempelajari seberapa umum item sihir itu. "
-" Tidak termasuk pedesaan terpencil, mereka sudah cukup luas kan? Lagipula, mudah untuk mengumpulkan batu ajaib jika Kamu hanya melawan monster peringkat rendah.
-     Harga item sihir bergantung pada item itu sendiri, tetapi yang lebih murah sangat murah. "
+"Jadi itu berarti kamu membantunya?"
+
+"Aku akan memutuskan nanti. Kali ini, Aku masih menilai apakah Aku harus membantunya. Lagipula, dia berkata bahwa dia belum pernah melihat item sihir sebelumnya. Dia tidak tahu bagaimana menggunakannya. Dia dengan santai membicarakannya tetapi Aku curiga dia mencoba mempelajari seberapa umum item sihir itu."
+
+"kesampingkan pedesaan terpencil, item sihir sudah cukup luas dikenal kan? Lagipula, mudah untuk mengumpulkan batu magic jika Kamu hanya melawan monster rank rendah. Harga item sihir bergantung pada item itu sendiri, tetapi yang lebih murah sangatlah murah."
+
 "Cukup murah untuk rumah tangga biasa."
 
 Karena itu, siapa pun seharusnya bisa menemukan item sihir penghasil cahaya dalam kehidupan normal sehari-hari.
-Mengenai apa artinya ini, Aku akan mengesampingkannya untuk nanti, dan Aku memutuskan untuk mengajukan pertanyaan yang sama kepada Carol, yang ditanyakan Cielmer- san kepada Aku.
+
+Mengenai apa artinya ini, Aku akan mengesampingkannya untuk nanti, dan Aku memutuskan untuk mengajukan pertanyaan yang sama kepada Carol, yang ditanyakan Cielmer-san kepadaku.
