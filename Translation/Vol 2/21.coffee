@@ -32,23 +32,28 @@ a"Kalau begitu, dari kejadian hari ini, Aku ingin meminta bantuan guild sampai A
 
 a"Dan Juga, jika Kamu tahu ada penginapan yang bisa Aku tinggali sekarang, tolong beritahu aku."
 
-"Baiklah, mari kita lihat. Karena matahari akan segera terbenam, izinkan Aku untuk memandu Kamu ke sebuah penginapan atas rujukan Hunter's Guild. Apakah Kamu punya permintaan? "
+"Baiklah... Karena matahari akan segera terbenam, izinkan Aku untuk memandumu ke sebuah penginapan atas rujukan Guild Hunter. Apakah Kamu punya permintaan?"
 
-Aku baik-baik saja dengan hanya mengetahui tempat itu tetapi tampaknya dia akan membimbing Aku juga.
-Yah, lagipula itu bukan Jepang, jadi mungkin berbahaya bagi seorang gadis berjalan sendirian di malam hari. Berdasarkan media kreatif misalnya, Aku bahkan mungkin bertemu dengan penculik.
-Karena Aku akan segera melihat jika ada gerakan yang mencurigakan, Aku tidak berpikir kami akan diculik.
-Yang terpenting, bahkan jika Aku tahu bagaimana pergi ke tempat itu, Aku mungkin tersesat juga. Tidak ada satu alasan pun bagiku untuk menolak kebaikannya ini, bukan?
+Aku tidak masalah hanya mengetahui tempat itu tetapi tampaknya dia akan membimbingku juga.
 
-"Aku ingin tempat yang memiliki bak mandi dan tidak terlalu jauh dari sini."
-"Dimengerti. Sekarang, kita akan membicarakan detail pastinya besok; jadi untuk hari ini, izinkan Aku memandu Kamu ke penginapan. "
-" Terima kasih banyak. "
+Yah, lagipula ini bukan Jepang, jadi mungkin berbahaya bagi seorang gadis kecil berjalan sendirian di malam hari. Aku bahkan mungkin bertemu dengan penculik.
 
-Aku tidak tahu apakah dia hanya memedulikan Aku, itu bagian dari peraturan Hunter's Guild, atau keduanya; tapi karena dia akan membawaku ke penginapan, aku akan mengikutinya.
-Pada saat itu, dia memberi tahu Carol- san"Aku belum selesai denganmu, jadi tetaplah di sini." Dan meninggalkan interogasi? kamar.
+Karena Aku akan segera melihat jika ada gerakan yang mencurigakan, Aku tidak berpikir kami akan diculik. Bahkan jika Aku tahu bagaimana pergi ke tempat itu, Aku mungkin tersesat juga. Tidak ada satu alasan pun bagiku untuk menolak kebaikannya ini, kan?
+
+a"Aku ingin tempat yang memiliki bak mandi dan tidak terlalu jauh dari sini."
+
+"Baiklah. Sekarang, kita akan membicarakan detail pastinya besok; jadi untuk hari ini, izinkan Aku memandumu ke penginapan."
+
+a"Terima kasih banyak."
+
+Aku tidak tahu apakah dia hanya peduli padaku atau karena bagian dari peraturan Guild Hunter, atau bisa saja keduanya; tapi karena dia akan membawaku ke penginapan, aku akan mengikutinya.
+
+Pada saat itu, dia memberi tahu Carol-san "Aku belum selesai denganmu, jadi tetaplah di sini." Dan meninggalkan ruang introgasi.
 
 ◇
 
-Di luar Hunter's Guild, sekarang benar-benar gelap tetapi, dari jendela bangunan di sekitarnya, cahaya bersinar.
+Di luar Guild Hunter, sekarang benar-benar sudah gelap tetapi, dari jendela bangunan di sekitarnya, cahaya bersinar.
+
 Ini bukan cahaya yang berkedip-kedip seperti yang dibuat oleh api, dan meskipun tidak secerah lampu neon, itu mungkin masih cukup terang untuk membaca buku di tengah malam.
 
 "Ini benar-benar cerah meskipun malam hari."
