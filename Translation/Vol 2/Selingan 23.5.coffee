@@ -1,6 +1,7 @@
 Selingan 23.5 : Ciel dan Kota Pertama ※CIEL’S POV
 
 Ketika kami melarikan diri dari mansion, meninggalkan hutan, dan memutuskan untuk pergi ke kota, Aku merasa bersemangat tetapi pada saat yang sama, agak gelisah.
+
 Mungkin inilah perasaan cemas.
 
 Lagipula, Aku tidak bisa mempercayai orang. Aku agak memahami bagaimana interaksi dan hubungan manusia seperti dari cerita yang Aku baca.
@@ -9,7 +10,7 @@ Selain itu, mengingat hubunganku dengan Ain, aku mengerti bahwa aku pasti akan l
 
 Ain adalah manusia, tapi dia bukan manusia? Aku tidak tahu bagaimana menjelaskannya tetapi, Aku benar-benar berpikir bahwa dia istimewa.
 
-Namun demikian, ketika Aku melihat kota itu untuk pertama kalinya, Aku secara refleks memanggil Ain.
+Ketika Aku melihat kota itu untuk pertama kalinya, Aku secara refleks memanggil Ain.
 
 Dan setelah aku mendengar suara tenang Ain, semua kegelisahan yang kurasakan benar-benar lenyap. Sungguh misterius.
 
