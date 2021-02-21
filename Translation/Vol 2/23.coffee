@@ -94,11 +94,14 @@ Aku menyuruhnya meninggalkan kamar mandi sejenak, melepas pakaiannya, dan membaw
 
 Kalau dipikir-pikir, kami bahkan tidak punya pakaian dalam. Kain itu hanyalah sesuatu yang dijahit kasar menjadi bentuk yang bisa kita pakai, jadi mungkin tidak bisa digunakan sebagai pakaian dalam wanita.
 
-Dan dengan itu, kami kembali ke kamar mandi tetapi karena mereka tidak memiliki pancuran, kami mengisi ember dengan air panas dari batu ajaib dan menuangkannya ke seluruh tubuh kami. Ketika Ciel menuangkan air ke kepalanya - pada akhirnya Aku memutuskan untuk pergi keluar dan menjaga rambutnya dengan penghalang - dia akhirnya menghirup air melalui hidungnya, jadi Ciel memberikan tongkat itu kepada Aku.
+Dan dengan itu, kami kembali ke kamar mandi tetapi karena mereka tidak memiliki shower, kami mengisi centong dengan air panas dari batu magic dan menyiramnya ke seluruh tubuh kami. Ketika Ciel menuangkan air ke kepalanya - pada akhirnya Aku memutuskan untuk menggunakan seluruh kekuatanku dan menjaga rambutnya dengan +BARRIER - air masuk ke hidung ciel, jadi Ciel langsung memberikan tubuhnya kepadaku.
+
 Aku juga melakukan kesalahan yang sama ketika Aku masih kecil tetapi Aku lupa memperingatkannya tentang hal itu.
 
-Saat kami beralih, Ciel berkata body Tubuh Aku harus mengingatnya ketika Ain melakukannya sekali. "Jadi sepertinya kesalahan ini tidak membuatnya benci mandi.
-Sekarang, Aku menjalankan ingatan Aku dengan kekuatan penuh untuk mandi dengan cara yang se-feminim mungkin. Kesulitannya akan sangat tinggi.
+Saat kami bergantian, Ciel berkata "Tubuhku bisa mengingatnya jika Ain melakukannya sekali saja." Jadi sepertinya kesalahan ini tidak membuatnya benci mandi.
+
+Sekarang, Aku menjalankan ingatanku dengan kekuatan penuh untuk mandi dengan cara yang se-feminim mungkin. Kesulitannya akan sangat tinggi.
+
 Pertama, Aku menyabuni sabun. Karena ini adalah sesuatu yang juga Aku lakukan di masa lalu, itu tidak terlalu sulit untuk dilakukan. Sebaliknya, karena Aku cenderung terobsesi dengan hal-hal seperti ini, Aku bisa membuat sabun benar-benar berbuih hanya dengan tangan kosong. Intinya di sini adalah berhati-hati dengan berapa banyak air yang digunakan dan untuk memasukkan udara ke dalam busa.
 
 Ketika orang melihat Aku melakukannya selama kunjungan lapangan di masa lalu, itu sangat populer.
