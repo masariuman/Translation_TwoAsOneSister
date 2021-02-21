@@ -63,19 +63,24 @@ ciel Tampak tenang setelah beberapa saat, dengan pipinya sekarang kembali ke war
 
 c"Tapi kalau begitu, apakah benar-benar ada artinya Aku mandi?"
 
-"Penghalang Aku tidak bisa berbuat apa-apa tentang keringat dan semacamnya, jadi akan lebih baik jika Kamu masih melakukannya. Selain itu, karena mandi air panas akan menghangatkan tubuh, kudengar mandi bisa membantu mencegah penyakit dan semacamnya.
-Selain itu, karena bisa meningkatkan mood, ya? Ketika Kamu mandi, bagaimana Aku harus mengatakan ini, itu membuat Kamu merasa benar-benar segar.
-Then "Kalau begitu, mungkin akan menyenangkan untuk mencobanya.
-Tapi karena kami sudah mengisi bak mandi dengan air, itu praktis bagus seperti yang dikonfirmasi. "
+a"+BARRIERku tidak bisa berbuat apa-apa untuk keringat dan semacamnya, jadi akan lebih baik jika Kamu masih melakukannya. Selain itu, karena mandi air panas akan menghangatkan tubuh, kudengar mandi bisa membantu mencegah penyakit dan semacamnya. dan juga bisa meningkatkan mood, ya? Ketika Kamu mandi, bagaimana Aku harus mengatakan ini, itu membuatmu merasa benar-benar segar."
 
-Sebagai mantan orang Jepang, mengetahui bahwa Ciel sepertinya tidak suka mandi dengan jujur ​​membuatku bahagia.
+c"Kalau begitu, mungkin akan menyenangkan untuk mencobanya.
+karena kita sudah mengisi bak mandi dengan air, mungkin saatnya kita mengeceknya ?."
+
+Sebagai mantan orang Jepang, mengetahui bahwa Ciel sepertinya tidak membenci mandi dengan jujur ​​membuatku bahagia.
+
 Karena keadaan kami seperti itu, Aku tidak benar-benar merasa kotor meskipun kami tidak mandi, melainkan Aku selalu merasa bersih, tetapi Aku sangat ingin mandi.
+
 Tetap saja, Aku tidak ingin membuat Ciel melakukan sesuatu yang tidak dia sukai hanya karena Aku ingin melakukannya. Jadi meskipun Aku mungkin tidak akan mengatakan hal yang sama di masa depan, jika dia mengatakan bahwa dia tidak ingin mandi sekarang, Aku kemungkinan akan menyerah.
 
 Juga, karena tempat-tempat yang tidak ditutupi oleh kain tersebut, seperti kepala dan lengannya, seharusnya masih berkeringat, kulit mati dan sebagainya, aku sangat ingin mencucinya.
+
 Sekarang, Aku senang Ciel akan mandi, tetapi ada masalah di sini. Dan masalahnya adalah, sejujurnya, Aku sebenarnya tidak tahu banyak tentang perawatan rambut dan kulit.
-Karena sepertinya ada sabun di sini, mandi sendiri seharusnya tidak menjadi masalah, tapi Aku sama sekali tidak tahu harus pergi ke mana setelah itu.
-Sebaliknya, justru karena Aku memiliki beberapa informasi yang tidak jelas tentang Aku, seperti bagaimana air dapat merusak rambut atau sesuatu, sehingga Aku akhirnya terlalu banyak berpikir tentang berbagai hal.
+
+Karena sepertinya ada sabun di sini, mandi sendiri seharusnya tidak menjadi masalah, tapi Aku sama sekali tidak tahu harus bagaimana setelah itu.
+
+Sebaliknya, justru karena Aku memiliki beberapa informasi yang tidak jelas tentangku, seperti bagaimana air dapat merusak rambut atau sesuatu, sehingga Aku akhirnya terlalu banyak berpikir tentang berbagai hal.
 
 Aku sebenarnya tidak yakin apakah ada artinya memperhatikan hal-hal semacam ini karena Ciel masih berusia 10 tahun. Namun, Aku juga samar-samar ingat mendengar, dari televisi atau sesuatu, bahwa penting untuk memulai sejak dini dengan hal-hal seperti ini.
 Ya. Sekarang Aku sangat menginginkan bantuan Celia -san .
