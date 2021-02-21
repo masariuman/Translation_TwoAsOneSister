@@ -36,10 +36,13 @@ a"Aku ingin mengkonfirmasi ini sebelumnya, tetapi jika Kamu harus bertarung di d
 
 c"Aku akan baik-baik saja. Selama Aku bersama Ain, tidak ada yang perlu ditakuti. Jika bukan itu masalahnya, maka ketika menghadapi pria itu, Aku tidak punya pilihan lain selain gemetar ketakutan, kan?"
 
-Aku menjawab kekhawatiran Ain dengan penuh keyakinan. Mungkin itu manusia atau monster, dengan Ain di sisiku, tidak ada yang perlu ditakuti.
-Bagaimanapun, Aku benar-benar mengerti betul betapa menakjubkannya penghalang Ain.
+Aku menjawab kekhawatiran Ain dengan penuh keyakinan. entah itu manusia atau monster, dengan Ain di sisiku, tidak ada yang perlu ditakuti.
+
+Aku benar-benar mengerti betul betapa menakjubkannya +BARRIER Ain.
+
 Itulah mengapa Aku yakin bisa berjalan-jalan di sekitar kota tapi tetap saja, Aku tidak begitu tahu bagaimana berinteraksi dengan orang selain Ain.
-Dan karena Aku tidak ingin terus bergantung pada Ain, sebelum kita mencapai yang berikutnya, Aku perlu belajar bagaimana berperilaku di kota.
+
+Dan karena Aku tidak ingin terus bergantung pada Ain, Aku perlu belajar bagaimana berperilaku di kota.
 
 ◇
 
