@@ -35,26 +35,34 @@ a"Dalam kasusmu, Kamu sebenarnya tidak sekotor itu. Kain itu juga berperan, tapi
 
 Sudah 10 tahun sejak pertemuan Aku dengan Ciel. jangankan mandi yang layak, tubuh Ciel bahkan tidak pernah dibilas bersih dengan air, juga tidak pernah dibersihkan dengan kain basah, jadi dia pasti tidak bersih ...... adalah jawabanku, tapi sebenarnya tidak begitu.
 
-Pertama-tama, ada kain putih misterius yang digunakan Duke untuk kami. Aku sudah memastikan bahwa itu memiliki efek pembersihan. Berkat ini, segala sesuatu yang ditutupi kain selalu dijaga kebersihannya.
+Ada kain putih misterius yang digunakan Duke untuk kami. Aku sudah memastikan bahwa itu memiliki efek pembersihan. Berkat ini, segala sesuatu yang ditutupi kain selalu dijaga kebersihannya.
 
-Saat ia masih bayi, praktis menutupi seluruh tubuhnya. Dan karena dia bahkan memberi kami yang baru setiap kali dia tumbuh, itu selalu menutupi sebagian besar tubuhnya.
+Saat ia masih bayi, kain itu menutupi seluruh tubuhnya. Dan karena dia bahkan memberi kami kain yang baru setiap kali ciel tumbuh, itu selalu menutupi sebagian besar tubuhnya.
 
-Selain itu, kami juga memiliki sihir penghalang Aku. Penghalang mengusir kotoran yang datang dari luar. Ini pada dasarnya sama dengan memiliki film tipis yang menutupi dirinya, jadi bahkan jika dia disiram hujan dan lumpur, tidak ada yang benar-benar tertinggal di Ciel.
-Tetap saja, ini bukan seolah-olah penghalang menghalangi segalanya, jadi dia masih bisa merasakan hembusan angin sejuk dan semua yang aku anggap aman diabaikan seperti angin. Sangat berguna untukmu, penghalang.
+Selain itu, kami juga memiliki sihir +BARRIERku. +BARRIER mengusir kotoran yang datang dari luar. Ini pada dasarnya sama dengan memiliki lapisan tipis yang menutupi dirinya, jadi bahkan jika dia disiram hujan dan lumpur, tidak ada yang benar-benar lengket di Ciel.
 
-Tapi karena itu, terasa seperti mempengaruhi durabilitas penghalang; jadi di masa depan, Aku ingin mencari cara untuk meningkatkan daya tahan sekaligus menjaga efek ini.
+Tetap saja, ini bukan seolah-olah +BARRIER menghalangi segalanya, jadi dia masih bisa merasakan hembusan angin sejuk dan semua yang aku anggap aman diabaikan seperti angin. sungguh berguna sekali dirimu, +BARRIER.
 
-"Umm , dari sudut pandang Ain, aku cantik, kan?"
-"Kamu cantik . Jika Aku secantik Kamu di kehidupan masa lalu Aku, itu akan mengubah hidup Aku.
-Are "Apakah Kamu senang Aku cantik, Ain?"
-"Itu benar. Yah, Aku berharap dapat melihat Kamu menjadi lebih cantik di masa depan dan Aku ingin mencoba mempercantik Kamu seperti Kamu sekarang. "
-" Begitu, Aku mengerti ...... "
+Tapi karena itu, rasanya seperti mempengaruhi durabilitas +BARRIER; jadi di masa depan, Aku ingin mencari cara untuk meningkatkan daya tahan sekaligus menjaga efek ini.
+
+c"Umm , dari sudut pandang Ain, aku cantik, kan?"
+
+a"Kamu cantik. kalau Aku secantik Kamu di kehidupan masa laluku, itu akan mengubah hidupku."
+
+c"Apakah Kamu senang Aku cantik, Ain?"
+
+a"benar. Yah, Aku berharap dapat melihat Kamu menjadi lebih cantik di masa depan dan Aku ingin mencoba mempercantik Kamu seperti Kamu sekarang."
+
+c"Begitu, Aku mengerti ......"
 
 Dengan wajah sedikit memerah, Ciel diam-diam mengulangi kata-katanya.
-Aku kira dia malu dipanggil cantik. Melihat reaksi yang relatif jarang darinya ini, Aku merasa diberkati.
-Tampak tenang setelah beberapa saat, dengan pipinya sekarang kembali ke warna biasanya, Ciel mulai berbicara lagi.
 
-"Tapi kalau begitu, apakah benar-benar ada artinya dalam diri Aku mandi?"
+Aku pikir dia malu dipanggil cantik. Melihat reaksi yang relatif jarang darinya ini, Aku merasa diberkati.
+
+ciel Tampak tenang setelah beberapa saat, dengan pipinya sekarang kembali ke warna biasanya dan Ciel mulai berbicara lagi.
+
+c"Tapi kalau begitu, apakah benar-benar ada artinya Aku mandi?"
+
 "Penghalang Aku tidak bisa berbuat apa-apa tentang keringat dan semacamnya, jadi akan lebih baik jika Kamu masih melakukannya. Selain itu, karena mandi air panas akan menghangatkan tubuh, kudengar mandi bisa membantu mencegah penyakit dan semacamnya.
 Selain itu, karena bisa meningkatkan mood, ya? Ketika Kamu mandi, bagaimana Aku harus mengatakan ini, itu membuat Kamu merasa benar-benar segar.
 Then "Kalau begitu, mungkin akan menyenangkan untuk mencobanya.
