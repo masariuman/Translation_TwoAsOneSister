@@ -167,48 +167,66 @@ Menjanjikan itu, Aku kembali makan.
 
 ◇
 
-Setelah menyelesaikan apa yang merupakan makanan emosional pribadi, Aku mengembalikan tubuh ke Ciel seperti yang disepakati sebelumnya.
+Setelah menyelesaikan makanan, Aku mengembalikan tubuh ke Ciel seperti yang disepakati sebelumnya.
+
 Sama seperti Aku telah melakukan ini sepanjang waktu, Ciel dengan santai duduk di kursi yang disediakan.
-Dan saat aku memikirkan itu, "Ain" dia memanggil namaku.
 
-"Apa itu?"
-"Kamu sedang memikirkan tentang penghalang kamu dihancurkan hari ini, kan?
-Lagipula, kau bertingkah agak aneh. "
-Mendengar dia mengatakan itu dengan penuh keyakinan, "Ugh ……" Aku secara refleks mengerang.
-Bukannya aku terlalu percaya diri dengan pembatasku tapi aku yakin karena penghalang itu menahan serangan dari raksasa bermata satu. Padahal, aku akan berbohong jika aku mengatakan bahwa pertandingan formal hari ini dengan Carol- san tidak membuatku terkejut.
+Dan saat aku berpikir, "Ain" dia memanggil namaku.
 
-"Jangan terlalu khawatir tentang itu, oke? Memang benar bahwa penghalang Kamu telah dihancurkan tetapi bahkan jika tombak mengenai Aku, Kamu akan melakukan sesuatu tentang itu, kan Ain? "
-" Itu cerita yang berbeda. Karena Carol- san tampaknya adalah B-Rank, ini berarti karena dia tidak bisa menahan serangannya, itulah batas dari penghalangku. "
-" Tetap saja, raksasa bermata satu itu adalah monster peringkat-B juga, kan?
-Meskipun Aku tidak tahu apakah tidak apa-apa untuk membandingkan peringkat Hunter dengan peringkat monster. "
-" Meskipun benar bahwa kekuatan tombak es mungkin berada di sisi yang lebih kuat dari peringkat-B, tujuan Aku adalah untuk "menahan serangan bahkan monster terkuat ”kamu lihat?"
-"Tidak masalah untuk memiliki tujuan yang tinggi, tapi kamu tidak perlu terburu-buru, oke?
-Bagaimanapun, Aku akan tertinggal. Selain itu, mengenai pertandingan hari ini, itu tidak akan menjadi masalah jika saja Aku memblokir 10 dari mereka, bukan? "
-" Tetap saja, Kamu dapat mencegat 9 dari mereka, jadi ... "
-" Aku bisa melakukannya karena bantuan Kamu, Ain. Karena kita memiliki satu sama lain, jika kita bisa mengatasi banyak hal bersama, bukankah itu cukup baik? "
+a"ada apa?"
+
+c"Kamu sedang memikirkan tentang +BARRIERmu dihancurkan hari ini, kan? Lagipula, kau bertingkah agak aneh."
+
+Mendengar dia mengatakan itu dengan penuh keyakinan, "Ugh ......" Aku secara refleks mengerang.
+
+Bukannya aku terlalu percaya diri dengan +BARRIERku tapi aku yakin karena +BARRIER itu menahan serangan dari raksasa bermata satu. itu bohong jika aku mengatakan bahwa pertandingan formal hari ini dengan Carol-san tidak membuatku terkejut.
+
+c"Jangan terlalu khawatir tentang itu, oke? Memang benar kalau +BARRIERmu telah dihancurkan tetapi bahkan kalau tombak mengenaiku, Kamu akan melakukan sesuatu tentang itu, kan Ain?"
+
+a"Itu hal yang berbeda. Karena Carol-san sepertinya rank B, ini berarti karena dia tidak bisa menahan serangannya, itulah batas dari +BARRIERku."
+
+c"Tetap saja, raksasa bermata satu itu adalah monster rank B juga, kan? Meskipun Aku tidak tahu apakah tidak apa-apa untuk membandingkan rank Hunter dengan rank monster."
+
+a"Meskipun benar bahwa kekuatan tombak es mungkin berada di sisi yang lebih kuat dari rank B, tujuanku adalah untuk 'menahan serangan bahkan monster terkuat'..."
+
+c"Tidak masalah untuk memiliki tujuan yang tinggi, tapi kamu tidak perlu terburu-buru, oke? kalau tidak, Aku akan tertinggal. Selain itu, mengenai pertandingan hari ini, itu tidak akan menjadi masalah jika saja Aku menangkis 10 tombak es itu, kan?"
+
+a"Tetap saja, Kamu dapat menangkis 9 tombak itu, jadi ..."
+
+c"Aku bisa melakukannya karena bantuanmu, Ain. Karena kita memiliki satu sama lain, jika kita bisa mengatasi banyak hal bersama, bukankah itu cukup baik?"
 
 Itu benar, jika Ciel bisa mengatasinya sendiri, maka tidak masalah. Dan pada saat dia tidak bisa melakukannya, Aku hanya harus mendukungnya.
+
 Di sisi lain, jika ada sesuatu yang tidak bisa Aku tangani sendiri, maka Aku bisa mengatasinya dengan Ciel.
-Aku selalu berusaha untuk menciptakan penghalang yang tidak bisa dipecahkan, tidak terdeteksi, dan tidak ada habisnya tetapi, itu tidak berarti Aku harus bekerja keras sendiri.
 
-"Betul sekali. Mungkin aku terlalu terburu-buru. "
-" Aku juga akan melakukan yang terbaik agar bisa terus bersamamu, Ain. "
-" Baik, ayo lakukan yang terbaik bersama. "
+Aku selalu berusaha untuk menciptakan +BARRIER yang tidak bisa dipecahkan, tidak terdeteksi, dan tidak ada habisnya tetapi, itu tidak berarti Aku harus bekerja keras sendiri.
 
-Entah bagaimana, Aku merasa dada Aku sedikit lebih ringan tetapi lebih dari itu, Aku senang melihat Ciel senang.
-Yang terpenting, fakta bahwa ada seseorang yang memahami Aku seperti ini terasa agak geli.
-Tepat ketika Aku berpikir bahwa kita telah menyelesaikan topik ini, Ciel tiba-tiba bertepuk tangan seolah-olah dia ingat sesuatu.
+a"benar. Mungkin aku terlalu terburu-buru."
 
-"Kalau dipikir-pikir, Ain lebih suka payudara besar, bukan?
-Ukuran Aku kurang memuaskan ya? "
-"Ummmm , apa maksudmu? Apakah Aku mengatakan sesuatu tentang ini? "
+c"Aku juga akan melakukan yang terbaik agar bisa terus bersamamu, Ain."
+
+a"Baiklah, ayo lakukan yang terbaik bersama-sama."
+
+Entah bagaimana, Aku merasa dadaku sedikit lebih ringan tapi, Aku senang melihat Ciel senang.
+
+Fakta bahwa ada seseorang yang memahamiku seperti ini terasa agak geli.
+
+Tepat ketika Aku berpikir bahwa kami telah menyelesaikan topik ini, Ciel tiba-tiba bertepuk tangan seolah-olah dia ingat sesuatu.
+
+c"Kalau dipikir-pikir, Ain lebih suka payudara besar, bukan?
+Ukuranku kurang memuaskan ya? "
+
+a"Ummmm , apa maksudmu? Apakah Aku mengatakan sesuatu tentang ini?"
 
 Mendengar kata-kata yang tiba-tiba itu, aku secara refleks menanyakannya.
-Bahkan setelah mengobrak-abrik ingatanku, aku belum pernah berbicara dengan Ciel tentang payudara sebelumnya. Yah, tidak, aku hanya berpikir bahwa aku belum menjadi wanita yang cukup untuk berbicara dengan Ciel tentang payudara dan sebagainya.
-Tidak peduli apa, Aku benar-benar akan malu tentang itu dan hanya memikirkan berbicara dengan Ciel, seorang gadis berusia 10 tahun, tentang hal itu membuat Aku ingin merangkak ke sudut dan menghilang.
+
+Bahkan setelah mengobrak-abrik ingatanku, aku belum pernah berbicara dengan Ciel tentang payudara sebelumnya. Yaah, aku hanya berpikir bahwa aku belum sepenuhnya menjadi wanita untuk berbicara dengan Ciel tentang payudara dan sebagainya.
+
+Tidak peduli apapun itu, Aku benar-benar akan malu tentang itu dan hanya memikirkan berbicara dengan Ciel, seorang gadis berusia 10 tahun, tentang hal itu membuatku ingin merangkak ke sudut dan menghilang.
+
 Lalu mengapa? Saat aku mempertanyakan diriku sendiri, Ciel menjatuhkan bom lagi.
 
-"Maksud Aku, ketika Kamu melihat seseorang dengan dada besar, itu selalu menarik perhatian Kamu, Ain. Kamu iri tentang itu, kan? "
+c"Maksudku, ketika Kamu melihat seseorang dengan dada besar, itu selalu menarik perhatianmu, Ain. Kamu iri tentang itu, kan?"
 
 Dia menjatuhkan bom tapi untungnya meleset dari sasaran.
 Jika ditanya apakah Aku suka yang besar, Aku akan mengatakan bahwa Aku cukup menyukainya tetapi Aku tidak memiliki keberanian untuk menjawab jika Ciel menanyakan itu kepada Aku.
