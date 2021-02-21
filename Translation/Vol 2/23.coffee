@@ -102,33 +102,41 @@ Saat kami bergantian, Ciel berkata "Tubuhku bisa mengingatnya jika Ain melakukan
 
 Sekarang, Aku menjalankan ingatanku dengan kekuatan penuh untuk mandi dengan cara yang se-feminim mungkin. Kesulitannya akan sangat tinggi.
 
-Pertama, Aku menyabuni sabun. Karena ini adalah sesuatu yang juga Aku lakukan di masa lalu, itu tidak terlalu sulit untuk dilakukan. Sebaliknya, karena Aku cenderung terobsesi dengan hal-hal seperti ini, Aku bisa membuat sabun benar-benar berbuih hanya dengan tangan kosong. Intinya di sini adalah berhati-hati dengan berapa banyak air yang digunakan dan untuk memasukkan udara ke dalam busa.
+Pertama, Aku memberi air pada sabun. Karena ini adalah sesuatu yang juga Aku lakukan di masa lalu, itu tidak terlalu sulit untuk dilakukan. Karena Aku cenderung terobsesi dengan hal-hal seperti ini, Aku bisa membuat sabun benar-benar berbuih hanya dengan tangan kosong. Intinya di sini adalah berhati-hati dengan berapa banyak air yang digunakan dan untuk memasukkan udara ke dalam busa.
 
-Ketika orang melihat Aku melakukannya selama kunjungan lapangan di masa lalu, itu sangat populer.
-Dan saat Aku menyabuni sabun dengan kekuatan penuh, Ciel menjadi sangat bersemangat mengatakan "Luar biasa, luar biasa! Ini sangat ceria! "Jadi Aku memberinya kendali dan menginstruksikan dia untuk menyebarkannya dengan lembut ke seluruh tubuhnya.
-Di kehidupan Aku sebelumnya, Aku akan menggunakan handuk untuk menggosok tubuh Aku tetapi Aku kadang-kadang mendengar di televisi bahwa Kamu tidak perlu menggosok saat mencuci, atau bahwa kulit wanita sensitif, dan sebagainya.
+Ketika orang melihatku melakukannya selama kunjungan lapangan di masa lalu, itu sangat populer.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+Dan saat Aku membuat busa sabun dengan kekuatan penuh, Ciel menjadi sangat bersemangat mengatakan "Luar biasa, luar biasa!!" Jadi Aku memberinya kendali dan menginstruksikan dia untuk menyebarkannya dengan lembut ke seluruh tubuhnya.
 
-(Silakan kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Di kehidupanku sebelumnya, Aku akan menggunakan handuk untuk menggosok tubuhku tetapi Aku kadang-kadang mendengar di televisi bahwa Kamu tidak perlu menggosok saat mencuci, atau kulit wanita sensitif, dan sebagainya.
 
 Sementara Ciel bermain-main dan meniup gelembung, dia juga menyebarkannya ke seluruh tubuhnya seperti yang diinstruksikan. Sensasi tangan kecil Ciel yang meluncur di atas kulit mulus terasa sangat menyenangkan.
-Setelah seluruh tubuhnya, termasuk wajahnya, dipenuhi gelembung, Aku meminta kontrol dan membasuh semuanya dengan air panas.
-Selanjutnya, Aku beralih ke masalah kepala. Pertama-tama, Aku berencana untuk memulai dari kepala tetapi karena Ciel menunjukkan minat pada gelembung, Aku memutuskan untuk menggunakan tubuh terlebih dahulu tetapi yah, siapa yang peduli.
 
-Jadi sekarang, tentang rambut, Aku memutuskan untuk menutupi helai rambutnya dengan penghalang dan hanya mencuci kulit kepalanya.
-Seperti yang Aku lakukan sebelumnya, Aku menyabuni sabun dan memijatnya dengan lembut ke kulit kepalanya.
-Dan setelah mencucinya dengan benar, kita sekarang selesai untuk hari ini. Aku mengembalikan tubuh ke Ciel dan membiarkannya berendam di bak mandi.
+Setelah seluruh tubuhnya, termasuk wajahnya, dipenuhi gelembung, Aku meminta kontrol tubuhnya dan membasuh semuanya dengan air panas.
 
-"Mandi itu merepotkan, bukan?"
-"Karena kami menggunakan penghalang, kami tidak mencuci rambut tetapi jika kami punya, itu akan jauh lebih sulit."
-"Tapi Ain, kamu suka mengambil mandi, kan? "
-" Ya …… Atau lebih tepatnya, itu adalah bagian dari hidupku. Lagipula, rambutku tidak sepanjang rambutmu, Ciel.
-Dengan rambut yang lebih panjang, mengeringkannya juga menjadi masalah. "
-" Kami tidak bisa memotong rambut Aku, kan? "
-" Nah ada masalah sirkuitnya tapi ... Kamu memiliki rambut yang begitu indah, jadi akan sia-sia untuk memotongnya pendek."
+Selanjutnya, Aku beralih ke masalah kepala. Aku berencana untuk memulai dari kepala tetapi karena Ciel berminat pada gelembung, Aku memutuskan untuk ketubuh terlebih dahulu tetapi yah, siapa yang peduli.
+
+Jadi sekarang, untuk rambut, Aku memutuskan untuk menutupi helai rambutnya dengan +BARRIER dan hanya mencuci kulit kepalanya.
+
+Seperti yang Aku lakukan sebelumnya, Aku mengambil sabun dan memijatnya dengan lembut ke kulit kepalanya.
+
+Dan setelah mencucinya dengan benar, kami selesai untuk hari ini. Aku mengembalikan tubuh ke Ciel dan membiarkannya berendam di bak mandi.
+
+c"Mandi itu merepotkan, kan?"
+
+a"Karena kita menggunakan +BARRIER, kita tidak mencuci rambut tetapi jika kita melakukannya, itu akan jauh lebih sulit."
+
+c"Tapi Ain, kamu suka mandi, kan?"
+
+a"Ya ...... Atau lebih tepatnya, itu adalah bagian dari hidupku. Lagipula, rambutku tidak sepanjang rambutmu, Ciel.
+Dengan rambut yang lebih panjang, mengeringkannya juga menjadi masalah."
+
+c"kita tidak bisa memotong rambutku, kan?"
+
+a"Nah ada masalah sirkuitnya tapi ... Kamu memiliki rambut yang begitu indah, jadi akan sia-sia untuk memotongnya pendek."
 
 Aku cukup yakin karena Aku baru saja menyentuhnya tetapi rambut Ciel sangat halus.
+
 Jenis rambut itulah yang membuat Kamu ingin terus menyentuhnya. Ini sangat berbeda dari rambut keriting lamaku. Sejujurnya, Aku agak cemburu. Yah, itu juga rambutku juga.
 Dan rambut halus yang sama saat berendam di bak mandi. Aku tahu betul bahwa itu buruk untuk rambut tetapi kami memiliki penghalang, jadi ya. Ini pertama kalinya aku merasakan sensasi rambut basah menempel di kulitku, jadi agak geli.
 
