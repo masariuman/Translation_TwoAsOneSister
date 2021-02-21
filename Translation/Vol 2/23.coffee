@@ -82,13 +82,18 @@ Karena sepertinya ada sabun di sini, mandi sendiri seharusnya tidak menjadi masa
 
 Sebaliknya, justru karena Aku memiliki beberapa informasi yang tidak jelas tentangku, seperti bagaimana air dapat merusak rambut atau sesuatu, sehingga Aku akhirnya terlalu banyak berpikir tentang berbagai hal.
 
-Aku sebenarnya tidak yakin apakah ada artinya memperhatikan hal-hal semacam ini karena Ciel masih berusia 10 tahun. Namun, Aku juga samar-samar ingat mendengar, dari televisi atau sesuatu, bahwa penting untuk memulai sejak dini dengan hal-hal seperti ini.
-Ya. Sekarang Aku sangat menginginkan bantuan Celia -san .
-Atau mungkin Aku harus mempelajari semacam sihir pemurnian, seperti yang digunakan pada kain. Dengan begitu, kita bisa berendam di bak mandi tanpa masalah.
+Aku sebenarnya tidak yakin apakah ada artinya memperhatikan hal-hal semacam ini karena Ciel masih berusia 10 tahun. tapi Aku juga dengan samar ingat mendengar dari televisi atau sesuatu, bahwa penting untuk memulai sejak dini dengan hal-hal seperti ini.
+
+Ya. Sekarang Aku sangat menginginkan bantuan Celia-san.
+
+Atau mungkin Aku harus mempelajari semacam sihir pembersihan, seperti yang digunakan pada kain. Dengan begitu, kita bisa berendam di bak mandi tanpa masalah.
 
 Bak mandinya penuh ketika aku memikirkan hal-hal seperti itu, jadi Ciel menekan tombol untuk menghentikan aliran.
-Aku menyuruhnya meninggalkan kamar mandi sejenak, melepas pakaiannya, dan membawa handuk dan kain tersebut ketika dia masuk kembali ke dalam.
+
+Aku menyuruhnya meninggalkan kamar mandi sejenak, melepas pakaiannya, dan membawa handuk dan kain tersebut dan dia masuk kembali ke dalam.
+
 Kalau dipikir-pikir, kami bahkan tidak punya pakaian dalam. Kain itu hanyalah sesuatu yang dijahit kasar menjadi bentuk yang bisa kita pakai, jadi mungkin tidak bisa digunakan sebagai pakaian dalam wanita.
+
 Dan dengan itu, kami kembali ke kamar mandi tetapi karena mereka tidak memiliki pancuran, kami mengisi ember dengan air panas dari batu ajaib dan menuangkannya ke seluruh tubuh kami. Ketika Ciel menuangkan air ke kepalanya - pada akhirnya Aku memutuskan untuk pergi keluar dan menjaga rambutnya dengan penghalang - dia akhirnya menghirup air melalui hidungnya, jadi Ciel memberikan tongkat itu kepada Aku.
 Aku juga melakukan kesalahan yang sama ketika Aku masih kecil tetapi Aku lupa memperingatkannya tentang hal itu.
 
