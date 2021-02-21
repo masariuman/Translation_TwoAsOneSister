@@ -8,14 +8,19 @@ Kosakataku hanya terbatas pada apa yang sebenarnya diketahui Ciel, sebenarnya me
 
 Cara orang mandi mungkin berbeda di dunia ini juga, jadi tidak ada gunanya menjelaskan padanya sekarang.
 
-Dan juga tentang kamar mandi tersebut, kamar mandi yang berada tepat di depan kita saat ini adalah ruangan kecil berlantai ubin. Dan meskipun bak mandi itu sendiri tidak terlalu besar, dengan tinggi Ciel, itu cukup luas baginya untuk berendam hingga ke bahunya.
-Bak mandi ini tidak seperti bak mandi kayu tradisional yang ditemukan di Jepang dan tampaknya terbuat dari batu yang dilapisi dengan lapisan khusus.
-Selain itu, ada pipa yang terpasang padanya dan jika Kamu mengikuti kemana arahnya, ada benda seperti sakelar dan semacam benda yang dapat menahan benda bulat.
+Dan juga tentang kamar mandi tersebut, kamar mandi yang berada tepat di depan kami saat ini adalah ruangan kecil berlantai ubin. Dan meskipun bak mandi itu sendiri tidak terlalu besar, dengan tinggi Ciel, itu cukup luas baginya untuk berendam hingga ke bahunya.
 
-"Alas itu, kemungkinan tempat kita meletakkan batu ajaib."
-"Seperti ini?"
-"Dan sekarang, coba dorong benda yang menonjol di sebelahnya."
-"Kamu benar Ain, air ...... air panas, mungkin? keluar. "
+Bak mandi ini tidak seperti bak mandi kayu tradisional yang ditemukan di Jepang dan tampaknya terbuat dari batu yang dilapisi dengan lapisan khusus.
+
+Selain itu, ada pipa yang terpasang dan jika Kamu mengikuti kemana arahnya, ada benda seperti sakelar dan semacam benda yang dapat menahan benda bulat.
+
+a"Alas itu, kemungkinan tempat kita meletakkan batu magic."
+
+c"Seperti ini?"
+
+a"Dan sekarang, coba dorong benda yang menonjol di sebelahnya."
+
+c"Kamu benar Ain, air ...... air panas, mungkin? airnya keluar."
 
 Karena Ciel kagum dengan itu, Aku juga kagum.
 Itu adalah citra peradaban. Makanan hangat, tempat tidur empuk, dan bak mandi. Setelah mengalami semua ini, Aku tidak bisa tidak tergerak oleh tingkat peradaban di sini.
