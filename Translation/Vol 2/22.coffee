@@ -229,37 +229,49 @@ Lalu mengapa? Saat aku mempertanyakan diriku sendiri, Ciel menjatuhkan bom lagi.
 c"Maksudku, ketika Kamu melihat seseorang dengan dada besar, itu selalu menarik perhatianmu, Ain. Kamu iri tentang itu, kan?"
 
 Dia menjatuhkan bom tapi untungnya meleset dari sasaran.
-Jika ditanya apakah Aku suka yang besar, Aku akan mengatakan bahwa Aku cukup menyukainya tetapi Aku tidak memiliki keberanian untuk menjawab jika Ciel menanyakan itu kepada Aku.
-Juga, jika Aku diizinkan untuk membuat lebih banyak alasan, Aku mungkin memiliki perasaan yang tidak murni tentang mereka di masa lalu tetapi itu tidak berlaku untuk kehidupan Aku sekarang sama sekali.
 
-"Aku hanya berpikir itu tampak sangat berat.
-Bukannya aku tertarik dengan mereka, aku hanya punya kebiasaan melihat hal-hal yang tidak biasa. "
-" Sekarang kupikir-pikir, kamu juga melihat orang-orang jangkung. "
-" Menatap orang terlalu banyak tidak benar-benar hal yang baik untuk dilakukan tetapi dengan tinggi Ciel, orang-orang yang besar benar-benar menarik perhatian. "
-" Terlepas dari itu, apakah Kamu ingin payudara yang lebih besar, Ain? "
-" Karena Kamu seorang perempuan, Aku pikir memiliki lebih banyak sejauh mana baik untuk kepercayaan diri Kamu.
-Bagaimanapun, dalam beberapa hal, itu adalah simbol wanita dewasa. "
+Jika ditanya apakah Aku suka yang besar, Aku akan mengatakan bahwa Aku cukup menyukainya tetapi Aku tidak memiliki keberanian untuk menjawab jika Ciel menanyakan itu kepadaku.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+Juga, jika Aku diizinkan untuk membuat lebih banyak alasan, Aku mungkin memiliki perasaan yang tidak murni tentang mereka di masa lalu tetapi itu tidak berlaku untuk kehidupanku sekarang sama sekali.
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
+a"Aku hanya berpikir itu tampak sangat berat. Bukannya aku tertarik dengan mereka, aku hanya punya kebiasaan melihat hal-hal yang tidak biasa."
+
+c"Sekarang setelah kupikir-pikir, kamu juga melihat orang-orang yang tinggi."
+
+a"Menatap orang terlalu banyak bukan benar-benar hal yang baik untuk dilakukan tetapi dengan tinggi Ciel, orang-orang yang besar benar-benar menarik perhatian."
+
+c"Terlepas dari itu, apakah Kamu ingin payudara yang lebih besar, Ain?"
+
+a"Karena Kamu seorang perempuan, Aku pikir memilikinya baik untuk kepercayaan dirimu. Bagaimanapun, dalam beberapa hal, itu adalah simbol wanita dewasa."
 
 Meskipun Aku tidak memberinya jawaban yang tepat dan hanya menjawab dengan sesuatu yang terdengar benar, sepertinya Ciel yakin.
-Dan setelah mengerang sambil tenggelam dalam pikirannya, dia bergumam "Aku ingin tahu bagaimana Aku bisa membuatnya lebih besar?"
-Aku seharusnya tidak menjawab pertanyaan itu. Namun, setelah hampir tidak membicarakan percakapan sebelumnya, Aku secara refleks mengucapkan kata-kata umum dalam kehidupan Aku sebelumnya.
-"Mereka mengatakan bahwa memijat membuat mereka lebih besar."
-"Akankah sesuatu yang begitu sederhana benar-benar berhasil?"
 
-Saat Aku menyadari kesalahan Aku adalah ketika Ciel hendak meletakkan tangannya ke dadanya.
+Dan setelah mengerang sambil tenggelam dalam pikirannya, dia bergumam "Aku ingin tahu bagaimana Aku bisa membuatnya lebih besar?"
+
+Aku seharusnya tidak menjawab pertanyaan itu. Tapi, setelah hampir tidak bisa lepas percakapan sebelumnya, Aku secara refleks mengucapkan kata-kata umum dalam kehidupanku sebelumnya.
+
+a"katanya memijatnya membuatnya lebih besar."
+
+c"Sesuatu yang begitu sederhana benar-benar berhasil?"
+
+Aku menyadari kesalahanku adalah ketika Ciel hendak meletakkan tangannya ke dadanya.
+
 "Berhenti." Aku berhasil menghentikan Ciel untuk bergerak lebih jauh.
 
-"Itu hanya rumor jadi sebaiknya jangan percaya."
-"Apakah kamu pernah mencobanya sebelumnya, Ain?"
-"T-tidak."
-"Bagaimana dengan orang-orang di sekitarmu?"
-"Mereka belum mencobanya juga . Dan bahkan jika mereka punya, Aku belum pernah mendengar mereka mengatakan mereka melakukannya. "
+a"Itu hanya rumor jadi sebaiknya jangan percaya."
 
-Tentu saja belum. Tidak mungkin aku punya.
-Lagipula, orang-orang di sekitarku umumnya laki-laki. Dan meskipun Aku punya teman sekelas wanita, tidak mungkin Aku bisa bertanya kepada mereka apakah mereka menggosok payudara mereka untuk membuatnya lebih besar.
-Setelah mengangguk pada dirinya sendiri, Ciel bertanya kepada Aku "Kalau dipikir-pikir, bagaimana cara Aku mandi?"
+c"Apakah kamu pernah mencobanya sebelumnya, Ain?"
+
+a"T-tidak."
+
+c"Bagaimana dengan orang-orang di sekitarmu?"
+
+a"Mereka belum mencobanya juga . Dan bahkan jika mereka mencobanya, Aku belum pernah mendengar mereka mengatakan mereka melakukannya."
+
+Tentu saja belum. Tidak mungkin aku melakukannya.
+
+Lagipula, orang-orang di sekitarku umumnya laki-laki. Dan meskipun Aku punya teman sekelas wanita, tidak mungkin Aku bisa bertanya kepada mereka apakah mereka memijat payudara mereka untuk membuatnya lebih besar.
+
+Setelah mengangguk pada dirinya sendiri, Ciel bertanya kepadaku "Kalau dipikir-pikir, bagaimana caranya mandi?"
+
 Aku agak khawatir tentang bagaimana percakapan ini membuatnya berpikir untuk mandi tetapi karena itu mengubah topik saat ini, Aku Aku akan menganggap ini hal yang baik. Dengan itu, Aku mulai menjelaskan mandi kepada Ciel.
