@@ -16,21 +16,25 @@ Dan setelah aku mendengar suara tenang Ain, semua kegelisahan yang kurasakan ben
 
 Fakta bahwa Aku tidak melihat orang di sekitar meskipun kota itu terlihat sekarang mungkin bisa membantu juga.
 
-"Seperti yang Aku duga, apakah bertemu pria mengganggu Kamu?"
+a"Seperti yang Aku duga, apakah bertemu pria mengganggumu?"
 
-"Eh , yah ...... Ya."
+c"Eh , yah ...... Ya."
 
-Karena Aku merasa lega dengan kurangnya orang, Ain bertanya demikian tapi… Aku tidak terlalu cemas untuk bertemu dengan laki-laki.
+Karena Aku merasa lega dengan kurangnya orang, Ain bertanya demikian tapi... Aku tidak terlalu cemas untuk bertemu dengan laki-laki.
+
 Sebaliknya, Aku juga tidak tahu tentang wanita lain selain Aku, jadi Aku biasanya hanya takut pada semua yang tidak Aku ketahui.
-Namun, hanya pikiran bahwa Ain melindungi Aku membuat ketakutan Aku menghilang. Tapi tetap saja, Aku merasa malu karena Aku selalu bergantung pada Ain.
+
+Tapi, hanya pikiran bahwa Ain melindungiku membuat ketakutanku menghilang. Tapi tetap saja, Aku merasa malu karena Aku selalu bergantung pada Ain.
 
 Selain itu, Aku mengerti mengapa Ain berpikir bahwa Aku takut pada laki-laki.
-Lagipula, pria itu memang mengajariku informasi yang berkaitan dengan tindakan itu ketika dia masih mengira aku adalah tuhan. Aku tidak tahu apakah itu karena dia ingin sopan kepada para dewa tetapi dia sebenarnya terus terang tentang berbagai hal.
-Berkat itu, Aku bisa memahami situasi Aku sendiri, jadi itu sangat membantu kami. Aku sama sekali tidak senang tentang itu.
 
-"Aku ingin mengkonfirmasi ini sebelumnya, tetapi jika Kamu harus bertarung di depan orang-orang, apakah Kamu akan baik-baik saja Ciel?"
-"Aku akan baik-baik saja. Pertama-tama, selama Aku bersama Ain, tidak ada yang perlu ditakuti.
-Jika bukan itu masalahnya, maka ketika menghadapi pria itu, Aku tidak punya pilihan lain selain gemetar ketakutan, Kamu tahu? "
+Lagipula, pria itu memang mengajariku informasi yang berkaitan dengan tindakan itu ketika dia masih mengira aku adalah dewa. Aku tidak tahu apakah itu karena dia ingin sopan kepada para dewa tetapi dia sebenarnya terus terang tentang berbagai hal.
+
+Berkat itu, Aku bisa memahami situasiku sendiri, jadi itu sangat membantu kami. Aku sama sekali tidak senang tentang itu.
+
+a"Aku ingin mengkonfirmasi ini sebelumnya, tetapi jika Kamu harus bertarung di depan orang-orang, apakah Kamu akan baik-baik saja Ciel?"
+
+c"Aku akan baik-baik saja. Selama Aku bersama Ain, tidak ada yang perlu ditakuti. Jika bukan itu masalahnya, maka ketika menghadapi pria itu, Aku tidak punya pilihan lain selain gemetar ketakutan, kan?"
 
 Aku menjawab kekhawatiran Ain dengan penuh keyakinan. Mungkin itu manusia atau monster, dengan Ain di sisiku, tidak ada yang perlu ditakuti.
 Bagaimanapun, Aku benar-benar mengerti betul betapa menakjubkannya penghalang Ain.
