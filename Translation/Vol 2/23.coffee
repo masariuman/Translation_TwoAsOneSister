@@ -161,20 +161,29 @@ Tetap saja, menjadi geli tidak masalah. Bersikap geli saja tidak apa-apa, tetapi
 
 Selain itu, sepertinya hanya aku yang merasa seperti ini, jadi jika aku bersuara, dia akan merasa sangat aneh.
 
-Bagaimanapun, Aku hanya perlu menahannya sampai Ciel merasa puas tetapi, tiba-tiba, tangannya menyentuh ujungnya dan Aku hampir merasa seluruh tubuh Aku bergerak-gerak sebagai tanggapan.
-Dan pada saat yang sama, Aku akhirnya mengeluarkan "Hyuu yang aneh ! "suara. Namun, karena tubuh Ciel sendiri tidak menunjukkan reaksi tertentu terhadap itu, Aku diserang oleh ilusi aneh bahwa tubuh Aku tidak terhubung dengan pikiran Aku.
-Jika kita beralih sekarang, secara praktis Aku yakin bahwa Aku akan melakukan hal-hal yang tidak pantas.
+Aku hanya perlu menahannya sampai Ciel merasa puas tetapi, tiba-tiba, tangannya menyentuh ujungnya dan Aku hampir merasa seluruh tubuhku bergerak-gerak tak tertahankan.
+
+Dan pada saat yang sama, Aku akhirnya mengeluarkan suara "Hyuu!" yang aneh. Tapi, karena tubuh Ciel sendiri tidak menunjukkan reaksi tertentu terhadap itu, Aku diserang oleh ilusi aneh bahwa tubuhku tidak terhubung dengan pikiranku.
+
+Jika kami bertukar tubuh sekarang, Aku yakin bahwa Aku akan melakukan hal-hal yang tidak pantas.
+
 Dan saat aku memikirkannya, karena dia secara alami mendengar suaraku, Ciel bertanya padaku "Ain, ada apa?" Dengan nada yang sangat bingung.
-Selain memalukan untuk menjelaskan bagaimana Aku terengah-engah dari rangsangan baru yang tidak dikenal, itu mungkin memberi tahu dia bahwa Aku adalah seorang pria di masa lalu, jadi Aku mencoba setenang mungkin seperti yang Aku katakan padanya "Bukan apa-apa. "
-Dan ketika Aku bertanya-tanya mengapa Ciel tiba-tiba berkedip tiga kali, dia menjawab" Jika demikian, maka lupakan. "Dengan nada ceria untuk beberapa alasan.
 
-"Tetap saja, itu tidak bertambah besar."
-"Paling tidak, jika tumbuh hanya dengan melakukannya sekali, itu masalah lain sama sekali."
-"Begitu, itu benar. Kalau begitu, mungkin Aku harus mencoba lagi ketika Aku mengingatnya lain kali. "
-" ...... Jika Kamu benar-benar ingin melakukannya, Aku tidak akan menghentikan Kamu. "
+Selain memalukan untuk menjelaskan bagaimana Aku terengah-engah dari rangsangan baru yang tidak dikenal, itu mungkin memberi tahu dia bahwa Aku adalah seorang pria di masa lalu, jadi Aku mencoba setenang mungkin dan berkata "tidak ada apa-apa."
 
-Benar-benar kesalahan. Jika Aku hanya mengatakan kepadanya "Itu tidak efektif sama sekali, lihat?" Aku mungkin mencegah hal ini terjadi lagi. Tapi sekarang, itu akan terjadi secara tidak teratur tanpa aku tahu kapan.
-Aku dapat mengatakan kepadanya untuk menghentikannya, tetapi Aku tidak benar-benar memiliki alasan yang cukup jelas yang dapat Aku katakan untuk menghentikannya melakukannya. Jadi Aku hanya membuang harapan Aku terlupakan bersama dengan gagasan bodoh untuk mengatakan kepadanya bahwa melakukannya secara teratur mungkin jauh lebih efektif.
+Dan ketika Aku bertanya-tanya mengapa Ciel tiba-tiba berkedip tiga kali, dia menjawab "kalau begitu, ya sudahlah." Dengan nada ceria untuk beberapa alasan.
+
+c"Tetap saja, itu tidak bertambah besar."
+
+a"jika tumbuh hanya dengan melakukannya sekali, itu akan menjadi suatu masalah."
+
+c"Begitu, itu benar. Kalau begitu, mungkin Aku harus mencoba lagi ketika Aku mengingatnya lain kali."
+
+a" ...... Jika Kamu benar-benar ingin melakukannya, Aku tidak akan menghentikanmu."
+
+Benar-benar suatu kesalahan. Jika Aku hanya mengatakan kepadanya "Itu tidak efektif sama sekali, lihat kan?" Aku mungkin mencegah hal ini terjadi lagi. Tapi sekarang, itu akan terjadi setiap saat tanpa aku tahu kapan akan terjadi.
+
+Aku dapat mengatakan kepadanya untuk menghentikannya, tetapi Aku tidak benar-benar memiliki alasan yang cukup jelas yang dapat Aku katakan untuk menghentikannya melakukannya. Jadi Aku hanya membuang harapanku terlupakan bersama dengan gagasan bodoh untuk mengatakan kepadanya bahwa melakukannya secara teratur mungkin jauh lebih efektif.
 
 ◇
 
