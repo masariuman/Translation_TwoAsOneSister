@@ -187,40 +187,52 @@ Aku dapat mengatakan kepadanya untuk menghentikannya, tetapi Aku tidak benar-ben
 
 ◇
 
-Kami melangkah keluar dari bak mandi dan menyeka tubuhnya tetapi, meskipun itu dilindungi oleh penghalang, rambut panjang Ciel basah kuyup dengan air, jadi mengeringkannya akan merepotkan.
-Aku mengatakan kepadanya bahwa mengeringkan rambut panjang akan menjadi masalah, dan itulah masalah yang kita hadapi sekarang.
-Sementara itu, kami menggunakan handuk untuk mencegah Ciel basah lagi dan menyuruhnya memakai kain itu.
-Setelah itu masalah pengeringan. Jadi yang terlintas di benak Aku adalah pengering rambut. Sihir api Aku tidak terlalu kuat untuk berubah menjadi sihir tempur dan meskipun dikatakan bahwa panas dapat merusak rambut, Aku menggunakannya mungkin tidak dapat benar-benar melukai rambutnya, jadi itu seharusnya berubah menjadi sihir pengeringan yang cukup baik.
+Kami melangkah keluar dari bak mandi dan menyeka tubuhnya tetapi, meskipun itu dilindungi oleh +BARRIER, rambut panjang Ciel basah kuyup dengan air, jadi mengeringkannya akan merepotkan.
 
-"Mengeringkan rambut benar-benar masalah."
-"Tentang itu, ada sesuatu yang ingin Aku coba, tetapi bisakah Aku mencobanya?"
-"Benarkah? Kalau begitu, maukah kamu? "
+Aku mengatakan kepadanya bahwa mengeringkan rambut panjang akan merepotkan, dan itulah masalah yang kami hadapi sekarang.
 
-Setelah meminjam tubuh Ciel, Aku segera membentuk mantera. Karena Aku hanya perlu memilih kata-kata, mengaktifkannya adalah masalah yang berbeda, membuat nyanyian tidaklah sulit. Sihir pemurnian mungkin sebenarnya cukup sederhana untuk dibuat tetapi Aku tidak benar-benar tahu kata-kata apa yang dapat Aku gunakan, jadi Aku akan meninggalkannya untuk lain waktu. Mungkin itu bukan sihir, tapi sebenarnya sihir. Kalau begitu, itu akan jauh lebih merepotkan.
-Jadi dengan itu, Aku membayangkan pengering rambut sementara Aku hanya meneriakkan "Oh api, buat anginnya panas" dan, seperti yang Aku harapkan, udara hangat mulai mengeringkan rambut Ciel.
+Sementara itu, kami menggunakan handuk untuk mencegah Ciel basah lagi dan menyuruhnya memakai kain.
+
+Setelah itu masalah pengeringan. Jadi yang terlintas di benakku adalah pengering rambut. Sihir apiku tidak terlalu kuat untuk berubah menjadi sihir tempur dan meskipun dikatakan kalau panas dapat merusak rambut, Aku menggunakannya mungkin tidak dapat benar-benar melukai rambutnya, jadi itu seharusnya berubah menjadi sihir pengeringan yang cukup baik.
+
+c"Mengeringkan rambut benar-benar merepotkan."
+
+a"Tentang itu, ada sesuatu yang ingin Aku coba, tetapi bolehkah Aku mencobanya?"
+
+c"Benarkah? Kalau begitu, silahkan..."
+
+Setelah meminjam tubuh Ciel, Aku segera membentuk sihir. Karena Aku hanya perlu memilih kata-kata, mengaktifkannya adalah masalah yang berbeda, membuat nyanyian tidaklah sulit. Sihir +PIRIFICATION mungkin sebenarnya cukup sederhana tetapi Aku tidak benar-benar tahu kata-kata apa yang dapat Aku gunakan, jadi Aku akan meninggalkannya untuk lain waktu. Mungkin itu bukan sihir(+SORCERY), tapi sebenarnya sihir(+MAGIC). Kalau begitu, itu akan jauh lebih merepotkan.
+
+Jadi dengan itu, Aku membayangkan pengering rambut sementaraku hanya meneriakkan "Oh api, buat anginnya panas" dan, seperti yang Aku harapkan, udara hangat mulai mengeringkan rambut Ciel.
+
 Dan karena ini bukan pengering rambut yang sebenarnya tetapi produk sihir, Aku dapat mengontrol angin yang bertiup sehingga sangat nyaman.
-Namun, masih butuh waktu sekitar 10 menit untuk benar-benar mengeringkan rambutnya.
 
-"Bagaimana bak mandinya?"
-"Itu menyenangkan, itu benar-benar menyenangkan."
-"Aku senang Kamu merasa berpikir begitu."
-"Juga, Aku pikir Aku mengerti apa yang Kamu maksud sebelumnya, Ain.
-Khususnya, saat Kamu mengeringkan rambut, rasanya sangat rileks. Kamu membuatnya sendiri, kan Ain? "
-" Menurutku itu tidak terlalu sulit untuk dilakukan. "
-" Aku tidak yakin tentang itu. Jika Aku mencoba melakukannya, Aku mungkin akan membuatnya terlalu panas, Kamu tahu? "
-" Tidak bisa menggunakan sihir tempur itu nyaman dalam situasi ini, Kamu mengerti? "
-" Aku tidak berpikir itu ...... itu hanya rea… ..son… "
+tapi, masih butuh waktu sekitar 10 menit untuk benar-benar mengeringkan rambutnya.
 
-Saat dia duduk di tempat tidur, Ciel tiba-tiba mulai tertidur.
+a"Bagaimana bak mandinya?"
+
+c"Itu menyenangkan, itu benar-benar menyenangkan."
+
+a"Aku senang Kamu merasa berpikir begitu."
+
+c"Juga, Aku pikir Aku mengerti apa yang Kamu maksud sebelumnya, Ain. Khususnya, saat Kamu mengeringkan rambut, rasanya sangat rileks. Kamu membuatnya sendiri, kan Ain?"
+
+a"Menurutku itu tidak terlalu sulit untuk dilakukan."
+
+c"Aku tidak yakin tentang itu. Jika Aku mencoba melakukannya, Aku mungkin akan membuatnya terlalu panas lho...."
+
+a"Tidak bisa menggunakan sihir tempur itu nyaman dalam situasi ini, Kamu mengerti?"
+
+c"Aku tidak berpikir itu ...... itu hanya ala...san..."
+
+Saat dia duduk di tempat tidur, Ciel tiba-tiba mulai mengantuk.
+
 Setelah itu, dia menguap kecil yang lucu.
 
-"Haruskah kita tidur sekarang?"
-"Benar ...... Untuk beberapa alasan, aku merasa sangat ...... mengantuk.
-Ain, maukah kamu bernyanyi untukku? "
-" Tentu, tentu saja. "
+a"Haruskah kita tidur sekarang?"
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+c"Benar ...... Untuk beberapa alasan, aku merasa sangat ...... mengantuk. Ain, maukah kamu bernyanyi untukku?"
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
+a"Tentu, tentu saja."
 
 Jadi setelah mematikan lampu dan memastikan bahwa Ciel berbaring di tempat tidur, Aku mulai menyanyikan lagu pengantar tidur untuknya.
