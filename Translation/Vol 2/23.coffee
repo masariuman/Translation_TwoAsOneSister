@@ -22,17 +22,21 @@ a"Dan sekarang, coba dorong benda yang menonjol di sebelahnya."
 
 c"Kamu benar Ain, air ...... air panas, mungkin? airnya keluar."
 
-Karena Ciel kagum dengan itu, Aku juga kagum.
-Itu adalah citra peradaban. Makanan hangat, tempat tidur empuk, dan bak mandi. Setelah mengalami semua ini, Aku tidak bisa tidak tergerak oleh tingkat peradaban di sini.
-Meski begitu, sepertinya bukan tipe yang otomatis berhenti saat bak mandi penuh. Jadi, sambil melihat air yang mengucur, kami menunggu bak mandi terisi penuh.
+Karena Ciel kagum dengan itu, Aku juga jadi kagum.
 
-"Kamar mandi adalah tempat untuk membasuh tubuh, bukan?
-Mungkinkah, karena Aku belum pernah menggunakannya, Aku sebenarnya sangat kotor? "
-" Dalam kasus Kamu, Kamu sebenarnya tidak sekotor itu.
-Kain itu juga berperan, tapi karena kamu benar-benar cantik, aku memastikan pelindungnya juga menjaga kotoran darimu. "
+Makanan hangat, tempat tidur empuk, dan bak mandi. Setelah mengalami semua ini, Aku tidak bisa tidak tersentuh oleh semua hal di sini.
 
-Sudah 10 tahun sejak pertemuan Aku dengan Ciel. Apalagi mandi yang layak, tubuh Ciel tidak pernah dibilas bersih dengan air, juga tidak pernah dibersihkan dengan kain basah, jadi dia pasti tidak bersih …… adalah jawaban Aku, tapi sebenarnya tidak begitu.
-Pertama-tama, ada kain putih misterius yang digunakan Duke untuk mendandani kita. Aku sudah memastikan bahwa itu memiliki efek pemurnian. Berkat ini, segala sesuatu yang ditutupi kain selalu dijaga kebersihannya.
+Meski begitu, mesin sepertinya bukan tipe yang otomatis berhenti saat bak mandi penuh. Jadi, sambil melihat air yang mengisi, kami menunggu bak mandi terisi penuh.
+
+c"Kamar mandi adalah tempat untuk membasuh tubuh, bukan?
+Mungkinkah, karena Aku belum pernah menggunakannya, Aku sebenarnya sangat kotor?"
+
+a"Dalam kasusmu, Kamu sebenarnya tidak sekotor itu. Kain itu juga berperan, tapi karena kamu benar-benar cantik, aku memastikan +BARRIER juga menjagamu dari kotoran."
+
+Sudah 10 tahun sejak pertemuan Aku dengan Ciel. jangankan mandi yang layak, tubuh Ciel bahkan tidak pernah dibilas bersih dengan air, juga tidak pernah dibersihkan dengan kain basah, jadi dia pasti tidak bersih ...... adalah jawabanku, tapi sebenarnya tidak begitu.
+
+Pertama-tama, ada kain putih misterius yang digunakan Duke untuk kami. Aku sudah memastikan bahwa itu memiliki efek pembersihan. Berkat ini, segala sesuatu yang ditutupi kain selalu dijaga kebersihannya.
+
 Saat ia masih bayi, praktis menutupi seluruh tubuhnya. Dan karena dia bahkan memberi kami yang baru setiap kali dia tumbuh, itu selalu menutupi sebagian besar tubuhnya.
 
 Selain itu, kami juga memiliki sihir penghalang Aku. Penghalang mengusir kotoran yang datang dari luar. Ini pada dasarnya sama dengan memiliki film tipis yang menutupi dirinya, jadi bahkan jika dia disiram hujan dan lumpur, tidak ada yang benar-benar tertinggal di Ciel.
