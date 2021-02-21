@@ -137,22 +137,30 @@ a"Nah ada masalah sirkuitnya tapi ... Kamu memiliki rambut yang begitu indah, ja
 
 Aku cukup yakin karena Aku baru saja menyentuhnya tetapi rambut Ciel sangat halus.
 
-Jenis rambut itulah yang membuat Kamu ingin terus menyentuhnya. Ini sangat berbeda dari rambut keriting lamaku. Sejujurnya, Aku agak cemburu. Yah, itu juga rambutku juga.
-Dan rambut halus yang sama saat berendam di bak mandi. Aku tahu betul bahwa itu buruk untuk rambut tetapi kami memiliki penghalang, jadi ya. Ini pertama kalinya aku merasakan sensasi rambut basah menempel di kulitku, jadi agak geli.
+Jenis rambut itulah yang membuatmu ingin terus menyentuhnya. Ini sangat berbeda dari rambut keriting lamaku. Sejujurnya, Aku agak cemburu. Yah, itu juga rambutku juga.
 
-Sementara Aku tidak memikirkan apa-apa selain rambutnya, bagaimanapun, garis penglihatan Ciel bergeser untuk menunjuk langsung ke tubuhnya.
-Tepat ketika Aku menyadari bahwa Aku sedang menatap gundukannya yang agak montok, Ciel tiba-tiba meletakkan tangannya di atasnya.
-Karena memiliki sedikit embusan, mereka sangat lembut. Dan ketika aku memikirkan omong kosong itu, Ciel mulai memijatnya.
+rambut halus berendam di bak mandi. Aku tahu betul bahwa itu buruk untuk rambut tetapi kami memiliki +BARRIER, jadi yaaaa, Ini pertama kalinya aku merasakan sensasi rambut basah menempel di kulitku, jadi agak geli.
 
-"Dengan ini, mereka akan tumbuh lebih besar, kan?"
-"Sudah kubilang, itu hanya mitos."
-"Dan sudah kubilang aku ingin mencobanya, kan Ain?"
+Sementara Aku tidak memikirkan apa-apa selain rambutnya, garis penglihatan Ciel bergeser untuk melihat langsung ke tubuhnya.
 
-Ciel melakukannya karena keingintahuan yang jujur ​​tetapi rangsangan itu benar-benar terasa geli bagi Aku.
-Aku tahu bahwa praktis tangan Aku sendiri yang menyentuh Aku tetapi tidak seperti Ciel, yang menggerakkannya atas kemauannya sendiri, fakta bahwa Aku tidak tahu kapan rangsangan kuat datang membuatnya semakin geli.
-Tetap saja, menjadi geli tidak masalah. Bersikap geli saja tidak apa-apa, tetapi mungkin karena Aku tahu bahwa rangsangan ini terkait dengan kesenangan, Aku merasa sangat panas sekarang.
+Tepat ketika Aku menyadari bahwa Aku sedang menatap bukit yang agak menonjol, Ciel tiba-tiba meletakkan tangannya di atasnya.
+
+Karena disentuh dengna pelan, itu sangat lembut. Dan ketika aku memikirkan omong kosong itu, Ciel mulai memijatnya.
+
+c"Dengan ini, mereka akan tumbuh lebih besar, kan?"
+
+a"Sudah kubilang, itu hanya mitos."
+
+c"Dan sudah kubilang aku ingin mencobanya, kan Ain?"
+
+Ciel melakukannya karena keingintahuan ​​tetapi rangsangan itu benar-benar terasa geli bagiku.
+
+Aku tahu bahwa itu sama saja dengan tanganku sendiri yang menyentuhku tetapi tidak seperti Ciel, yang menggerakkannya atas kemauannya sendiri, fakta bahwa Aku tidak tahu kapan rangsangan kuat datang membuatnya semakin geli.
+
+Tetap saja, menjadi geli tidak masalah. Bersikap geli saja tidak apa-apa, tetapi mungkin karena Aku tahu bahwa rangsangan ini terkait dengan kesenangan, Aku merasa sangat panas sekarang. ( ͡° ͜ʖ ͡°)
 
 Selain itu, sepertinya hanya aku yang merasa seperti ini, jadi jika aku bersuara, dia akan merasa sangat aneh.
+
 Bagaimanapun, Aku hanya perlu menahannya sampai Ciel merasa puas tetapi, tiba-tiba, tangannya menyentuh ujungnya dan Aku hampir merasa seluruh tubuh Aku bergerak-gerak sebagai tanggapan.
 Dan pada saat yang sama, Aku akhirnya mengeluarkan "Hyuu yang aneh ! "suara. Namun, karena tubuh Ciel sendiri tidak menunjukkan reaksi tertentu terhadap itu, Aku diserang oleh ilusi aneh bahwa tubuh Aku tidak terhubung dengan pikiran Aku.
 Jika kita beralih sekarang, secara praktis Aku yakin bahwa Aku akan melakukan hal-hal yang tidak pantas.
