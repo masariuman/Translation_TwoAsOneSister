@@ -58,7 +58,7 @@ Setelah itu, sebelum kami sampai di kota, kami berhasil menemukan cara untuk ber
 Mendengarkan sebenarnya tidak berbeda dari sebelumnya, tetapi berbicara perlu sedikit membiasakan diri.
 Karena itu, Aku sekarang dapat berbicara dengan Ain kapan pun Aku mau dan itu benar-benar luar biasa. Lagi pula, jika kita tidak dapat berbicara karena orang-orang di sekitar, mungkin ada situasi di mana kita tidak dapat berbicara sepanjang hari.
 Tetap saja, Aku agak sedih karena Aku tidak bisa mendengar suara Ain. Yang Aku maksud dengan suara adalah suara Ain ketika dia menggunakan tubuh Aku, tetapi karena dia memiliki nada yang lebih lembut dari Aku, Aku benar-benar ingin mendengarnya bernyanyi dengan suara seperti itu.
-
+----------------
 Begitu kami mencapai cukup dekat ke dinding, kami mulai melihat orang-orang jadi Aku beralih dengan Ain.
 Tidak banyak orang dan ada juga wanita, jadi aku mencoba dengan sadar melihat mereka tapi… ketidaknyamanan? Atau lebih tepatnya ketidakpercayaan yang Aku rasakan terhadap mereka tampaknya tidak jauh berbeda dari apa yang Aku rasakan dengan pria.
 
