@@ -58,25 +58,32 @@ Setelah itu, sebelum kami sampai di kota, kami berhasil menemukan cara untuk ber
 Mendengarkan sebenarnya tidak berbeda dari sebelumnya, tetapi berbicara perlu sedikit membiasakan diri.
 Karena itu, Aku sekarang dapat berbicara dengan Ain kapan pun Aku mau dan itu benar-benar luar biasa. Lagi pula, jika kita tidak dapat berbicara karena orang-orang di sekitar, mungkin ada situasi di mana kita tidak dapat berbicara sepanjang hari.
 Tetap saja, Aku agak sedih karena Aku tidak bisa mendengar suara Ain. Yang Aku maksud dengan suara adalah suara Ain ketika dia menggunakan tubuh Aku, tetapi karena dia memiliki nada yang lebih lembut dari Aku, Aku benar-benar ingin mendengarnya bernyanyi dengan suara seperti itu.
-----------------
-Begitu kami mencapai cukup dekat ke dinding, kami mulai melihat orang-orang jadi Aku beralih dengan Ain.
-Tidak banyak orang dan ada juga wanita, jadi aku mencoba dengan sadar melihat mereka tapi… ketidaknyamanan? Atau lebih tepatnya ketidakpercayaan yang Aku rasakan terhadap mereka tampaknya tidak jauh berbeda dari apa yang Aku rasakan dengan pria.
+
+Begitu kami cukup dekat dengan dinding, kami mulai melihat orang-orang jadi Aku bertukar dengan Ain.
+
+Tidak banyak orang dan ada juga wanita, jadi aku mencoba dengan sadar melihat mereka tapi... ketidaknyamanan? Atau lebih tepatnya ketidakpercayaan yang Aku rasakan terhadap mereka tampaknya tidak jauh berbeda dari apa yang Aku rasakan dengan pria itu.
 
 Dan saat kami akan memasuki kota, daripada membiarkan kami memasuki kota, kami dibawa ke tempat yang berbeda.
-Kami dibawa ke sebuah ruangan dan Ain tiba-tiba bertanya kepada Aku bagaimana seseorang seusia Aku akan bereaksi terhadap ini atau itu, tapi Aku tidak benar-benar berpikir bahwa meminta Aku sebagai referensi adalah hal terbaik.
+
+Kami dibawa ke sebuah ruangan dan Ain tiba-tiba bertanya kepadaku bagaimana seseorang seusiaku akan bereaksi terhadap hal ini, tapi Aku tidak benar-benar berpikir bahwa bertanya kepadaku sebagai referensi adalah hal terbaik.
+
 Tetap saja, Aku pikir dia mengerti fakta itu.
 
-Tapi saat ini terjadi, itu memberi Aku keyakinan aneh bahwa Ain sebenarnya belum berusia 10 tahun.
+Tapi saat ini terjadi, itu memberiku keyakinan aneh bahwa Ain sebenarnya bukan berusia 10 tahun.
+
 Sulit untuk dijelaskan, tetapi mungkin karena Aku sejujurnya belum mempertimbangkan bahwa akan ada reaksi alami untuk orang-orang dari berbagai usia.
-Dan saat kami berbicara satu sama lain, kami mencapai topik tentang bagaimana mereka dapat mengunci kami, jadi Aku katakan bahwa kami bisa melarikan diri.
 
-Bagi Aku, Aku bahagia selama Aku bisa tetap bersama Ain.
-Sebaliknya, terkadang Aku berpikir, bagaimana jika kita hidup di hutan selamanya? Bagaimanapun, dengan cara ini, Aku bisa memiliki Ain untuk diri Aku sendiri.
-Tetap saja, bahkan jika kita memutuskan untuk bersembunyi dan tinggal di hutan, kita mungkin ditemukan di masa depan. Selain itu, jika kita melakukan itu, Aku mungkin tidak akan pernah merasakan kegembiraan menemukan sesuatu yang baru, seperti ketika Aku pertama kali melihat tembok kota hari ini, selamanya.
+Dan saat kami berbicara satu sama lain, kami mencapai topik tentang bagaimana mereka dapat mengurung kami, jadi Aku mengatakan kalau kami bisa melarikan diri.
 
-Dan karena Aku merasa agak sia-sia untuk tidak mengalaminya, Aku harus mengucapkan selamat malam kepada Aku yang egois yang ingin memiliki Ain untuk dirinya sendiri.
-Pertama-tama, faktanya adalah, aku memang sudah memilikinya untuk diriku sendiri.
+Bagiku, Aku bahagia selama Aku bisa tetap bersama Ain.
+Sebaliknya, terkadang Aku berpikir, bagaimana jika kami hidup di hutan selamanya? Dengan cara ini, Aku bisa memiliki Ain untuk diriku sendiri.
 
+Tetap saja, bahkan jika kami memutuskan untuk bersembunyi dan tinggal di hutan, kami mungkin ditemukan di masa depan. Selain itu, jika kami melakukan itu, Aku mungkin tidak akan pernah merasakan kegembiraan menemukan sesuatu yang baru, seperti ketika Aku pertama kali melihat tembok kota hari ini, selamanya.
+
+Dan karena Aku merasa agak sia-sia untuk tidak mengalaminya, Aku harus mengucapkan selamat tingga; kepada Aku yang egois yang ingin memiliki Ain untuk diriku sendiri.
+
+faktanya, aku memang sudah memilikinya untuk diriku sendiri.
+---------------------
 Kami memikirkan banyak hal kali ini, tetapi semua itu sepertinya hanya kekhawatiran yang tidak berarti, karena kami segera diizinkan memasuki kota.
 ◇
 
