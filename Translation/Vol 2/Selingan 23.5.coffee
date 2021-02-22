@@ -260,52 +260,73 @@ Berpikir tentang lelucon kecil, Aku bertanya kepada Ain tentang bagaimana cara m
 ◇
 
 Saat kami sedang menyiapkan bak mandi, Aku tiba-tiba teringat fakta bahwa Aku belum pernah mandi sebelumnya.
+
 Dan bahkan tanpa perlu mandi, Aku pikir orang-orang mungkin paling tidak menyeka tubuh mereka; jadi karena aku belum pernah melakukan itu sebelumnya, aku seharusnya sudah sangat kotor sekarang.
-Jika itu benar, itu cukup menjijikkan tetapi Ain mengatakan kepada Aku bahwa Aku tidak kotor, sepertinya.
-Sebaliknya, sepertinya penghalang Ain benar-benar melindungi Aku dari menjadi kotor.
+
+Jika itu benar, itu cukup menjijikkan tetapi Ain mengatakan kepadaku bahwa Aku tidak kotor, sepertinya.
+
+Sepertinya +BARRIER Ain benar-benar melindungiku dari menjadi kotor.
 
 Dan kemudian Ain tiba-tiba berkata bahwa itu karena Aku cantik.
-Dia bahkan mengatakannya seperti itu sangat jelas, aku sangat terkejut.
-Aku belum terlalu sering melihat wajah Aku tetapi jika Ain mengatakan demikian, maka Aku senang mendengarnya.
+
+Dia bahkan mengatakannya dengan sangat jelas, aku sangat terkejut.
+
+Aku belum terlalu sering melihat wajahku tetapi jika Ain mengatakan seperti itu, maka Aku senang mendengarnya.
+
 Tapi, apakah Ain mungkin menyukai penampilanku?
 
-"Umm , jadi dari sudut pandang Ain, aku cantik, kan?"
-"Ya. Jika Aku secantik Kamu di kehidupan masa lalu Aku, itu akan mengubah hidup Aku.
-Are "Apakah Kamu senang Aku cantik, Ain?"
-"Itu benar. Yah, Aku berharap dapat melihat Kamu menjadi lebih cantik di masa depan dan Aku ingin mencoba mempercantik Kamu seperti Kamu sekarang. "
-" Begitu, Aku mengerti ...... "
+c"Umm , jadi dari sudut pandang Ain, aku cantik, kan?"
+
+a"Ya. Jika Aku secantik Kamu di kehidupanku sebelumnya, itu akan mengubah hidupku."
+
+c"Apakah Kamu senang Aku cantik, Ain?"
+
+a"Itu benar. Yah, Aku berharap dapat melihat Kamu menjadi lebih cantik di masa depan dan Aku ingin mencoba mempercantik Kamu sekarang."
+
+c"Begitu, Aku mengerti ......"
 
 Aku bisa menganggap ini sebagai pujian, bukan?
-Dalam hal ini, mungkin Aku harus mencoba yang terbaik untuk membuat Ain lebih memuji Aku.
+
+Dalam hal ini, mungkin Aku harus mencoba yang terbaik untuk membuat Ain lebih memujiku.
 
 Aku agak terganggu oleh Ain yang tiba-tiba memujiku, jadi aku mengganti topik untuk mengubah suasana hati.
+
 Sama seperti yang kita bicarakan, agak meragukan bahwa Aku benar-benar perlu mandi tetapi karena kita sudah mengisinya, hari ini Aku tidak punya pilihan lain selain melakukannya.
-Jadi setelah Ain membasuh tubuh Aku, kami masuk ke dalam bak mandi.
 
-Ini adalah pertama kalinya Aku membasahi tubuh Aku dengan air hangat tetapi panas yang menghangatkan seluruh tubuh Aku sama sekali tidak terasa buruk.
-Rasanya juga berat tiba-tiba menghilang dari tubuhku.
-Ain sepertinya suka mandi dan sekarang aku mengerti kenapa.
+Jadi setelah Ain membasuh tubuhku, kami masuk ke dalam bak mandi.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+Ini adalah pertama kalinya Aku membasahi tubuhku dengan air hangat tetapi panas yang menghangatkan seluruh tubuhku sama sekali tidak terasa buruk.
 
-(Katakan tidak pada pencuri konten!)
+Rasanya berat juga tiba-tiba menghilang dari tubuhku.
 
-Tetapi dengan mengatakan itu, karena Aku memiliki kesempatan sekarang, inilah waktunya untuk melaksanakan rencana Aku.
-Aku menyebutnya sebuah rencana tetapi hanya Aku yang memijat payudara Aku sendiri ketika Ain, mungkin, paling tidak mengharapkannya.
-Aku sudah memberi tahu Ain bahwa Aku akan mencoba jika itu benar-benar membuat mereka lebih besar, jadi seharusnya tidak terlihat tidak wajar bagi Aku untuk melakukannya.
+Ain sepertinya suka mandi dan sekarang aku mengerti kenapa dia menyukainya.
+
+Karena Aku memiliki kesempatan sekarang, inilah waktunya untuk melaksanakan rencana Aku.
+
+Aku menyebutnya sebuah rencana tetapi aku hanya memijat dadaku sendiri ketika Ain, mungkin, tidak mengharapkannya.
+
+Aku sudah memberi tahu Ain bahwa Aku akan mencobanya jika itu benar-benar membuat mereka lebih besar, jadi seharusnya tidak terlihat tidak wajar bagiku untuk melakukannya.
+
 Aku agak mengerti apa artinya melakukan ini sebenarnya. Itulah mengapa Ain mungkin berpikir masih terlalu dini bagiku untuk mempelajari ini.
 
-Bagi Aku, Aku hanya ingin menggoda Ain sedikit, jadi Aku tidak melakukan ini karena alasan yang aneh tapi, menggosoknya sepertinya tidak terlalu menarik.
-Ini hanya agak lembut, dan mungkin sedikit geli juga.
-Setidaknya, tidak terasa seperti semakin besar. Mungkin Aku salah melakukannya? Jadi Aku mengubah cara Aku melakukannya dan kemudian "Hyuu! "Suara bernada tinggi Ain tiba-tiba bergema di kepalaku.
+Bagiku, Aku hanya ingin menganggu Ain sedikit, jadi Aku tidak melakukan ini karena alasan yang aneh tapi, memijat sepertinya tidak terlalu menarik.
 
-"Ain, ada apa?" Aku secara refleks bertanya padanya. "Bukan apa-apa." Jawabnya. Namun, suara yang baru saja dia buat sebelumnya, bagaimana Aku harus mengatakan ini, benar-benar menggelitik sesuatu di dalam diri Aku.
-Baik. Perasaan itulah yang Aku rasakan ketika Aku melihat Ain menjadi sangat menggemaskan, perasaan yang persis seperti itu.
+Ini hanya agak lembut, dan mungkin sedikit geli juga.
+
+Setidaknya, tidak terasa seperti semakin besar. Mungkin Aku salah melakukannya? Jadi Aku mengubah caraku melakukannya dan kemudian "Hyuu!" Suara bernada tinggi Ain tiba-tiba bergema di kepalaku.
+
+"Ain, ada apa?" Aku secara refleks bertanya padanya. "Bukan apa-apa." Jawabnya. tapi, suara yang baru saja dia buat sebelumnya, bagaimana Aku harus mengatakan ini, benar-benar menggelitik sesuatu di dalam diriku.
+
+Perasaan itulah yang Aku rasakan ketika Aku melihat Ain menjadi sangat menggemaskan, perasaan yang persis seperti itu.
 
 Dan sekarang setelah Aku menyadarinya, Aku juga memperhatikan lebih banyak hal.
+
 Termasuk bagaimana suara Ain saat dia mengatakan "Bukan apa-apa" terasa seolah dia berusaha menutupi nadanya.
+
 Mendengar suaranya sekarang, dia benar-benar menggemaskan.
-Dia manis, sangat manis, aku hampir ingin terus menggodanya. Tetap saja, Aku mengerti bahwa Ain berusaha menyembunyikannya. Dan bagian dirinya itu sangat, sangat menggemaskan.
-Namun, Aku akan puas dengan penemuan ini untuk hari ini. Aku tidak ingin Ain membenciku.
+
+Dia manis, sangat manis, aku hampir ingin terus menganggunya. Tetap saja, Aku mengerti bahwa Ain berusaha menyembunyikannya. Dan bagian dirinya itu sangat, sangat menggemaskan.
+
+tapi, Aku puas dengan penemuan ini untuk hari ini. Aku tidak ingin Ain membenciku.
 
 Aku ingin mengakhirinya di sini, jadi Aku mengatakan kepadanya "Jika demikian, maka tidak masalah." Dengan nada yang sangat ceria, mungkin karena Aku tidak bisa menahan kegembiraan Aku, bahkan Aku sendiri menyadarinya.
