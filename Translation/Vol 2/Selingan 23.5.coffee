@@ -47,8 +47,11 @@ Dan karena Aku tidak ingin terus bergantung pada Ain, Aku perlu belajar bagaiman
 ◇
 
 Saat kami mendekati kota, Aku sangat terkejut dengan ukuran temboknya.
+
 Ini mungkin bukan kebetulan, tapi Aku ingat Aku kewalahan oleh banyak hal besar lainnya sejak kami meninggalkan mansion.
-Tetap saja, itu adalah sesuatu yang luar biasa lebih tinggi dariku dan aku bahkan tidak bisa melihat akhirnya, jadi aku tidak bisa menahan kewalahan.
+
+Tetap saja, itu adalah sesuatu yang luar biasa lebih tinggi dariku dan aku bahkan tidak bisa melihat ujungnya, jadi aku tidak bisa menahan rasa terkejutku.
+
 Selain itu, Ain sepertinya juga tidak melihat ini sebagai hal yang buruk, jadi Aku ingin terbuka dengan emosi Aku sendiri.
 
 Setelah itu, sebelum kami sampai di kota, kami berhasil menemukan cara untuk berkomunikasi satu sama lain tanpa berbicara.
