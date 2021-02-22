@@ -212,37 +212,49 @@ Ain tidak perlu merasa bertanggung jawab atas segalanya. Karena jika Ain melakuk
 
 Jadi, karena kami sudah selesai dengan pembicaraan serius, Aku mencoba bertanya kepada Ain tentang sesuatu yang Aku perhatikan saat dia menggunakan tubuh hari ini.
 
-c"Kalau dipikir-pikir, Ain lebih suka payudara besar, kan?
+c"Kalau dipikir-pikir, Ain lebih suka dada besar, kan?
 Ukuranku kurang memuaskan ya?"
 
-"Ummmm , apa maksudmu? Apakah Aku mengatakan sesuatu tentang ini? "
-" Maksud Aku, ketika Kamu melihat orang dengan dada besar, itu selalu menarik perhatian Kamu, Ain. Kamu iri tentang itu, kan? "
+a"Ummmm , apa maksudmu? Apakah Aku mengatakan sesuatu tentang ini?"
 
-Sayangnya, segala sesuatu tentang Aku masih sangat kecil.
-Mungkin karena itu, setiap kali Ain melihat wanita dengan payudara besar, dia cenderung melihatnya.
-Tetap saja, Aku pikir tinggi badan Aku yang dekat dengan payudara adalah bagian dari alasannya juga.
+c"Maksudku, ketika Kamu melihat orang dengan dada besar, itu selalu menarik perhatianmu, Ain. Kamu iri dengan itu, kan?"
 
-"Aku hanya berpikir itu tampak sangat berat.
-Bukannya Aku tertarik dengan mereka, Aku hanya memiliki kebiasaan melihat hal-hal yang tidak biasa. "
+Sayangnya, pyntaku masih sangat kecil.
 
-Begitu, Aku ingat Ain melihat orang-orang jangkung juga.
-Tetap saja, apakah Ain lebih suka payudara yang lebih besar? Aku mencoba bertanya kepadanya tentang hal itu dan dia mengatakan kepada Aku bahwa memiliki lebih banyak itu baik.
-Aku melihat. Mungkin Ain pernah mengalami masalah dengan payudara yang lebih kecil sebelumnya.
-Pertama-tama, apakah Ain seorang gadis? Atau laki-laki? Apapun Ain, Ain akan selalu menjadi Ain.
+Mungkin karena itu, setiap kali Ain melihat wanita dengan dada besar, dia cenderung melihatnya.
 
-"Aku ingin tahu bagaimana Aku bisa membuatnya lebih besar?"
+Tetap saja, Aku pikir tinggi badanku yang dekat dengan dada adalah bagian dari alasannya juga.
 
-Untuk saat ini, kembali ke payudara. Dan saat aku memikirkannya, sepertinya aku mengatakan itu dengan keras. "Mereka bilang memijat membuat mereka lebih besar." Ain menjawab.
-Anehnya, sepertinya Aku bisa membuatnya lebih besar dengan cara yang sederhana. Untuk saat ini, Aku akan mencobanya ketika Ain tiba-tiba menghentikan Aku.
+a"Aku hanya berpikir itu tampak sangat berat. Bukannya Aku tertarik dengan mereka, Aku hanya memiliki kebiasaan melihat hal-hal yang tidak biasa."
 
-"Itu hanya rumor jadi sebaiknya jangan percaya."
-"Apakah kamu pernah mencobanya sebelumnya, Ain?"
-"T -tidak ."
-"Bagaimana dengan orang-orang di sekitarmu?"
-"Mereka belum mencobanya juga . Dan bahkan jika mereka melakukannya, Aku belum pernah mendengar mereka mengatakan bahwa mereka melakukannya. "
+Begitu, Aku ingat Ain melihat orang-orang tinggi juga.
 
-Untuk beberapa alasan, rasanya Ain tidak ingin Aku mencobanya, tapi itu mungkin hanya imajinasi Aku.
-Saat aku berpikir demikian, gadis nakal di dalam diriku keluar.
+Tetap saja, apakah Ain lebih suka dada yang lebih besar? Aku mencoba bertanya kepadanya tentang hal itu dan dia mengatakan kepada Aku kalau memiliki dada besar lebih baik.
+
+begitu ya. Mungkin Ain pernah mengalami masalah dengan dada yang lebih kecil sebelumnya.
+
+Apakah Ain seorang gadis? Atau laki-laki? Apapun Ain, Ain akan selalu menjadi Ain.
+
+c"Aku ingin tahu bagaimana Aku bisa membuatnya lebih besar?"
+
+Untuk saat ini, kembali ke dada. Dan saat aku memikirkannya, sepertinya aku mengatakan itu dengan keras. "Mereka bilang memijatnya membuat mereka lebih besar." Ain menjawab.
+
+Anehnya, sepertinya Aku bisa membuatnya lebih besar dengan cara yang sederhana. ketika Aku akan mencobanya, Ain tiba-tiba menghentikanku.
+
+a"Itu hanya rumor jadi sebaiknya jangan mempercayainya."
+
+c"Apakah kamu pernah mencobanya sebelumnya, Ain?"
+
+a"T -tidak ."
+
+c"Bagaimana dengan orang-orang di sekitarmu?"
+
+a"Mereka belum mencobanya juga . Dan bahkan jika mereka melakukannya, Aku belum pernah mendengar mereka mengatakan bahwa mereka melakukannya."
+
+Untuk beberapa alasan, rasanya Ain tidak ingin Aku mencobanya, tapi itu mungkin hanya imajinasiku.
+
+Saat aku berpikir demikian, gadis nakal di dalam diriku muncul.
+
 Berpikir tentang lelucon kecil, Aku bertanya kepada Ain tentang bagaimana cara mandi.
 
 ◇
