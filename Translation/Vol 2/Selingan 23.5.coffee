@@ -83,104 +83,138 @@ Tetap saja, bahkan jika kami memutuskan untuk bersembunyi dan tinggal di hutan, 
 Dan karena Aku merasa agak sia-sia untuk tidak mengalaminya, Aku harus mengucapkan selamat tingga; kepada Aku yang egois yang ingin memiliki Ain untuk diriku sendiri.
 
 faktanya, aku memang sudah memilikinya untuk diriku sendiri.
----------------------
+
 Kami memikirkan banyak hal kali ini, tetapi semua itu sepertinya hanya kekhawatiran yang tidak berarti, karena kami segera diizinkan memasuki kota.
+
 ◇
 
-Kota ini memiliki lebih banyak orang daripada yang pernah Aku lihat sebelumnya. Dan mengikuti mata Ain yang bergerak dengan gelisah, bidang pandanganku juga melihat segala sesuatu di sekitar kita.
+Kota ini memiliki lebih banyak orang daripada yang pernah Aku lihat sebelumnya. Dan mengikuti mata Ain yang bergerak dengan gelisah, bidang pandanganku juga melihat segala sesuatu di sekitar kami.
+
 Di daerah tertentu ada orang yang menjual barang, ada orang yang membeli barang, dan seseorang memasuki gedung di belakangnya. Ada seseorang yang berjalan sambil makan sesuatu. Ada sebuah bangunan yang agak bising. Dan selain itu, ada banyak warna dimana-mana.
-Informasi yang ada terlalu banyak, membuat Aku pusing.
+
+Informasi yang ada terlalu banyak, membuatku pusing.
 
 Tapi saat Ain juga mengamati sekeliling, dia berjalan berkeliling seperti dia terbiasa dengan ini.
-Karena Ain sepertinya tidak terlalu sibuk, aku mencoba bertanya padanya tentang Hunter's Guild.
-Sebelum kami mencapai kota, Ain memberi tahu Aku bahwa ada tempat di mana kami dapat bekerja dan sepertinya dia sedang membicarakan tentang Hunter's Guild. Aku sangat penasaran kenapa dia tidak memberitahuku tentang itu sampai sekarang, tapi sepertinya itu karena Ain sendiri tidak tahu nama mereka.
-Tapi dia berasumsi bahwa, karena ada monster, seharusnya ada organisasi seperti Hunter's Guild juga.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+Karena Ain sepertinya tidak terlalu sibuk, aku mencoba bertanya padanya tentang Guild Hunter.
 
-(Silakan kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Sebelum kami mencapai kota, Ain memberi tahu Aku bahwa ada tempat di mana kami dapat bekerja dan sepertinya dia sedang membicarakan tentang Guild Hunter. Aku sangat penasaran kenapa dia tidak memberitahuku tentang itu sampai sekarang, tapi sepertinya itu karena Ain sendiri tidak tahu nama mereka.
 
-Entah bagaimana, bagi Aku rasanya Ain sudah berasumsi bahwa organisasi itu harus ada bahkan sebelum menambahkan fakta tentang monster yang perlu diburu. Tetap saja, mungkin Aku hanya menggali terlalu dalam.
+Tapi dia berasumsi bahwa, karena ada monster, seharusnya ada organisasi seperti Guild Hunter juga.
+
+Entah bagaimana, bagiku rasanya Ain sudah berasumsi bahwa organisasi itu pasti ada bahkan sebelum menambahkan fakta tentang monster yang perlu diburu. Tetap saja, mungkin Aku hanya menggali terlalu dalam.
+
 Dan bahkan jika itu benar, Aku tidak benar-benar berniat melakukan apapun tentang itu.
+
 Selama Ain tetap menjadi dirinya sendiri, itu sudah cukup bagiku.
 
-"Setelah pergi ke guild, apa yang akan kita lakukan hari ini?"
+c"Setelah pergi ke guild, apa yang akan kita lakukan hari ini?"
 
 Aku bertanya padanya tentang itu sebagai perubahan topik dan kemudian Ain menjawab seolah-olah dia baru saja mengingatnya.
 
-"Kalau dipikir-pikir, sebenarnya aku tidak membicarakannya. Itu akan tergantung pada jam berapa kita meninggalkan guild tapi jika kita masih punya waktu setelah menemukan penginapan, kenapa kita tidak pergi mencarikan pakaian untukmu?
-Karena sepertinya kita tidak perlu menyembunyikan rambutmu, mengapa kita tidak mengambil kesempatan untuk membuatmu cantik? "
-" Aku tidak keberatan tetap seperti ini, tahu??
-"Sama sekali tidak."
+a"Kalau dipikir-pikir, sebenarnya aku tidak membicarakannya. Tergantung pada jam berapa kita meninggalkan guild tapi jika kita masih punya waktu setelah menemukan penginapan, kenapa kita tidak pergi mencarikan pakaian untukmu? Karena sepertinya kita tidak perlu menyembunyikan rambutmu, mengapa kita tidak mengambil kesempatan untuk membuatmu cantik?"
 
-Tidak seperti biasanya bagi Ain, dia langsung menyangkal Aku bahkan tanpa berhenti untuk berpikir.
-Aku tidak terlalu merasa perlu, tapi sepertinya ini tidak bagus. Aku tidak berpikir kita terlalu menonjol sekarang tapi, dari bagaimana Ain mengatakannya, kita mungkin akan mendapatkan pakaian yang menarik, sebagai gantinya.
-Kami telah melewati banyak wanita saat berjalan-jalan, jadi Aku agak mengerti pakaian apa yang wanita kenakan. Namun, pada topik apakah Aku secara khusus perlu berdandan, Aku tidak begitu memahami kebutuhannya.
+c"Aku tidak keberatan tetap seperti ini kok..."
+
+a"Itu tidak bagus."
+
+Tidak seperti biasanya bagi Ain, dia langsung menyangkalku bahkan tanpa berhenti untuk berpikir.
+
+Aku tidak terlalu merasa perlu, tapi sepertinya ini tidak bagus. Aku tidak berpikir kita terlalu menonjol sekarang tapi, dari bagaimana Ain mengatakannya, kita mungkin akan mendapatkan pakaian yang menarik.
+
+Kami telah melewati banyak wanita saat berjalan-jalan, jadi Aku agak mengerti pakaian apa yang wanita kenakan. Tapi, pada topik apakah Aku secara khusus perlu berdandan, Aku tidak begitu memahami itu.
 
 Tapi ya, Aku mengerti. Jika Aku berpikir untuk mempercantik Ain, Aku benar-benar mengerti pentingnya hal itu!
-Aku tidak sepenuhnya mengerti apa yang sebenarnya berbeda tentang mereka, tetapi Aku percaya bahwa para wanita yang berjalan di sekitar kota terlihat jauh lebih manis daripada yang Aku lakukan sekarang.
+
+Aku tidak sepenuhnya mengerti apa yang sebenarnya berbeda tentang mereka, tetapi Aku percaya bahwa para wanita yang berjalan di sekitar kota terlihat jauh lebih manis daripada Aku sekarang.
+
 Mempertimbangkan fakta bahwa Aku bisa membuat Ain lebih manis, membeli pakaian baru mungkin tidak buruk sama sekali!
 
 ◇
 
-Di Hunter's Guild, kami mengalami sedikit masalah tetapi tidak ada masalah khusus.
-Seorang pengguna kapak menamai sesuatu - aku sudah lupa apa itu - memiliki kecocokan dengan kami, tapi rasanya lebih seperti dia membantuku berlatih lingkaran sihir.
+Di Guild Hunter, kami mengalami sedikit masalah tetapi tidak ada masalah khusus.
+
+Seorang pengguna kapak bernama - aku sudah lupa siapa dia itu - memiliki pertarungan dengan kami, tapi rasanya lebih seperti dia membantuku berlatih lingkaran sihir.
+
 Ain mengkhawatirkanku, tapi karena ini menunjukkan padanya bahwa aku tidak punya masalah dalam melawan orang, seharusnya tidak apa-apa.
-Tetap saja, mengolok-olok penghalang Ain tidak bisa dimaafkan, jadi aku benar-benar ingin menghukumnya sedikit lagi.
-Tetapi ketika Aku berpikir bahwa ini adalah akhirnya, kami memutuskan untuk mengadakan formal dengan penyihir, Carol, yang menjadi wasit untuk pertandingan sebelumnya.
-Ain memberi Aku kondisi yang Aku butuhkan untuk bertarung dengan cara di mana Carol tidak akan mengetahui bahwa Aku adalah Putri Tari, dan tanpa menggunakan kekuatan Putri Lagu dan Putri Tari pada saat yang sama; tetapi karena ini juga merupakan kesempatan bagi Aku untuk mengetahui seberapa kuat Aku saat ini, tidak menerimanya bukanlah pilihan.
-Ain mengatakan kepada Aku bahwa "Jika ini menjadi terlalu banyak, silakan beralih dengan Aku" tetapi Aku benar-benar tidak akan membiarkan bahkan Ain mengambil alih peran Aku.
 
-Dengan penghalang yang Ain pasang di pertempuran sebelumnya masih di tempatnya, kami memulai putaran 2.
-Carol memecahkan penghalang Ain dengan panah es tetapi selama itu, Aku bisa menyiapkan lingkaran sihir juga.
-Ain sejujurnya terkejut karena Carol menghancurkan pembatasnya tapi, pada akhirnya, itu hanya penghalang yang dibuat dengan cepat. Dia melakukannya dengan membidik titik lemah yang terbuat dari fluktuasi kekuatan sihir, atau lebih. Pada kenyataannya, sama sekali tidak mungkin penghalang asli Ain memiliki fluktuasi kekuatan sihir apa pun.
+Tetap saja, mengolok-olok +BARRIER Ain tidak bisa dimaafkan, jadi aku benar-benar ingin menghukumnya sedikit.
 
-Setelah itu, kami hanya saling menembakkan sihir. Dengan menyuntikkan kekuatan sihir ke dalam lingkaran sihir yang baru saja aku tulis ulang, aku mengaktifkan sihir intersepsi serangan. Ilmu sihir ini adalah sesuatu yang secara otomatis mendeteksi keberadaan kekuatan sihir dan mencegatnya dengan sihir angin.
-Jika itu adalah sesuatu pada level yang sama dengan panah es yang digunakan sebelumnya, itu dapat dengan mudah mencegatnya. Namun, itu tidak memiliki kemampuan deteksi sebanyak Ain, jadi sihir Carol semakin dekat dengan kita dari yang Aku harapkan.
-Sepertinya mereka tidak benar-benar dapat menghubungi Aku tetapi mungkin berbahaya jika dia menembak lebih banyak dari mereka.
+Tetapi ketika Aku berpikir bahwa ini sudah berakhir, kami memutuskan untuk mengadakan pertandingan formal dengan penyihir, Carol, yang menjadi wasit untuk pertandingan sebelumnya.
 
-Sebagai balasannya, Aku menggunakan sihir dan menembakkan bola api ke arahnya tapi itu dengan mudah diblokir.
+Ain memberiku kondisi yang Aku butuhkan untuk bertarung dengan cara di mana Carol tidak akan mengetahui bahwa Aku adalah dance princess, dan tanpa menggunakan kekuatan song princess dan dance princess pada saat yang sama; tetapi karena ini juga merupakan kesempatan bagiku untuk mengetahui seberapa kekuatanku saat ini, tidak menerimanya bukanlah pilihan.
 
-Jadi dia tidak akan menyadarinya, aku dengan hati-hati membuat tanah di dekat kaki Carol menonjol ke arahnya juga tapi yang ini juga gagal.
+Ain mengatakan kepadaku bahwa "Jika ini menjadi terlalu merepotkan bagimu, silakan berganti denganku" tetapi Aku benar-benar tidak akan membiarkan bahkan Ain mengambil alih peranku.
+
+Dengan +BARRIER yang Ain pasang di pertempuran sebelumnya masih aktif, kami memulai babak 2.
+
+Carol memecahkan +BARRIER Ain dengan panah es tetapi selama itu, Aku bisa menyiapkan lingkaran sihir juga.
+
+Ain sejujurnya terkejut karena Carol menghancurkan +BARRIERnya tapi, pada akhirnya, itu hanya +BARRIER yang dibuat dengan cepat. Dia melakukannya dengan membidik titik lemah yang terbuat dari fluktuasi energi sihir, atau lebih. Pada kenyataannya, sama sekali tidak mungkin +BARRIER asli Ain memiliki fluktuasi energi sihir apa pun.
+
+Setelah itu, kami hanya saling menembakkan sihir. Dengan menyuntikkan energi sihir ke dalam lingkaran sihir yang baru saja aku tulis ulang, aku mengaktifkan sihir intersepsi serangan. Sihir ini adalah sesuatu yang secara otomatis mendeteksi keberadaan kekuatan sihir dan menangkisnya dengan sihir angin.
+
+Jika itu adalah sesuatu pada level yang sama dengan panah es yang digunakan sebelumnya, itu dapat dengan mudah menangkisnya. tapi, sihir ini tidak memiliki kemampuan deteksi seperti Ain, jadi sihir Carol semakin dekat dengan kami dari yang Aku harapkan.
+
+Sepertinya mereka tidak benar-benar dapat mengenaiku tetapi mungkin berbahaya jika dia menembak lebih banyak dari itu.
+
+Sebagai balasannya, Aku menggunakan sihir dan menembakkan bola api ke arahnya tapi itu dengan mudah ditangkis.
+
+Jadi dia tidak menyadarinya, aku dengan hati-hati membuat tanah di dekat kaki Carol dan menyerang ke arahnya juga tapi yang ini juga gagal.
+
 Meskipun Aku bertarung tanpa dukungan Ain, situasinya tidak terlihat baik.
-Jadi ini berarti bahwa ketika Aku terbatas pada penggunaan sihir, Aku bahkan tidak cukup kuat untuk mencapai B-Rank. Aku perlu menerima ini.
-Aku mengerti mengapa juga. Aku perlahan-lahan tersudut karena Aku tidak memiliki cukup senjata mentah. Meski begitu, aku setidaknya bisa membuatnya buntu.
+
+Jadi ini berarti bahwa ketika Aku terbatas pada penggunaan sihir, Aku bahkan tidak cukup kuat untuk mencapai rank B. Aku harus menerima ini.
+
+Aku mengerti juga alasannya. Aku perlahan-lahan tersudut karena Aku tidak memiliki cukup kekuatan seranganku. Meski begitu, aku setidaknya bisa menyeimbanginya.
 
 Aku tidak terlalu ingat berapa lama Aku melakukannya.
-Tapi tiba-tiba Aku menyadari bahwa Ain sedang bernyanyi di dalam kepala Aku, jadi Aku berhenti menggunakan kekuatan Dance Princess.
-Saat aku bertanya-tanya mengapa Ain bernyanyi, aku merasakan kehadiran kekuatan sihir yang sangat besar dari Carol. Tentu saja, jika Aku tidak meminjam kekuatan Ain, mencegat yang akan menjadi sulit.
+
+Tapi tiba-tiba Aku menyadari bahwa Ain sedang bernyanyi di dalam kepalaku, jadi Aku berhenti menggunakan kekuatan Dance Princess.
+
+Saat aku bertanya-tanya mengapa Ain bernyanyi, aku merasakan kehadiran kekuatan sihir yang sangat besar dari Carol. Tentu saja, jika Aku tidak meminjam kekuatan Ain, menangkis akan menjadi sulit.
+
 Apa yang ditembak Carol pada kami, adalah tombak es. Karena Aku mendapat dukungan Ain, Aku tahu itu akan baik-baik saja; tapi itu jauh lebih keras dari yang Aku harapkan, jadi butuh beberapa waktu untuk menghancurkannya.
 
-Masih ada lebih banyak dari mereka jadi itu akan tergantung pada berapa banyak tombak es yang sebenarnya ada tapi sangat mungkin, pada akhirnya, Aku tidak akan bisa menghancurkannya tepat waktu.
-Tetap saja, jika Aku ditanya apakah Aku takut pada tombak es yang berulang kali beringsut ke arah Aku, Aku akan mengatakan tidak.
-Pada saat Aku menghancurkan yang kesembilan, sudah terlambat bagi Aku untuk menghancurkan yang terakhir. Tetapi karena Aku masih memiliki waktu untuk bergerak sedikit, Aku cukup bergerak sehingga, bahkan jika tombak mengenai Aku, Aku tidak akan langsung mati.
+Masih ada lebih banyak tombak es jadi itu akan tergantung pada berapa banyak tombak es tapi, pada akhirnya, Aku tidak akan bisa menghancurkannya tepat waktu.
 
-Yah, itu sama sekali tidak perlu, karena penghalang Ain mampu memblokirnya.
-Mereka saling mengimbangi, jadi penghalang Ain pecah untuk pertama kalinya dalam beberapa saat. Hanya dari itu, aku tahu betapa kuatnya tombak es itu.
-Pertandingan berakhir tepat setelah itu dengan Aku kewalahan sepanjang waktu, jadi Aku tidak terlalu puas dengan itu.
+Tetap saja, jika Aku ditanya apakah Aku takut pada tombak es yang berulang kali menyerang ke arahku, Aku akan mengatakan tidak.
+
+Pada saat Aku menghancurkan yang kesembilan, sudah terlambat bagiku untuk menghancurkan yang terakhir. Tetapi karena Aku masih memiliki waktu untuk bergerak sedikit, Aku cukup bergerak sehingga, bahkan jika tombak mengenaiku, Aku tidak akan langsung mati.
+
+Yah, itu sama sekali tidak perlu, karena +BARRIER Ain dapat memblokirnya.
+
+Mereka saling mengimbangi, jadi +BARRIER Ain pecah untuk pertama kalinya. Hanya dari itu, aku tahu betapa kuatnya tombak es itu.
+
+Pertandingan berakhir tepat setelah itu dengan Aku didominasi, jadi Aku tidak terlalu puas dengan itu.
 
 Lebih penting lagi, perasaan Ain sedang down, Aku agak khawatir.
-Fakta bahwa pembatasnya hancur mungkin sangat mengejutkannya. Dia tidak terlalu perlu khawatir tentang itu.
+
+Fakta bahwa +BARRIERnya hancur mungkin sangat mengejutkannya. Dia tidak terlalu perlu khawatir tentang itu.
 
 ◇
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
-
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
-
 Dan setelah itu, banyak hal terjadi dan kami dapat menemukan penginapan untuk menginap.
-Ini pertama kalinya aku makan enak tapi bagian dalam mulutku bersenang-senang.
-Rasanya sangat aneh untuk merasakan banyak rasa tapi itu bukan perasaan yang buruk. Sebaliknya, Aku bahkan ingin memiliki semuanya di dalam mulut Aku sekarang, tetapi karena Ain makan perlahan dan menikmatinya, Aku tidak dapat melakukannya.
-Aku bertanya kepada Ain apakah ini yang orang maksud ketika mereka mengatakan enak dan sepertinya tidak ada keraguan tentang itu.
+
+Ini pertama kalinya aku makan makanan yang baik tapi bagian dalam mulutku bersenang-senang.
+
+Rasanya sangat aneh untuk merasakan banyak rasa tapi itu bukan perasaan yang buruk. Sebaliknya, Aku bahkan ingin memakan semuanya di dalam mulutku sekarang, tetapi karena Ain makan perlahan dan menikmatinya, Aku tidak dapat melakukannya.
+
+Aku bertanya kepada Ain apakah ini yang orang maksud ketika mereka mengatakan enak dan sepertinya benar.
+
 Setelah kami selesai makan dan memiliki waktu untuk bersantai, Aku berbicara tentang apa yang terjadi selama pertandingan hari ini.
-Seperti yang Aku duga, Ain benar-benar khawatir tentang penghalangnya yang dihancurkan, tetapi Aku tidak akan bisa memblokir tombak es itu jika Aku tidak mendapatkan bantuan Ain sejak awal.
-Aku tidak benar-benar memiliki hak untuk berkhotbah tentang ini, tetapi jika kita dapat mengatasi banyak hal bersama, bukankah itu cukup baik?
+
+Seperti yang Aku duga, Ain benar-benar khawatir tentang +BARRIERnya yang dihancurkan, tetapi Aku tidak akan bisa menangkis tombak es itu jika Aku tidak mendapatkan bantuan Ain sejak awal.
+
+Aku tidak benar-benar memiliki hak untuk berceramah tentang ini, tetapi jika kami dapat mengatasi banyak hal bersama, bukankah itu cukup baik?
+
 Ain tidak perlu merasa bertanggung jawab atas segalanya. Karena jika Ain melakukannya, Aku akan dihancurkan oleh perasaan itu juga.
 
-Jadi, karena kita sudah selesai dengan pembicaraan serius, Aku mencoba bertanya kepada Ain tentang sesuatu yang Aku perhatikan saat dia menggunakan tubuh hari ini.
+Jadi, karena kami sudah selesai dengan pembicaraan serius, Aku mencoba bertanya kepada Ain tentang sesuatu yang Aku perhatikan saat dia menggunakan tubuh hari ini.
 
-"Kalau dipikir-pikir, Ain lebih suka payudara besar, bukan?
-Ukuran Aku kurang memuaskan ya? "
+c"Kalau dipikir-pikir, Ain lebih suka payudara besar, kan?
+Ukuranku kurang memuaskan ya?"
+
 "Ummmm , apa maksudmu? Apakah Aku mengatakan sesuatu tentang ini? "
 " Maksud Aku, ketika Kamu melihat orang dengan dada besar, itu selalu menarik perhatian Kamu, Ain. Kamu iri tentang itu, kan? "
 

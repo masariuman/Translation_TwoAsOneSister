@@ -1,4 +1,4 @@
-ch 22 : Kamar Penginapan, Makanan, dan Dada
+ch 22 : Kamar Penginapan, Makanan, dan Payudara
 
 Berkat Celia-san , kami berhasil menemukan tempat menginap tanpa masalah. Aku bisa merasa sedikit rileks sekarang.
 
