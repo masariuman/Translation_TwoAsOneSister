@@ -31,37 +31,54 @@ Ciel menyelip dari tempat tidur putih bersih dengan rambut putihnya, mengintip s
 
 Mungkin karena apa yang dia kenakan sekarang juga, tapi, setelah kupikir-pikir, mengenakan ini di balik jubah saja sudah terasa menyimpang. Jika orang yang melihat kami tahu tentang keadaan kami, ini seharusnya bisa membuat mereka bersimpati kepada kami. Sekarang pertanyaannya adalah, apakah Celia-san akan menanyakan keadaan kami?
 
-Namun demikian, pagi hari ini sangat menyegarkan, jadi Aku mulai bernyanyi dengan a la ~ la ~ la ~ .
-Karena Ciel bangun terlambat, bagiku rasanya seperti liburan sekarang, jadi aku agak bersemangat untuk hari ini. Meski begitu, meski aku selalu terjaga, tubuh Ciel segar kembali, jadi mood-ku terpengaruh oleh itu.
+Pagi hari ini sangat menyegarkan, jadi Aku mulai bernyanyi dengan la ~ la ~ la ~ .
 
-"Lalu, Ain. Aku akan serahkan semuanya kepada Kamu hari ini juga. "
-" Aku akan beralih jika sesuatu terjadi, jadi ketika saatnya tiba, Aku akan menyerahkannya kepada Kamu juga. "
+Karena Ciel bangun terlambat, bagiku rasanya seperti liburan sekarang, jadi aku agak bersemangat untuk hari ini. Meski aku selalu berjaga-jaga, tubuh Ciel menjadi segar jadi mood-ku terpengaruh oleh itu.
+
+c"Aku akan serahkan semuanya kepadamu hari ini jugam ain."
+
+a"Aku akan bertukar jika sesuatu terjadi, jadi ketika saatnya tiba, Aku akan menyerahkannya kepadamu juga."
 
 Selagi kita tinggal di kota ini, akulah yang paling banyak bergerak. Karena itu, Aku beralih dengan Ciel, memakai jubah kami, dan meninggalkan ruangan.
-Mungkin hanya karena aku menyimpan rambut Ciel di dalam tudung sampai sekarang, tapi rasanya aneh memiliki rambut panjang bergerak bebas. Tetap saja, ini adalah sensasi yang tidak pernah Aku alami saat masih laki-laki, jadi menurut Aku itu cukup menarik.
-Saat kami melewati aula dan menuruni tangga ke lantai bawah, Nilda -san sedang berdiri di meja resepsionis.
 
-"Selamat pagi."
+Mungkin hanya karena aku menyembunyikan rambut Ciel sampai sekarang, tapi rasanya aneh memiliki rambut panjang bergerak bebas. Tetap saja, ini adalah sensasi yang tidak pernah Aku alami saat aku masih laki-laki, jadi menurutku itu cukup menarik.
+
+Saat kami melewati aula dan menuruni tangga ke lantai bawah, Nilda-san sedang berdiri di meja resepsionis.
+
+a"Selamat pagi."
+
 "Ya ampun, halo tukang tidur."
 
 Ketika Aku menyapanya, Aku dihadapkan dengan tatapan yang agak lembut.
-Dan meskipun Aku benar-benar berharap bahwa mungkin tidak ada sarapan yang disiapkan, Nilda -san berkata "Ini makananmu!" Sambil memberi Aku keranjang kecil.
 
-"Apakah tidak apa-apa?"
-"Yah, Aku sudah dibayar oleh guild. Jadi jika Aku tidak memberikannya kepada Kamu, itu akan menjadi pelanggaran kontrak dari pihak Aku, oke? "
-" Jika itu masalahnya, terima kasih banyak. "
-" Juga, jika Kamu pergi keluar, tinggalkan kunci di sini sebelum Kamu pergi oke? "
-" ...... Umm , bisakah Aku bertanya berapa lama Aku bisa tinggal di sini? "
-" Untuk saat ini, seharusnya sekitar 10 hari, Aku pikir? "
-" Begitu. Terima kasih banyak."
+Dan meskipun Aku benar-benar berharap bahwa mungkin tidak ada sarapan yang disiapkan, Nilda-san berkata "Ini makananmu!" Sambil memberiku keranjang kecil.
 
-"Sepertinya kita tidak perlu membawa semua barang kita."
-"Itu benar. Tetap saja, aku sangat senang kita tidak perlu khawatir tentang biaya penginapan selama 10 hari. "
-" Lagipula, ini jauh lebih baik daripada tidur di tanah. "
-" Juga, karena kita punya kamar sendiri, kita bisa berbicara tanpa mengkhawatirkan mata orang lain, kan Ciel? "
+a"Apakah tidak apa-apa?"
 
-Saat kami menuju ke guild, Aku melakukan percakapan ini dengan Ciel. "Fufu , itu benar." Ciel menjawab dengan riang. Apakah ini karena dia sangat senang dengan percakapan pribadi kita?
+"Yah, Aku sudah dibayar oleh guild. Jadi jika Aku tidak memberikannya kepadamu, itu akan menjadi pelanggaran kontrak dari pihakku, oke?"
+
+a"kalau begitu, terima kasih banyak."
+
+"Juga, jika Kamu pergi keluar, tinggalkan kunci di sini sebelum Kamu pergi oke?"
+
+a"...... Umm , bisakah Aku bertanya berapa lama Aku bisa tinggal di sini?"
+
+"Untuk saat ini, seharusnya sekitar 10 hari?"
+
+a"Begitu. Terima kasih banyak."
+
+c"Sepertinya kita tidak perlu membawa semua barang kita."
+
+a"Benar. Tetap saja, aku sangat senang kita tidak perlu khawatir tentang biaya penginapan selama 10 hari."
+
+c"Lagipula, ini jauh lebih baik daripada tidur di tanah."
+
+a"Juga, karena kita punya kamar sendiri, kita bisa berbicara tanpa mengkhawatirkan mata orang lain, kan Ciel? "
+
+Saat kami menuju ke guild, Aku melakukan percakapan ini dengan Ciel. "Fufu , itu benar." Ciel menjawab dengan riang. Apakah ini karena dia sangat senang dengan percakapan pribadi kami?
+
 Jalan menuju guild tidak terlalu rumit, jadi kami dengan cepat mencapai tujuan kami.
+
 Ada lebih sedikit orang di dalam guild dibandingkan dengan kemarin dan dari kelihatannya, kebanyakan dari mereka umumnya adalah anak muda. Yah meskipun Aku menyebut mereka muda, semuanya mungkin jauh lebih tua dari Ciel.
 Dan mungkin karena Aku tidak menyembunyikan rambut Ciel hari ini, ada banyak orang yang mencuri pandang ke arah Aku dalam perjalanan ke sini dan bahkan saat ini.
 Tetap saja, mereka tidak ingin berkelahi dengan kami, mereka hanya bereaksi terhadap warna rambut Ciel yang tidak biasa, karena semua orang segera kembali ke bisnis mereka setelah itu.
