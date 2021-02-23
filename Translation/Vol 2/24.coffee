@@ -1,25 +1,35 @@
 ch 24 : Bangun, Guild, dan Diskusi
 
-Keesokan paginya, Ciel bangun cukup larut. Matahari sudah tinggi di langit, jadi dari segi waktu, saat ini mungkin kurang dari waktu sarapan tetapi lebih merupakan waktu makan siang.
+Keesokan paginya, Ciel bangun cukup telat. Matahari sudah tinggi di langit, jadi dari segi waktu, saat ini mungkin bukan waktu sarapan tetapi lebih mendekati waktu makan siang.
+
 Aku sangat senang dia bisa tidur nyenyak tapi kami memiliki banyak hal yang harus kami lakukan hari ini, jadi kami tidak bisa tinggal di tempat tidur terlalu lama.
 
-"Ciel, selamat pagi."
-"Ain ~? Pagi ~ "
+a"Ciel, selamat pagi."
+
+c"Ain ~? Pagi ~"
 
 Dia benar-benar masih setengah tertidur tetapi agak tidak biasa baginya untuk menjadi mengantuk saat bangun.
+
 Mungkin karena dia tidur di tempat tidur. Tentu saja, akan lebih mudah untuk tertidur di ranjang dibandingkan dengan lantai batu, tapi tetap tidak biasa baginya.
+
 Setelah linglung selama beberapa menit, Ciel tiba-tiba meregangkan lengannya dan sekarang benar-benar bangun.
 
-"Apakah kamu sudah bangun sekarang?"
-"Tempat tidur luar biasa. Sangat lembut. Entah bagaimana, itu membuatku merasa bahagia. "
-" Kalau begitu, aku sangat senang mendengarnya. "
-" Jadi, jam berapa sekarang? "
-" Seharusnya tepat sebelum tengah hari sekarang. "
-" Tidak diragukan lagi, Aku sebenarnya ketiduran. Kamu bisa membangunkan Aku, Kamu tahu Ain? "
-" Aku juga berpikir untuk melakukannya karena kita memiliki rencana untuk hari ini juga, tapi sepertinya Kamu benar-benar menikmatinya, jadi… "
+a"Apakah kamu sudah bangun sekarang?"
+c"Tempat tidur luar biasa. Sangat lembut. Entah bagaimana, itu membuatku merasa bahagia."
 
-Ciel terselip di tempat tidur putih bersih dengan rambut putihnya mengintip seperti boneka yang ingin Kamu hias di suatu tempat. Namun, Ciel yang terkena sinar matahari memberinya tampilan yang agak ilahi.
-Mungkin karena apa yang dia kenakan sekarang juga, tapi, setelah kupikir-pikir, mengenakan ini di balik jubah saja sudah terasa menyimpang. Jika orang yang melihat kita tahu tentang keadaan kita, ini seharusnya bisa membuat kita bersimpati. Sekarang pertanyaannya adalah, apakah Celia-san akan menanyakan keadaan kita?
+a"Kalau begitu, aku sangat senang mendengarnya."
+
+c"Jadi, jam berapa sekarang?"
+
+a"Seharusnya tepat sudah siang sekarang."
+
+c"sudah kuduga, Aku ketiduran. Kamu bisa membangunkanku lho..."
+
+a"Aku juga berpikir untuk melakukannya karena kita memiliki rencana untuk hari ini juga, tapi sepertinya Kamu benar-benar menikmatinya, jadi..."
+
+Ciel menyelip dari tempat tidur putih bersih dengan rambut putihnya, mengintip seperti boneka yang ingin Kamu hias di suatu tempat. tapi, Ciel yang terkena sinar matahari memberinya tampilan yang agak ilahi.
+
+Mungkin karena apa yang dia kenakan sekarang juga, tapi, setelah kupikir-pikir, mengenakan ini di balik jubah saja sudah terasa menyimpang. Jika orang yang melihat kami tahu tentang keadaan kami, ini seharusnya bisa membuat mereka bersimpati kepada kami. Sekarang pertanyaannya adalah, apakah Celia-san akan menanyakan keadaan kami?
 
 Namun demikian, pagi hari ini sangat menyegarkan, jadi Aku mulai bernyanyi dengan a la ~ la ~ la ~ .
 Karena Ciel bangun terlambat, bagiku rasanya seperti liburan sekarang, jadi aku agak bersemangat untuk hari ini. Meski begitu, meski aku selalu terjaga, tubuh Ciel segar kembali, jadi mood-ku terpengaruh oleh itu.
