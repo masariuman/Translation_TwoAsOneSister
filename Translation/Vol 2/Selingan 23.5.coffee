@@ -329,4 +329,4 @@ Dia manis, sangat manis, aku hampir ingin terus menganggunya. Tetap saja, Aku me
 
 tapi, Aku puas dengan penemuan ini untuk hari ini. Aku tidak ingin Ain membenciku.
 
-Aku ingin mengakhirinya di sini, jadi Aku mengatakan kepadanya "Jika demikian, maka tidak masalah." Dengan nada yang sangat ceria, mungkin karena Aku tidak bisa menahan kegembiraan Aku, bahkan Aku sendiri menyadarinya.
+Aku ingin mengakhirinya di sini, jadi Aku mengatakan kepadanya "kalau begitu, tidak masalah." Dengan nada yang sangat ceria, mungkin karena Aku tidak bisa menahan kegembiraanku, bahkan Aku sendiri menyadarinya.
