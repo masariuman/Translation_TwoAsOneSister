@@ -118,37 +118,47 @@ Lakukan yang terbaik, resepsionis tanpa nama. Akan lebih baik jika Kamu menulisk
 Karena kita punya waktu, Aku meminjam tempat duduk kosong dan memeriksa isi keranjang.
 
 Di dalam keranjang ada sandwich berisi berbagai macam sayuran. Di satu sisi kelihatannya cukup sederhana tapi di sisi lain, Aku bisa dengan jelas membedakan rasa masing-masing sayuran, rasanya sangat enak. Karena Aku tidak benar-benar menemukan sayuran selezat ini ketika Aku masih hidup, mungkin rasa lapar (?) Adalah bumbu terbaik.
--------
-Beberapa saat setelah resepsionis pergi ke ruang belakang, Celia -san keluar dengan tergesa-gesa dan berkata "Maaf telah meluangkan waktu Kamu." Sambil menundukkan kepalanya. Sebaliknya, resepsionis yang kembali bersama dengan cekikikannya "Itu terlalu formal ~" tetapi melihat wajah Celia -san , dia mungkin akan mendapatkan omelan yang bagus nanti setelah ini.
-Tapi karena wajah Celia -san langsung kembali normal, mungkin itu hanya imajinasiku.
 
-"Aku ingin membawa Kamu ke kamar yang kami gunakan kemarin tetapi apakah itu baik-baik saja?"
-"Kami akan berbicara, bukan? Maka itu akan baik-baik saja. "
-" Terima kasih banyak. "
+Beberapa saat setelah resepsionis pergi ke ruang belakang, Celia-san keluar dengan tergesa-gesa dan berkata "Maaf telah meluangkan waktumu." Sambil menundukkan kepalanya. Sebaliknya, resepsionis yang kembali bersama dengan cekikikannya "Itu terlalu formal ~" tetapi melihat wajah Celia-san , dia mungkin akan mendapatkan omelan nanti setelah ini.
+
+Tapi karena wajah Celia-san langsung kembali normal, mungkin itu hanya imajinasiku.
+
+"Aku ingin membawamu ke ruang yang kita gunakan kemarin tetapi apakah itu tidak masalah?"
+
+a"kita akan berbicara, kan? kalau begitu tidak masalah."
+
+"Terima kasih banyak."
 
 Sambil melakukan percakapan yang kaku dan obyektif, kami dipandu ke ruang belakang.
-Tetap saja, kami baru saja dibawa ke ruangan yang sama seperti kemarin, dan kami juga diposisikan dengan cara yang sama.
-Dengan kata lain, Carol -san duduk di sampingku. Aku tahu dia tidak berhubungan dengan apa yang akan kita bahas hari ini tapi, kacamata berlensa -san ini mungkin bisa dipicu secara aneh oleh beberapa hal aneh, jadi aku tidak ingin duduk sedekat ini dengannya.
-Untuk saat ini, saat kita akan berdiskusi, Celia -san meminta maaf lagi.
+
+Kami baru saja dibawa ke ruangan yang sama seperti kemarin, dan kami juga diposisikan dengan cara yang sama.
+
+Dengan kata lain, Carol-san duduk di sampingku. Aku tahu dia tidak berhubungan dengan apa yang akan kami bahas hari ini tapi, si kacamata-san ini mungkin bisa dipicu secara aneh oleh beberapa hal aneh, jadi aku tidak ingin duduk sedekat ini dengannya.
+
+Untuk saat ini, saat kami akan berdiskusi, Celia-san meminta maaf lagi.
 
 "Aku ingin meminta maaf atas perilaku staf kami sebelumnya."
-"Aku tidak terlalu mempermasalahkannya. Bagaimanapun, Aku memang terlihat lebih muda dari biasanya yang berusia 10 tahun.
-Sekarang Aku memikirkannya, Aku masih belum memiliki Kartu Hunter, jadi Aku sebenarnya tidak memiliki apa pun yang dapat membuktikan bahwa Aku adalah seorang Hunter. "
-" Mengenai itu, sekali lagi, Aku sangat menyesal. Aku akan menyerahkannya sekarang.
-Ini akan menjadi Kartu Hunter Kamu, Cielmer -san . "
 
-Setelah mengatakan itu, dia memberiku kartu logam. Mungkin sekitar satu ukuran lebih besar dari poin biasa atau kartu kredit, Aku pikir. Dengan tangan Ciel, ini akan sedikit sulit untuk dipegang.
-Di depan, ada nama Cielmer dan pangkat - ngomong-ngomong itu adalah E-Rank - tertulis di atasnya. Di belakang, ada beberapa pola rumit yang tergambar di atasnya tapi, ini mungkin semacam lingkaran sihir. Apalagi, itu tipe yang menggunakan sihir. Karena itu, Aku bahkan tidak dapat memahami apa yang tertulis di dalamnya.
+a"Aku tidak terlalu mempermasalahkannya. yaah, Aku memang terlihat lebih muda dari usia 10 tahun. Sekarang Aku memikirkannya, Aku masih belum memiliki Kartu Hunter, jadi Aku sebenarnya tidak memiliki apa pun yang dapat membuktikan bahwa Aku adalah seorang Hunter."
 
-"Jadi kartunya diatur dengan sihir, kan?"
-"Benar. Ini kompatibel dengan item sihir di setiap guild dan menggunakannya, tingkat penyelesaian permintaan Hunter atau hasil tes peringkat mereka dapat dibaca secara detail. Itu juga dapat menulis ulang kartu.
-Perangkat serupa dapat ditemukan di pintu masuk kota dan pos pemeriksaan dan perangkat ini dapat membedakan apakah Kartu Hunter itu asli atau tidak.
-Namun, sepertinya tidak ada yang bisa membuat ulang teknologi ini dari awal. Satu teori bahkan mengatakan bahwa ini mungkin adalah sesuatu yang diberikan kepada kita oleh dewa. "
-" Seorang dewa ...... Apakah itu Alsharohs -sama ? "
-" Aku tidak begitu paham dengan detailnya tetapi Aku pikir itu adalah Mehtestos -sama . "
-" Begitu, itu masuk akal. "
+"Mengenai itu, sekali lagi, Maafkan Aku. Aku akan menyerahkannya sekarang. Ini akan menjadi Kartu Huntermu, Cielmer-san."
+
+Setelah mengatakan itu, dia memberiku kartu logam. Mungkin sekitar satu ukuran lebih besar dari kartu kredit. Dengan tangan Ciel, ini akan sedikit sulit untuk dipegang.
+
+Di depan, ada nama Cielmer dan rank - rank E - tertulis di atasnya. Di belakang, ada beberapa pola rumit yang tergambar di atasnya tapi, ini mungkin semacam lingkaran sihir. Karena itu, Aku bahkan tidak dapat memahami apa yang tertulis di dalamnya.
+
+a"Jadi kartunya diatur dengan sihir, kan?"
+
+"Benar. Ini kompatibel dengan item sihir di setiap guild dan menggunakannya, tingkat penyelesaian permintaan Hunter atau hasil tes peringkat mereka dapat dibaca secara detail. Itu juga dapat menulis ulang kartu. alat serupa dapat ditemukan di pintu masuk kota dan pos pemeriksaan dan perangkat ini dapat membedakan apakah Kartu Hunter itu asli atau tidak. Tapi, sepertinya tidak ada yang bisa membuat ulang teknologi ini dari awal. Satu teori bahkan mengatakan bahwa ini mungkin adalah sesuatu yang diberikan kepada kami oleh dewa."
+
+a"Seorang dewa ...... Apakah itu Alsharohs-sama ?"
+
+"Aku tidak begitu paham dengan detailnya tetapi Aku pikir itu adalah Mehtestos-sama."
+
+a"Begitu ya, itu masuk akal."
 
 Di dunia ini, tidak hanya ada satu dewa. Ada sejumlah dewa dan masing-masing dari mereka memiliki sesuatu yang mereka kuasai tetapi, Aku akan mengakhiri bagian ini di sini.
+
 Tetap saja, mirip dengan dewa mitologi di bumi, sepertinya mereka memiliki romansa dan hal-hal sendiri juga di sini.
 Namun, satu-satunya dewa yang disembah oleh gereja adalah dewa yang dianggap sebagai dewa cinta, Alsharoh. Alasannya adalah karena dia sebenarnya satu-satunya dewi yang memberikan ramalan, sepertinya.
 Di beberapa daerah, dewa perang terkadang disembah juga tapi sepertinya belum ada laporan tentang dewa itu yang melakukan tindakan langsung, seperti oracle atau semacamnya. Selain itu, karena gereja memiliki pengaruh di banyak negara, yang biasanya disebut ketika berbicara tentang tuhan tentu saja menjadi Alsharoh.
