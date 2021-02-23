@@ -80,36 +80,45 @@ Saat kami menuju ke guild, Aku melakukan percakapan ini dengan Ciel. "Fufu , itu
 Jalan menuju guild tidak terlalu rumit, jadi kami dengan cepat mencapai tujuan kami.
 
 Ada lebih sedikit orang di dalam guild dibandingkan dengan kemarin dan dari kelihatannya, kebanyakan dari mereka umumnya adalah anak muda. Yah meskipun Aku menyebut mereka muda, semuanya mungkin jauh lebih tua dari Ciel.
-Dan mungkin karena Aku tidak menyembunyikan rambut Ciel hari ini, ada banyak orang yang mencuri pandang ke arah Aku dalam perjalanan ke sini dan bahkan saat ini.
-Tetap saja, mereka tidak ingin berkelahi dengan kami, mereka hanya bereaksi terhadap warna rambut Ciel yang tidak biasa, karena semua orang segera kembali ke bisnis mereka setelah itu.
-Mempertimbangkan hal ini, Aku mungkin terlalu terobsesi untuk tidak menonjol. Tetap saja, ini hanya melihat ke belakang.
 
-Melihat area resepsionis guild, Celia -san tidak ada. Sebaliknya, seorang gadis yang tampaknya beberapa tahun lebih tua dari Ciel berdiri di belakang meja kasir. Berdasarkan gerakannya, dia tampak seperti pemula.
-Tetapi ketika Aku mendekati konter, dia berkedip dan sekarang tampaknya mengamati Aku.
+Dan mungkin karena Aku tidak menyembunyikan rambut Ciel hari ini, ada banyak orang yang mencuri pandang ke arahku dalam perjalanan ke sini dan bahkan saat ini.
 
-Jangan beri tahu Aku, apakah dia baru saja memperhatikan penghalang Aku? Atau mungkin deteksi?
-Bagaimanapun juga, jika dia menyadari sihirku, sesuatu yang bahkan Hunter B-Rank tidak bisa menyadarinya, dia mungkin sangat kuat.
+Tetap saja, mereka tidak ingin bermasalah dengan kami, mereka hanya bereaksi terhadap warna rambut Ciel yang tidak biasa, karena semua orang segera kembali ke urusan mereka setelah itu.
 
-Jadi, Aku terlalu paranoid. Bagaimanapun, dia hanya bertanya kepada Aku "Apakah Kamu di sini untuk membuat permintaan?" Ketika Aku mencapai konter.
+Mempertimbangkan hal ini, Aku mungkin terlalu terobsesi untuk tidak menonjol.
+
+Melihat area resepsionis guild, Celia-san tidak ada disana. Sebaliknya, seorang gadis yang tampaknya beberapa tahun lebih tua dari Ciel berdiri di balik meja tersebut. Berdasarkan gerakannya, dia tampak seperti pemula.
+
+Tetapi ketika Aku mendekati konter, dia berkedip dan sekarang tampaknya mengamatiku.
+
+Jangan-jangan, apakah dia baru saja sadar akan +BARRIERku? Atau mungkin +DETECTION?
+
+Jika dia menyadari sihirku, sesuatu yang bahkan Hunter Rank B tidak bisa menyadarinya, dia mungkin sangat kuat.
+
+Aku terlalu paranoid. Dia hanya bertanya kepadaku "Apakah Kamu di sini untuk membuat permintaan?" Ketika Aku mencapai konter.
+
 Ya. Nah, jika seorang anak dengan warna rambut yang tidak biasa, dan bahkan tidak terlihat berusia hampir 10 tahun, tiba-tiba memasuki guild; tentu, itu mungkin reaksi alami. Sebaliknya, karena dia tidak salah mengira aku tersesat, dia sebenarnya menangani ini dengan cukup baik.
-"Aku punya janji dengan Celia -san jadi, bisakah Kamu memanggilnya untuk Aku?"
-"Uhh , Celia -san , kan? Apakah Kamu putrinya ...... mungkin tidak tetapi, apakah Kamu berhubungan dengannya? "
-" Apakah Celia -san mengatakan sesuatu tentang memanggilnya jika ada gadis berambut putih? "
+
+a"Aku punya janji dengan Celia-san jadi, bisakah Kamu memanggilnya untukku?"
+
+"Uhh , Celia-san , ya? Apakah Kamu putrinya ...... mungkin tidak tetapi, apakah Kamu ada hubungan dengannya?"
+
+a"Apakah Celia-san mengatakan sesuatu tentang memanggilnya jika ada gadis berambut putih?"
 
 Setelah mendengar kata-kataku, resepsionis wanita itu mungkin teringat sesuatu, karena bahunya tiba-tiba melonjak.
-Setelah memberitahuku "Bisakah kamu menunggu sebentar?" Dia dengan cepat mundur ke ruang belakang. Celia -san mengatakan kepada Aku bahwa itu harus berjalan dengan lancar karena rambut putih Ciel menonjol, tetapi Aku tidak benar-benar melihat kehalusannya sekarang.
-Yah, tentu, aku tahu bahwa rambut putih kita yang menonjol membantu membuat percakapan kita di sini sedikit lebih mudah, tapi tetap saja.
 
-Aku bisa mendengar sesuatu seperti "Gadis macam apa yang Celia -san suruh agar kita waspadai lagi?" Datang dari ruang belakang, jadi kesalahan mungkin ada pada resepsionis sebelumnya.
+Setelah memberitahuku "Bisakah kamu menunggu sebentar?" Dia dengan cepat ke ruang belakang. Celia-san mengatakan kepadaku bahwa itu harusnya berjalan dengan lancar karena rambut putih Ciel menonjol, tetapi Aku tidak benar-benar melihat lancar sekarang.
+
+Yah, tentu, aku tahu bahwa rambut putih kami yang menonjol membantu membuat percakapan kami di sini sedikit lebih mudah, tapi tetap saja.
+
+Aku bisa mendengar sesuatu seperti "Gadis macam apa yang Celia-san suruh agar kita waspadai?" Datang dari ruang belakang, jadi kesalahan mungkin ada pada resepsionis sebelumnya.
+
 Lakukan yang terbaik, resepsionis tanpa nama. Akan lebih baik jika Kamu menuliskan hal-hal yang lebih penting.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
-
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
-
 Karena kita punya waktu, Aku meminjam tempat duduk kosong dan memeriksa isi keranjang.
-Di dalam keranjang ada sandwich berisi berbagai macam sayuran. Di satu sisi kelihatannya cukup sederhana tapi di sisi lain, Aku bisa dengan jelas membedakan rasa masing-masing sayuran, jadi sebenarnya sangat enak. Karena Aku tidak benar-benar menemukan sayuran selezat ini ketika Aku masih hidup, mungkin rasa lapar (?) Adalah bumbu terbaik.
 
+Di dalam keranjang ada sandwich berisi berbagai macam sayuran. Di satu sisi kelihatannya cukup sederhana tapi di sisi lain, Aku bisa dengan jelas membedakan rasa masing-masing sayuran, rasanya sangat enak. Karena Aku tidak benar-benar menemukan sayuran selezat ini ketika Aku masih hidup, mungkin rasa lapar (?) Adalah bumbu terbaik.
+-------
 Beberapa saat setelah resepsionis pergi ke ruang belakang, Celia -san keluar dengan tergesa-gesa dan berkata "Maaf telah meluangkan waktu Kamu." Sambil menundukkan kepalanya. Sebaliknya, resepsionis yang kembali bersama dengan cekikikannya "Itu terlalu formal ~" tetapi melihat wajah Celia -san , dia mungkin akan mendapatkan omelan yang bagus nanti setelah ini.
 Tapi karena wajah Celia -san langsung kembali normal, mungkin itu hanya imajinasiku.
 
