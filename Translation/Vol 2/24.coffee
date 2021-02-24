@@ -160,76 +160,97 @@ a"Begitu ya, itu masuk akal."
 Di dunia ini, tidak hanya ada satu dewa. Ada sejumlah dewa dan masing-masing dari mereka memiliki sesuatu yang mereka kuasai tetapi, Aku akan mengakhiri bagian ini di sini.
 
 Tetap saja, mirip dengan dewa mitologi di bumi, sepertinya mereka memiliki romansa dan hal-hal sendiri juga di sini.
-Namun, satu-satunya dewa yang disembah oleh gereja adalah dewa yang dianggap sebagai dewa cinta, Alsharoh. Alasannya adalah karena dia sebenarnya satu-satunya dewi yang memberikan ramalan, sepertinya.
-Di beberapa daerah, dewa perang terkadang disembah juga tapi sepertinya belum ada laporan tentang dewa itu yang melakukan tindakan langsung, seperti oracle atau semacamnya. Selain itu, karena gereja memiliki pengaruh di banyak negara, yang biasanya disebut ketika berbicara tentang tuhan tentu saja menjadi Alsharoh.
-Aku ingin menjelaskan, bagaimanapun, bahwa gereja sebenarnya tidak bermaksud untuk menolak dewa-dewa lain.
-Sekarang kembali ke topik utama.
 
-Celia -san mengarahkan kita kembali ke masalah utama.
+Tapi, satu-satunya dewa yang disembah oleh gereja adalah dewa yang dianggap sebagai dewa cinta, Alsharoh. Alasannya adalah karena dia sebenarnya satu-satunya dewi yang memberikan petunjuk, sepertinya.
 
-"Kemudian sekali lagi, izinkan Aku untuk mendiskusikan afiliasi kami. Carol dan aku, masing-masing sebagai Hunter dan resepsionis, adalah anggota guild yang dikirim ke sini dari markas. Adapun alasan untuk ini, ini sangat rahasia jadi Aku tidak diizinkan untuk menjawab itu. "
-" Karena Kamu memberi tahu Aku ini, apakah ini berarti Kamu akan mendukung Aku? "
-" Ini masih belum beres tetapi karena kita sudah mengungkapkan bahwa kami setidaknya tidak berafiliasi dengan kota ini atau negara ini, kami harus memiliki lebih banyak hal yang dapat kami diskusikan. "
-" Jadi meskipun apa yang akan Aku katakan dapat merugikan negara ini, Kamu akan membiarkan Aku off? "
-" Sebaliknya, karena itu memberi Guild Hunter lebih banyak kartu untuk digunakan untuk hubungan diplomatik, guild mendengarkan.
-Tidak peduli informasi apa yang Kamu miliki, guild akan menjaga kerahasiaan informasi yang berasal dari Kamu.
-Namun, bahkan jika seseorang adalah anggota Hunter's Guild, jika mereka bukan dari markas besar, mungkin saja mereka setia pada wilayah atau negara mereka, jadi harap diingat. "
+Di beberapa daerah, dewa perang terkadang disembah juga tapi sepertinya belum ada laporan tentang dewa itu yang melakukan tindakan langsung, seperti petunjuk atau semacamnya. Selain itu, karena gereja memiliki pengaruh di banyak negara, jadi biasanya kalau berbicara tentang dewa tentu saja pasti Alsharoh.
 
-Aku sudah punya firasat tentang itu tetapi tampaknya bahkan Hunter's Guild memiliki masalah internal mereka sendiri.
-Bahkan jika Hunter's Guild sendiri berada pada sudut pandang netral, mereka mungkin merekrut staf mereka di lokasi, jadi tergantung pada tempatnya, manajemen puncak mungkin tidak terdiri dari orang-orang dari markas.
-Dalam kasus tersebut, mereka bahkan mungkin memprioritaskan kepentingan negara di atas surat wasiat kantor pusat.
-Tetap saja, itu tidak mengubah niat kita untuk hanya membicarakan diri kita sendiri kepada orang yang menurut kita bisa kita percayai. Jika kita mau, ini bahkan bisa menjadi yang pertama dan terakhir kali kita akan berbicara tentang diri kita sendiri, jadi membahas ini bukanlah sesuatu yang perlu kita terlalu khawatirkan.
+Aku ingin memperjelaskannya, bahwa gereja sebenarnya tidak bermaksud untuk menolak dewa-dewa lain.
 
-"Tetap saja, bahkan jika informasi Kamu adalah sesuatu yang tidak dapat diterima oleh guild, kami tidak akan meninggalkan Kamu, jadi tolong jangan khawatir tentang itu.
-Setidaknya, apa yang kita putuskan kemarin sudah dijamin. "
-" Ngomong-ngomong soal dijamin, apa yang terjadi dengan hukuman Carol -san ? "
+Sekarang mari kembali ke topik utama.
+
+Celia-san mengarahkan kita kembali ke masalah utama.
+
+"Kemudian sekali lagi, izinkan Aku untuk mendiskusikan afiliasi kita. Carol dan aku, masing-masing sebagai Hunter dan resepsionis, adalah anggota guild yang dikirim ke sini dari guild pusat. Adapun alasan untuk ini, ini sangat rahasia jadi Aku tidak diizinkan untuk menjawab itu."
+
+a"Karena Kamu memberi tahuku ini, apakah ini berarti Kamu akan mendukungku?"
+
+"Ini masih belum beres tetapi karena kami sudah mengungkapkan bahwa kami setidaknya tidak berafiliasi dengan kota ini atau negara ini, kita bisa memiliki lebih banyak hal yang dapat kita diskusikan."
+
+a"Jadi meskipun apa yang akan Aku katakan dapat merugikan negara ini, Kamu akan membiarkanku?"
+
+"Sebaliknya, karena itu memberi Guild Hunter lebih banyak kartu untuk digunakan untuk hubungan diplomatik, guild akan mendengarkan. Tidak peduli informasi apa yang Kamu miliki, guild akan menjaga kerahasiaan informasi yang berasal darimu. Tapi, jika seseorang adalah anggota Guild Hunter, jika mereka bukan dari guild pusat, mungkin saja mereka setia pada wilayah atau negara mereka, jadi mohon diingat."
+
+Aku sudah punya firasat tentang itu tetapi tampaknya bahkan Guild Hunter memiliki masalah internal mereka sendiri.
+
+Bahkan jika Guild Hunter sendiri berada pada sudut pandang netral, mereka mungkin merekrut staf mereka secara lokal, jadi tergantung pada tempatnya, manajemen tertinggi mungkin tidak terdiri dari orang-orang dari guild pusat.
+
+Dalam kasus tersebut, mereka bahkan mungkin memprioritaskan kepentingan negara daripada surat menyurat ke kantor pusat.
+
+Tetap saja, itu tidak mengubah niat kami untuk hanya membicarakan diri kami sendiri kepada orang yang menurut kami bisa kami percayai. Jika kami mau, ini bahkan bisa menjadi yang pertama dan terakhir kali kami akan berbicara tentang diri kami sendiri, jadi membahas ini bukanlah sesuatu yang perlu kami terlalu khawatirkan.
+
+"Tetap saja, bahkan jika informasimu adalah sesuatu yang tidak dapat diterima oleh guild, kami tidak akan meninggalkanmu, jadi tolong jangan khawatir tentang itu. Setidaknya, apa yang kami putuskan kemarin sudah dijamin."
+
+a"Ngomong-ngomong soal dijamin, apa yang terjadi dengan hukuman Carol-san ?"
 
 Aku sebenarnya tidak peduli apa itu selama dia mendapat hukuman yang tepat. Lagipula, mengetahui tentang itu tidak akan mengubah apa pun. Tetap saja, Aku ingin mendengar apa hukumannya hanya untuk memastikan.
-Jadi sementara aku melakukannya, aku mencuri pandang ke wajah Carol -san dan, untuk beberapa alasan, dia terlihat seperti kehilangan semua harapan di dunia.
 
-"The Hunter's Guild telah menghukum Carol dengan pembatasan penggunaan di ruang penelitian dan pembayaran biaya penginapan Kamu selama Kamu tinggal di kota ini. Secara khusus, guild akan membantu Kamu dalam hidup Kamu di sini, jadi telah diputuskan bahwa guild akan menanggung biaya penginapan. "
-"Ah , terima kasih telah membayar kamar Aku. "
-" Seperti yang dinyatakan sebelumnya, ini adalah guild tanggung jawab, jadi jangan khawatir tentang itu Cielmer -san .
-Sebagai gantinya, jika Kamu tidak naik peringkat bahkan setelah satu tahun bantuan dan tidak dapat menghasilkan cukup uang untuk menopang mata pencaharian Kamu saat itu, kami tidak akan lagi membantu Kamu mencapai Peringkat-C, jadi harap perhatikan ini. "
-"Dimengerti."
+Jadi sementara aku melakukannya, aku mencuri pandang ke wajah Carol-san dan, untuk beberapa alasan, dia terlihat seperti kehilangan semua harapan di dunia.
+
+"The Guild Hunter telah menghukum Carol dengan pembatasan penggunaan di ruang penelitian dan pembayaran biaya penginapanmu selama Kamu tinggal di kota ini. Secara khusus, guild akan membantumu dalam hidupmu di sini, jadi telah diputuskan bahwa guild akan menanggung biaya penginapanmu."
+
+a"Ah, terima kasih telah membayar kamarku."
+
+"Seperti yang dikatakan sebelumnya, ini adalah tanggung jawab guild, jadi jangan khawatir tentang itu Cielmer-san. Sebagai gantinya, jika Kamu tidak naik rank bahkan setelah satu tahun dibantu dan tidak dapat menghasilkan cukup uang untuk menopang mata pencaharian Kamu saat itu, kami tidak akan lagi membantumu mencapai rank-C, jadi harap perhatikan ini ya."
+
+a"Aku mengerti."
 
 Terus terang, Aku benar-benar ingin melakukan sesuatu tentang masalah uang kami saat ini, jadi jaminan penginapan kami sangat membantu.
-Paling tidak, kita harus bisa mengelola dengan uang yang kita miliki. Dan jika batu ajaib yang kita miliki dapat dijual dengan harga yang bagus, itu seharusnya menyelesaikan masalah kita kehabisan uang.
 
-"Setelah itu, ini bukan bagian dari hukumannya tetapi selama tahun itu atau sampai Kamu mencapai C-Rank, Carol akan menjadi instruktur Kamu."
-"A-Begitukah ……"
-"Kamu tidak perlu terlihat gelisah tentang itu, kamu tahu? "
+Paling tidak, kami harus bisa mengelola dengan uang yang kami miliki. Dan jika batu magic yang kami miliki dapat dijual dengan harga yang bagus, itu seharusnya menyelesaikan masalah kami kehabisan uang.
 
-Kurasa itu benar-benar terlihat di wajahku, karena Carol -san sedikit merajuk dari reaksiku. Tetap saja, aku bereaksi seperti ini adalah kesalahannya sendiri, jadi aku sama sekali tidak bermaksud untuk bersimpati atau memaafkannya.
-Tetap saja, dia berjanji untuk mengawasi kita sampai kita mencapai D-Rank, jadi sudah terlambat bagiku untuk bereaksi seperti ini.
+"Ini bukan bagian dari hukumannya tetapi selama tahun itu atau sampai Kamu mencapai Rank C, Carol akan menjadi instrukturmu."
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+a"A-Begitu ya......."
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
+"Kamu tidak perlu terlihat gelisah tentang itu lho..."
 
-"Kamu hampir membunuhku, jadi sulit untuk menyambut.
-Mungkin ada kemungkinan besar Kamu bahkan akan lupa tentang mengajari Aku dan mulai mendiskusikan sihir. Aku tidak keberatan yang terakhir, tetapi Aku bahkan tidak ingin membayangkan yang pertama terjadi lagi. "
-" Aku benar-benar mengerti apa yang Kamu bicarakan tetapi dengan situasi kami, menjadikan Carol sebagai instruktur Kamu adalah pilihan terbaik kami. "
-" Nah jika ada orang lain yang memenuhi syarat untuk itu, mereka mungkin akan ada di sini. Jadi, lain kali Aku merasakan bahaya, izinkan Aku untuk melawan tanpa menahan diri. "
-" Aku tahu itu, Kamu tidak serius saat itu, bukan? "
-Dan saat kami membicarakan masalahnya, mata Carol -san tiba-tiba berbinar karena tertarik.
-Di sisi lain, Celia -san langsung mengernyit seolah baru saja pusing.
+Kurasa itu benar-benar terlihat di wajahku, karena Carol-san sedikit merajuk dari reaksiku. Tetap saja, aku bereaksi seperti ini adalah kesalahannya sendiri, jadi aku sama sekali tidak bermaksud untuk bersimpati atau memaafkannya.
 
-"Carol. Tidakkah kamu mengerti bahwa itulah mengapa dia berhati-hati padamu? "
-" A-Tidak apa-apa. Aku tidak akan membuatnya menjadi sedikit serius atau apapun. Benar, hanya berdiskusi tentang sihir sudah cukup. "
-" Itu masih di zona abu-abu, kamu tahu? "
+Tetap saja, dia berjanji untuk mengawasi kami sampai kami mencapai rank C, jadi sudah terlambat bagiku untuk bereaksi seperti ini.
 
-Celia -san menghela nafas panjang tapi Carol -san sepertinya tidak terlalu peduli.
-Kalau Carol -san terlalu malas mengajar, Aku akan laporkan ke Celia -san .
+a"Kamu hampir membunuhku, jadi sulit untuk menerimanya. Mungkin ada kemungkinan besar Kamu bahkan akan lupa tentang mengajariku dan mulai mendiskusikan sihir. Aku tidak keberatan untuk itu, tetapi Aku bahkan tidak ingin membayangkan hal sebelumnya terjadi lagi."
 
-"Untuk saat ini, mari kembali ke topik.
-Adapun alasan mengapa kami ingin mendengar tentang apa yang ingin Kamu katakan, itu karena memiliki informasi sebelumnya akan memudahkan guild untuk merumuskan tindakan balasan.
-Secara khusus, dalam kasus di mana mungkin ada pengejar yang sudah mencari Kamu, guild dapat pindah untuk mencari sekeliling Kamu juga. "
-" Masih ada kemungkinan bahwa akulah yang salah, Kamu tahu? "
-" Meskipun itu bisa Memang benar, peluang untuk itu seharusnya cukup rendah, jadi kami akan mengabaikannya untuk saat ini.
-Dan bahkan jika Kamu dikejar karena pembunuhan, Aku menilai bahwa ada cukup alasan bagi Kamu untuk melakukannya. "
+"Aku benar-benar mengerti apa yang Kamu bicarakan tetapi dengan situasi kami, menjadikan Carol sebagai instrukturmu adalah pilihan terbaik kami."
+
+a"Nah jika ada orang lain yang memenuhi syarat untuk itu, mereka mungkin akan ada di sini sekarang. Jadi, lain kali jika Aku merasakan bahaya, izinkan Aku untuk melawan tanpa menahan diri."
+
+"SUDAH KUDUGA, Kamu tidak serius waktu itu, kan?"
+
+Dan saat kami membicarakan masalahnya, mata Carol-san tiba-tiba berbinar karena tertarik.
+
+Di sisi lain, Celia-san langsung mengernyit seolah baru saja pusing.
+
+"Carol. Tidakkahmu mengerti bahwa itulah mengapa dia berhati-hati padamu?"
+
+"Ti-Tidak apa-apa. Aku tidak akan membuatnya menjadi sedikit serius atau apapun. Benar, hanya berdiskusi tentang sihir sudah cukup."
+
+"Itu masih di zona abu-abu lho..."
+
+Celia-san menghela nafas panjang tapi Carol-san sepertinya tidak terlalu peduli.
+
+Kalau Carol-san terlalu malas mengajar, Aku akan melaporkannya ke Celia-san .
+
+"Untuk saat ini, mari kembali ke topik. Adapun alasan mengapa kami ingin mendengar tentang apa yang ingin Kamu katakan, itu karena memiliki informasi akan memudahkan guild untuk merumuskan tindakan selanjutnya. Secara khusus, dalam kasus di mana mungkin ada pengejar yang sudah mencari Kamu, guild dapat bergerak untuk mencari sekelilingmu juga."
+
+a"Masih ada kemungkinan kalau akulah yang salah lho..."
+
+"Meskipun itu mungkin saja benar, peluang untuk itu seharusnya cukup rendah, jadi kami akan mengabaikannya untuk saat ini. Dan bahkan jika Kamu dikejar karena pembunuhan, Aku menilai bahwa ada cukup alasan bagimu untuk melakukannya."
 
 Pada titik ini, Aku benar-benar merasa diberi pengecualian khusus karena Aku berusia 10 tahun.
-Biasanya anak berusia 10 tahun tidak akan pernah membunuh seseorang, jadi mereka mungkin berpikir bahwa jika Aku membunuh seseorang, Aku mungkin tidak punya pilihan lain atau lebih.
+
+Biasanya anak berusia 10 tahun tidak akan pernah membunuh seseorang, jadi mereka mungkin berpikir bahwa jika Aku membunuh seseorang, Aku mungkin tidak punya pilihan lain selain melakukannya.
+
 Betapa nyamannya tubuh gadis kecil ini!
+
 Sekarang, mengabaikan omong kosong itu, aku harus memikirkan tentang seberapa banyak yang bisa aku katakan.
