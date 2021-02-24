@@ -79,20 +79,29 @@ a"Itu hanya beberapa hari sejak itu terjadi."
 Jika Aku ingat dengan benar, pertanyaan Carol-san saat ini seharusnya relatif bermasalah.
 
 Karena guild tidak menganggap diskriminasi Job menyenangkan, dilarang menanyakan secara paksa apa Job seseorang.
-Kenyataannya, karena Carol- san , seorang pemburu dengan peringkat lebih tinggi, meminta Aku, seorang pemburu dengan peringkat lebih rendah, bahkan hanya dengan bertanya, dia masih memiliki otoritas atas Aku.
-Namun, mengingat Celia- san akan menghentikannya jika dia benar-benar berlebihan, sepertinya Celia- san juga penasaran dengan Pekerjaan Aku.
 
-Sebaliknya, karena dia tampak agak percaya diri dengan nadanya, dia mungkin sudah tahu bahwa Aku menerima pekerjaan yang mengecewakan paling tidak. Jika demikian, ini mungkin untuk konfirmasi.
+Kenyataannya, karena Carol-san , seorang hunter dengan peringkat lebih tinggi, bertanya kepadaku, seorang hunter dengan peringkat lebih rendah, bahkan hanya dengan bertanya, dia masih memiliki otoritas atas diriku.
+
+tapi, mengingat Celia-san akan menghentikannya jika dia benar-benar berlebihan, sepertinya Celia-san juga penasaran dengan jobku.
+
+Karena dia tampak agak percaya diri dengan nadanya, dia mungkin sudah tahu bahwa Aku menerima job yang mengecewakan. Jika demikian, ini mungkin untuk konfirmasi.
+
 Sisi positifnya, ini mungkin agar mereka dapat merencanakan sesuatu sehingga Aku tidak akan didiskriminasi.
-Namun, Aku adalah anak poster dari para putri yang mengecewakan. Saat ini, Aku tidak tahu persis seberapa membenci Job Aku, jadi risikonya tinggi.
-Tetap saja, dengan memberi tahu orang-orang yang selama ini baik hati dan peduli kepadaku, aku seharusnya bisa mengetahui betapa dibencinya Job Song Princess itu. Dalam skenario terburuk, kami akan dipaksa untuk melarikan diri jadi… apa yang harus dilakukan.
-"Aku ingin memberi tahu mereka bahwa Aku adalah Putri Lagu, tetapi apakah tidak apa-apa?"
-"Putri Lagu? Meskipun mereka tahu Ain sebagai Cielmer? "
-" Itu karena jika orang tahu Ciel sebagai Putri Lagu, kita akan bisa menipu sang duke karena dia hanya tahu bahwa kamu adalah Putri Tari.
-Begitu kita mencapai peringkat B dan menjadi terkenal, jika kebetulan adipati mendengar Putri Penari bernama Cielmer, dia benar-benar akan menyadari bahwa itu kamu. "
-"Begitu . Paling buruk, kita bisa kabur begitu saja. Ketika itu terjadi, mari kita bersembunyi jauh di dalam hutan di suatu tempat, oke? "
+
+Namun, Aku adalah anak dari para putri yang mengecewakan. Saat ini, Aku tidak tahu persis seberapa Jobku dibenci, jadi risikonya tinggi.
+
+Tetap saja, dengan memberi tahu orang-orang yang selama ini baik hati dan peduli kepadaku, aku seharusnya bisa mengetahui betapa dibencinya Job Song Princess itu. Dalam skenario terburuk, kami akan dipaksa untuk melarikan diri jadi... apa yang harus dilakukan.
+
+a"Aku ingin memberi tahu mereka kalau Aku adalah song princess, tetapi apakah tidak apa-apa?"
+
+c"song princess? Meskipun mereka tahu Ain sebagai Cielmer?"
+
+a"Itu karena jika orang tahu Ciel sebagai song princess, kita akan bisa menipu sang duke karena dia hanya tahu bahwa kamu adalah dance princess. Begitu kita mencapai peringkat B dan menjadi terkenal, jika kebetulan duke mendengar dance princess bernama Cielmer, dia benar-benar akan menyadari bahwa itu kamu."
+
+c"Begitu. dalam situasi terburuk, kita bisa kabur begitu saja. Ketika itu terjadi, ayo kita bersembunyi jauh di dalam hutan di suatu tempat, oke?"
 
 Aku mendapat izin Ciel, tetapi Aku bertanya-tanya mengapa Ciel terdengar sangat senang tentang itu.
+
 Keberadaannya yang optimis pasti membuatku merasa tidak terlalu tegang, jadi aku tidak akan menanyakannya tentang hal itu.
 Aku tidak tahu bagaimana mereka melihat Aku karena Aku terdiam sebentar saat berdiskusi dengan Ciel, tetapi karena yang mereka tanyakan adalah apa adanya, seharusnya dikomunikasikan kepada mereka bahwa Pekerjaan Aku sulit untuk diungkapkan. Padahal, kami baru saja membuat keputusan untuk mengatakannya.
 
