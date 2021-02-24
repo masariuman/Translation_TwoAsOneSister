@@ -103,36 +103,52 @@ c"Begitu. dalam situasi terburuk, kita bisa kabur begitu saja. Ketika itu terjad
 Aku mendapat izin Ciel, tetapi Aku bertanya-tanya mengapa Ciel terdengar sangat senang tentang itu.
 
 Keberadaannya yang optimis pasti membuatku merasa tidak terlalu tegang, jadi aku tidak akan menanyakannya tentang hal itu.
-Aku tidak tahu bagaimana mereka melihat Aku karena Aku terdiam sebentar saat berdiskusi dengan Ciel, tetapi karena yang mereka tanyakan adalah apa adanya, seharusnya dikomunikasikan kepada mereka bahwa Pekerjaan Aku sulit untuk diungkapkan. Padahal, kami baru saja membuat keputusan untuk mengatakannya.
 
-"Aku seorang Putri Lagu."
-"...... Untuk berpikir bahwa itu adalah Putri Lagu dari semua hal."
-"Apakah ada masalah dengan itu?"
-"Guild itu sendiri tidak memiliki masalah dengan itu. Namun, dalam hal ini diketahui, kami tidak dapat menjamin bahwa kami dapat melindungi Kamu. "
-" Jadi dengan kata lain, tidak apa-apa selama tidak terungkap, kan? "
-" Itu benar. Jadi tolong, cobalah menahan diri untuk tidak menceritakan hal ini kepada orang lain. "
-" Mungkin lebih baik untuk berpikir bahwa Aku tidak akan bisa tinggal di kota ini jika Aku ketahuan. "
+Aku tidak tahu bagaimana mereka melihatku karena Aku terdiam sebentar saat berdiskusi dengan Ciel, tetapi karena yang mereka tanyakan adalah hal itu, mereka pasti mengira bahwa jobku sulit untuk diungkapkan. Padahal, kami baru saja membuat keputusan untuk mengatakannya.
 
-Setelah dengan santai mengatakannya, Celia- san dengan tenang mengangguk setuju.
+a"Aku seorang song princess."
+
+"...... Untuk berpikir bahwa itu adalah song princess..."
+
+a"Apakah ada masalah dengan itu?"
+
+"Guild sendiri tidak memiliki masalah dengan itu. tapi, dalam hal apabila ini tersebar, kami tidak dapat menjamin bahwa kami dapat melindungimu."
+
+a"Jadi dengan kata lain, tidak apa-apa selama tidak terungkap, kan?"
+
+"Itu benar. Jadi tolong, cobalah menahan diri untuk tidak menceritakan hal ini kepada orang lain."
+
+a"Mungkin lebih baik untuk berpikir bahwa Aku tidak akan bisa tinggal di kota ini jika Aku ketahuan."
+
+Setelah dengan santai mengatakannya, Celia-san dengan tenang mengangguk setuju.
+
 Nah, apakah kebencian ini hanya terbatas pada kota ini, terbatas pada negara ini, atau apakah ini sesuatu yang mendunia? Aku tidak tahu yang mana tapi sepertinya bukan hal yang global.
-Tetap saja, mungkin saja kebencian ini ada di banyak negara, dan Aku hampir yakin kebencian itu juga mengakar kuat di seluruh negeri ini. Lagipula, Putri Song telah mengacaukan ibu kota di masa lalu. Aku tidak akan terkejut jika ada beberapa hiasan di sekitar Ayub atau orang menyebut Kamu dikutuk karena memilikinya.
 
-"Kalau begitu, mari kita buat agar aku menjadi anak yatim piatu dari seorang ibu dari negara di timur jauh, dan aku mewarisi Pekerjaan yang berhubungan dengan lagu, apakah itu bagus?"
-"Dalam arti tertentu, negara ini adalah di timur jauh, Kamu tahu? "
-" Lalu ke barat. "
-" Acak, bukan? "
+Tetap saja, mungkin saja kebencian ini ada di banyak negara, dan Aku hampir yakin kebencian itu juga mengakar kuat di seluruh negeri ini. Lagipula, Song princess telah mengacaukan ibu kota di masa lalu. Aku tidak akan terkejut jika ada beberapa hiasan untuk job itu atau orang menyebutmu dikutuk karena memilikinya.
 
-Carol- san mengatakannya dengan nada kaget tetapi sepertinya dia tidak melihat ada masalah dengan Aku mengatakan bahwa Aku memiliki Pekerjaan yang berhubungan dengan menyanyi.
+a"Kalau begitu, mari kita buat agar aku menjadi anak yatim piatu dari seorang ibu dari negara jauh di timur, dan aku mewarisi job yang berhubungan dengan lagu, apakah itu terdengar bagus"
+
+"Dalam arti tertentu, negara ini adalah negara jauh di timur, tahukah kamu?"
+
+a"kalau begitu dari barat."
+
+"kamu sungguh acak, ya?"
+
+Carol-san mengatakannya dengan nada kaget tetapi sepertinya dia tidak melihat ada masalah denganku mengatakan bahwa Aku memiliki job yang berhubungan dengan menyanyi.
+
 Dia mungkin tahu bahwa lebih baik mencampurkan beberapa kebenaran daripada dengan canggung mencoba menyembunyikannya atau sesuatu.
-Faktanya, karena Aku hanya melakukan ini dengan informasi yang tidak jelas - sebaliknya, Aku benar-benar melakukan ini agar Aku bisa bernyanyi jika Aku punya kesempatan - dia mungkin tahu betapa efektifnya itu lebih dari Aku.
 
-"Sekadar untuk mengonfirmasi, jika Aku menghadap utara, kanan Aku timur, kiri barat, dan di belakang Aku selatan, kan?"
-"Benar, itu benar. Aku melihat. Itu sangat masuk akal. Kamu seharusnya tidak memiliki pengetahuan tentang apa yang biasanya masuk akal.
-Apakah ini berarti, Aku harus mengajari Kamu tentang ini juga? "
-" Penghalang Aku. Selain perlindungan dan penyembunyian, tahukah Kamu apa efek lain yang dimilikinya? "
-" Tentu saja Aku akan. Lagipula kau adalah junior kecilku yang manis. Wajar saja untuk mengajari Kamu semua yang tidak Kamu ketahui. "
+Faktanya, karena Aku hanya melakukan ini dengan informasi yang tidak jelas - Aku benar-benar melakukan ini agar Aku bisa bernyanyi jika Aku punya kesempatan - dia mungkin tahu betapa efektifnya itu lebih dariku.
 
-Ini monokel -senpai , dia cukup merepotkan tapi dalam beberapa hal, mudah untuk mengelola juga.
+a"Sekadar untuk mengonfirmasi, jika Aku menghadap utara, kananku adalah timur, kiriku adalah barat, dan di belakangku adalah selatan, kan?"
+
+"Benar, itu benar. begitu ya... Itu sangat masuk akal. Kamu seharusnya tidak memiliki pengetahuan tentang apa yang biasanya masuk akal. Apakah ini berarti, Aku harus mengajarimu tentang ini juga?"
+
+a"+BARRIERku. Selain melindungi dan bersembunyi, tahukah Kamu apa efek lain yang dimilikinya?"
+
+"Tentu saja. Lagipula kau adalah junior kecilku yang manis. Wajar saja untuk mengajari mu semua yang tidak Kamu ketahui."
+
+dasar monocle-senpai , dia cukup merepotkan tapi dalam beberapa hal, mudah untuk mengelola juga.
 Namun, selain perlindungan dan penyembunyian, yang bisa dilakukan hanyalah hal-hal seperti mengusir kotoran dan hal-hal lain. Yah, aku tidak terlalu peduli apakah ini akan sepadan dengan waktu Carol- san , tapi karena aku berhasil memenangkan hatinya, semuanya baik-baik saja.
 
 "Ngomong-ngomong, apakah Aku benar tentang arahnya?"
