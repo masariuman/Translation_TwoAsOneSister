@@ -27,12 +27,14 @@ Bahkan rasanya Aku mungkin baru saja memberi mereka petunjuk yang mengarah langs
 Fakta bahwa aku berdoa untuk Duke sangat menyebalkan, tetapi jika guild menemukan keterlibatan Duke Respelgia dan memutuskan untuk melakukan sesuatu tentang hal itu, dia mungkin hanya curiga bahwa kita masih hidup.
 
 "Jadi monster apa saat itu?"
-"Monster itu adalah pemilik batu ajaib ini. Itu adalah raksasa bermata satu yang memiliki benda seperti klub besar. "
 
-Mengatakan demikian, Aku menunjukkan mereka batu ajaib. Berdasarkan jumlah kekuatan sihir yang disimpan di dalamnya, Aku curiga ini mungkin jenis batu ajaib yang sama yang digunakan untuk membuat pil hitam itu, tetapi bahkan jika itu benar, Aku tidak dapat berbuat apa-apa sekarang. Akan sangat bagus jika Aku dapat menemukan cara untuk secara langsung menyerap kekuatan sihir dari batu ajaib tetapi karena Aku tidak dapat mengontrol kekuatan sihir yang tidak Aku miliki di luar tubuh Ciel, Aku tidak dapat berbuat apa-apa. Sebaliknya, pil yang menyuntikkan monster - milik orang lain? - kekuatan sihir ke dalam tubuh mungkin sebenarnya tidak normal.
+a"Monster itu adalah pemilik batu magic ini. Itu adalah raksasa bermata satu yang memiliki senjata seperti klub besar."
 
-Menurut Carol- san , itu adalah monster B-Rank; dan karena aku sudah resmi menang melawan Carol- san , Celia- san tidak terkejut bahkan setelah melihat batu ajaib besar itu.
-Sebaliknya, dia bahkan mengangguk pada dirinya sendiri terlihat agak yakin tentang sesuatu. Aku berasumsi ini tentang apa yang dia katakan sebelumnya, tentang bagaimana ini secara langsung dapat mengakibatkan keselamatan Aku.
+Aku menunjukkan mereka batu magic. Berdasarkan jumlah energi sihir yang disimpan di dalamnya, Aku curiga ini mungkin jenis batu magic yang sama yang digunakan untuk membuat pil hitam itu, bahkan jika itu benar, Aku tidak dapat berbuat apa-apa sekarang. Akan sangat bagus jika Aku dapat menemukan cara untuk secara langsung menyerap energi sihir dari batu magic tapi karena Aku tidak dapat mengontrol energi sihir yang tidak Aku miliki di luar tubuh Ciel, Aku tidak dapat berbuat apa-apa. Sebaliknya, pil yang disuntikkan ke monster - milik orang lain? - energi sihir ke dalam tubuh mungkin sebenarnya tidak normal.
+
+Menurut Carol-san , itu adalah monster rank B; dan karena aku sudah resmi menang melawan Carol-san , Celia-san tidak terkejut bahkan setelah melihat batu magic besar itu.
+
+Sebaliknya, dia bahkan mengangguk pada dirinya sendiri terlihat agak yakin tentang sesuatu. Aku berasumsi ini tentang apa yang dia katakan sebelumnya, tentang bagaimana ini secara langsung dapat mengarah ke-keselamatanku.
 
 "Menilai dari batu ajaib ini dan uraianmu tentang monster itu, yang menyerangmu pasti seorang cyclop.
 Itu adalah monster peringkat-B raksasa bermata satu. Dengan asumsi bahwa mereka menyewa, misalnya, pengawal peringkat-C, konfrontasi dengannya akan menyebabkan kehancuran tertentu.
