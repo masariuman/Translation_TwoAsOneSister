@@ -36,39 +36,48 @@ Menurut Carol-san , itu adalah monster rank B; dan karena aku sudah resmi menang
 
 Sebaliknya, dia bahkan mengangguk pada dirinya sendiri terlihat agak yakin tentang sesuatu. Aku berasumsi ini tentang apa yang dia katakan sebelumnya, tentang bagaimana ini secara langsung dapat mengarah ke-keselamatanku.
 
-"Menilai dari batu ajaib ini dan uraianmu tentang monster itu, yang menyerangmu pasti seorang cyclop.
-Itu adalah monster peringkat-B raksasa bermata satu. Dengan asumsi bahwa mereka menyewa, misalnya, pengawal peringkat-C, konfrontasi dengannya akan menyebabkan kehancuran tertentu.
-Kamu bisa mengatakan bahwa orang yang memenjarakan Kamu cukup siap. "
-" Jadi menurut Kamu bangsawan yang mengunci Aku mengatur ini juga, kan?
-Atau lebih tepatnya, apakah sebenarnya ada cara untuk mengendalikan monster? "
-" Seharusnya tidak ada, itulah yang ingin Aku katakan. Pada kenyataannya, Job untuk menjinakkan monster peringkat rendah telah ditemukan, jadi tidak aneh jika ada Job yang bisa mengendalikan monster peringkat tinggi.
-Selain itu, jika bangsawan telah mendirikan tempat tinggal di hutan tempat monster peringkat B dapat ditemukan, tergantung pada metode mereka, mereka seharusnya dapat dengan mudah menggunakannya. "
+"Menilai dari batu magic ini dan uraianmu tentang monster itu, yang menyerangmu pasti seekor cyclop. Itu adalah monster rank B raksasa bermata satu. Dengan asumsi bahwa mereka menyewa, misalnya, pengawal rank C, konfrontasi dengannya akan menyebabkan kehancuran tertentu. bisa dikatakan bahwa orang yang mengurungmu Kamu cukup siap."
 
-Aku berasumsi bahwa para cyclop baru saja terpikat oleh laguku, dan itu mungkin benar-benar terjadi, tetapi bahkan tanpa laguku, para cyclop akan tetap menyerang karavan.
+a"Jadi menurutmu bangsawan yang mengurungku mengatur ini juga, kan? Atau lebih tepatnya, apakah sebenarnya ada cara untuk mengendalikan monster?"
+
+"Seharusnya tidak ada, itulah yang ingin Aku katakan. Pada kenyataannya, Job untuk menjinakkan monster rank rendah telah ditemukan, jadi tidak aneh jika ada Job yang bisa mengendalikan monster rank tinggi. Selain itu, jika bangsawan telah mendirikan tempat tinggal di hutan tempat monster rank B dapat ditemukan, tergantung pada metode mereka, mereka seharusnya dapat dengan mudah menggunakannya."
+
+Aku berasumsi bahwa para cyclop baru saja terpikat oleh laguku, dan itu mungkin benar-benar terjadi, tetapi bahkan tanpa laguku, para cyclop akan tetap menyerang kereta kuda.
+
 Dan karena hasilnya akan sama, kurasa apa yang sebenarnya terjadi tidak terlalu penting bagi duke dan aku.
 
-"Secara kebetulan, apa yang terjadi dengan tubuh monster itu?"
-"Setelah mendapatkan batu ajaibnya, Aku membakarnya dan menguburnya."
-"Sungguh, pengetahuan Kamu cukup tambal sulam untuk situasi seperti ini, Kamu tahu?"
+"apa yang terjadi dengan tubuh monster itu?"
 
-Ketika Aku bertanya pada Carol, yang bergabung dalam percakapan, "Apakah cara Aku menanganinya salah?" Dia menggelengkan kepalanya sebagai jawaban.
+a"Setelah mendapatkan batu magicnya, Aku membakarnya dan menguburnya."
 
-"Masalahnya di sini adalah karena sebenarnya tidak. Dari apa yang baru saja Kamu katakan, Kamu dikurung selama 10 tahun, jadi fakta bahwa Kamu tahu cara menangani situasi dengan benar itu konyol. "
-" Sejak Aku menjadi 5 tahun, mereka mungkin ingin memanfaatkan Aku, jadi Aku disimpan di ruangan yang penuh dengan buku.
-Semua yang Aku tahu berasal dari buku-buku itu. "
-" Jadi maksud Kamu pengetahuan Kamu tentang sihir berasal dari sana juga, kan? "
-" Itu dari buku dan juga dari pengalaman Aku sendiri. "
-" Sebaliknya, dengan tingkat sihir Kamu, Aku tidak percaya kamu dijual. "
-" Itu karena aku berpura-pura tidak bisa menggunakan sihir. Selain yang mengurung Aku sehingga Aku tidak bisa melarikan diri, Aku biasanya dibiarkan sendirian. "
+"pengetahuanmu sungguh cukup luas untuk situasi seperti ini, Kamu tahu itu?"
 
-Karena dia seorang adipati, dia mungkin tidak bisa tinggal sepanjang hari, jadi dia mungkin tidak punya banyak waktu untuk dihabiskan untukku.
+Ketika Aku bertanya pada Carol, yang bergabung dalam percakapan, "Apakah caraku menanganinya salah?" Dia menggelengkan kepalanya sebagai jawaban.
+
+"Masalahnya di sini adalah karena sebenarnya tidak salah. Dari apa yang baru saja Kamu katakan, Kamu dikurung selama 10 tahun, jadi fakta bahwa Kamu tahu cara menangani situasi dengan benar itu konyol."
+
+a"Sejak Aku menjadi 5 tahun, mereka mungkin ingin memanfaatkanku, jadi Aku disimpan di ruangan yang penuh dengan buku. Semua yang Aku tahu berasal dari buku-buku itu."
+
+"Jadi maksudmu pengetahuanmu tentang sihir berasal dari sana juga, kan?"
+
+a"Itu semua dari buku dan juga dari pengalamanku sendiri."
+
+"Sebaliknya, dengan tingkat sihirmu, Aku tidak percaya kamu dijual."
+
+a"Itu karena aku berpura-pura tidak bisa menggunakan sihir. Selain mengurungku sehingga Aku tidak bisa melarikan diri, Aku biasanya dibiarkan sendirian."
+
+Karena dia seorang duke, dia mungkin tidak bisa tinggal sepanjang hari, jadi dia mungkin tidak punya banyak waktu untuk dihabiskan untukku.
+
 Dalam hal ini, Aku sangat bersyukur atas lingkungan seperti itu.
 
-"Dengan kata lain, sihir Kamu sudah berada pada level ini pada saat Kamu menerima Pekerjaan Kamu, kan?"
-"Itu hanya beberapa hari sejak itu terjadi."
-"Jadi, Pekerjaan apa yang Kamu terima?"
+"Dengan kata lain, sihirmu sudah berada pada level ini pada saat Kamu menerima jobmu, kan?"
 
-Jika Aku ingat dengan benar, pertanyaan Carol- san saat ini seharusnya relatif bermasalah.
+a"Itu hanya beberapa hari sejak itu terjadi."
+
+"Jadi, job apa yang Kamu dapatkan?"
+
+Jika Aku ingat dengan benar, pertanyaan Carol-san saat ini seharusnya relatif bermasalah.
+
 Karena guild tidak menganggap diskriminasi Job menyenangkan, dilarang menanyakan secara paksa apa Job seseorang.
 Kenyataannya, karena Carol- san , seorang pemburu dengan peringkat lebih tinggi, meminta Aku, seorang pemburu dengan peringkat lebih rendah, bahkan hanya dengan bertanya, dia masih memiliki otoritas atas Aku.
 Namun, mengingat Celia- san akan menghentikannya jika dia benar-benar berlebihan, sepertinya Celia- san juga penasaran dengan Pekerjaan Aku.
