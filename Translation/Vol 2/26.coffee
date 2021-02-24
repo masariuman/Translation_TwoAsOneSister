@@ -1,66 +1,81 @@
 ch 26: Pembicaraan sebenarnya dan 
 
-"Sejujurnya Cielmer- san , menyakitkan bagiku membiarkanmu berjalan keluar dengan pakaian itu tapi ......"
+"Sejujurnya Cielmer-san , menyakitkan bagiku membiarkanmu berjalan keluar dengan pakaian itu tapi ......"
 
-Setelah itu, Celia- san segera mengambil cuti sore itu dan sebelum aku menyadarinya, kami sudah meninggalkan Carol- san dan keluar dari guild.
-Sepanjang jalan, Celia- san menatapku dengan ekspresi yang sangat bertentangan di wajahnya sementara aku terkesima dengan area baru yang aku lihat.
+Celia-san segera mengambil cuti sore dan tanpa kusadari, kami sudah meninggalkan Carol-san dan keluar dari guild.
 
-"Ini adalah satu-satunya pakaian yang pernah Aku kenakan sejak Aku lahir.
-Tapi itu tidak normal, kan? "
+Sepanjang jalan, Celia-san menatapku dengan ekspresi yang sangat bertentangan di wajahnya sementara aku terkesima dengan area baru yang aku lihat.
 
-Tapi aku sudah tahu itu. Tapi latar belakang Aku adalah bahwa Aku dikurung selama 10 tahun dan baru saja melarikan diri, jadi akan aneh jika Aku tidak memerankannya sedikit pun.
-Dalam hal ini, meminta Ciel bertukar dengan Aku mungkin membuat reaksi kami tampak lebih alami tetapi itu bukan prioritas utama kami, jadi Aku tidak mempertimbangkannya untuk saat ini.
-Berbicara tentang Ciel, "Underwear? Apa itu? "Dia sepertinya sangat ingin tahu tentang topik itu.
+a"Ini adalah satu-satunya pakaian yang Aku kenakan sejak Aku lahir. Tapi itu tidak normal, kan?"
 
-"Mungkin sulit dipercaya, tetapi dikatakan bahwa pakaian dalam tidak ada sampai beberapa dekade yang lalu.
-Namun, kecuali untuk individu yang sangat aneh, kebanyakan orang menggunakannya saat ini. Terutama wanita, karena sangat terkait dengan keselamatan mereka.
-Sepertinya wanita hanya diperbolehkan memakai rok pada masa itu, jadi kemungkinan hanya ada segelintir Hunter wanita juga. Meskipun sekarang, masih sulit untuk mengatakan bahwa ada banyak wanita dalam bisnis ini. "
+aku sudah tahu itu. Tapi latar belakangku bahwa Aku dikurung selama 10 tahun dan baru saja melarikan diri, jadi akan aneh jika Aku tidak memerankannya sedikit pun.
 
-Setelah mengatakan semua itu, Celia- san berkata "Ngomong-ngomong," dan mengganti topik.
+Dalam hal ini, meminta Ciel bertukar denganku mungkin membuat reaksi kami tampak lebih alami tetapi itu bukan prioritas utama kami, jadi Aku tidak mempertimbangkannya untuk saat ini.
+
+Berbicara tentang Ciel, "Celana Dalam? Apa itu?" Dia sepertinya sangat ingin tahu tentang topik itu.
+
+"Mungkin sulit dipercaya, tetapi pakaian dalam tidak ada sampai beberapa dekade yang lalu. Kecuali untuk individu yang sangat aneh. kebanyakan orang menggunakannya saat ini. Terutama wanita, karena sangat terkait dengan keselamatan mereka. Sepertinya wanita hanya diperbolehkan memakai rok pada masa itu, jadi kemungkinan hanya ada segelintir Hunter wanita juga. Meskipun sekarang, masih sulit untuk mengatakan bahwa ada banyak wanita yang menjadi hunter."
+
+Setelah mengatakan semua itu, Celia-san berkata "Ngomong-ngomong," dan mengganti topik.
+
 Itu masuk akal, karena ini bukan sesuatu untuk dibicarakan saat berjalan di jalanan, tetapi tanggapan yang Aku pikirkan untuk topik ini tidak akan pernah terlihat terang hari ini.
 
-"Aku tidak berpikir bahwa Aku benar-benar perlu memberi tahu Kamu ini, tetapi tidak semua orang bersedia membantu Kamu hanya karena Kamu seorang gadis muda, oke?"
-"Tentu saja. Bagaimanapun, Aku pikir tingkat kemalangan yang Aku katakan sebelumnya tidak terlalu jarang. "
-" Yah, Aku percaya bahwa lingkungannya masih cukup unik. "
-" Tapi meskipun itu masalahnya dengan lingkungan Aku, mungkin ada orang yang dipukul oleh orang tuanya setiap hari dan orang lain yang tidak memiliki makanan untuk dimakan. Dibandingkan itu, apa yang Aku katakan sebelumnya sama sekali tidak mengancam kehidupan, jadi mungkin ada orang yang menganggap Aku diberkati. "
-" Jadi Kamu sudah tahu banyak, begitu. "
+"Aku tidak berpikir bahwa Aku benar-benar perlu memberi tahu Kamu ini, tetapi tidak semua orang bersedia membantumu hanya karena Kamu seorang gadis muda, oke?"
 
-Jika Aku memasukkan pembunuhan yang gagal setiap hari, yah, itu seharusnya membuat tingkat kemalangan kita sangat tinggi tetapi tidak ada artinya memasukkan sesuatu yang bahkan belum Aku ceritakan kepada mereka.
-Celia- san dengan penuh perhatian menjawab kata-kataku dan setelah memikirkan tentang sesuatu, dia menanyakanku sebuah pertanyaan.
+a"Tentu saja. Bagaimanapun juga, Aku pikir tingkat kemalangan yang Aku katakan sebelumnya tidak terlalu jarang."
 
-"Cielmer- san , apa pendapat Kamu tentang penampilan Kamu?"
-"Aku belum pernah melihat diri Aku sebelumnya, jadi Aku tidak yakin."
+"Yah, Aku percaya bahwa lingkungannya masih cukup unik."
+
+a"Tapi meskipun itu masalahnya dengan lingkunganku, mungkin ada orang yang dipukul oleh orang tuanya setiap hari dan orang lain yang tidak memiliki makanan untuk dimakan. Dibandingkan itu, apa yang Aku katakan sebelumnya sama sekali tidak mengancam kehidupanku, jadi mungkin ada orang yang menganggapku masih diberkati."
+
+"Jadi Kamu sudah tahu banyak, begitu."
+
+Jika Aku memasukkan proses pembunuhan yang gagal setiap hari ketika ciel masih bayi, yah, itu seharusnya membuat tingkat kemalangan kami sangat tinggi tetapi tidak ada artinya memasukkan sesuatu yang bahkan belum Aku ceritakan kepada mereka.
+
+Celia-san dengan penuh perhatian menjawab kata-kataku dan setelah memikirkan tentang sesuatu, dia menanyakanku sebuah pertanyaan.
+
+"Cielmer-san, apa pendapatmu tentang penampilanmu?"
+
+a"Aku belum pernah melihat diriku sebelumnya, jadi Aku tidak yakin."
 
 Ainsel terus-menerus melihatnya, tetapi Cielmer belum pernah melihat wajahnya sendiri sebelumnya.
-Dari sudut pandang Ainsel, meski mungkin hanya karena beberapa bias keluarga, Aku pikir Ciel sangat cantik. Dia mungkin tampak seperti kecantikan yang menyendiri seperti boneka dan merasa agak seperti robot, tetapi ketika berbicara dengan Aku, dia sangat ekspresif dan menunjukkan banyak emosi, jadi dia benar-benar cantik yang bisa didekati dari sudut pandang Aku.
-Tetap saja, itu mungkin karena usianya tapi Aku pikir kelucuannya sekarang masih lebih menonjol.
+
+Dari sudut pandang Ainsel, meski mungkin hanya karena beberapa bias keluarga, Aku pikir Ciel sangat cantik. Dia mungkin tampak seperti kecantikan yang tersendiri seperti boneka dan merasa agak seperti robot, tetapi ketika berbicara denganku, dia sangat ekspresif dan menunjukkan banyak emosi, jadi dia benar-benar cantik yang bisa didekati dari sudut pandangku.
+
+Tetap saja, itu mungkin karena usianya tapi Aku pikir kemanisannya sekarang masih lebih menonjol.
 
 Sekarang kembali ke topik.
 
-Melihat Aku segera menjawab, Celia- san meletakkan telapak tangannya ke wajahnya.
+Melihatku segera menjawab, Celia-san meletakkan telapak tangannya ke wajahnya.
+
 Dan setelah tampaknya mempersiapkan diri, dia memulai percakapan.
 
-"Sejujurnya, Cielmer- san , kamu sangat menarik, jadi kamu mungkin menarik penculik.
-Dan bahkan di Hunter's Guild, mungkin ada beberapa orang yang akan mencoba menarikmu dengan paksa ke dalam party mereka. Aku percaya bahwa Kamu harus dapat menangani kedua situasi ini tetapi itu pasti masih akan merepotkan. "
-" Itu satu demi satu hal buruk. "
-" Bergantung pada tindakan dan perilaku Kamu, menjadi menarik memiliki lebih banyak manfaat secara keseluruhan tetapi tolong sadar akan bahayanya. Terutama, sangat disayangkan tetapi ada kasus di mana Hunter wanita muda dipaksa untuk bergabung dengan sebuah pesta dan kemudian diserang di luar kota. "
+"Sejujurnya, Cielmer-san, kamu sangat menarik, jadi kamu mungkin menarik penculik. Dan bahkan di Guild Hunter, mungkin ada beberapa orang yang akan mencoba menarikmu dengan paksa ke dalam PARTY+ mereka. Aku percaya Kamu dapat menangani kedua situasi ini tetapi itu pasti masih tetap merepotkan."
 
-Seperti yang dikatakan Celia- san , aku, atau lebih tepatnya Ciel, mungkin bisa menangani mereka dengan mudah.
-Bahkan ketika menghadapi seseorang yang setingkat dengan Carol- san dan bahkan mungkin melawan Carol- san , melarikan diri dengan sendirinya mungkin saja terjadi meskipun aku tidak bisa sepenuhnya yakin.
-Dan berkat deteksi Aku, kami juga mampu menangani penyergapan, jadi itu sudah cukup sebagai jaring pengaman. Namun, fakta bahwa kita mungkin benar-benar perlu mengatasi masalah ini karena daya tarik Ciel sangat disayangkan, juga memakan waktu.
+a"Itu salah satu sekian banyak hal buruk."
 
-Tetap saja, seperti yang dikatakan Celia- san , ini bukannya tidak ada gunanya juga bagi kita. Dengan penampilan Ciel, jika kita memilih dengan siapa kita berbicara, kita harus bisa membuat orang membantu kita dan bahkan jika kita baru di suatu kota, mungkin akan mudah bagi penduduk untuk menyambut kita.
-Aku sudah mengetahui fakta ini tetapi Aku pikir membuat Ciel mendengar penilaian objektif tentang dirinya sendiri juga penting, jadi Aku hanya bertindak terkejut dan mengangguk pada diri sendiri.
+"Bergantung pada tindakan dan perilakumu, menjadi menarik memiliki lebih banyak manfaat secara keseluruhan tetapi tolong sadar akan bahayanya. Terutama ada kasus di mana Hunter wanita muda dipaksa untuk bergabung dengan sebuah party dan kemudian diserang di luar kota."
 
-"Hal lain, Cielmer- san , Aku tidak tahu apakah Kamu berencana untuk tetap menjadi Hunter selamanya tetapi jika Kamu mempertimbangkan untuk memilih jalan lain di masa depan, memoles pesona Kamu sebagai seorang wanita untuk sementara tidak akan merugikan juga.
-Faktanya, resepsionis yang lebih populer di guild adalah yang menarik. Untuk alasan itu, Aku juga akan mengajari Kamu tentang apa yang Kamu perlukan untuk menjadi seorang wanita untuk masa depan, jadi Aku harap Kamu menikmatinya. "
-" Terima kasih banyak. "
+Seperti yang dikatakan Celia-san , aku, atau lebih tepatnya Ciel, mungkin bisa menangani mereka dengan mudah. Bahkan ketika menghadapi seseorang yang setingkat dengan Carol-san dan bahkan mungkin melawan Carol-san , melarikan diri dengan sendirinya mungkin saja bisa terjadi meskipun aku tidak bisa sepenuhnya yakin.
+
+Dan berkat +DETECTIONku, kami juga mampu menangani penyergapan, jadi itu sudah cukup sebagai jaring pengaman. tapi, fakta bahwa kami mungkin benar-benar perlu mengatasi masalah ini karena daya tarik Ciel sungguh sial, juga memakan waktu.
+
+Tetap saja, seperti yang dikatakan Celia-san, ini bukannya tidak ada gunanya juga bagi kami. Dengan penampilan Ciel, jika kami memilih dengan siapa kami berbicara, kami harus bisa membuat orang membantu kami dan bahkan jika kami baru di suatu kota, mungkin akan mudah bagi penduduk untuk menyambut kami.
+
+Aku sudah mengetahui fakta ini tetapi Aku pikir membuat Ciel mendengar penilaian objektif tentang dirinya sendiri juga penting, jadi Aku hanya bertindak terkejut dan mengangguk pada diriku sendiri.
+
+"Hal lain, Cielmer-san , Aku tidak tahu apakah Kamu berencana untuk tetap menjadi Hunter selamanya tetapi jika Kamu mempertimbangkan untuk memilih jalan lain di masa depan, memoles pesonamu sebagai seorang wanita untuk sementara tidak akan merugikan juga. Faktanya, resepsionis yang lebih populer di guild adalah yang menarik. Untuk alasan itu, Aku juga akan mengajarimu tentang apa yang Kamu perlukan untuk menjadi seorang wanita untuk masa depan, jadi Aku harap Kamu menikmatinya."
+
+a" Terima kasih banyak. "
+
 ◇
 
-Ada saat ketika Aku bersyukur tentang itu. Tidak, aku masih bersyukur bahkan sampai sekarang. Namun, Aku lelah secara mental dan fisik karena berbelanja.
-Sekarang setelah kami kembali ke penginapan, pikiran ini memenuhi pikiranku saat aku melepas jubah kami dan memperlihatkan gaun kuning muda. Kemudian, sambil berhati-hati agar tidak membuat gaun itu kusut, Aku melepasnya juga. Dan sekarang satu-satunya yang Aku kenakan adalah kain putih, Aku berganti menjadi pakaian rumah dan berbaring di tempat tidur.
-Baju rumah ini, atau mungkin baju tidur, adalah baju yang terbuat dari kain tipis. Sejujurnya, itu hanya menunjukkan sedikit lebih sedikit kulit daripada kain putih, jadi Aku tidak begitu yakin apakah ada artinya memakai ini sama sekali.
+Ada saat ketika Aku bersyukur tentang itu. Tidak, aku masih bersyukur bahkan sampai sekarang. tapi, Aku lelah secara mental dan fisik karena berbelanja.
 
+Sekarang setelah kami kembali ke penginapan, pikiran ini memenuhi pikiranku saat aku melepas jubah kami dan melihat gaun kuning muda. Kemudian, sambil berhati-hati agar tidak membuat gaun itu kusut, Aku melepasnya juga. Dan sekarang satu-satunya yang Aku kenakan adalah kain putih, Aku berganti menjadi pakaian rumah dan berbaring di tempat tidur.
+
+Baju rumah ini, atau mungkin baju tidur, adalah baju yang terbuat dari kain tipis. Sejujurnya, itu hanya menunjukkan sedikit lebih sedikit kulit daripada kain putih, jadi Aku tidak begitu yakin apakah ada artinya memakai ini sama sekali.
+------
 Namun, aku tidak ingin Ciel tumbuh menjadi gadis yang hanya mengenakan pakaian dalam di kamarnya, jadi membiasakan diri mengenakan pakaian seharusnya tidak masalah.
 Bicara soal pakaian dalam, pakaian dalam dunia ini memang terlihat seperti laci1 dengan benang tipis dan dengan area pribadi dijahit dengan benar. Karena itu, tidur hanya dengan pakaian dalam mungkin tidak akan terlihat sensual seperti di Jepang.
 Untuk atasan, bangsawan akan mengenakan korset dan rakyat jelata dengan cukup uang akan mengenakan pakaian dalam seperti bustier. Namun, sepertinya Aku belum membutuhkannya.
