@@ -30,17 +30,23 @@ Meskipun dia menepisnya dengan cekikikan, Ciel mungkin memikirkan hal yang sama 
 
 Jelas, Aku tidak benar-benar berencana untuk melakukan itu tapi, jujur, aku tidak pernah bahkan mempertimbangkan memasuki kerumunan itu.
 
-Karena itu, ada beberapa anak muda yang cantik juga. Aku melihat satu di papan buletin juga, dia tampaknya berusia lebih dari 20 tahun dari segi penampilan tetapi dia mungkin sekitar usia siswa sekolah menengah.
-Di sisi lain, di mana orang-orang mengawasi kerumunan, ada sekelompok tiga orang yang dekat dengan usianya juga, jadi mereka mungkin berada di pesta yang sama dengannya. Jadi termasuk yang mencari permintaan, ada 2 laki-laki dan 2 perempuan. Sekelompok teman yang mengadakan pesta bersama adalah hal yang biasa terlihat dalam karya sastra, mungkin pesta semacam itu juga.
+Ada beberapa anak muda yang cantik juga. Aku melihatnya di papan juga, dia tampaknya berusia lebih dari 20 tahun dari segi penampilan tetapi dia mungkin sekitar usia siswa sekolah menengah.
+
+Di sisi lain, di mana orang-orang mengawasi kerumunan, ada sekelompok tiga orang yang dekat dengan usianya juga, jadi mereka mungkin berada di party yang sama dengannya. Yang mencari permintaan, ada 2 laki-laki dan 2 perempuan. Sekelompok teman yang mengadakan party bersama adalah hal yang biasa terlihat dalam tugas kelompok, mungkin party mirip semacam itu juga.
+
 Dan ketika Aku mengamati beberapa hal acak lainnya, Aku terus berbicara dengan Ciel.
 
-"Bagi Aku, itu akan tergantung pada permintaan yang tersisa tetapi Aku baik-baik saja bahkan jika kita mengambil sisanya."
-"Mengapa demikian?"
-"Itu karena karena kita seharusnya tidak memiliki masalah dengan uang untuk sementara waktu, Aku Berpikir bahwa melakukan permintaan sisa yang membuat guild bermasalah bisa mendapatkan rasa terima kasih dari guild.
-Bagaimana denganmu Ciel? "
-" Mari kita lihat… jika Ain mengatakan demikian, maka …… Tidak, tunggu, beri aku waktu. "
+a"Bagiku, itu akan tergantung pada permintaan yang tersisa tetapi Aku tidak masalah walaupun kita mengambil sisanya."
 
-Ketika Aku bertanya tentang pendapatnya, Ciel segera setuju dengan Aku tetapi dia kemudian tiba-tiba menghentikan percakapan kami untuk memikirkan sesuatu.
+c"kenapa?"
+
+a"Itu karena karena kita seharusnya tidak memiliki masalah dengan uang untuk sementara waktu, Aku Berpikir melakukan permintaan sisa yang membuat guild bermasalah bisa mendapatkan rasa terima kasih dari guild.
+Bagaimana denganmu Ciel?"
+
+c"hmmmmm... jika Ain bilang begitu, yaaah... Tidak, tunggu, beri aku waktu."
+
+Ketika Aku bertanya tentang pendapatnya, Ciel segera setuju denganku tetapi dia kemudian tiba-tiba menghentikan percakapan kami untuk memikirkan sesuatu.
+
 Bukannya ada jawaban yang tepat untuk apa yang harus kita lakukan, tetapi mungkin yang terbaik bagi Ciel untuk mulai memikirkan apa yang ingin dia lakukan untuk dirinya sendiri sedini mungkin.
 Meskipun Aku memegang kendali di kota ini, Aku biasanya hanya akan berada dalam posisi untuk membantu Ciel. Lagipula aku tidak akan menjadi orang yang memegang kendali penuh.
 
