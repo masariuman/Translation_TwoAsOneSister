@@ -156,13 +156,14 @@ a"Aku sedang berpikir mengambil permintaan pengumpulan herb tetapi bisakah Aku b
 
 a"Apa yang terjadi pada herb setelah permintaan?"
 
-"Mereka akan diolah menjadi salep. Itu tidak dapat dibuat dari herb khusus ini tetapi herb yang berbeda dapat diproses dengan cara yang sama menjadi ramuan oleh alkemis."
+"Mereka akan diolah menjadi salep. Itu tidak dapat dibuat dari herb khusus ini tetapi herb yang berbeda dapat diproses dengan cara yang sama menjadi potion oleh alkemis."
 
 a"Lalu apa perbedaan di antara mereka?"
 
 Aku dapat membayangkan bahwa mereka akan terlihat sangat berbeda, tetapi Aku tidak dapat membayangkan apa yang membuat efek mereka sangat berbeda.
 
-Anehnya, hanya ada beberapa game di mana salep dan ramuan sama-sama ada, jika Aku ingat benar. Tetapi sebagai seseorang yang pernah tinggal di Jepang, salep, salep penyembuh, jauh lebih familiar sementara ramuan memiliki rasa khusus bagi mereka.
+Anehnya, hanya ada beberapa game di mana salep dan potion sama-sama ada, jika Aku ingat dengan benar. Tetapi sebagai seseorang yang pernah tinggal di Jepang, salep penyembuh, jauh lebih familiar sementara potion memiliki rasa khusus bagi mereka.
+
 Perbedaan di antara mereka berdua mungkin sudah menjadi rahasia umum di sini, tetapi karena Celia- san mengerti bahwa Aku mungkin tidak tahu tentang mereka, sepertinya itu sebabnya dia sengaja memberi tahu Aku tentang keduanya.
 
 "Keduanya terutama menyembuhkan luka. Ramuan jauh lebih efektif dan langsung dibandingkan dengan salep tetapi harganya sangat mahal.
