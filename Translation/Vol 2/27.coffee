@@ -83,7 +83,8 @@ a"baiklah. Terima kasih banyak."
 
 c"Tidak apa-apa. Sejujurnya, aku juga sama sekali tidak tahu apa yang harus kita lakukan."
 
-Tidak masalah apa yang akan dikatakan Ciel, selama dia memberikan pendapatnya sendiri. Itulah yang awalnya Aku pikirkan tetapi Ciel telah memikirkannya lebih dari yang Aku harapkan, jadi Aku benar-benar tidak memiliki kata-kata. Sebenarnya, Aku ingin memujinya, itu gadis Aku. "Jangan khawatir, kerja bagus Ciel." Jadi Aku mencoba memujinya tetapi dia tidak begitu mengerti alasannya.
+Tidak masalah apa yang akan dikatakan Ciel, selama dia memberikan pendapatnya sendiri. Itulah yang awalnya Aku pikirkan tetapi Ciel telah memikirkannya lebih dari yang Aku harapkan, jadi Aku benar-benar tidak memiliki kata-kata untuk membalasnya. Sebenarnya, Aku ingin memujinya, "Jangan khawatir, kerja bagus Ciel." Jadi Aku mencoba memujinya tetapi dia tidak begitu mengerti alasannya.
+
 Entah bagaimana, akhir-akhir ini aku merasa lebih menyayangi.
 
 Sebelum kami menyadarinya, sebagian besar pemburu telah meninggalkan guild, jadi kami menuju ke meja resepsionis untuk menyambut Celia- san …… kami melakukannya, tapi sekarang ada dua loket penerimaan.
