@@ -16,14 +16,20 @@ Ada beberapa orang dengan aura veteran pada mereka dan mereka juga hanya melihat
 
 Di antara kerumunan itu, ada juga beberapa orang yang kemungkinan besar berusia belasan tahun.
 
-"Apakah ini mungkin karena orang-orang dengan peringkat yang lebih rendah ingin menemukan permintaan yang paling menguntungkan yang mereka bisa?"
-"Kurasa begitu. Bahkan, kita harus dalam kerumunan itu juga tapi ... "
-"Ain, apakah Kamu benar-benar berpikir bahwa kita dapat menemukan permintaan jika kita masuk itu ?"
-" Sebagian besar mungkin tidak. Meskipun jika kita menggunakan sihir, kita seharusnya bisa membuat jalan dalam sekejap. "
-" Yah itu, cukup ekstrim, bukan? "
+c"Apakah ini mungkin karena orang-orang dengan peringkat yang lebih rendah ingin menemukan permintaan yang paling menguntungkan yang mereka bisa?"
+
+a"Kurasa begitu. Bahkan, kita harus dalam kerumunan itu juga tapi ... "
+
+c"Ain, apakah Kamu benar-benar berpikir bahwa kita dapat menemukan permintaan jika kita masuk kesitu ?"
+
+a"mungkin tidak. Meskipun jika kita menggunakan sihir, kita seharusnya bisa membuat jalan dalam sekejap."
+
+c"Yah itu, cukup ekstrim, bukan?"
 
 Meskipun dia menepisnya dengan cekikikan, Ciel mungkin memikirkan hal yang sama juga.
-Jelas, Aku tidak benar-benar berencana untuk melakukan itu tapi, jujur, aku tidak pernah bahkan mempertimbangkan memasuki itu .
+
+Jelas, Aku tidak benar-benar berencana untuk melakukan itu tapi, jujur, aku tidak pernah bahkan mempertimbangkan memasuki kerumunan itu.
+
 Karena itu, ada beberapa anak muda yang cantik juga. Aku melihat satu di papan buletin juga, dia tampaknya berusia lebih dari 20 tahun dari segi penampilan tetapi dia mungkin sekitar usia siswa sekolah menengah.
 Di sisi lain, di mana orang-orang mengawasi kerumunan, ada sekelompok tiga orang yang dekat dengan usianya juga, jadi mereka mungkin berada di pesta yang sama dengannya. Jadi termasuk yang mencari permintaan, ada 2 laki-laki dan 2 perempuan. Sekelompok teman yang mengadakan pesta bersama adalah hal yang biasa terlihat dalam karya sastra, mungkin pesta semacam itu juga.
 Dan ketika Aku mengamati beberapa hal acak lainnya, Aku terus berbicara dengan Ciel.
