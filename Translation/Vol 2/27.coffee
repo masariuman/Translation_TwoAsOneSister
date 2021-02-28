@@ -47,31 +47,41 @@ c"hmmmmm... jika Ain bilang begitu, yaaah... Tidak, tunggu, beri aku waktu."
 
 Ketika Aku bertanya tentang pendapatnya, Ciel segera setuju denganku tetapi dia kemudian tiba-tiba menghentikan percakapan kami untuk memikirkan sesuatu.
 
-Bukannya ada jawaban yang tepat untuk apa yang harus kita lakukan, tetapi mungkin yang terbaik bagi Ciel untuk mulai memikirkan apa yang ingin dia lakukan untuk dirinya sendiri sedini mungkin.
+tidak ada jawaban yang tepat untuk apa yang harus kita lakukan, tetapi mungkin lebih baik Ciel untuk mulai memikirkan apa yang ingin dia lakukan untuk dirinya sendiri sedini mungkin.
+
 Meskipun Aku memegang kendali di kota ini, Aku biasanya hanya akan berada dalam posisi untuk membantu Ciel. Lagipula aku tidak akan menjadi orang yang memegang kendali penuh.
 
 Sambil menunggu Ciel memikirkan jawabannya, Aku terus mengamati.
-Kalau dipikir-pikir, aku tidak melihat Alejo di mana pun. Kenapa ya? Yah, dia seharusnya menjadi pemburu peringkat-D, jadi mungkin dia tidak perlu bekerja dengan rajin setiap hari. Meski begitu, bisa juga karena dia tidak tahan terlihat di depan umum setelah dipukuli oleh Ciel.
-Juga, pesta anak laki-laki yang Aku lihat sebelumnya sepertinya sedang berdebat tentang sesuatu.
+
+Kalau dipikir-pikir, aku tidak melihat Alejo di mana pun. Kenapa? Yah, dia seharusnya pemburu rank-D, jadi mungkin dia tidak perlu bekerja dengan rajin setiap hari. Meski begitu, bisa juga karena dia tidak tahan terlihat di depan umum setelah dikalahkan oleh Ciel.
+
+Juga, party anak laki-laki yang Aku lihat sebelumnya sepertinya sedang berdebat tentang sesuatu.
+
 Aku tidak bisa mendengarnya dengan jelas dari sini, tapi sepertinya bocah itu membawakan permintaan tingkat kesulitan tinggi untuk mereka.
 
 Karena mereka adalah party yang terdiri dari 4 orang, penghasilan per orang mungkin sekitar 1/4 dari hadiah awal; jadi mengingat untung, melakukan permintaan yang sulit seharusnya bagus.
-Namun, karena mereka sepertinya berasal dari kota ini, Aku rasa mereka tidak perlu terlalu khawatir tentang mendapatkan uang. Jika mereka tidak tinggal di penginapan, bahkan 2 koin tembaga akan cukup untuk membeli makanan hari itu. Dan dengan satu koin perak, bahkan hidup sendiri seharusnya tidak menjadi masalah.
+
+tapi, karena mereka sepertinya berasal dari kota ini, Aku rasa mereka tidak perlu terlalu khawatir tentang mendapatkan uang. Jika mereka tidak tinggal di penginapan, bahkan 2 koin tembaga akan cukup untuk membeli makanan hari itu. Dan dengan satu koin perak, bahkan hidup sendiri seharusnya tidak menjadi masalah.
+
 Meskipun jika Aku memperhitungkan peralatan mereka, mereka mungkin membutuhkan uang sebanyak yang mereka bisa.
 
-Berbicara tentang uang, kami menukar batu ajaib laba-laba kelas-D dengan 8 koin perak. Sepertinya ini sudah lebih dari pendapatan harian rakyat jelata dan karena satu-satunya alat yang Aku gunakan adalah pisau, ini berarti kami memiliki banyak tabungan sekarang.
-Dan saat aku memikirkan tentang omong kosong acak, sepertinya Ciel selesai merenung, jadi dia mulai berbicara kepadaku.
+Berbicara tentang uang, kami menukar batu magic laba-laba rank-D dengan 8 koin perak. Sepertinya ini sudah lebih dari pendapatan harian orang biasa dan karena satu-satunya alat yang Aku gunakan adalah pisau, ini berarti kami memiliki banyak tabungan sekarang.
 
-"Bagi Aku Ain, Aku ingin Kamu melakukan permintaan yang ingin Kamu lakukan."
-"Apakah itu berarti, Kamu setuju dengan Aku?"
-"Tidak Ain. Aku ingin Kamu memilih permintaan yang menurut Kamu menarik tanpa khawatir mendapatkan rasa terima kasih atau yang lainnya.
-Lagipula Ain, kamu sangat bersemangat sebelumnya, bukan? Kami akan melakukan banyak permintaan mulai sekarang, jadi Aku ingin Kamu setidaknya memilih apa yang Kamu inginkan untuk permintaan pertama kami. "
+Dan saat aku memikirkan hal acak, sepertinya Ciel selesai merenung, jadi dia mulai berbicara kepadaku.
+
+c"Bagiku Ain, Aku ingin Kamu melakukan permintaan yang ingin Kamu lakukan."
+
+a"Apakah itu berarti, Kamu setuju denganku?"
+
+c"Tidak Ain. Aku ingin Kamu memilih permintaan yang menurutmu menarik tanpa khawatir mendapatkan rasa terima kasih atau yang lainnya. Lagipula Ain, kamu sangat bersemangat sebelumnya, kan? kita akan melakukan banyak permintaan mulai sekarang, jadi Aku ingin Kamu setidaknya memilih apa yang Kamu inginkan untuk permintaan pertama kita."
 
 Mendengarnya mengingat apa yang terjadi pagi ini membuat pipiku terasa agak panas.
-Aku tidak tahu apakah Aku harus malu atau Aku hanya …… ​​Sulit untuk mengatakan siapa yang dewasa dalam situasi ini.
 
-"Dimengerti. Terima kasih banyak. "
-" Tidak apa-apa. Sejujurnya, itu juga benar bahwa aku sama sekali tidak tahu apa yang harus kita lakukan. "
+Aku tidak tahu apakah Aku harus malu atau Aku hanya ...... ​​Sulit untuk mengatakan siapa yang dewasa dalam situasi ini.
+
+a"baiklah. Terima kasih banyak."
+
+c"Tidak apa-apa. Sejujurnya, aku juga sama sekali tidak tahu apa yang harus kita lakukan."
 
 Tidak masalah apa yang akan dikatakan Ciel, selama dia memberikan pendapatnya sendiri. Itulah yang awalnya Aku pikirkan tetapi Ciel telah memikirkannya lebih dari yang Aku harapkan, jadi Aku benar-benar tidak memiliki kata-kata. Sebenarnya, Aku ingin memujinya, itu gadis Aku. "Jangan khawatir, kerja bagus Ciel." Jadi Aku mencoba memujinya tetapi dia tidak begitu mengerti alasannya.
 Entah bagaimana, akhir-akhir ini aku merasa lebih menyayangi.
