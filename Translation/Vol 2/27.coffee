@@ -4,13 +4,16 @@ Kami tiba di guild di pagi hari tapi di dalam, ada pertempuran yang terus berlan
 
 Di area sebelah kiri setelah memasuki guild, ada dinding yang memiliki papan. Permintaan dipajang di sana, tetapi tempat itu benar-benar penuh sekarang.
 
-Di ruang kanan pintu masuk, ada lebih banyak orang daripada yang ada di depan papan buletin, jadi mungkin hanya 1 orang dari masing-masing pihak yang memilih permintaan.
-Untuk menerima permintaan, pihak tersebut perlu mengambil formulir permintaan dari dewan dan membawanya ke resepsionis. Sepertinya mereka melakukan itu untuk mencegah masalah memiliki banyak pihak yang memesan untuk permintaan yang sama.
+Di ruang kanan pintu masuk, ada lebih banyak orang daripada yang ada di depan papan, jadi mungkin hanya 1 orang dari masing-masing pihak yang memilih permintaan.
 
-Dengan tinggi badan Aku, bahkan jika Aku melompat ke kerumunan yang padat ini, Aku mungkin tidak akan bisa melihat papan buletin; dan karena Aku tidak memiliki anggota party lain untuk menunggu, Aku memutuskan untuk mengamati guild di samping pintu masuk.
-Ada berbagai jenis orang yang bekerja di sini sebagai pemburu tetapi para pemburu yang saat ini berkerumun di depan papan pengumuman kebanyakan adalah kaum muda. Tetap saja, meski Aku menyebut mereka muda, itu dari sudut pandang obyektif. Sepertinya tidak ada orang yang terlihat lebih muda dari Ciel.
+Untuk menerima permintaan, pihak tersebut perlu mengambil formulir permintaan dan membawanya ke resepsionis. Sepertinya mereka melakukan itu untuk mencegah masalah banyak pihak yang menginginkan permintaan yang sama.
 
-Ada beberapa orang dengan perasaan veteran kepada mereka dan mereka juga hanya melihat kerumunan dengan santai.
+Dengan tinggi badanku, bahkan jika Aku melompat ke kerumunan yang padat ini, Aku mungkin tidak akan bisa melihat papan tersebut; dan karena Aku tidak memiliki anggota party lain untuk menunggu, Aku memutuskan untuk mengamati guild di samping pintu masuk.
+
+Ada berbagai jenis orang yang bekerja di sini sebagai pemburu tetapi para pemburu yang saat ini berkerumun di depan papan pengumuman kebanyakan adalah anak muda. Tetap saja, meski Aku menyebut mereka muda, itu dari sudut pandang obyektif. Sepertinya tidak ada orang yang terlihat lebih muda dari Ciel.
+
+Ada beberapa orang dengan aura veteran pada mereka dan mereka juga hanya melihat kerumunan dengan santai.
+
 Di antara kerumunan itu, ada juga beberapa orang yang kemungkinan besar berusia belasan tahun.
 
 "Apakah ini mungkin karena orang-orang dengan peringkat yang lebih rendah ingin menemukan permintaan yang paling menguntungkan yang mereka bisa?"
