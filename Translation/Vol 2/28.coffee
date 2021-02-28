@@ -2,27 +2,33 @@ CH 28 : Pengumpulan Herb dan Masalah
 
 Dengan antusias meninggalkan Guild Hunter, aku menuju gerbang dari sisi tempat kami memasuki Sannois.
 
-Itu karena Aku ingin melihat apakah penjaga di gerbang waktu itu masih ada. Salah satu alasan mengapa Aku memilih untuk menerima permintaan ini adalah karena gerbang tempatku keluar lebih dekat ke guild.
+Itu karena Aku ingin melihat apakah paman penjaga di gerbang waktu itu masih ada. Salah satu alasan mengapa Aku memilih untuk menerima permintaan ini adalah karena gerbang tempatku keluar lebih dekat ke guild.
 
 Padahal, alasan lainnya adalah karena Aku ingin bisa melakukannya sendiri. Ini permintaan pertamaku.
 
 Karena gerbang dapat dilihat langsung di depan jalan kami, kami mencapai gerbang tanpa tersesat.
 
-Seperti biasa, tentara menjaga gerbang. penjaga yang Aku tidak begitu tahu namanya, juga berjaga-jaga tetapi karena Aku mungkin mengganggunya dari pekerjaannya, Aku memutuskan untuk tidak menyapanya.
+Seperti biasa, penjaga menjaga gerbang. paman yang Aku tidak begitu tahu namanya, juga berjaga-jaga tetapi karena Aku mungkin mengganggunya dari pekerjaannya, Aku memutuskan untuk tidak menyapanya.
 
 Lagipula, Aku mungkin akan dihentikan lagi ketika Aku mencoba memasuki kota nanti.
 
-Ketika Aku akan melewati gerbang sambil merasa sedikit tidak enak tentang itu, sepertinya tuan itu memperhatikan Aku. Dia bertanya padaku "Apakah kamu menjadi Hunter?" Dan jadi aku hanya berkata "Terima kasih padamu." Dan menundukkan kepalaku sebagai jawaban.
-Hanya melakukan itu membuat Aku merasa agak puas tetapi sekarang setelah Aku melewati gerbang, Aku menyadari bahwa itu mungkin langkah yang salah.
-Bicara nyata, bahkan jika aku dekat dengan mister itu, kita akan tetap meninggalkan negara ini pada akhirnya, jadi itu bukan hal yang baik.
+Ketika Aku akan melewati gerbang sambil merasa sedikit tidak enak tentang itu, sepertinya paman itu memperhatikanku. Dia bertanya padaku "Apakah kamu menjadi Hunter?" jadi aku hanya berkata "Terima kasih, ini semua berkatmu." Dan menundukkan kepalaku sebagai jawaban.
 
-Namun, kami mungkin akan tinggal di sini setidaknya selama satu tahun, jadi menjadi sedikit dekat mungkin tidak seburuk itu.
-Diperlakukan dan bertingkah seperti anak kecil setiap kali kita meninggalkan gerbang memang merepotkan.
-Hari ini, di bawah langit biru yang cerah dan menyenangkan, Aku mencari tumbuhan sambil berjalan-jalan.
-Aku berhasil mendapatkan sampelnya, dan Aku juga menerima tas yang ditentukan. Dan karena Aku tidak benar-benar berencana untuk mengumpulkan banyak jamu hari ini, hanya satu kantong sudah cukup. Meski begitu, sepertinya sudah dua kali lipat jumlah yang dibutuhkan untuk menyelesaikan permintaan.
+Hanya melakukan itu membuatku merasa agak puas tetapi sekarang setelah Aku melewati gerbang, Aku menyadari bahwa itu mungkin langkah yang salah.
 
-Sejak kami meninggalkan guild, ada sesuatu yang membuat Aku penasaran tetapi karena itu adalah sesuatu yang sudah Aku harapkan dan tidak ada yang terjadi saat kami keluar dari kota, tidak apa-apa.
-Jadi, tentang tumbuhan, sepertinya mereka tumbuh di bagian padang rumput yang cukup terang dan mengatakan padang rumput adalah tempat yang dilewati Ciel dalam perjalanan ke Sannois.
+Bicara pada kenyataan, bahkan jika aku dekat dengan paman itu, kami akan tetap meninggalkan negara ini pada akhirnya juga, jadi itu bukan hal yang baik.
+
+tapi, kami mungkin akan tinggal di sini setidaknya selama satu tahun, jadi menjadi sedikit dekat mungkin tidak seburuk itu.
+
+Diperlakukan dan bertingkah seperti anak kecil setiap kali kami meninggalkan gerbang memang merepotkan.
+
+Hari ini, di bawah langit biru yang cerah dan menyenangkan, Aku mencari herb sambil berjalan-jalan.
+
+Aku berhasil mendapatkan sampelnya, dan Aku juga menerima tas. Dan karena Aku tidak benar-benar berencana untuk mengumpulkan banyak herb hari ini, hanya satu kantong sudah cukup. Meski begitu, sepertinya sudah dua kali lipat jumlah yang dibutuhkan untuk menyelesaikan permintaan.
+
+Sejak kami meninggalkan guild, ada sesuatu yang membuatku penasaran tetapi karena itu adalah sesuatu yang sudah Aku harapkan dan tidak ada yang terjadi saat kami keluar dari kota, tidak apa-apa.
+
+Jadi, tentang herb, sepertinya mereka tumbuh di bagian padang rumput yang cukup terang dan mengatakan padang rumput adalah tempat yang dilewati Ciel dalam perjalanan ke Sannois.
 Oleh karena itu, sepertinya kita perlu mencarinya melalui padang rumput yang luas.
 Aku mengerti, masuk akal bahwa hanya sedikit orang yang mau mengambilnya. Lagipula, ada juga binatang dan monster kecil di sekitar dan, yang lebih penting, tumbuhan tidak dapat ditemukan segera setelah memasuki padang rumput. Paling buruk, mungkin juga pencarian sepanjang hari dapat menghasilkan nol hasil.
 
