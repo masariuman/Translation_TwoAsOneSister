@@ -61,7 +61,7 @@ a"Juga, maukah kamu memeriksanya juga?"
 
 a"Tas magic?"
 
-"Ini adalah tas yang dapat menyimpan lebih banyak benda daripada yang seharusnya. Dapat dikatakan bahwa tas magic dapat mengabaikan berat objek dan sangat didambakan oleh solo dan pemburu peringkat yang lebih tinggi."
+"Ini adalah tas yang dapat menyimpan lebih banyak benda daripada yang seharusnya. Dapat dikatakan bahwa tas magic dapat mengabaikan berat objek dan sangat didambakan oleh solo dan Hunter peringkat yang lebih tinggi."
 
 a"Kalau dipikir-pikir, Carol-san juga menggunakannya."
 
@@ -71,7 +71,7 @@ Benar, jika kami punya satu, kami seharusnya bisa membuat kemajuan bagus dengan 
 
 a"Aku ingin satu tapi mahal, kan?"
 
-"Kecuali Kamu seorang pemburu tingkat tinggi, memiliki satu secara pribadi akan sulit. katanya bahwa hanya job tipe Alkemis yang dapat membuat ini dan karena kelangkaannya, bahkan yang kecil pun akan membutuhkan koin emas untuk membelinya. tapi, selama Kamu memiliki pencapaian yang cukup, dimungkinkan untuk meminjam tas magic dari guild."
+"Kecuali Kamu seorang Hunter tingkat tinggi, memiliki satu secara pribadi akan sulit. katanya bahwa hanya job tipe Alkemis yang dapat membuat ini dan karena kelangkaannya, bahkan yang kecil pun akan membutuhkan koin emas untuk membelinya. tapi, selama Kamu memiliki pencapaian yang cukup, dimungkinkan untuk meminjam tas magic dari guild."
 
 Celia-san hanya mengatakan sebanyak itu tapi singkatnya, hanya mendapatkan beberapa prestasi, kurasa.
 
@@ -105,15 +105,15 @@ a"Apa maksudmu?"
 
 Karena Aku baru saja mendapat lebih banyak pertanyaan dari jawabannya, Carol-san melirik Celia-san .
 
-"Di masa lalu, untuk orang yang memulai dengan rank-G dan naik rank, dan untuk orang-orang yang memulai dari rank-E juga, ada tingkat kematian yang tinggi bagi mereka yang berada di rank-E. mereka akan terbiasa pergi ke luar kota saat mereka masih di rank-F dan akan menjadi terlalu percaya diri kalau memulai di rank-E; jadi dalam kedua kasus, mereka akhirnya mengabaikan lingkungan mereka. Untuk alasan itu, tes rahasia diadakan untuk setiap pemburu yang baru saja mencapai rank-E."
+"Di masa lalu, untuk orang yang memulai dengan rank-G dan naik rank, dan untuk orang-orang yang memulai dari rank-E juga, ada tingkat kematian yang tinggi bagi mereka yang berada di rank-E. mereka akan terbiasa pergi ke luar kota saat mereka masih di rank-F dan akan menjadi terlalu percaya diri kalau memulai di rank-E; jadi dalam kedua kasus, mereka akhirnya mengabaikan lingkungan mereka. Untuk alasan itu, tes rahasia diadakan untuk setiap Hunter yang baru saja mencapai rank-E."
 
-a"Jadi, pemburu tingkat atas mengikuti mereka dan melihat apakah mereka benar-benar memperhatikan situasi di luar kota?"
+a"Jadi, Hunter tingkat atas mengikuti mereka dan melihat apakah mereka benar-benar memperhatikan situasi di luar kota?"
 
-"Secara teknis begitu. karena kami meminta pemburu rank-D ke atas, sebenarnya bukan pemburu teratas yang melakukannya, tapi itu memang benar. Jika pemburu yang dimaksud sedang tidak berdaya di luar kota, situasi di mana mereka seharusnya bertindak hati-hati; kemudian sebagai peringatan, pemburu yang mengikuti akan mengejutkan mereka. Jadi, kamu juga diuji, tapi ......"
+"Secara teknis begitu. karena kami meminta Hunter rank-D ke atas, sebenarnya bukan Hunter teratas yang melakukannya, tapi itu memang benar. Jika Hunter yang dimaksud sedang tidak berdaya di luar kota, situasi di mana mereka seharusnya bertindak hati-hati; kemudian sebagai peringatan, Hunter yang mengikuti akan mengejutkan mereka. Jadi, kamu juga diuji, tapi ......"
 
 Setelah mengatakan itu, Celia-san menoleh ke Carol-san.
 
-Jadi bukan hanya Aku yang mereka awasi, ini adalah guild secara keseluruhan. Tidak seperti Ciel dan aku, karena kami selalu berjuang untuk hidup kami, mungkin sulit bagi pemburu pemula untuk selalu memperhatikan lingkungan mereka saat berada di luar kota.
+Jadi bukan hanya Aku yang mereka awasi, ini adalah guild secara keseluruhan. Tidak seperti Ciel dan aku, karena kami selalu berjuang untuk hidup kami, mungkin sulit bagi Hunter pemula untuk selalu memperhatikan lingkungan mereka saat berada di luar kota.
 
 Maka dalam kasus itu, tidak perlu menanyai mereka lebih jauh.
 
@@ -145,7 +145,7 @@ Aku sebenarnya tidak melakukannya dengan sengaja, jadi Aku hanya tersenyum samar
 
 Aku tidak begitu mengerti banyak tentang terlihat tidak berdaya, atau lebih tepatnya bagaimana mempersiapkan diri dengan baik. Apakah ini tentang selalu waspada terhadap lingkungan sekitar dan dapat segera bertindak?
 
-a"Kalau dipikir-pikir, apa yang terjadi dengan para pemburu itu?"
+a"Kalau dipikir-pikir, apa yang terjadi dengan para Hunter itu?"
 
 "Mereka kembali dengan selamat. Permintaan mereka diperlakukan sebagai kegagalan di pihak mereka, jadi mereka tampaknya memiliki perselisihan di dalam party tetapi Aku tidak akan mengurusnya juga."
 
@@ -159,7 +159,7 @@ Mungkin karena itu tidak terjadi di depanku tetapi Aku tidak terlalu khawatir te
 
 a"Aku mengerti mengapa Carol-san mengikutiku. Apa yang harus Aku lakukan mulai besok?"
 
-"Di pagi hari, datang ke tempatku. Aku akan mengajarimu kompetensi yang Kamu butuhkan untuk menjadi seorang pemburu.
+"Di pagi hari, datang ke tempatku. Aku akan mengajarimu kompetensi yang Kamu butuhkan untuk menjadi seorang Hunter.
 Di sore hari, selesaikan permintaan yang diberikan Celia kepadamu dan Kamu bebas untuk melakukan apapun setelah itu. Jika Kamu memperoleh semua kompetensi dan menyelesaikan semua permintaan itu, Kamu akan menjadi rank-D."
 
 a"Apakah tidak apa-apa untuk memberi tahuku hal itu?"
@@ -174,33 +174,42 @@ Aku tidak benar-benar tahu apakah ada arti permintaan yang diperlukan ini jika s
 
 Aku tidak yakin tentang teknik apa yang harus kami miliki tetapi Aku dapat membayangkan itu mungkin seperti bagaimana mendirikan kemah atau mungkin, seperti dalam tes hari ini, tentang bagaimana mengamankan diri sendiri di luar kota dan semacamnya.
 
-"Aku mengerti. Terima kasih banyak. "
-" Jadi diskusi ini berakhir di sini. Apakah Kamu punya rencana setelah ini? "
-" Tidak juga. Tetapi jika ada pub di sekitar, Aku ingin pergi ke sana. "
-" Kamu tidak akan bisa minum bahkan jika Kamu pergi ke sana, Kamu tahu? "
-" Aku pernah mendengar bahwa pub adalah tempat untuk mengumpulkan informasi, jadi Aku pikir Aku perlu pergi ke sana kapan-kapan. "
-" Tentu, Kamu dapat mengumpulkan informasi di pub, tapi tetap ...... "
+a"Aku mengerti. Terima kasih banyak."
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+"Jadi diskusi ini berakhir di sini. Apakah Kamu punya rencana setelah ini?"
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
+a"Tidak juga. Tetapi jika ada pub di sekitar sini, Aku ingin pergi ke sana."
 
-Pub sebagai tempat mengumpulkan informasi hanyalah bias Aku yang agak kabur, tetapi Aku tahu bahwa mengumpulkan informasi akan membutuhkan keterampilan komunikasi yang cukup.
-Mengingat Aku di masa lalu, bahkan jika Aku pergi ke pub, Aku mungkin hanya akan memesan sesuatu dan pulang setelah menyelesaikan pesanan Aku.
-Dalam hal itu, Aku yang sekarang mungkin memiliki keterampilan komunikasi yang lebih baik sekarang. Mungkin mati sekali mungkin membuatku agak terbebaskan dengan cara yang aneh.
-Atau mungkin karena, selama kita berada di negara ini, itu tidak akan menjadi masalah besar meskipun kita disalahpahami dan tidak dapat berkomunikasi dengan baik. Tetap saja, akan ada banyak masalah jika Aku tidak bersosialisasi. Jadi sementara Aku merasa kasihan pada Ciel, Aku akan membutuhkan dia untuk bekerja sama dengan ini.
+"Kamu tidak akan bisa minum bahkan jika Kamu pergi ke sana, Kamu tahu?"
+
+a"Aku pernah mendengar bahwa pub adalah tempat untuk mengumpulkan informasi, jadi Aku pikir Aku perlu pergi ke sana kapan-kapan."
+
+"Tentu, Kamu dapat mengumpulkan informasi di pub, tapi tetap saja ......"
+
+Pub sebagai tempat mengumpulkan informasi hanyalah alasanku yang agak kabur, tetapi Aku tahu bahwa mengumpulkan informasi akan membutuhkan keterampilan komunikasi yang cukup.
+
+Mengingat Aku di masa lalu, bahkan jika Aku pergi ke pub, Aku mungkin hanya akan memesan sesuatu dan pulang setelah menyelesaikan pesananku.
+
+Dalam hal itu, Aku yang sekarang mungkin memiliki keterampilan komunikasi yang lebih baik sekarang. mati sekali mungkin membuatku agak terbebaskan dengan cara yang aneh.
+
+Atau mungkin karena, selama kami berada di negara ini, itu tidak akan menjadi masalah besar meskipun kita disalahpahami dan tidak dapat berkomunikasi dengan baik. Tetap saja, akan ada banyak masalah jika Aku tidak bersosialisasi. Jadi sementara Aku merasa kasihan pada Ciel, Aku akan membutuhkan dia untuk bekerja sama dengan ini.
+
 Kembali ke topik.
 
-Carol- san sedang memikirkan apakah dia akan memberi nama sebuah pub dan sepertinya ada juga usia minimum legal untuk meminum minuman beralkohol.
-Meskipun dia mungkin hanya ingin menghentikan kami, seorang gadis berusia 10 tahun, dari minum tanpa memandang usia legal untuk meminum minuman beralkohol. Dan yang terpenting, ada kemungkinan kita terlibat dengan orang dewasa yang mabuk.
-Aku, atau lebih tepatnya Ciel, akan bisa melawan mereka jika mereka mencoba mengacaukan kita, tapi itu dengan sendirinya akan membuat kita menonjol.
+Carol-san sedang memikirkan apakah dia akan memberi tahu sebuah pub dan sepertinya ada juga usia minimum legal untuk meminum minuman beralkohol.
 
-"Kamu bisa membawa Cielmer- san ke pub resmi, bukan?"
-"Benar, jika itu tempat itu maka seharusnya tidak ada masalah langsung."
-"Apa itu pub resmi?"
-"Pub resmi adalah, tepatnya, sebuah pub yang disahkan oleh guild Hunter.
-Untuk memastikan bahwa selalu ada pemburu yang tersedia jika kota dan desa diserang oleh monster, sejumlah pemburu diminta untuk siaga di kota dan desa ini.
-Namun, karena ada banyak orang temperamental di antara para pemburu, yang menjadi tuan rumah mereka adalah pub resmi ini. Itu tidak akan menjadi masalah tidak peduli berapa banyak keributan yang Kamu buat di sana. Namun, dilarang melakukan perselisihan antar pemburu. Jika aturan ini dilanggar, lebih buruk lagi, Kamu akan kehilangan kualifikasi untuk menjadi seorang pemburu. Jadi bahkan jika Kamu pergi ke sana, Cielmer- san , seharusnya tidak ada orang yang mencoba mengotak-atik Kamu. "
-" Lalu, bisakah Kamu membawa Aku ke tempat itu? "
+Meskipun dia mungkin hanya ingin menghentikan kami, seorang gadis berusia 10 tahun, dari minum tanpa memandang usia legal untuk meminum minuman beralkohol. Dan yang terpenting, ada kemungkinan kami terlibat dengan orang dewasa yang mabuk.
 
-Jadi setelah mendengar tentang apa itu pub resmi, Aku menoleh ke Carol- san dan berkata begitu. Dia kemudian menggumamkan "Baik." Dengan ekspresi enggan.
+Aku, atau lebih tepatnya Ciel, akan bisa melawan mereka jika mereka mencoba mengganggu kami, tapi itu dengan sendirinya akan membuat kami menonjol.
+
+"Kamu bisa membawa Cielmer-san ke pub resmi, kan?"
+
+"Benar, jika itu tempat itu maka seharusnya tidak ada masalah."
+
+a"Apa itu pub resmi?"
+
+"Pub resmi, tepatnya, sebuah pub yang disahkan oleh guild Hunter. Untuk memastikan bahwa selalu ada hunter yang tersedia jika kota dan desa diserang oleh monster, sejumlah hunter diminta untuk siaga di kota dan desa ini. Tapi, karena ada banyak orang temperamental di antara para hunter, yang menjadi tuan rumah mereka adalah pub resmi ini. Itu tidak akan menjadi masalah tidak peduli berapa banyak keributan yang Kamu buat di sana. tapi, dilarang melakukan perselisihan antar hunter. Jika aturan ini dilanggar, lebih buruk lagi, Kamu akan kehilangan kualifikasi untuk menjadi seorang hunter. Jadi bahkan jika Kamu pergi ke sana, Cielmer-san , seharusnya tidak ada orang yang mencoba mengganggumu."
+
+a"Lalu, bisakah Kamu membawaku ke tempat itu?"
+
+Jadi setelah mendengar tentang apa itu pub resmi, Aku menoleh ke Carol-san dan berkata begitu. Dia kemudian menggumamkan "Baiklah." Dengan ekspresi enggan.
