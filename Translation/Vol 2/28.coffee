@@ -28,41 +28,58 @@ Aku berhasil mendapatkan sampelnya, dan Aku juga menerima tas. Dan karena Aku ti
 
 Sejak kami meninggalkan guild, ada sesuatu yang membuatku penasaran tetapi karena itu adalah sesuatu yang sudah Aku harapkan dan tidak ada yang terjadi saat kami keluar dari kota, tidak apa-apa.
 
-Jadi, tentang herb, sepertinya mereka tumbuh di bagian padang rumput yang cukup terang dan mengatakan padang rumput adalah tempat yang dilewati Ciel dalam perjalanan ke Sannois.
-Oleh karena itu, sepertinya kita perlu mencarinya melalui padang rumput yang luas.
-Aku mengerti, masuk akal bahwa hanya sedikit orang yang mau mengambilnya. Lagipula, ada juga binatang dan monster kecil di sekitar dan, yang lebih penting, tumbuhan tidak dapat ditemukan segera setelah memasuki padang rumput. Paling buruk, mungkin juga pencarian sepanjang hari dapat menghasilkan nol hasil.
+Jadi, tentang herb, sepertinya mereka tumbuh di bagian padang rumput dan padang rumputnya adalah tempat yang dilewati Ciel dalam perjalanan ke Sannois.
 
-"Jadi bagaimana kita mencarinya?"
-"Aku berpikir untuk menggunakan deteksi. Karena sepertinya jamu memiliki kekuatan sihir di dalamnya, kita mungkin bisa menemukannya dengan cepat. "
+Oleh karena itu, sepertinya kami perlu mencarinya melalui padang rumput yang luas.
 
-Itu benar, Aku sudah mengkonfirmasinya setelah mendapatkan sampel tetapi Aku sangat yakin bahwa ramuan itu mengandung kekuatan gaib. Bagaimanapun, efeknya sangat kuat.
+Aku mengerti, masuk akal bahwa hanya sedikit orang yang mau mengambilnya. Lagipula, ada juga binatang dan monster kecil di sekitar dan, yang lebih penting, tumbuhan tidak dapat ditemukan segera setelah memasuki padang rumput. Paling buruk, mungkin juga pencarian sepanjang hari tidak dapat menghasilkan apapun.
+
+c"Jadi bagaimana kita mencarinya?"
+
+a"Aku berpikir untuk menggunakan +DETECTION. Karena sepertinya herb memiliki energi sihir, kita mungkin bisa menemukannya dengan cepat."
+
+Aku sudah mengkonfirmasinya setelah mendapatkan sampel tetapi Aku sangat yakin bahwa herb itu mengandung energi sihir. Efeknya sangat kuat.
+
 Awalnya, Aku hanya berpikir bahwa orang-orang di dunia ini sembuh secara alami dengan cepat, tetapi ketika Ciel terluka, masih perlu waktu cukup lama untuk menyembuhkannya. Adapun waktu pastinya, Aku tidak benar-benar tahu. Aku tidak punya jam tangan sama sekali.
-Jadi mengingat itu, aku mencoba meminta sampel dan, meski tidak banyak, sebenarnya ada kekuatan sihir. Kekuatan sihirnya berbeda dengan milik kita dan batu ajaib.
 
-Berkonsentrasi, Aku mencoba mencari reaksi magis yang biasanya Aku abaikan dan Aku menemukan banyak reaksi di mana-mana.
+Jadi mengingat itu, aku mencoba meminta sampel dan, meski tidak banyak, sebenarnya ada energi sihir. energi sihirnya berbeda dengan milik kami dan batu magic.
+
+Berkonsentrasi, Aku mencoba mencari reaksi magic yang biasanya Aku abaikan dan Aku menemukan banyak reaksi di mana-mana.
+
 Tapi yang menarik adalah masing-masing reaksi ini agak berbeda satu sama lain.
+
 Untuk mengujinya, Aku pergi ke tempat reaksi terdekat dan di sana Aku melihat tumbuhan yang sama sekali berbeda dari sampel.
 
-"Ini berbeda."
-"Tapi itu tidak bereaksi, bukan?"
-"Jadi Aku kira itu mungkin digunakan untuk sesuatu yang lain. Tetap saja, ini berbeda dari yang diminta. "
-" Apa yang akan kamu lakukan, Ain? "
-" Mari kumpulkan beberapa dari mereka dan tanyakan Celia- san tentang mereka.
-Orang itu seharusnya bisa menjawab segera tapi, yah, itu mungkin akan menjengkelkan jika aku bertanya. "
-" Orang itu? "
-" Orang yang telah mengikuti kita sejak kita pergi.
-Jika aku bertanya pada mereka, itu mungkin akan memulai diskusi sihir. "
+a"Ini beda."
 
-Untuk kata-kataku, Ciel membuat senandung yang tampaknya meyakinkan.
-Aku menemukan herba yang diperlukan saat Aku mengikuti reaksinya tetapi karena jumlah yang dibutuhkan belum mencukupi, Aku mengambil sampel herba yang bereaksi terhadap deteksi saat mencari lebih banyak.
-Sama seperti matahari tepat di atas kita, dan karena tas yang ditentukan sekarang sudah penuh, Aku memutuskan untuk mengakhirinya untuk hari ini.
+c"Tapi itu bereaksi, kan?"
 
-"Karena kita masih punya waktu, mengapa kita tidak mengumpulkan beberapa batu ajaib?"
-"Tapi kita sedang diawasi, apakah itu benar-benar baik-baik saja?"
-"Lalu kita akan menguji lingkaran sihir. Hal ini penting untuk menguji terlebih dahulu setelah semua.
-Selain itu, kami sudah sangat dekat dengan hutan. Bahkan jika terjadi sesuatu, kita masih bisa bertarung tanpa mengungkapkan kartu truf kita. "
-" Kalau begitu, mari kita beralih setelah memasuki hutan, oke? "
-" Mengerti. "
+a"ini mungkin digunakan untuk sesuatu yang lain. Tetap saja, ini berbeda dari yang diminta."
+
+c"Apa yang akan kamu lakukan, Ain?"
+
+a"Mari kumpulkan beberapa dan tanyakan Celia-san tentang ini. Orang itu seharusnya bisa menjawab segera tapi, yah, itu mungkin akan menjengkelkan jika aku bertanya."
+
+c"Orang itu?"
+
+a"Orang yang telah mengikuti kita sejak kita pergi.
+Jika aku bertanya padanya, itu mungkin akan memulai diskusi sihir."
+
+mendengar kata-kataku, Ciel membuat suara yang tampaknya meyakinkan.
+
+Aku menemukan herb yang diperlukan saat Aku mengikuti reaksi tetapi karena jumlah yang dibutuhkan belum mencukupi, Aku mengambil sampel herb yang bereaksi terhadap +DETECTION saat mencari lebih banyak.
+
+Sama seperti matahari tepat di atas kami, dan karena tas yang dibawa sekarang sudah penuh, Aku memutuskan untuk mengakhirinya untuk hari ini.
+
+a"Karena kita masih punya waktu, mengapa kita tidak mengumpulkan beberapa batu magic?"
+
+c"Tapi kita sedang diawasi, apakah itu benar-benar tidak masalah?"
+
+a"Lalu kita akan menguji lingkaran sihir. Hal ini penting untuk diuji terlebih. Selain itu, kita sudah sangat dekat dengan hutan. Bahkan jika terjadi sesuatu, kita masih bisa bertarung tanpa mengungkapkan kartu andalan kita."
+
+c"Kalau begitu, mari kita bertukar setelah memasuki hutan, oke?"
+
+a"baiklah."
 
 ◇
 
