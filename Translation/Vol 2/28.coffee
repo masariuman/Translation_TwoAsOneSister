@@ -158,34 +158,52 @@ Aku bisa membayangkannya seperti ini: Bantu mereka → Mereka akan merasa bersyu
 
 Juga, melihat orang mati tepat di depan mataku, terasa sangat mengerikan.
 
-Masalahnya di sini mungkin bahwa meskipun kita tidak memiliki kewajiban untuk membantu, membantu dirinya sendiri hampir tidak membutuhkan waktu.
-Jika nyawa Ciel bisa terancam, Aku pasti akan memilih untuk lari. Tetapi bahkan jika kelompok itu dihancurkan dan para goblin menyerang kita berikutnya, kita dapat menangani mereka dalam hitungan detik.
-Dan selain itu, masalah lainnya adalah Ciel tidak peduli apakah kita membantu mereka atau tidak.
-"Aku akan merasa tidak enak jika mereka mati tepat di depan kita, jadi maukah kamu jika kita membantu mereka?"
-"Tentu, aku tidak akan keberatan."
-"Tapi tentang itu, tolong buat sepertinya sihir digunakan dari pohon di sebelah kanan secara diagonal di belakang kita. "
-"Fufu , Ain adalah orang yang sangat jahat, tahu? "
+Masalahnya di sini mungkin bahwa meskipun kami tidak memiliki kewajiban untuk membantu, membantu saja sebenarnya hampir tidak membutuhkan waktu.
 
-Sambil terkikik gembira, Ciel mulai menuangkan kekuatan sihir ke salah satu lingkaran sihir tersembunyi kami.
-Ini bukanlah tebasan angin puyuh yang kami gunakan sampai sekarang, tapi lingkaran sihir panah es. Meskipun dia memanggil Aku dengan maksud untuk ini, Ciel sendiri membuat pengaturan yang cukup rumit ini juga.
-Dari tempat aku memberitahunya, panah es ditembakkan dan menembus kepala lima goblin.
-Para pemburu sudah mengalahkan tiga goblin lainnya, jadi mereka harus bisa mengatur hanya dengan Pemimpin Goblin yang tersisa.
+Jika nyawa Ciel bisa terancam, Aku pasti akan memilih untuk lari. Tetapi bahkan jika kelompok itu dihancurkan dan para goblin menyerang kami berikutnya, kami dapat menangani mereka dalam hitungan detik.
 
-"Ayo lari."
-"Kemana kita akan pergi?"
-"Silakan menuju ke gerbang yang kita tinggalkan."
+Dan selain itu, masalah lainnya adalah Ciel tidak peduli apakah kami membantu mereka atau tidak.
+
+a"Aku akan merasa tidak enak jika mereka mati tepat di depan kita, jadi apakah kamu ok jika kita membantu mereka?"
+
+c"Tentu, aku tidak akan keberatan."
+
+a"Tapi, tolong buat sihir seperti digunakan dari pohon di sebelah kanan secara diagonal di belakang kita."
+
+c"Fufu , Ain adalah orang yang sangat jahat, kau tahu itu?"
+
+Sambil terkikik gembira, Ciel mulai menuangkan energi sihir ke salah satu lingkaran sihir tersembunyi kami.
+
+Ini bukanlah +WHIRLWIND SLASH yang kami gunakan sampai sekarang, tapi lingkaran sihir +ICE ARROW. Meskipun dia memanggilku dengan maksud untuk ini, Ciel sendiri membuat pengaturan yang cukup rumit ini juga.
+
+Dari tempat aku memberitahunya, +ICE ARROW ditembakkan dan menembus kepala lima goblin.
+
+Para pemburu sudah mengalahkan tiga goblin lainnya, jadi mereka harus bisa melawan hanya dengan Pemimpin Goblin yang tersisa.
+
+a"Ayo lari."
+
+c"Kemana kita akan pergi?"
+
+a"menuju ke gerbang yang kita tinggalkan."
 
 Setelah pertukaran singkat itu, Ciel lari.
-Dan sementara kita melakukannya, Aku mendukungnya menggunakan Song Princess.
-Para pemburu dikejutkan oleh panah es yang tiba-tiba muncul dan menoleh ke tempat asalnya. Aku tidak tahu bagaimana reaksi orang yang mereka lihat terhadapnya, tetapi karena sepertinya mereka tidak mengikuti kita, kita seharusnya menipu mereka dengan baik.
 
-Setelah meninggalkan hutan dan berlari di tengah padang rumput, Aku beralih dengan Ciel.
-Dan setelah itu, Aku berjalan kembali ke pintu gerbang dan melihat bahwa mister masih dalam keadaan shift.
+Dan sementara kita melakukannya, Aku mendukungnya menggunakan Song Princess.
+
+Para pemburu dikejutkan oleh panah es yang tiba-tiba muncul dan menoleh ke tempat asalnya. Aku tidak tahu bagaimana reaksi mereka, tetapi karena sepertinya mereka tidak mengikuti kami, kami seharusnya menipu mereka dengan baik.
+
+Setelah meninggalkan hutan dan berlari di tengah padang rumput, Aku berganti dengan Ciel.
+
+Dan setelah itu, Aku berjalan kembali ke pintu gerbang dan melihat bahwa paman masih berjaga.
+
 Saat dia melihatku, dia tampak lega dan melambaikan tangannya.
 
-"Hei nona kecil. Sepertinya kamu kembali tanpa cedera. "
-" Lagipula aku hanya pergi untuk mendapatkan herbal. Jika itu hanya goblin, mereka ada atau tidak tidak benar-benar membuat perbedaan. "
-" Biasanya bertemu goblin sudah cukup bermasalah. Bagaimanapun, kerja bagus kembali. "
+"Hei nona kecil. Sepertinya kamu kembali tanpa cedera."
+
+a"yaaah aku hanya pergi untuk mendapatkan herb. Jika itu hanya goblin, mereka ada atau tidak tidak pun tidak membuat perbedaan."
+
+"Biasanya bertemu goblin sudah cukup bermasalah. Bagaimanapun juga, kerja bagus karena sudah kembali."
 
 Tidak seperti hari pertama kami, kami diizinkan masuk tanpa masalah, jadi Aku mengucapkan terima kasih saat memasuki kota.
-Setelah berjalan melalui jalan lurus dan memasuki Hunter's Guild, di sana aku melihat Carol- san menatapku seolah dia ingin berbicara denganku.
+
+Setelah berjalan melalui jalan lurus dan memasuki Guild Hunter, di sana aku melihat Carol-san menatapku seolah dia ingin berbicara denganku.
