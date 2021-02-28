@@ -149,13 +149,19 @@ Untuk saat ini, Aku membawa formulir itu kembali dan melangkah ke bangku. Guild 
 Yah, Aku tidak bisa menyalahkan mereka karena Aku satu-satunya yang perlu menggunakan bangku. Alangkah baiknya jika mereka hanya berpikir bahwa Aku ada di sini untuk permintaan rank-G.
 
 "Apa yang Kamu pilih?"
-"Aku sedang berpikir untuk pergi ke permintaan ramuan herbal tetapi bisakah Aku bertanya tentang beberapa hal?"
+
+a"Aku sedang berpikir mengambil permintaan pengumpulan herb tetapi bisakah Aku bertanya tentang beberapa hal?"
+
 "Jika itu adalah sesuatu yang bisa Aku jawab, silakan."
-"Apa yang terjadi pada herbal setelah permintaan? "
-" Mereka akan diolah menjadi salep oleh dukun. Itu tidak dapat dibuat dari ramuan khusus ini tetapi ramuan yang berbeda dapat diproses dengan cara yang sama menjadi ramuan oleh alkemis. "
-" Lalu apa perbedaan di antara mereka? "
+
+a"Apa yang terjadi pada herb setelah permintaan?"
+
+"Mereka akan diolah menjadi salep. Itu tidak dapat dibuat dari herb khusus ini tetapi herb yang berbeda dapat diproses dengan cara yang sama menjadi ramuan oleh alkemis."
+
+a"Lalu apa perbedaan di antara mereka?"
 
 Aku dapat membayangkan bahwa mereka akan terlihat sangat berbeda, tetapi Aku tidak dapat membayangkan apa yang membuat efek mereka sangat berbeda.
+
 Anehnya, hanya ada beberapa game di mana salep dan ramuan sama-sama ada, jika Aku ingat benar. Tetapi sebagai seseorang yang pernah tinggal di Jepang, salep, salep penyembuh, jauh lebih familiar sementara ramuan memiliki rasa khusus bagi mereka.
 Perbedaan di antara mereka berdua mungkin sudah menjadi rahasia umum di sini, tetapi karena Celia- san mengerti bahwa Aku mungkin tidak tahu tentang mereka, sepertinya itu sebabnya dia sengaja memberi tahu Aku tentang keduanya.
 
