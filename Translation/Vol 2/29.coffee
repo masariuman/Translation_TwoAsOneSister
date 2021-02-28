@@ -34,35 +34,44 @@ a"Selama permintaan diproses, baiklah."
 
 ◇
 
-Aku dibawa ke gerai yang telah Aku kunjungi beberapa kali sekarang dan, seperti biasa, Aku duduk di kursi yang selalu Aku gunakan.
-Beberapa saat kemudian, Celia- san memasuki ruangan, jadi Aku memberi tahu dia "Pertama, Aku ingin memproses permintaan." Dan menyerahkan kantongnya.
-Setelah menerimanya, Celia- san menjawab dengan "Permisi." Dan memeriksa herba.
+Aku dibawa ke ruang yang telah Aku kunjungi beberapa kali sekarang dan, seperti biasa, Aku duduk di kursi yang selalu Aku gunakan.
 
-"Aku telah memverifikasi barang yang diminta. Tidak ada keraguan bahwa semua ini adalah ramuan yang ditentukan.
-Sangat bagus bahwa Kamu tidak salah mengidentifikasikan ini pada pertama kalinya Kamu, Cielmer- san . "
-" Terima kasih banyak. Ngomong-ngomong, apakah ini juga tumbuhan? "
+Beberapa saat kemudian, Celia-san memasuki ruangan, jadi Aku memberi tahu dia "Pertama, Aku ingin memproses permintaan." Dan menyerahkan kantongnya.
 
-Mata Celia- san membelalak saat aku menyerahkan tas berisi sampel kecil yang aku kumpulkan. Dia kemudian melihat isi tas untuk memverifikasinya.
+Setelah menerimanya, Celia-san menjawab dengan "Permisi." Dan memeriksa herb.
 
-"Ya, semuanya pasti herbal. Berdasarkan peringkat mereka, lebih rendah, ini hanya 1 atau 2 peringkat lebih tinggi dari yang Kamu kumpulkan untuk permintaan itu, jadi ini tidak terlalu mahal, tetap saja ... "
-" Tolong jangan pedulikan, mengetahui bahwa ini adalah jamu cukup baik. "
+"Aku telah memverifikasi barang yang diminta. Tidak ada keraguan bahwa semua ini adalah herb yang ditentukan.
+Sangat bagus Kamu tidak salah mengidentifikasikan ini pada misi pertamamu, Cielmer-san."
 
-Hanya dengan mengetahui ini, menyelesaikan permintaan mengumpulkan ramuan akan lebih mudah mulai sekarang.
+a"Terima kasih banyak. Ngomong-ngomong, apakah ini juga herb?"
+
+Mata Celia-san membelalak saat aku menyerahkan tas berisi sampel kecil yang aku kumpulkan. Dia kemudian melihat isi tas untuk memverifikasinya.
+
+"Ya, semuanya pasti herb. Berdasarkan peringkat mereka, ini hanya 1 atau 2 tingkat lebih tinggi dari yang Kamu kumpulkan untuk permintaan itu, jadi ini tidak terlalu mahal, tetap saja ..."
+
+a"Tolong jangan pikirkan itu, mengetahui bahwa ini adalah herb sudah cukup."
+
+Hanya dengan mengetahui ini, menyelesaikan permintaan mengumpulkan herb akan lebih mudah mulai sekarang.
+
 Juga, Aku harus memberi tahu mereka tentang goblin yang kami kalahkan.
 
-"Juga, maukah kamu memeriksanya juga?"
-"Ini adalah ... bagian bukti goblin dan batu ajaib, bukan? Guild pasti menyambut baik barang-barang ini.
-Tapi seperti yang Aku pikirkan, mungkin yang terbaik bagi Kamu untuk memiliki tas ajaib, Cielmer- san . "
-" Tas ajaib? "
-" Ini adalah tas yang dapat menyimpan lebih banyak benda daripada yang seharusnya. Dapat dikatakan bahwa tas ajaib yang dapat mengabaikan berat objek sangat didambakan oleh solo dan pemburu peringkat yang lebih tinggi. "
-" Kalau dipikir-pikir, Carol- san juga menggunakannya. "
+a"Juga, maukah kamu memeriksanya juga?"
 
-Jadi saat battleaxe dan hal lainnya tiba-tiba muncul, dia mungkin menggunakan tas ajaib.
-Benar, jika kita punya satu, kita seharusnya bisa membuat kemajuan bagus dengan permintaan penaklukan dan sejenisnya.
+"Ini ... bagian bukti goblin dan batu magic, bukan? Guild pasti menyambut baik barang-barang ini. Tapi seperti yang Aku pikirkan, mungkin yang terbaik bagimu untuk memiliki tas magic, Cielmer-san."
 
-"Aku ingin satu tapi mahal, kan?"
-"Kecuali Kamu seorang pemburu tingkat tinggi, memiliki satu secara pribadi akan sulit.
-Dikatakan bahwa hanya Pekerjaan tipe Alkemis yang dapat membuat ini dan karena kelangkaannya, bahkan yang kecil pun akan membutuhkan koin emas untuk dibeli. Namun, selama Kamu memiliki pencapaian yang cukup, dimungkinkan untuk meminjam tas ajaib dari guild. "
+a"Tas magic?"
+
+"Ini adalah tas yang dapat menyimpan lebih banyak benda daripada yang seharusnya. Dapat dikatakan bahwa tas magic dapat mengabaikan berat objek dan sangat didambakan oleh solo dan pemburu peringkat yang lebih tinggi."
+
+a"Kalau dipikir-pikir, Carol-san juga menggunakannya."
+
+Jadi saat battleaxe dan hal lainnya tiba-tiba muncul, dia mungkin menggunakan tas magic.
+
+Benar, jika kami punya satu, kami seharusnya bisa membuat kemajuan bagus dengan permintaan penaklukan dan sejenisnya.
+
+a"Aku ingin satu tapi mahal, kan?"
+
+"Kecuali Kamu seorang pemburu tingkat tinggi, memiliki satu secara pribadi akan sulit. katanya bahwa hanya job tipe Alkemis yang dapat membuat ini dan karena kelangkaannya, bahkan yang kecil pun akan membutuhkan koin emas untuk membelinya. tapi, selama Kamu memiliki pencapaian yang cukup, dimungkinkan untuk meminjam tas magic dari guild."
 
 Celia- san hanya mengatakan sebanyak itu tapi singkatnya, hanya mendapatkan beberapa prestasi, kurasa.
 Bagian di mana guild akan meminjamkannya mungkin karena itu perlu dilakukan saat menundukkan monster besar atau mengirimkan benda besar untuk sebuah permintaan.
