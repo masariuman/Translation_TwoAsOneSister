@@ -164,52 +164,66 @@ Aku dapat membayangkan bahwa mereka akan terlihat sangat berbeda, tetapi Aku tid
 
 Anehnya, hanya ada beberapa game di mana salep dan potion sama-sama ada, jika Aku ingat dengan benar. Tetapi sebagai seseorang yang pernah tinggal di Jepang, salep penyembuh, jauh lebih familiar sementara potion memiliki rasa khusus bagi mereka.
 
-Perbedaan di antara mereka berdua mungkin sudah menjadi rahasia umum di sini, tetapi karena Celia- san mengerti bahwa Aku mungkin tidak tahu tentang mereka, sepertinya itu sebabnya dia sengaja memberi tahu Aku tentang keduanya.
+Perbedaan di antara mereka berdua mungkin sudah menjadi rahasia umum di sini, tetapi karena Celia-san mengerti bahwa Aku mungkin tidak tahu tentang itu, sepertinya karena itu dia sengaja memberi tahuku tentang keduanya.
 
-"Keduanya terutama menyembuhkan luka. Ramuan jauh lebih efektif dan langsung dibandingkan dengan salep tetapi harganya sangat mahal.
-Salep, sementara itu, harganya murah tetapi sebagai gantinya, mereka tidak menyembuhkan sebanyak ramuan dan satu-satunya hal yang dapat segera dilakukan adalah menghentikan pendarahan seseorang. Itu juga akan tergantung pada tingkat keparahan lukanya tetapi salep kemungkinan akan membutuhkan istirahat sepanjang malam untuk menyembuhkan lukanya.
-Aku percaya bahwa itu adalah konsensus umum bahwa pemburu peringkat tinggi menggunakan ramuan sementara pemburu peringkat rendah akan menggunakan salep. "
+"fungsi utama mereka berdua sama-sama menyembuhkan luka. potion jauh lebih efektif dibandingkan dengan salep tetapi harganya sangat mahal. sementara itu, salep harganya murah tetapi sebagai gantinya, mereka tidak menyembuhkan sebanyak potion dan satu-satunya hal yang dapat segera dilakukan adalah menghentikan pendarahan seseorang. Itu juga akan tergantung pada tingkat keparahan lukanya tetapi salep kemungkinan akan membutuhkan istirahat sepanjang malam untuk menyembuhkan lukanya. Aku percaya bahwa itu adalah konsensus umum bahwa pemburu peringkat tinggi menggunakan potion sementara pemburu peringkat rendah akan menggunakan salep."
 
-Karena sihir dapat segera menyembuhkan luka yang cukup dalam untuk mencapai organ, Aku sudah membayangkan bahwa ramuan mungkin memiliki efek yang sama, tetapi salepnya tampak sangat menakjubkan juga. Lagipula, di bumi, bahkan goresan yang dirawat hanya dengan salep luka tidak sembuh dalam satu malam, bukan?
-Ini, dalam arti, sesuai harapan Aku, jadi Aku senang tentang itu.
-Bagaimanapun, keduanya tidak diragukan lagi penting bagi para pemburu.
-"Salep tampaknya sangat penting, tetapi mengapa permintaan ini masih ada di sini?"
-"Aku pikir Kamu akan mengerti setelah menyelesaikannya tetapi hadiahnya agak sedikit mengingat seberapa memakan waktu itu.
-Apalagi karena salep yang bisa dibuat dari jamu ini hanya yang kualitasnya paling rendah, bisa dikatakan tidak terlalu menguntungkan bagi dukun juga. Bagaimanapun, membuat salep yang lebih efektif jauh lebih menguntungkan bagi mereka juga. "
+Karena sihir dapat segera menyembuhkan luka yang cukup dalam untuk mencapai organ, Aku sudah membayangkan bahwa potion mungkin memiliki efek yang sama, tetapi salep tampak sangat menakjubkan juga. Lagipula, di bumi, bahkan goresan yang disembuhkan hanya dengan salep tidak sembuh dalam satu malam, kan?
 
-Aku melihat. Kalau dipikir-pikir, 3 koin tembaga setara dengan menyelesaikan 3 permintaan peringkat-G. Selain itu, seorang pemburu peringkat-G biasanya dapat menyelesaikan 2 permintaan dalam sehari, bahkan mungkin 3 jika mereka berusaha cukup keras, jadi mereka mungkin tidak akan mengambil risiko keluar hanya untuk mendapatkan 3 koin tembaga.
-Dan untuk para dukun, mereka mungkin akan menggunakan ramuan ini jika mereka memiliki beberapa, tetapi itu tidak akan menjadi masalah bagi mereka bahkan jika tidak ada stok. Aku tidak memiliki bukti yang jelas tentang ini tetapi ramuan ini mungkin untuk magang mereka untuk berlatih membuat salep dengan atau sesuatu.
+Ini, sesuai harapanku, jadi Aku senang tentang ini.
 
-"Aku melihat. Untuk saat ini, Aku ingin menerima permintaan ini. "
-" Terima kasih banyak. Tetap saja, apakah Kamu benar-benar yakin tentang ini? Sedangkan untuk guild, kami akan senang untuk memproses ini tetapi Aku tidak benar-benar berpikir bahwa ini akan cukup bermanfaat bagi Kamu, Cielmer- san . "
-" Kalau begitu, maukah Kamu berbicara dengan Aku lebih lama? "
-"Itu akan tergantung pada apa yang kita bicarakan. Selama itu adalah sesuatu yang berkaitan dengan bekerja sebagai pemburu atau sesuatu yang terkait dengan permintaan, itu seharusnya baik-baik saja. "
-" Pertama, maukah Kamu menunjukkan kepada Aku sampel ramuan ini? Aku ingin membawanya jika memungkinkan, tapi… "
-" Jika itu masalahnya, baiklah. "
+Bagaimanapun juga, keduanya tidak diragukan lagi penting bagi para pemburu.
+
+a"Salep tampaknya sangat penting, tetapi mengapa permintaan ini masih ada di sini?"
+
+"Aku pikir Kamu akan mengerti setelah menyelesaikannya tetapi hadiahnya agak sedikit mengingat seberapa lama menyelesaikannya. Apalagi karena salep yang bisa dibuat dari herb ini hanya yang kualitasnya paling rendah, bisa dikatakan tidak terlalu menguntungkan bagi pembuat juga. Bagaimanapun juga, membuat salep yang lebih efektif jauh lebih menguntungkan bagi mereka juga."
+
+begitu ya. Kalau dipikir-pikir, 3 koin tembaga setara dengan menyelesaikan 3 permintaan rank-G. Selain itu, seorang pemburu rank-G biasanya dapat menyelesaikan 2 permintaan dalam sehari, bahkan mungkin 3 jika mereka berusaha cukup keras, jadi mereka mungkin tidak akan mengambil risiko keluar hanya untuk mendapatkan 3 koin tembaga.
+
+Dan untuk para ahli obat, mereka mungkin akan menggunakan herb ini jika mereka memiliki beberapa, tetapi itu tidak akan menjadi masalah bagi mereka bahkan jika tidak ada stok. Aku tidak memiliki bukti yang jelas tentang ini tetapi herb ini mungkin untuk berlatih membuat salep atau sesuatu.
+
+a"begitu ya. Untuk saat ini, Aku ingin menerima permintaan ini."
+
+"Terima kasih banyak. Tetap saja, apakah Kamu benar-benar yakin tentang ini? untuk guild, kami akan senang untuk memproses ini tetapi Aku tidak benar-benar berpikir bahwa ini akan cukup bermanfaat bagimu, Cielmer-san."
+
+a"Kalau begitu, maukah Kamu berbicara dengan Aku lebih lama?"
+"Itu akan tergantung pada apa yang kita bicarakan. Selama itu adalah sesuatu yang berkaitan dengan bekerja sebagai pemburu atau sesuatu yang terkait dengan permintaan, itu seharusnya baik-baik saja."
+
+a"Pertama, maukah Kamu menunjukkan kepadaku sampel herb ini? Aku ingin membawanya jika memungkinkan, tapi..."
+
+"Jika itu masalahnya, baiklah."
 
 Setelah berkata demikian, Celia- san memanggil seorang anggota staf yang bekerja dan memintanya untuk mengambil sampel.
-Staf tersebut melihat Aku dan menunjukkan ekspresi terkejut tetapi kemudian meninggalkan kami setelah menunjukkan senyum geli.
 
-"Untuk jenis tanaman obat ini, dapatkah digunakan untuk menyembuhkan luka meskipun tidak diproses oleh ahli herbal?
-Jika Aku secara tidak sengaja terluka, itu mungkin berguna untuk pertolongan pertama. "
-" Dikatakan bahwa hanya dengan membasuhnya secara menyeluruh dan menekannya ke luka dapat menghentikan pendarahan sampai batas tertentu.
-Namun, luka parah akan terlalu banyak untuk disembuhkan untuk ramuan khusus ini. "
-" Ketika pemburu terluka parah, apa yang biasanya mereka lakukan? "
-" Seharusnya mengobati luka dengan obat apa yang mereka miliki atau, jika mereka Jika ada dukun bersama mereka, dukun itu mungkin bisa menyembuhkan lukanya.
-Namun, dukun adalah sedikit yang berharga dalam bisnis ini dan dukun yang dapat menggunakan sihir penyembuh juga bahkan lebih jarang ditemukan. Karena itu, pemburu kemungkinan besar akan pergi ke gereja untuk menyembuhkan luka mereka.
-Ini jauh lebih murah daripada membeli ramuan, dan gereja juga mengobati penyakit juga. "
+Staf tersebut melihatku dan menunjukkan ekspresi terkejut tetapi kemudian meninggalkan kami setelah menunjukkan senyum geli.
+
+a"Untuk jenis tanaman obat ini, dapatkah digunakan untuk menyembuhkan luka meskipun tidak diproses oleh ahli herbal?
+Jika Aku secara tidak sengaja terluka, itu mungkin berguna untuk pertolongan pertama."
+
+"hanya dengan membasahkannya secara menyeluruh dan menekannya ke luka dapat menghentikan pendarahan sampai batas tertentu. Tapi, luka parah akan susah disembuhkan untuk herb khusus ini."
+
+a"Ketika pemburu terluka parah, apa yang biasanya mereka lakukan?"
+
+"mereka Seharusnya mengobati luka dengan obat apa yang mereka miliki atau, jika mereka Jika ada ahli obat bersama mereka, ahli obat itu mungkin bisa menyembuhkan lukanya. Tapi, ahli obat adalah sedikit yang berharga dalam bisnis ini dan ahli obat yang dapat menggunakan sihir penyembuh juga bahkan lebih jarang ditemukan. Karena itu, pemburu kemungkinan besar akan pergi ke gereja untuk menyembuhkan luka mereka. Ini jauh lebih murah daripada membeli potion, dan gereja juga mengobati penyakit juga."
 
 Di sini Aku menjawab "Aku mengerti" dan mengangguk setuju. Aku hanya tahu bahwa gereja itu ada dari informasi yang Aku miliki, jadi Aku senang mendengar bahwa itu benar-benar ada.
-Untuk memiliki posisi di gereja, Kamu perlu memiliki Pekerjaan yang berasal dari salah satu dari tiga Pekerjaan ini: Pendeta, Orang Suci, dan Utusan Tuhan. Pekerjaan ini unggul dalam menggunakan sihir penyembuhan, membuat mereka mampu menyembuhkan orang lain.
-Di antara mereka, Orang Suci dianggap memiliki kemampuan penyembuhan paling kuat dan Utusan Tuhan dikatakan dapat mendengar suara para dewa. Atau begitulah yang Aku pelajari dari buku.
-Sekarang Aku tahu hal-hal yang ingin Aku ketahui, jadi Aku mungkin harus mengakhiri pembicaraan tentang herbal di sini.
 
-"Dimengerti. Terima kasih banyak. "
-" Sebanyak ini tidak masalah. "
-" Juga, bisakah Aku bertanya tentang sesuatu yang berhubungan dengan permintaan tetap? "
-" Tentang apa? "
-" Aku ingin bertanya tentang bagian-bagian yang perlu Aku dapatkan ketika mengalahkan monster di sekitar sini. "
-" Yah, aku bisa membayangkan kamu menaklukkan monster yang kamu temui di jalan, Cielmer- san .
-Ini topik yang agak panjang, jadi Aku juga akan meneruskan Kamu mengumpulkan dokumen di kemudian hari. "
+Untuk memiliki posisi di gereja, Kamu perlu memiliki job yang berasal dari salah satu dari tiga Pekerjaan ini: Pendeta, Orang Suci, dan Utusan dewa. Pekerjaan ini unggul dalam menggunakan sihir penyembuhan, membuat mereka mampu menyembuhkan orang lain.
 
-Dan setelah memulai dengan itu, Celia- san mulai berbicara tentang monster yang dapat dilihat di sekitar bagian ini.
+Di antara mereka, Orang Suci dianggap memiliki kemampuan penyembuhan paling kuat dan Utusan dewa dikatakan dapat mendengar suara para dewa. Atau begitulah yang Aku pelajari dari buku.
+
+Sekarang Aku tahu hal-hal yang ingin Aku ketahui, jadi Aku mungkin harus mengakhiri pembicaraan tentang herb di sini.
+
+a"aku mengerti. Terima kasih banyak."
+
+"Sebanyak ini tidak masalah."
+
+a"Juga, bisakah Aku bertanya tentang sesuatu yang berhubungan dengan permintaan tetap?"
+
+"Tentang apa?"
+
+a"Aku ingin bertanya tentang bagian-bagian yang perlu Aku dapatkan ketika mengalahkan monster di sekitar sini."
+
+"Yah, aku bisa membayangkan kamu menaklukkan monster yang kamu temui di jalan, Cielmer-san. Ini topik yang agak panjang, jadi Aku juga akan memberikanmu beberapa dokumen nanti."
+
+Dan setelah memulai dengan itu, Celia-san mulai berbicara tentang monster yang dapat dilihat di sekitar bagian ini.
