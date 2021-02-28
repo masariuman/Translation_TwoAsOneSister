@@ -135,33 +135,43 @@ Jadi skill pendeteksian sulit, ya? Tapi sebenarnya tidak terasa seperti itu. tap
 
 Jadi, karena mengatakan sesuatu tentang hal itu mungkin menarik minat Carol-san dan sebagainya, Aku bertanya "Jadi, bagaimana Aku melakukannya dalam ujiannya?" Dan mengubah topik.
 
-"Aku hanya ingin mengonfirmasi tetapi Kamu telah menggunakan penghalang Kamu sepanjang waktu, kan?"
-"Aku punya."
-"Lalu Aku bahkan tidak tahu bagaimana Kamu bisa gagal dalam tes ini. Hanya dari penampilan Kamu, Kamu tampak benar-benar tidak berdaya tetapi Kamu melakukan itu dengan sengaja, bukan? "
+"Aku hanya ingin mengonfirmasi tetapi Kamu telah menggunakan +BARRIERmu sepanjang waktu, kan?"
 
-Untuk itu, Aku sebenarnya tidak melakukan ini dengan sengaja, jadi Aku hanya tersenyum samar sebagai balasan.
+a"iya."
+
+"Lalu Aku bahkan tidak tahu bagaimana Kamu bisa gagal dalam tes ini. Hanya dari penampilanmu, Kamu tampak benar-benar tidak berdaya tetapi Kamu melakukan itu dengan sengaja, bukan?"
+
+Aku sebenarnya tidak melakukannya dengan sengaja, jadi Aku hanya tersenyum samar sebagai balasannya.
+
 Aku tidak begitu mengerti banyak tentang terlihat tidak berdaya, atau lebih tepatnya bagaimana mempersiapkan diri dengan baik. Apakah ini tentang selalu waspada terhadap lingkungan sekitar dan dapat segera bertindak?
 
-"Kalau dipikir-pikir, apa yang terjadi dengan para pemburu itu?"
-"Mereka kembali dengan selamat. Permintaan mereka diperlakukan sebagai kegagalan di pihak mereka, jadi mereka tampaknya memiliki perselisihan di dalam partai tetapi Aku tidak akan mengurusnya juga. "
-" Yah, selama mereka masih hidup, maka Aku ' aku senang."
+a"Kalau dipikir-pikir, apa yang terjadi dengan para pemburu itu?"
+
+"Mereka kembali dengan selamat. Permintaan mereka diperlakukan sebagai kegagalan di pihak mereka, jadi mereka tampaknya memiliki perselisihan di dalam party tetapi Aku tidak akan mengurusnya juga."
+
+a"Yah, selama mereka masih hidup, akupun senang mendengarnya."
 
 Meskipun Aku berkata demikian, Aku tidak sungguh-sungguh dengan apa yang Aku katakan.
-Mungkin karena itu tidak terjadi di depan Aku tetapi Aku tidak terlalu khawatir tentang mereka karena suatu alasan. Aku yakin itu karena Aku tidak dalam situasi di mana Aku bisa peduli dengan orang asing.
+
+Mungkin karena itu tidak terjadi di depanku tetapi Aku tidak terlalu khawatir tentang mereka karena suatu alasan. Aku yakin itu karena Aku tidak dalam situasi di mana Aku bisa peduli dengan orang asing.
 
 "Apakah Kamu yakin sekarang?"
-"Aku mengerti mengapa Carol- san mengikuti Aku. Apa yang harus Aku lakukan mulai besok? "
-" Di pagi hari, datang ke tempat Aku. Aku akan mengajari Kamu kompetensi yang Kamu butuhkan untuk menjadi seorang pemburu.
-Di sore hari, selesaikan permintaan yang diberikan Celia kepada Kamu dan Kamu bebas untuk melakukannya setelah itu. Jika Kamu memperoleh semua kompetensi dan menyelesaikan semua permintaan itu, Kamu akan menjadi peringkat-D. "
-" Apakah tidak apa-apa untuk memberi tahu Aku itu? "
+
+a"Aku mengerti mengapa Carol-san mengikutiku. Apa yang harus Aku lakukan mulai besok?"
+
+"Di pagi hari, datang ke tempatku. Aku akan mengajarimu kompetensi yang Kamu butuhkan untuk menjadi seorang pemburu.
+Di sore hari, selesaikan permintaan yang diberikan Celia kepadamu dan Kamu bebas untuk melakukan apapun setelah itu. Jika Kamu memperoleh semua kompetensi dan menyelesaikan semua permintaan itu, Kamu akan menjadi rank-D."
+
+a"Apakah tidak apa-apa untuk memberi tahuku hal itu?"
 
 Jika tidak apa-apa untuk mengatakannya, maka mereka bisa saja memberitahuku tentang itu lebih awal, kan?
-Aku melirik Celia- san dan dia tampak agak bermasalah juga.
 
-"Awalnya, itu bukan sesuatu yang harus kami beri tahukan kepada Kamu. Namun, itu juga benar bahwa permintaan yang dibutuhkan untuk mencapai peringkat-D telah diketahui publik.
-Dalam kasus Cielmer- san , persyaratan Kamu untuk naik peringkat akan sedikit unik tetapi karena kami menilai bahwa Kamu tidak akan gegabah setelah mengetahuinya, Aku mengizinkan Carol untuk membagikan ini kepada Kamu. "
+Aku melirik Celia-san dan dia tampak agak bermasalah juga.
+
+"Awalnya, itu bukan sesuatu yang harus kami beri tahukan kepadamu. tapi, itu juga benar bahwa permintaan yang dibutuhkan untuk mencapai rank-D telah diketahui publik. Dalam kasus Cielmer-san , persyaratanmu untuk naik rank akan sedikit unik tetapi karena kami menilai bahwa Kamu tidak akan gegabah setelah mengetahuinya, Aku mengizinkan Carol untuk memberitahukan ini kepadamu."
 
 Aku tidak benar-benar tahu apakah ada arti permintaan yang diperlukan ini jika semua orang tahu apa itu, tapi Aku rasa ini berarti penyelesaian permintaan lebih penting daripada informasi tentang apa ini.
+
 Aku tidak yakin tentang teknik apa yang harus kami miliki tetapi Aku dapat membayangkan itu mungkin seperti bagaimana mendirikan kemah atau mungkin, seperti dalam tes hari ini, tentang bagaimana mengamankan diri sendiri di luar kota dan semacamnya.
 
 "Aku mengerti. Terima kasih banyak. "
