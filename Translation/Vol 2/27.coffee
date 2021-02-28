@@ -1,6 +1,8 @@
-Karena ini sudah ketiga kalinya kami pergi ke Pemburu's Guild, Aku sudah menganggap diri Aku terbiasa. Tetap saja, Aku tidak sepenuhnya menyadari betapa sulitnya bekerja sebagai pemburu.
-Kami tiba di guild pada jam pertama di pagi hari tapi di dalam, ada pertempuran yang terus berlanjut. Pertarungan untuk siapa yang mendapatkan permintaan paling menguntungkan terlebih dahulu.
-Di area sebelah kiri setelah memasuki guild, ada dinding yang memiliki papan buletin di atasnya. Permintaan diposting di sana, tetapi tempat itu benar-benar penuh sekarang.
+Karena ini sudah ketiga kalinya kami pergi ke Guild Pemburu, Aku sudah menganggap diriku terbiasa. Tetap saja, Aku tidak sepenuhnya menyadari betapa sulitnya bekerja sebagai pemburu.
+
+Kami tiba di guild di pagi hari tapi di dalam, ada pertempuran yang terus berlanjut. Pertarungan untuk siapa yang mendapatkan permintaan paling menguntungkan terlebih dahulu.
+
+Di area sebelah kiri setelah memasuki guild, ada dinding yang memiliki papan. Permintaan dipajang di sana, tetapi tempat itu benar-benar penuh sekarang.
 
 Di ruang kanan pintu masuk, ada lebih banyak orang daripada yang ada di depan papan buletin, jadi mungkin hanya 1 orang dari masing-masing pihak yang memilih permintaan.
 Untuk menerima permintaan, pihak tersebut perlu mengambil formulir permintaan dari dewan dan membawanya ke resepsionis. Sepertinya mereka melakukan itu untuk mencegah masalah memiliki banyak pihak yang memesan untuk permintaan yang sama.
