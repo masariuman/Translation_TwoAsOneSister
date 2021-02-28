@@ -6,23 +6,31 @@ a"Benarkah? Masih ada waktu sebelum malam dan matahari terbenam, jadi Aku pikir 
 
 Aku dengan acuh tak acuh menjawab pada Carol-san yang tampaknya tidak senang menatapku.
 
-Tetap saja, Aku pikir dengan menjadi begitu ekspresif tentang hal itu, dia secara praktis mengungkapkan bahwa dia sendiri yang mengintai kami.
+Tetap saja, Aku pikir dengan menjadi begitu ekspresif tentang hal itu, dia dengan gampang mengungkapkan bahwa dia sendiri yang mengintai kami.
 
-"Anyways, akan Kamu keberatan menceritakan alasan yang ?"
+a"jadi, akan Kamu keberatan memberu tahu alasannya ?"
+
 "Apa yang Kamu bicarakan?"
-"Aku lihat, jadi tidak apa-apa bagi Aku berteriak bahwa Aku sedang berjalan. Dimengerti. "
-" Baik. Itu bukan sesuatu yang bisa kita bicarakan di sini, jadi bisakah Kamu mengikuti Aku ke belakang? "
-" Tapi Aku ingin melaporkan permintaan itu terlebih dahulu. "
 
-Dalam benak Aku, perlakuan Aku terhadap Carol- san berangsur-angsur semakin buruk.
-Aku tahu dia mungkin bukan orang jahat, tapi sepertinya aku masih menyimpan dendam padanya hampir membunuh kita.
+a"begitu ya... jadi tidak apa-apa kalau Aku berteriak karena aku diikuti. baiklah...."
+
+"Itu bukan sesuatu yang bisa kita bicarakan di sini, jadi bisakah Kamu mengikuti Aku ke belakang?"
+
+a"Tapi Aku ingin melaporkan permintaanku terlebih dahulu."
+
+Dalam benak Aku, perlakuanku terhadap Carol-san berangsur-angsur semakin buruk.
+
+Aku tahu dia mungkin bukan orang jahat, tapi sepertinya aku masih menyimpan dendam padanya karena hampir membunuh kita.
+
 Juga, ketika aku memikirkan betapa merepotkannya dia dalam hal sihir, aku hanya merasa tidak ingin berbicara serius dengannya. Selain itu, kurasa penguntitan kali ini lebih buruk.
 
-Selain itu, mengenai pesta tadi, seharusnya tidak ada alasan untuk kecewa dengan apa yang terjadi karena aku benar-benar menyelamatkan mereka.
+Selain itu, mengenai party tadi, seharusnya tidak ada alasan untuk kecewa dengan apa yang terjadi karena aku benar-benar menyelamatkan mereka.
 
-"Kalau begitu, aku akan membawa Celia juga. Bagaimana dengan itu? "
-" Selama permintaan diproses. "
-" Lalu ayo pergi. "
+"Kalau begitu, aku akan membawa Celia juga. Bagaimana?"
+
+a"Selama permintaan diproses, baiklah."
+
+"kalau begitu ikuti aku."
 
 ◇
 
