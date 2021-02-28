@@ -73,46 +73,57 @@ a"Aku ingin satu tapi mahal, kan?"
 
 "Kecuali Kamu seorang pemburu tingkat tinggi, memiliki satu secara pribadi akan sulit. katanya bahwa hanya job tipe Alkemis yang dapat membuat ini dan karena kelangkaannya, bahkan yang kecil pun akan membutuhkan koin emas untuk membelinya. tapi, selama Kamu memiliki pencapaian yang cukup, dimungkinkan untuk meminjam tas magic dari guild."
 
-Celia- san hanya mengatakan sebanyak itu tapi singkatnya, hanya mendapatkan beberapa prestasi, kurasa.
-Bagian di mana guild akan meminjamkannya mungkin karena itu perlu dilakukan saat menundukkan monster besar atau mengirimkan benda besar untuk sebuah permintaan.
-Meskipun Aku tertarik dengan tas ajaib, sepertinya Aku tidak bisa melakukan sesuatu dengannya sekarang, jadi Aku beralih ke masalah utama dan melihat ke Carol- san .
-"Jadi, mengapa Carol- san mengikutiku?"
-"Benar! Mengapa Kamu mendorong semua masalah itu kepada Aku? "
+Celia-san hanya mengatakan sebanyak itu tapi singkatnya, hanya mendapatkan beberapa prestasi, kurasa.
 
-Carol- san , yang seharusnya memikirkan sesuatu, segera bereaksi pada kata-kataku dengan ekspresi muak di wajahnya.
-Jangan menjawab satu pertanyaan dengan yang lain… itu yang ingin Aku katakan, tapi Aku tidak benar-benar memiliki hak untuk mengeluh tentang itu, jadi Aku menahan diri dan hanya menjawabnya.
+Bagian di mana guild akan meminjamkannya mungkin karena itu perlu dilakukan saat mengalahkan monster besar atau mengirimkan benda besar untuk sebuah permintaan.
 
-"Itu karena sepertinya merepotkan.
-Bahkan jika aku menyelamatkan mereka, aku tidak yakin mereka akan percaya padaku tapi jika Carol- san adalah orang yang menyelamatkan mereka, mereka tidak akan memiliki keraguan dan aku tidak akan menarik perhatian yang tidak perlu, Kamu tahu? "
-" Tentu, itu mungkin masalahnya, tetapi hal-hal yang merepotkan masih merepotkan, Kamu tahu? "
-" Jadi, apakah lebih baik jika Aku tidak menyelamatkan mereka? "
-" Aku tidak mengatakan itu. Lagi pula, jika Kamu belum menyelamatkan mereka, Aku akan melakukannya sebagai gantinya. "
+Meskipun Aku tertarik dengan tas magic, sepertinya Aku tidak bisa melakukan sesuatu untuk itu sekarang, jadi Aku beralih ke masalah utama dan melihat ke Carol-san.
 
-Jadi tidak apa-apa? Tapi kurasa ini tidak mengubah fakta bahwa aku mendorong mereka padanya. Ini seperti bagaimana aku masih menyimpan dendam padanya karena hampir membunuh kita.
-Seolah menyerah, Carol- san menghela nafas "Baiklah." Dan mengangkat bahunya.
+a"Jadi, mengapa Carol-san mengikutiku?"
 
-"Aku mengikutimu adalah, semacam inisiasi."
-"Apa maksudmu?"
+"Benar! Mengapa Kamu mendorong semua masalah itu kepadaku?"
 
-Karena Aku baru saja mendapat lebih banyak pertanyaan dari jawabannya, Carol- san melirik Celia- san .
+Carol-san , yang seharusnya memikirkan sesuatu, segera bereaksi pada kata-kataku dengan ekspresi muak di wajahnya.
 
-"Di masa lalu, untuk orang yang memulai dengan peringkat-G dan peringkat, dan untuk orang-orang yang memulai dari peringkat-E juga, ada tingkat kematian yang tinggi bagi mereka yang berada di peringkat-E. Yang pertama akan terbiasa pergi ke luar kota saat mereka masih di peringkat-F dan yang terakhir akan menjadi terlalu percaya diri dari memulai di peringkat-E; jadi dalam kedua kasus, mereka akhirnya mengabaikan lingkungan mereka.
-Untuk alasan itu, tes rahasia diadakan untuk setiap pemburu yang baru saja mencapai peringkat-E. "
-" Jadi, pemburu top mengikuti mereka dan melihat apakah mereka benar-benar memperhatikan di luar kota? "
-" Secara teknis, karena kami bertanya pemburu peringkat-D ke atas, sebenarnya bukan pemburu teratas yang melakukannya, tapi itu memang benar.
-Jika pemburu yang dimaksud sedang tidak berdaya di luar kota, situasi di mana mereka seharusnya bertindak hati-hati; kemudian sebagai peringatan, pemburu yang mengikuti akan mengejutkan mereka.
-Jadi, kamu juga diuji, tapi ...... "
+Jangan menjawab satu pertanyaan dengan pertanyaan yang lain... itu yang ingin Aku katakan, tapi Aku tidak benar-benar memiliki hak untuk mengeluh tentang itu, jadi Aku menahan diri dan hanya menjawabnya.
 
-Setelah mengatakan itu, Celia- san menoleh ke Carol- san .
+a"Itu karena sepertinya merepotkan. Bahkan jika aku menyelamatkan mereka, aku tidak yakin mereka akan percaya padaku tapi jika Carol-san adalah orang yang menyelamatkan mereka, mereka tidak akan ragu dan aku tidak akan menarik perhatian yang tidak perlu, kan?"
+
+"Tentu, itu mungkin masalahnya, tetapi hal-hal yang merepotkan masih merepotkan, Kamu tahu?"
+
+a"Jadi, apakah lebih baik jika Aku tidak menyelamatkan mereka?"
+
+"Aku tidak mengatakan itu. Lagi pula, jika Kamu tidak menyelamatkan mereka, Aku akan melakukannya sebagai gantinya."
+
+Jadi tidak apa-apa? Tapi kurasa ini tidak mengubah fakta bahwa aku mendorong mereka padanya. Ini seperti bagaimana aku masih menyimpan dendam padanya karena hampir membunuh kami.
+
+Seolah menyerah, Carol-san menghela nafas "Baiklah." Dan mengangkat bahunya.
+
+"Aku mengikutimu karena... semacam inisiasi."
+
+a"Apa maksudmu?"
+
+Karena Aku baru saja mendapat lebih banyak pertanyaan dari jawabannya, Carol-san melirik Celia-san .
+
+"Di masa lalu, untuk orang yang memulai dengan rank-G dan naik rank, dan untuk orang-orang yang memulai dari rank-E juga, ada tingkat kematian yang tinggi bagi mereka yang berada di rank-E. mereka akan terbiasa pergi ke luar kota saat mereka masih di rank-F dan akan menjadi terlalu percaya diri kalau memulai di rank-E; jadi dalam kedua kasus, mereka akhirnya mengabaikan lingkungan mereka. Untuk alasan itu, tes rahasia diadakan untuk setiap pemburu yang baru saja mencapai rank-E."
+
+a"Jadi, pemburu tingkat atas mengikuti mereka dan melihat apakah mereka benar-benar memperhatikan situasi di luar kota?"
+
+"Secara teknis begitu. karena kami meminta pemburu rank-D ke atas, sebenarnya bukan pemburu teratas yang melakukannya, tapi itu memang benar. Jika pemburu yang dimaksud sedang tidak berdaya di luar kota, situasi di mana mereka seharusnya bertindak hati-hati; kemudian sebagai peringatan, pemburu yang mengikuti akan mengejutkan mereka. Jadi, kamu juga diuji, tapi ......"
+
+Setelah mengatakan itu, Celia-san menoleh ke Carol-san.
+
 Jadi bukan hanya Aku yang mereka awasi, ini adalah guild secara keseluruhan. Tidak seperti Ciel dan aku, karena kami selalu berjuang untuk hidup kami, mungkin sulit bagi pemburu pemula untuk selalu memperhatikan lingkungan mereka saat berada di luar kota.
+
 Maka dalam kasus itu, tidak perlu menanyai mereka lebih jauh.
 
-"Bahkan Aku tidak berpikir bahwa Aku akan ditemukan semudah itu, Kamu tahu?
-Sebaliknya, Kamu juga bisa menggunakan sihir pendeteksi, bukan? Tidak heran Kamu menemukan Aku. "
-" Aku tidak dapat menggunakan deteksi, Kamu tahu? "
+"Bahkan Aku tidak berpikir bahwa Aku akan ditemukan semudah itu, Kamu tahu? Kamu juga bisa menggunakan sihir +DETECTION, kan? Tidak heran Kamu menemukanku."
 
-Meskipun Aku mencoba bermain bodoh, Carol- san berkata "Tidak ada keraguan tentang itu." Dan sangat yakin.
-Sebenarnya, Aku benar-benar menggunakan deteksi tetapi Aku yakin Aku tidak melakukan apa pun yang akan membuatnya terlalu jelas. Tetap saja, dia mungkin tidak tahu kapan Aku menggunakannya. Bagaimanapun, Aku masih menggunakannya sekarang tetapi dia tidak mengatakan apa-apa tentang itu.
+a"Aku tidak dapat menggunakan +DETECTION lho... "
+
+Meskipun Aku mencoba bermain bodoh, Carol-san berkata "itu sudah pasti." Dan sangat yakin.
+
+Sebenarnya, Aku benar-benar menggunakan +DETECTION tetapi Aku yakin Aku tidak melakukan apa pun yang akan membuatnya terlalu jelas. Tetap saja, dia mungkin tidak tahu kapan Aku menggunakannya. Aku masih menggunakannya sekarang tetapi dia tidak mengatakan apa-apa tentang itu.
 
 "Jika Kamu benar-benar tidak bisa, maka tidak mungkin Kamu hanya mengumpulkan tumbuhan secara khusus dan membedakannya seperti itu.
 Seharusnya tidak mungkin bagi seseorang yang belum pernah keluar sampai saat ini untuk mengetahui mana yang hanya dengan melihat. "
