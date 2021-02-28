@@ -87,37 +87,47 @@ Tidak masalah apa yang akan dikatakan Ciel, selama dia memberikan pendapatnya se
 
 Entah bagaimana, akhir-akhir ini aku merasa lebih menyayangi.
 
-Sebelum kami menyadarinya, sebagian besar pemburu telah meninggalkan guild, jadi kami menuju ke meja resepsionis untuk menyambut Celia- san …… kami melakukannya, tapi sekarang ada dua loket penerimaan.
+tanpa kami sadari, sebagian besar pemburu telah meninggalkan guild, jadi kami menuju ke meja resepsionis untuk menyambut Celia-san ...... kami melakukannya, tapi sekarang ada dua loket penerimaan.
+
 Itu sendiri mungkin tidak aneh sama sekali. Guild mungkin memiliki dua counter yang terbuka jika ada banyak orang. Alasan mengapa Aku hanya melihat satu ketika Aku datang ke sini seharusnya karena hanya ada beberapa orang saat itu.
-Namun, masalahnya di sini adalah salah satu konter itu memiliki bangku di depannya.
-Bahkan untuk pesta anak muda yang Aku lihat sebelumnya, konternya sebenarnya tidak terlalu tinggi. Bahkan mungkin tampak terlalu pendek untuk anak laki-laki.
-Kalau begitu, untuk siapa ini? Yah, tidak ada gunanya menanyakan yang sudah jelas, sungguh.
+
+tapi, masalahnya di sini adalah salah satu konter itu memiliki bangku di depannya.
+
+Bahkan untuk party anak muda yang Aku lihat sebelumnya, konternya sebenarnya tidak terlalu tinggi. Bahkan mungkin tampak terlalu pendek untuk anak laki-laki.
+
+Kalau begitu, untuk siapa ini? Yah, tidak ada gunanya menanyakan yang sudah jelas.
+
 Jadi karena mereka berusaha keras untuk mempersiapkannya, Aku bersyukur dan menggunakan bangku, kotak kayu kecil yang pasti awalnya digunakan untuk sesuatu yang lain.
-Kemungkinan besar mengharapkan kedatangan kami, Celia- san sedang menunggu di sisi lain konter itu.
 
-"Kami telah menunggu Kamu."
-"Apakah benar-benar tidak apa-apa untuk menginjak kotak ini?"
-"Tentu saja, kami menyiapkannya hanya untuk Kamu."
-"Begitulah, bagaimana Aku harus menafsirkannya?"
+Kemungkinan besar mengharapkan kedatangan kami, Celia-san sedang menunggu di sisi lain konter itu.
 
-Ketika Aku mengatakannya dengan nada yang sedikit cemberut, Celia- san terkikik dan berkata "Maafkan Aku."
+"Kami telah menunggumu."
+
+a"Apakah benar-benar tidak apa-apa untuk menginjak kotak ini?"
+
+"Tentu saja, kami menyiapkannya hanya untukmu."
+
+a"Begitulah, bagaimana Aku harus menafsirkannya?"
+
+Ketika Aku mengatakannya dengan nada yang sedikit cemberut, Celia-san terkikik dan berkata "Maafkan Aku."
+
 Sebenarnya Aku tidak terlalu mempermasalahkannya , jadi Aku menenangkan diri dan mulai dengan apa yang terjadi kemarin.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+a"Terima kasih banyak tentang kemarin."
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
-
-"Terima kasih banyak tentang kemarin."
 "Tolong jangan khawatir tentang itu, Aku mungkin agak terlalu mengganggu."
-"Jadi, apa yang harus Aku lakukan untuk hari ini?
-Apakah tidak apa-apa jika Aku menerima permintaan biasa saja? "
-" Mari kita lihat. Cielmer- san , di masa mendatang, Kamu akan diminta untuk menyelesaikan beberapa permintaan dengan tingkat kesulitan tinggi.
-Namun, itu bukanlah sesuatu yang akan diminta untuk segera Kamu lakukan. Ini akan ditentukan berdasarkan kemajuan Kamu. Dalam kasus Kamu, karena Kamu sudah cukup mampu dalam pertempuran, Carol akan menilai apakah Kamu mampu menyelesaikan berbagai jenis permintaan atau tidak.
-Jadi untuk hari ini, silakan pilih permintaan yang ingin Kamu terima. Namun, Kamu hanya diperbolehkan menerima permintaan E-rank dan di bawahnya. Harap pertimbangkan ini sebagai tinjauan dari prosedur standar dalam memanfaatkan layanan guild. "
-" Aku mengerti. Kalau begitu, bisakah Aku mencari permintaan sekarang? "
-" Tentu saja, tolong bawa apa pun yang menarik minat Kamu. Jika tidak, kami akan meminta Kamu menyelesaikan permintaan tetap. "
 
-Maka dengan itu, Aku menuju ke depan papan buletin. Karena Aku sudah memiliki izin Ciel, Aku mencari permintaan yang ingin Aku lakukan.
+a"Jadi, apa yang harus Aku lakukan untuk hari ini?
+Apakah tidak apa-apa jika Aku menerima permintaan biasa saja?"
+
+"Mari kita lihat. Cielmer-san , di masa mendatang, Kamu akan diminta untuk menyelesaikan beberapa permintaan dengan tingkat kesulitan tinggi. tapi, itu bukanlah sesuatu yang akan diminta untuk segera Kamu lakukan. Ini akan ditentukan berdasarkan kemajuanmu. Dalam kasusmu, karena Kamu sudah cukup mampu dalam pertempuran, Carol akan menilai apakah Kamu mampu menyelesaikan berbagai jenis permintaan atau tidak. Jadi untuk hari ini, silakan pilih permintaan yang ingin Kamu terima. tapi, Kamu hanya diperbolehkan menerima permintaan rank E dan di bawahnya. Harap pertimbangkan ini sebagai tinjauan dari prosedur standar dalam memanfaatkan layanan guild."
+
+a"Aku mengerti. Kalau begitu, bisakah Aku mencari permintaan sekarang?"
+
+"Tentu saja, tolong bawa apa pun yang menarik minatmu. Jika tidak, kami akan memintamu menyelesaikan permintaan biasa."
+
+Maka dengan itu, Aku menuju ke depan papan. Karena Aku sudah memiliki izin Ciel, Aku mencari permintaan yang ingin Aku lakukan.
+
 Namun, karena sebagian besar permintaan sekarang hilang, jadi satu-satunya yang tersisa adalah permintaan ramuan dan berburu peringkat-F, dan juga permintaan tetap untuk pemburu peringkat-E dan di atasnya, tampaknya.
 Untuk peringkat-D ke atas, ada beberapa permintaan pendamping dan semacamnya, tetapi Aku tidak melihat permintaan apa pun yang peringkat-B ke atas. Karena peringkat-C juga memiliki permintaan berkumpul, mungkin hanya ada beberapa monster kuat di dekat kota.
 Di antara ini, yang seharusnya bisa kulakukan adalah mengumpulkan ramuan, kurasa. Bagaimanapun, Aku hanya bisa mengandalkan Ciel ketika melawan monster dan berburu secara praktis tidak mungkin Aku lakukan.
