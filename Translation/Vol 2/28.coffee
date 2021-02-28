@@ -83,14 +83,19 @@ a"baiklah."
 
 ◇
 
-Di sekitar area ini, monster yang menghuni tempat itu adalah serigala hutan peringkat-D dan laba-laba raksasa, serta para goblin dan kobold peringkat-E. Lebih dalam, ada juga monster peringkat-C tetapi mereka jarang pergi ke bagian hutan yang dangkal.
-Meskipun kami pasti akan langsung membunuh laba-laba di jalur kami, karena kami tidak berniat melakukan perburuan skala penuh, Aku mencari monster peringkat-E dengan deteksi dan memberi tahu Ciel lokasi mereka.
-Menggunakan lingkaran sihir tebasan angin puyuh, Ciel mengalahkan mereka dengan cukup cepat. Yah, meski aku menyebutnya begitu, itu hanya versi pisau angin yang direvisi. Jadi meskipun itu mungkin hanya dapat membuat luka dangkal pada kulit cyclop, itu harus dapat mengirim monster peringkat-D dan di bawahnya dalam satu serangan.
+Di sekitar area ini, monster yang menghuni tempat ini adalah serigala hutan rank-D dan laba-laba raksasa, serta para goblin dan kobold rank-E. Lebih dalam, ada juga monster rank-C tetapi mereka jarang pergi ke bagian pinggir hutan.
 
-Kami berburu, memanen batu ajaib dan bagian-bagian yang diperlukan untuk verifikasi, lalu membakarnya. Ada juga suku cadang yang bisa kami jual sebagai bahan tetapi karena ukurannya, kami tidak bisa membawanya. Jadi mengingat batu ajaib dan bagian bukti, paling banyak yang bisa kita bawa mungkin senilai sepuluh monster ini.
-Sedikit sia-sia bahwa kami sudah mencapai daya dukung kami hanya dengan menggunakan tebasan angin puyuh pada sekelompok mereka sekalipun.
-Dan dengan itu, bahkan setelah uji lingkaran sihir kami dijalankan, matahari masih tetap tinggi.
-Karena itu, kupikir kita bisa pulang sekarang dan kembali nanti, tapi kemudian aku tiba-tiba merasakan banyak reaksi dari deteksi ku.
+Meskipun kami pasti akan langsung membunuh laba-laba di jalur kami, karena kami tidak berniat melakukan perburuan skala penuh, Aku mencari monster rank-E dengan deteksi dan memberi tahu Ciel lokasi mereka.
+
+Menggunakan lingkaran sihir WHIRLWIND SLASH+, Ciel mengalahkan mereka dengan cukup cepat. Yah, meski aku menyebutnya begitu, itu hanya versi pisau angin yang direvisi. Jadi meskipun itu mungkin hanya dapat membuat luka kecil pada kulit cyclop, itu bisa mengalahkan monster rank-D dengan satu serangan.
+
+Kami berburu, mengumpulkan batu magic dan bagian-bagian yang diperlukan untuk verifikasi, lalu membakarnya. Ada juga benda yang bisa kami jual sebagai bahan tetapi karena ukurannya, kami tidak bisa membawanya. Jadi mengingat batu magic dan bagian bukti, paling banyak yang bisa kami bawa mungkin senilai sepuluh monster ini.
+
+Sedikit sia-sia karena kami hanya menggunakan +WHIRLDWIND SLASH saja.
+
+bahkan setelah uji lingkaran sihir kami dijalankan, matahari masih tetap tinggi diatas kami.
+
+kupikir kita bisa pulang sekarang dan kembali nanti, tapi kemudian aku tiba-tiba merasakan banyak reaksi dari +DETECTIONku.
 
 "Sepertinya semacam pesta bertemu dengan sekelompok monster."
 "Apakah mereka di dekat kita?"
