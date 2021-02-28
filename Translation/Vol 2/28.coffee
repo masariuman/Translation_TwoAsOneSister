@@ -128,27 +128,35 @@ Tetap saja, karena mereka mengalami kesulitan melawan goblin yang hanya memakai 
 Ada dua barisan dalam party tapi mereka tidak bisa mengalahkan sepuluh goblin, jadi party perlahan-lahan menerima lebih banyak kerusakan.
 
 Di sisi lain, para goblin tidak hanya menyerang secara membabi buta, mereka memiliki beberapa tingkat koordinasi karena terlihat seperti goblin yang relatif besar sedang memberikan perintah. Sulit untuk menilai siapa manusia sebenarnya di sini.
-Seharusnya itu yang disebut Pemimpin Goblin. Meskipun tidak pada level peringkat-D, itu dikatakan monster terkuat peringkat-E. Untuk pemburu kelas-E, mungkin agak terlalu sulit hanya untuk mereka berempat.
 
-"Sepertinya ini bukan pertarungan yang bisa kita amati kerja tim, kan?"
-"Anggap saja ini pertarungan 3 vs 9. Orang dengan pedang panjang tidak menarik bebannya. "
+mungkin itu yang disebut Pemimpin Goblin. Meskipun tidak pada level rank-D, itu dikatakan monster terkuat rank-E. Untuk pemburu rank-E, mungkin agak terlalu sulit hanya untuk mereka berempat.
+
+a"Sepertinya ini bukan pertarungan yang bisa kita amati kerjasama partynya, kan?"
+
+c"Anggap saja ini pertarungan 3 vs 9. Orang dengan pedang panjang tidak bekerja sebagai tim."
 
 Seperti yang Ciel katakan, jika aku mengubah perspektifku, orang dengan pedang satu tangan menggunakan perisainya untuk menahan goblin sementara yang di belakang fokus menyerang, jadi aku bisa melihat bahwa mereka setidaknya bekerja sebagai kelompok.
-Namun, rasanya orang itu saja tidak cukup untuk mendorong sembilan goblin mundur. Jadi mengingat itu, jika dia adalah seorang E-ranker maka barisan depan mungkin sebenarnya sangat mumpuni.
-Jika mereka hanya memiliki satu pelopor lagi, mereka mungkin bisa menangani pertarungan sedikit lebih baik.
 
-Jadi apa yang dilakukan oleh yang tersisa? Dia menyerang Pemimpin Goblin. Pada pandangan pertama sepertinya mereka bertarung dari ujung ke ujung tetapi karena Pemimpin memberikan perintah saat bertarung, sepertinya yang lebih kuat di sini.
+tapi, rasanya orang itu saja tidak cukup untuk mendorong sembilan goblin mundur. Jadi mengingat itu, jika dia adalah seorang dengan rank E maka barisan depan mungkin sebenarnya sangat mumpuni.
+
+Jika mereka hanya memiliki satu orang lagi, mereka mungkin bisa menangani pertarungan sedikit lebih baik.
+
+Jadi apa yang dilakukan oleh yang satunya? Dia menyerang Pemimpin Goblin. Pada pandangan pertama sepertinya mereka bertarung dari ujung ke ujung tetapi karena Pemimpin memberikan perintah saat bertarung, sepertinya goblin itu yang lebih kuat di sini.
+
 Jika Aku membiarkannya, para pemburu akan kalah.
 Hmm , Aku hanya ingin melihat apakah Aku dapat belajar sesuatu dari mereka tetapi ini akhirnya menjadi pilihan apakah kita membantu mereka atau membiarkan mereka mati.
 
-"Sebagai seorang pemburu, pergi saja mungkin tidak salah tapi ……"
-"Kamu ingin membantu mereka, kan Ain?"
-"Benarkah? Aku ingin membantu mereka tetapi Aku tidak ingin masalah yang datang setelah membantu mereka. Begitulah perasaan Aku tentang itu, Aku pikir.
-Membantu dirinya sendiri memang mudah dilakukan. Bagaimana perasaan orang yang menonton kami tentang itu juga merupakan faktor. "
+a"Sebagai seorang pemburu, pergi saja mungkin tidak salah tapi ......"
+
+c"Kamu ingin membantu mereka, kan Ain?"
+
+a"Benarkah aku ingin membantu? Aku ingin membantu mereka tetapi Aku tidak ingin masalah yang datang setelah membantu mereka. Begitulah perasaanku sekarang. Membantu saja memang mudah dilakukan. Bagaimana perasaan orang yang memantau kita juga merupakan faktor juga."
 
 Yang membantu adalah Ciel.
-Aku bisa membayangkannya seperti ini: Bantu mereka → Mereka akan merasa bersyukur → Mereka akan ikut; dan Aku juga tidak bisa mengatakan dengan pasti bahwa mereka dapat memberi penghargaan kepada kita dengan benar setelah kita menyelamatkan mereka. Tetap saja, mungkin, mungkin saja, kita bisa mendapatkan sesuatu dari guild.
-Juga, melihat orang mati tepat di depan mata Aku, terasa sangat mengerikan.
+
+Aku bisa membayangkannya seperti ini: Bantu mereka → Mereka akan merasa bersyukur → Mereka akan ikut dengan kami; dan Aku juga tidak bisa mengatakan dengan pasti bahwa mereka dapat memberi hadiah kepada kami dengan benar setelah kami menyelamatkan mereka. Tetap saja, mungkin, mungkin saja, kami bisa mendapatkan sesuatu dari guild.
+
+Juga, melihat orang mati tepat di depan mataku, terasa sangat mengerikan.
 
 Masalahnya di sini mungkin bahwa meskipun kita tidak memiliki kewajiban untuk membantu, membantu dirinya sendiri hampir tidak membutuhkan waktu.
 Jika nyawa Ciel bisa terancam, Aku pasti akan memilih untuk lari. Tetapi bahkan jika kelompok itu dihancurkan dan para goblin menyerang kita berikutnya, kita dapat menangani mereka dalam hitungan detik.
