@@ -128,20 +128,25 @@ a"Aku mengerti. Kalau begitu, bisakah Aku mencari permintaan sekarang?"
 
 Maka dengan itu, Aku menuju ke depan papan. Karena Aku sudah memiliki izin Ciel, Aku mencari permintaan yang ingin Aku lakukan.
 
-Namun, karena sebagian besar permintaan sekarang hilang, jadi satu-satunya yang tersisa adalah permintaan ramuan dan berburu rank F, dan juga permintaan tetap untuk pemburu rank-E dan di atasnya, tampaknya.
+Namun, karena sebagian besar permintaan sekarang hilang, jadi satu-satunya yang tersisa adalah permintaan pengumpulan herb dan berburu rank F, dan juga permintaan tetap untuk pemburu rank-E dan di atasnya, tampaknya.
 
 Untuk rank-D ke atas, ada beberapa permintaan pendamping dan semacamnya, tetapi Aku tidak melihat permintaan apa pun yang rank-B ke atas. Karena rank-C juga memiliki permintaan berkumpul, mungkin hanya ada beberapa monster kuat di dekat kota.
 
-Di antara ini, yang seharusnya bisa kulakukan adalah mengumpulkan ramuan, kurasa. Bagaimanapun, Aku hanya bisa mengandalkan Ciel ketika melawan monster dan berburu secara praktis tidak mungkin Aku lakukan.
-Selain itu, ada sesuatu yang sedikit membuat Aku penasaran, jadi inilah waktunya untuk pergi mengumpulkan beberapa herba.
+Di antara ini, yang seharusnya bisa kulakukan adalah mengumpulkan herb. Bagaimanapun juga, Aku hanya bisa mengandalkan Ciel ketika melawan monster dan berburu tidak mungkin Aku lakukan.
 
-Aku merobek formulir dari papan buletin dan sekali lagi memeriksa isinya.
-Yang tertulis di formulir adalah jenis jamu yang dibutuhkan dan jumlah yang dibutuhkan. Untuk jumlahnya, satu kantong kantong yang ditunjuk sudah cukup. Permintaan ini bernilai 3 koin tembaga. Semakin banyak ramuan yang dikumpulkan, semakin banyak hadiah yang akan kami dapatkan tetapi karena ada jumlah maksimum yang ditentukan, tampaknya mereka tidak akan menerima apa pun lebih dari itu.
-Untuk informasi tentang jamu, ada ciri-ciri umum jamu, penempatannya di mana bisa ditemukan, dan apa yang tampak seperti gambar jamu yang tertulis di formulir.
-Jika memungkinkan, Aku ingin melihat sampelnya secara langsung, jadi Aku ingin tahu apakah Aku dapat meminta Celia- san untuk menunjukkannya kepada Aku.
+Selain itu, ada sesuatu yang sedikit membuatku penasaran, jadi waktunya untuk pergi mengumpulkan beberapa herb.
+
+Aku merobek formulir dari papan dan sekali lagi memeriksa isinya.
+
+Yang tertulis di formulir adalah jenis herb yang dibutuhkan dan jumlah yang dibutuhkan. Untuk jumlahnya, satu kantong sudah cukup. Permintaan ini bernilai 3 koin tembaga. Semakin banyak herb yang dikumpulkan, semakin banyak hadiah yang akan kami dapatkan tetapi karena ada jumlah maksimum yang ditentukan, tampaknya mereka tidak akan menerima apa pun lebih dari itu.
+
+Untuk informasi tentang herb, ada ciri-ciri umum herb, penempatannya di mana bisa ditemukan, dan apa yang tampak seperti gambar herb yang tergambar di formulir.
+
+Jika memungkinkan, Aku ingin melihat sampelnya secara langsung, jadi Aku ingin tahu apakah Aku dapat meminta Celia-san untuk menunjukkannya padaku.
 
 Untuk saat ini, Aku membawa formulir itu kembali dan melangkah ke bangku. Guild hampir kosong sekarang tapi masih ada beberapa petualang dan staf guild yang tersisa, dan di antara mereka, aku mendengar seseorang menahan tawa.
-Yah, Aku tidak bisa menyalahkan mereka karena Aku satu-satunya yang perlu menggunakan bangku. Alangkah baiknya jika mereka hanya berpikir bahwa Aku ada di sini untuk permintaan peringkat-G.
+
+Yah, Aku tidak bisa menyalahkan mereka karena Aku satu-satunya yang perlu menggunakan bangku. Alangkah baiknya jika mereka hanya berpikir bahwa Aku ada di sini untuk permintaan rank-G.
 
 "Apa yang Kamu pilih?"
 "Aku sedang berpikir untuk pergi ke permintaan ramuan herbal tetapi bisakah Aku bertanya tentang beberapa hal?"
