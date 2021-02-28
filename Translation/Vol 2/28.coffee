@@ -2,11 +2,14 @@ CH 28 : Pengumpulan Herb dan Masalah
 
 Dengan antusias meninggalkan Guild Hunter, aku menuju gerbang dari sisi tempat kami memasuki Sannois.
 
-Itu karena Aku ingin melihat apakah mister di gerbang waktu itu masih ada. Salah satu alasan mengapa Aku memilih untuk menerima permintaan ini adalah karena gerbang tempat Aku keluar lebih dekat ke guild.
+Itu karena Aku ingin melihat apakah penjaga di gerbang waktu itu masih ada. Salah satu alasan mengapa Aku memilih untuk menerima permintaan ini adalah karena gerbang tempatku keluar lebih dekat ke guild.
+
 Padahal, alasan lainnya adalah karena Aku ingin bisa melakukannya sendiri. Ini permintaan pertamaku.
 
 Karena gerbang dapat dilihat langsung di depan jalan kami, kami mencapai gerbang tanpa tersesat.
-Seperti biasa, tentara menjaga gerbang. Tuan, yang Aku tidak begitu tahu namanya, juga berjaga-jaga juga tetapi karena Aku mungkin mengganggu dia dari pekerjaannya, Aku memutuskan untuk tidak menyapanya.
+
+Seperti biasa, tentara menjaga gerbang. penjaga yang Aku tidak begitu tahu namanya, juga berjaga-jaga tetapi karena Aku mungkin mengganggunya dari pekerjaannya, Aku memutuskan untuk tidak menyapanya.
+
 Lagipula, Aku mungkin akan dihentikan lagi ketika Aku mencoba memasuki kota nanti.
 
 Ketika Aku akan melewati gerbang sambil merasa sedikit tidak enak tentang itu, sepertinya tuan itu memperhatikan Aku. Dia bertanya padaku "Apakah kamu menjadi Hunter?" Dan jadi aku hanya berkata "Terima kasih padamu." Dan menundukkan kepalaku sebagai jawaban.
