@@ -1,3 +1,5 @@
+ch 27 : Guild, Observasi, dan Memilih Permintaan
+
 Karena ini sudah ketiga kalinya kami pergi ke Guild Pemburu, Aku sudah menganggap diriku terbiasa. Tetap saja, Aku tidak sepenuhnya menyadari betapa sulitnya bekerja sebagai pemburu.
 
 Kami tiba di guild di pagi hari tapi di dalam, ada pertempuran yang terus berlanjut. Pertarungan untuk siapa yang mendapatkan permintaan paling menguntungkan terlebih dahulu.
