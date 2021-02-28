@@ -124,12 +124,14 @@ Apakah tidak apa-apa jika Aku menerima permintaan biasa saja?"
 
 a"Aku mengerti. Kalau begitu, bisakah Aku mencari permintaan sekarang?"
 
-"Tentu saja, tolong bawa apa pun yang menarik minatmu. Jika tidak, kami akan memintamu menyelesaikan permintaan biasa."
+"Tentu saja, tolong bawa apa pun yang menarik minatmu. Jika tidak, kami akan memintamu menyelesaikan permintaan tetap."
 
 Maka dengan itu, Aku menuju ke depan papan. Karena Aku sudah memiliki izin Ciel, Aku mencari permintaan yang ingin Aku lakukan.
 
-Namun, karena sebagian besar permintaan sekarang hilang, jadi satu-satunya yang tersisa adalah permintaan ramuan dan berburu peringkat-F, dan juga permintaan tetap untuk pemburu peringkat-E dan di atasnya, tampaknya.
-Untuk peringkat-D ke atas, ada beberapa permintaan pendamping dan semacamnya, tetapi Aku tidak melihat permintaan apa pun yang peringkat-B ke atas. Karena peringkat-C juga memiliki permintaan berkumpul, mungkin hanya ada beberapa monster kuat di dekat kota.
+Namun, karena sebagian besar permintaan sekarang hilang, jadi satu-satunya yang tersisa adalah permintaan ramuan dan berburu rank F, dan juga permintaan tetap untuk pemburu rank-E dan di atasnya, tampaknya.
+
+Untuk rank-D ke atas, ada beberapa permintaan pendamping dan semacamnya, tetapi Aku tidak melihat permintaan apa pun yang rank-B ke atas. Karena rank-C juga memiliki permintaan berkumpul, mungkin hanya ada beberapa monster kuat di dekat kota.
+
 Di antara ini, yang seharusnya bisa kulakukan adalah mengumpulkan ramuan, kurasa. Bagaimanapun, Aku hanya bisa mengandalkan Ciel ketika melawan monster dan berburu secara praktis tidak mungkin Aku lakukan.
 Selain itu, ada sesuatu yang sedikit membuat Aku penasaran, jadi inilah waktunya untuk pergi mengumpulkan beberapa herba.
 
