@@ -125,12 +125,15 @@ Meskipun Aku mencoba bermain bodoh, Carol-san berkata "itu sudah pasti." Dan san
 
 Sebenarnya, Aku benar-benar menggunakan +DETECTION tetapi Aku yakin Aku tidak melakukan apa pun yang akan membuatnya terlalu jelas. Tetap saja, dia mungkin tidak tahu kapan Aku menggunakannya. Aku masih menggunakannya sekarang tetapi dia tidak mengatakan apa-apa tentang itu.
 
-"Jika Kamu benar-benar tidak bisa, maka tidak mungkin Kamu hanya mengumpulkan tumbuhan secara khusus dan membedakannya seperti itu.
-Seharusnya tidak mungkin bagi seseorang yang belum pernah keluar sampai saat ini untuk mengetahui mana yang hanya dengan melihat. "
-" Jika Aku tidak salah, deteksi sulit dilakukan, bukan? "
-" Benar, itu sulit. Pertama-tama, tidak ada metode yang mapan untuk melakukannya, jadi ini berbeda tergantung pengguna. "
-Jadi pendeteksiannya sulit, ya? Tapi sebenarnya tidak terasa seperti itu. Namun, jika Aku mengingat dengan benar, mungkin ada ada buku tentang ilmu sihir deteksi dalam yang kamar. Padahal, mungkin saja Aku tidak mengetahuinya. Ini tidak seperti Aku membaca setiap buku di sana.
-Jadi, karena mengatakan sesuatu tentang hal itu mungkin menarik minat Carol- san dan sebagainya , Aku bertanya "Jadi, bagaimana Aku melakukannya dalam ujian?" Dan mengubah topik.
+"Jika Kamu benar-benar tidak bisa, maka tidak mungkin Kamu dapat mengumpulkan herb secara khusus dan membedakannya seperti itu. Seharusnya tidak mungkin bagi seseorang yang belum pernah keluar sampai saat ini untuk mengetahui hanya dengan melihat."
+
+"Jika Aku tidak salah, +DETECTION sulit dilakukan, bukan?"
+
+"Benar, itu sulit. Tidak ada metode yang pasti untuk melakukannya, jadi ini berbeda tergantung pengguna."
+
+Jadi skill pendeteksian sulit, ya? Tapi sebenarnya tidak terasa seperti itu. tapi, jika Aku mengingat dengan benar, tidak ada buku tentang +DETECTION di ruangan itu. Mungkin saja Aku tidak mengetahuinya. yaah Aku tidak membaca setiap buku di sana juga.
+
+Jadi, karena mengatakan sesuatu tentang hal itu mungkin menarik minat Carol-san dan sebagainya, Aku bertanya "Jadi, bagaimana Aku melakukannya dalam ujiannya?" Dan mengubah topik.
 
 "Aku hanya ingin mengonfirmasi tetapi Kamu telah menggunakan penghalang Kamu sepanjang waktu, kan?"
 "Aku punya."
