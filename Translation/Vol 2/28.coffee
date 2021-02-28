@@ -97,29 +97,35 @@ bahkan setelah uji lingkaran sihir kami dijalankan, matahari masih tetap tinggi 
 
 kupikir kita bisa pulang sekarang dan kembali nanti, tapi kemudian aku tiba-tiba merasakan banyak reaksi dari +DETECTIONku.
 
-"Sepertinya semacam pesta bertemu dengan sekelompok monster."
-"Apakah mereka di dekat kita?"
-"Biarkan aku memeriksanya. Tidak ada apa-apa di dekat kita, tetapi pertemuannya adalah empat orang dan sepuluh monster. "
+a"Sepertinya ada parti bertemu dengan sekelompok monster."
 
-Setelah Aku berkata demikian, kami mendengar "UuooH! Yang energik ! "Dari jarak yang agak jauh.
+c"Apakah mereka di dekat kita?"
+
+a"Biarkan aku memeriksanya. Tidak ada apa-apa di dekat kita, tetapi ada empat orang dan sepuluh monster."
+
+Setelah Aku berkata demikian, kami mendengar "UuooH!" Dari jarak yang agak jauh.
+
 Dan setelah itu, kami mulai mendengar suara melengking dari benturan logam.
-"Maukah kamu jika kita melihat pertempuran sebentar?"
-"Tidak apa-apa, tetapi apakah akan baik-baik saja? Kami sedang diawasi, bukan? "
 
-Memeriksa itu baik-baik saja, tetapi apakah tidak apa-apa untuk pergi sebagai pemburu? Mungkin itulah yang ingin dikatakan Ciel.
-Bagi Aku, Aku hanya ingin melihat bagaimana sebuah pesta bertarung meski hanya sebentar, jadi itu seharusnya tidak menjadi masalah.
+a"bolehkan kita melihat pertempurannya sebentar?"
 
-"Jika tidak diizinkan maka orang yang mengawasi kita mungkin akan memanggil kita."
-"Begitu. Jadi Aku hanya perlu diam-diam mengawasi mereka, kan? "
-" Silakan. "
+c"Tidak apa-apa, tetapi apakah akan baik-baik saja? kita sedang diawasi, kan?"
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+hanya melihat saja tidak masalah, tetapi apakah tidak apa-apa untuk melihat sebagai pemburu? Mungkin itulah yang ingin dikatakan Ciel.
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Bagiku, Aku hanya ingin melihat bagaimana sebuah party bertarung meski hanya sebentar, jadi itu seharusnya tidak menjadi masalah.
 
-Dan saat Ciel diam-diam mengintip dari balik pohon, kami melihat sekelompok anak muda yang Aku perhatikan sebelumnya di sana melawan segerombolan goblin. Kelompok berempat masing-masing menggunakan pedang panjang, pedang dan perisai satu tangan, sihir, dan busur. Aku sebenarnya tidak tahu apakah pesta mereka seimbang atau tidak.
+a"Jika tidak diizinkan maka orang yang mengawasi kita mungkin akan memanggil kita."
+
+c"Begitu ya. Jadi Aku hanya perlu diam-diam mengawasi mereka, kan?"
+
+a"iya."
+
+Dan saat Ciel diam-diam mengintip dari balik pohon, kami melihat sekelompok anak muda yang Aku lihat sebelumnya sedang melawan segerombolan goblin. Kelompok berempat masing-masing menggunakan pedang panjang, pedang dan perisai satu tangan, sihir, dan busur. Aku sebenarnya tidak tahu apakah party mereka seimbang atau tidak.
+
 Tetap saja, karena mereka mengalami kesulitan melawan goblin yang hanya memakai senjata pada mereka, sepertinya party itu mungkin tidak sekuat itu.
-Ada dua barisan depan dalam party tapi mereka tidak bisa mengendalikan sepuluh goblin, jadi party perlahan-lahan menerima lebih banyak kerusakan.
+
+Ada dua barisan dalam party tapi mereka tidak bisa mengalahkan sepuluh goblin, jadi party perlahan-lahan menerima lebih banyak kerusakan.
 
 Di sisi lain, para goblin tidak hanya menyerang secara membabi buta, mereka memiliki beberapa tingkat koordinasi karena terlihat seperti goblin yang relatif besar sedang memberikan perintah. Sulit untuk menilai siapa manusia sebenarnya di sini.
 Seharusnya itu yang disebut Pemimpin Goblin. Meskipun tidak pada level peringkat-D, itu dikatakan monster terkuat peringkat-E. Untuk pemburu kelas-E, mungkin agak terlalu sulit hanya untuk mereka berempat.
