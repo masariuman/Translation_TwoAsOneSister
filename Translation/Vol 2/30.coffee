@@ -131,63 +131,79 @@ Dan tanpa aku sadari, Aku akhirnya menyanyikan sekitar lima lagu. Uang menumpuk 
 Carol-san sedang meminum cairan merah seperti anggur di kursi konter.
 
 "Seperti biasa, kamu sangat pandai bernyanyi."
-"Aku senang kamu menikmatinya."
+
+a"Aku senang kamu menikmatinya."
+
 "Sepertinya kamu juga menikmatinya sendiri."
-"Itu benar. Itu sangat menyenangkan. "
-" Tetap saja, Kamu benar-benar bertingkah seperti usia Kamu saat bernyanyi. "
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+a"Itu benar. Itu sangat menyenangkan. "
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"Tetap saja, Kamu benar-benar bertingkah seperti usiamu saat bernyanyi."
 
-Mengatakan itu, Carol-san meneguk anggurnya. Namun demikian, jika yang dia maksud adalah bahwa Aku bertingkah seperti anak berusia 10 tahun, maka Aku sebenarnya tidak bertingkah seusia Aku.
-Namun, memang benar bahwa Aku menikmatinya dan Aku memang terlihat seperti anak berusia 10 tahun, jadi Aku tidak keberatan.
+Mengatakan itu, Carol-san meneguk anggurnya. Jika yang dia maksud adalah bahwa Aku bertingkah seperti anak berusia 10 tahun, maka Aku sebenarnya tidak bertingkah seusiaku.
 
-"Aku melihat. Kehilangan kecil menjadi percaya diri saat bernegosiasi sebelumnya masuk akal sekarang.
-Aku belum pernah mendengar lagu-lagu itu sebelumnya, tapi ini populer di kalangan penonton. "
-" Seperti yang Aku janjikan sebelumnya, silakan ambil setengahnya. "
+tapi, memang benar Aku menikmatinya dan Aku memang terlihat seperti anak berusia 10 tahun, jadi Aku tidak keberatan.
 
-Sejak master pub berbicara dengan Aku, Aku mendorong segunung kecil uang ke arahnya.
-Dengan tatapan gelisah, dia menggelengkan kepalanya dan mendorong gunung itu berhenti.
+"begitu ya. nona kecil menjadi percaya diri ketika bernegosiasi menjadi masuk akal sekarang. Aku belum pernah mendengar lagu-lagu itu sebelumnya, tapi ini populer di kalangan penonton."
 
-"Katakanlah, Kamu bermasalah dengan uang, bukan? Maka Aku tidak bisa mengambil ini.
-Minumannya laku karena nyanyianmu juga, jadi aku sudah mendapatkan cukup darimu. "
-" Aku tidak terlalu bermasalah dengan uang, jadi tolong ambillah. Lagipula itulah yang kami sepakati. "
+a"Seperti yang Aku janjikan sebelumnya, silakan ambil setengahnya."
+
+Sejak master pub berbicara denganku, Aku mendorong segunung kecil uang ke arahnya.
+
+Dengan tatapan gelisah, dia menggelengkan kepalanya dan mendorong gunung itu kembali.
+
+"Kamu bermasalah dengan uang, kan? Aku tidak bisa mengambil ini. Minumannya laku karena nyanyianmu juga, jadi aku sudah mendapatkan cukup untung juga darimu."
+
+a"Aku tidak terlalu bermasalah dengan uang, jadi tolong ambillah. Lagipula itulah yang kita sepakati."
 
 Saat aku sekali lagi mendorong gunung kecil itu, master pub menoleh ke Carol-san untuk meminta bantuan.
-Setelah melirikku, Carol-san mendesah jengkel. Bukan aku yang menyeretmu ke dalam masalah ini, jadi tolong jangan lihat aku seperti itu.
-Yah, tentu, ini tidak akan menjadi masalah jika Aku menerimanya dengan patuh, tetapi, setidaknya selama Aku masih di negara ini, Aku tidak ingin menerima amal.
 
-"Nah, Kamu tidak perlu terlalu khawatir. Anak ini adalah seorang Hunter, kamu tahu? "
-" Bahkan jika dia seorang Hunter, dia di peringkat-G, ya? "
-" Tidak, dia peringkat-E. Selain itu, dia adalah peringkat-E yang bisa bersolo karier . "
-"Haah ? Gadis kecil ini …… adalah E? "
-" Sebagai permulaan, Aku akan menjaganya, jadi Kamu tidak perlu khawatir tentang itu.
-Aku hanya membawanya ke sini hari ini karena dia memang ingin datang. "
-"O-Oke . Kalau begitu, aku akan menerimanya, kurasa …… "
+Setelah melirikku, Carol-san menjadi jengkel. Bukan aku yang menyeretmu ke dalam masalah ini, jadi tolong jangan lihat aku seperti itu.
+
+Yah, tentu, ini tidak akan menjadi masalah jika Aku menerimanya saja, tapi, setidaknya selama Aku masih di negara ini, Aku tidak ingin menerima pemberian dari orang.
+
+"Nah, Kamu tidak perlu terlalu khawatir. Anak ini adalah seorang Hunter lho..."
+
+"Bahkan jika dia seorang Hunter, dia di rank G, kan?"
+
+"Tidak, dia rank E. Selain itu, dia adalah rank E yang bisa bersolo karier."
+
+"Haah ? Gadis kecil ini ... rank E?"
+
+"aku juga memantaunya, jadi Kamu tidak perlu khawatir tentang itu. Aku hanya membawanya ke sini hari ini karena dia memang ingin datang kesini."
+
+"O-Oke. Kalau begitu, aku akan menerimanya ......"
 
 Dengan pertukaran itu, master pub akhirnya menerima uang itu.
-Aku memasukkan setengah sisanya ke dalam kantong, tapi itu cukup berat. Aku ingin tahu apakah manusia babi itu membawa tas ajaib. Jika dia melakukannya, maka Aku benar-benar menyia-nyiakan kesempatan itu.
 
-Aku sebenarnya ingin mengumpulkan beberapa informasi dari para Hunter karena suasana hati mereka sedang baik sekarang, tapi Carol-san mengeluarkan aura "cepat dan selesaikan", jadi aku memutuskan untuk meninggalkan pub hari ini.
-Saat kami pergi, para Hunter memberitahuku "Kembalilah lagi." Jadi akan baik-baik saja bahkan jika kita pergi sendiri lain kali.
-Dalam perjalanan ke penginapan, setelah kami berpisah dengan Carol-san, Ciel berbicara dengan Aku dengan nada yang sedikit kesal.
+Aku memasukkan setengah sisanya ke dalam kantong, tapi itu cukup berat. Aku ingin tahu apakah manusia babi itu membawa tas magic. Jika dia memilikinya, maka Aku benar-benar menyia-nyiakan kesempatan untuk mengambilnya.
 
-"Aku senang Kamu menikmatinya, Ain."
-"Mengapa merajuk?"
-"Aku tidak merajuk sama sekali."
+Aku sebenarnya ingin mengumpulkan beberapa informasi dari para Hunter karena suasana hati mereka sedang baik sekarang, tapi Carol-san mengeluarkan aura "cepatlah dan selesaikan semua ini", jadi aku memutuskan untuk meninggalkan pub hari ini.
+
+Saat kami pergi, para Hunter memberitahuku "Kembalilah lagi." Jadi tidak akan ada masalah bahkan jika kami pergi sendiri nanti.
+
+Dalam perjalanan ke penginapan, setelah kami berpisah dengan Carol-san, Ciel berbicara denganku dengan nada yang sedikit kesal.
+
+c"Aku senang Kamu menikmatinya, Ain."
+
+a"kenapa ngambek?"
+
+c"Aku tidak ngembek sama sekali."
 
 Meskipun dia berkata begitu, Ciel terdengar agak tidak senang.
-Aku biasanya menyanyikan lagu Aku demi Ciel, jadi dia mungkin merasa posesif karenanya.
 
-"Betul sekali. Itu yang paling menyenangkan yang pernah Aku alami selain saat Aku bernyanyi untuk Kamu. "
-" Benarkah? "
-" Ya, sungguh. Yang paling bahagia yang Aku rasakan saat bernyanyi adalah ketika Kamu pertama kali mendengar lagu Aku. Aku bagaimana Aku hari ini karena Kamu menikmati lagu Aku saat Kamu masih bayi.
-Bahkan sekarang, satu hal yang paling aku nantikan adalah bernyanyi untukmu, Ciel. Dan itu karena kaulah yang paling mendengarkan aku bernyanyi. "
+Aku biasanya menyanyikan laguku demi Ciel, jadi dia mungkin merasa posesif karena itu.
 
-Bagaimanapun, Ciel telah mendengarkan Aku bernyanyi terus menerus selama lebih dari sepuluh tahun tanpa merasa bosan.
-Dengan itu, tidak ada keraguan bahwa kesenangan terbesar Aku adalah membuat Ciel menikmati lagu-lagu Aku.
+a"Betul sekali. Itu adalah hal yang paling menyenangkan yang pernah Aku alami selain saat Aku bernyanyi untukmu."
 
-"Aku juga paling menikmati mendengarkan Ain bernyanyi!"
+c"Benarkah?"
 
-Dan meskipun dia masih merajuk beberapa saat sebelumnya, Ciel sudah kembali dalam suasana hati yang baik. Jadi dengan itu, Aku memutuskan untuk menyanyikan sebuah lagu untuknya.
+a"Ya. Yang paling membuatku bahagia adalah ketika kamu pertama kali mendengarkanku bernyanyi. aku menjadi seperti sekarang karena kamu menikmati nyanyianku ketika kamu masih bayi. bahkan sekarang, satu-satunya yang ingin aku nantikan adalah bernyanyi untuku, ciel. dan itu karena kamu adalah orang yang paling banyak mendengarkan nyanyianku."
+
+Ciel telah mendengarkanku bernyanyi terus menerus selama lebih dari sepuluh tahun tanpa merasa bosan.
+
+tidak diragukan lagi bahwa kesenangan terbesarku adalah membuat Ciel menikmati lagu-laguku.
+
+c"Aku juga paling senang dan menikmati Ain bernyanyi!"
+
+Dan meskipun dia kesal beberapa saat sebelumnya, Ciel sudah kembali dalam suasana hati yang baik sekarang. Jadi dengan itu, Aku memutuskan untuk menyanyikan sebuah lagu untuknya.
