@@ -38,39 +38,58 @@ Nah, karena kita sudah di sini, Aku mengikuti Carol-san saat dia masuk.
 
 Ini hanya pub biasa dengan konter. Satu-satunya perbedaan di sini adalah bahwa hanya ada orang yang seperti petualang di dalamnya.
 
-Kebanyakan dari mereka berbadan tegap dan yang lebih penting, semuanya memiliki semacam senjata. Orang-orang yang tidak memiliki senjata adalah… mungkin penyihir. Rasio jenis kelamin mungkin sekitar 7: 3 dengan lebih banyak pria daripada wanita.
-Hal pertama yang Aku dengar ketika Aku masuk ke dalam adalah kata-kata "Oi , B-ranker ada di sini." Dan sejenisnya.
-Mereka mungkin membicarakan tentang Carol-san, tapi jika mereka melihatnya maka mereka akan memperhatikan yang di sebelahnya, aku.
+Kebanyakan dari mereka berbadan tegap dan semuanya memiliki semacam senjata. Orang-orang yang tidak memiliki senjata ... mungkin penyihir. Rasio jenis kelamin mungkin sekitar 7: 3 dengan lebih banyak pria daripada wanita.
 
-Apa yang Aku dengar selanjutnya adalah cekikikan. Kata-kata seperti "Dia punya anak?" Dan "Mengapa membawa anak ke pub?" Dilemparkan.
-Tetapi mendengarkan dengan cermat, bagaimanapun, Aku perhatikan bahwa hanya tiga puluh persen orang yang bereaksi seperti itu, dan semuanya berasal dari kelompok yang tampak kasar.
-Sekilas, mereka sepertinya tidak terlalu kuat. Tetapi untuk memulainya, dapatkah kekuatan seseorang benar-benar dinilai hanya dengan melihatnya? Namun, Aku menganggap kemampuan deteksi risiko Aku cukup tinggi, terutama karena kita sudah lama terpapar bahaya yang mengancam jiwa.
+Hal pertama yang Aku dengar ketika Aku masuk ke dalam adalah kata-kata "Oi , si rank B ada di sini." Dan semacamnya.
+
+Mereka mungkin membicarakan Carol-san, tapi jika mereka melihatnya maka mereka akan menyadari yang di sebelahnya, yaitu aku.
+
+Apa yang Aku dengar selanjutnya adalah cekikikan. Kata-kata seperti "Dia punya anak?" Dan "Mengapa membawa anak ke pub?".
+
+Mendengarkan dengan cermat, Aku perhatikan hanya tiga puluh persen orang yang bereaksi seperti itu, dan semuanya berasal dari kelompok yang tampak kasar.
+
+Sekilas, mereka sepertinya tidak terlalu kuat. tapi, dapatkah kekuatan seseorang benar-benar dinilai hanya dengan melihatnya? Aku menganggap kemampuan +DETECTIONku cukup tinggi, terutama karena kita sudah lama terpapar bahaya yang mengancam jiwa.
+
 Dan berdasarkan pengalamanku, orang paling berbahaya di gedung ini adalah orang di sampingku, Carol-san. Dengan kata lain, orang-orang di pub ini sama sekali tidak menakutkan.
 
-Master pub berjanggut di konter tampak seperti orang yang hangat dan meskipun dia menatapku dengan tatapan bingung, mungkin masih ada ruang untuk negosiasi karena aku tidak merasakan permusuhan darinya. Nah, hari ini aku punya Carol-san, seorang dewasa, bersamaku, jadi mungkin saja dia tidak punya pilihan untuk segera mengeluarkanku.
+Master pub berjanggut di konter tampak seperti orang yang hangat dan meskipun dia menatapku dengan tatapan bingung, mungkin masih ada ruang untuk negosiasi karena aku tidak merasakan permusuhan darinya. Nah, hari ini aku bersama Carol-san, seorang dewasa, bersamaku, jadi mungkin saja dia tidak punya pilihan untuk segera mengeluarkanku.
 
-"Sudah lama."
-"Penyihir Es di sini bersama anaknya, ini semacam lelucon?"
-"Maukah kamu berhenti memanggilku seperti itu? Juga, ini bukan anakku. Lihatlah berapa umurnya. "
-" Ya, ya. Bagaimanapun, ini bukan tempat untuk anak-anak, dengar aku? Meskipun dia tidak akan dalam bahaya, hanya itu dan tidak lebih. "
-" Yah, dia bilang dia ada hubungannya di sini. "
-" Baiklah, Nona kecil. Untuk apa kamu datang ke sini? "
+"Sudah lama ya."
 
-Saat Aku terkejut dengan caranya berbicara yang agak unik, mereka tiba-tiba mengalihkan topik kepada Aku.
+"Penyihir Es ke sini bersama anaknya, ini semacam lelucon?"
 
-"Senang bertemu dengan Kamu, nama Aku Cielmer. Aku ingin tahu apakah Kamu bisa membiarkan Aku bernyanyi di pub ini hari ini. "
-" Nyanyikan ...... apakah itu? Jadi singkatnya, Kamu di sini untuk mendapatkan beberapa koin, ya? Baiklah, Aku tidak bisa membiarkan Kamu melakukan pertunjukan Kamu di sini secara gratis. "
-" Kalau begitu, Aku akan membayar untuk satu gelas, jadi maukah Kamu membiarkan Aku menyanyikan satu lagu saja? "
-" Dengan semua kebisingan ini ? "
-" Dan setelah itu, Aku akan memberikan setengah dari apa yang Aku bayarkan untuk biaya tempat.
-Jika tidak ada yang terjadi setelah Aku menyanyikan satu lagu, maka Aku akan segera pulang. Ini tidak akan memakan banyak waktu, jadi tidak ada ruginya, kan? "
-" Jika Kamu baik-baik saja dengan itu maka yakinlah tetapi Kamu tidak akan benar-benar mendapatkan banyak dari itu, bukan? "
-" Di sini aman, dan ada orang."
+"Maukah kamu berhenti memanggilku seperti itu? Ini bukan anakku. Lihatlah berapa umurnya."
+
+"Ya, ya. tapi, ini bukan tempat untuk anak-anak, Meskipun dia tidak akan dalam bahaya."
+
+"Yah, dia bilang dia ada urusan di sini."
+
+"Baiklah, Nona kecil. Untuk apa kamu datang ke sini?"
+
+Saat Aku terkejut dengan caranya berbicara yang agak unik, mereka tiba-tiba mengalihkan topiknya kepadaku.
+
+a"Senang bertemu denganmu, nama Aku Cielmer. Aku ingin tahu apakah Kamu bisa membiarkan Aku bernyanyi di pub ini hari ini."
+
+"bernyani ...... ya? Jadi singkatnya, Kamu di sini untuk mendapatkan beberapa koin, ya? tapi, Aku tidak bisa membiarkanmu melakukan pertunjukanmu di sini secara gratis."
+
+a"Kalau begitu, Aku akan membayar untuk satu gelas, jadi maukah Kamu membiarkan Aku menyanyikan satu lagu saja?"
+
+"Dengan semua kebisingan ini ?"
+
+a"kalau begitu, Aku akan membayar setengah dari biaya untuk menyewa panggung. Jika tidak ada yang terjadi setelah Aku menyanyikan satu lagu, Aku akan segera pulang. Ini tidak akan memakan banyak waktu, jadi tidak ada ruginya, kan?"
+
+"Jika Kamu tidak masalah dengan itu yaah tidak masalah tapi Kamu tidak akan benar-benar mendapatkan untung banyak dari itu lho..."
+
+a"Di sini aman, dan ada orang."
 
 Saat ini, Aku hanya ingin belajar bagaimana mengumpulkan informasi daripada benar-benar menghasilkan uang, jadi itu bukan masalah.
-Sebaliknya, jika uang adalah masalahnya, maka Aku hanya perlu melakukan lebih banyak permintaan. Bahkan hanya dengan permintaan tetap, Ciel mungkin bisa mendapatkan cukup uang untuk mencapai nilai koin emas dalam satu hari. Untuk alasan itu, tas ajaib itu mungkin akan menjadi kebutuhan.
+
+Sebaliknya, jika uang adalah masalahnya, maka Aku hanya perlu melakukan lebih banyak permintaan. Bahkan hanya dengan permintaan tetap, Ciel mungkin bisa mendapatkan cukup uang untuk mencapai nilai koin emas dalam satu hari. Untuk alasan itu, tas magic itu mungkin akan menjadi keperluan mendatang.
+
 Juga, itu menggangguku karena aku terlalu mengandalkan Ciel.
-Namun, karena kami telah memilih untuk bekerja sebagai Hunter, tidak ada yang membantunya bahwa pertempuran menjadi lebih sering, yang terutama merupakan peran Ciel.
+
+Tapi, karena kami telah memilih untuk bekerja sebagai Hunter, Pertempuran akan menjadi lebih sering, karena peran ciel adalah utamanya.
+
 Ketika saatnya tiba bagi Ciel untuk memilih permintaan yang ingin dia lakukan dan mendapatkan uang sendiri daripada melakukan apa yang Aku minta, apakah perasaan bersalah dalam diri Aku ini juga akan hilang?
 
 Terlepas dari itu, jika Aku bisa mendapatkan sedikit uang hanya dengan bernyanyi, Itu akan cukup memuaskan bagi Aku.
