@@ -92,29 +92,42 @@ Tapi, karena kami telah memilih untuk bekerja sebagai Hunter, Pertempuran akan m
 
 Ketika saatnya tiba bagi Ciel untuk memilih permintaan yang ingin dia lakukan dan mendapatkan uang sendiri daripada melakukan apa yang Aku minta, apakah perasaan bersalah dalam diri Aku ini juga akan hilang?
 
-Terlepas dari itu, jika Aku bisa mendapatkan sedikit uang hanya dengan bernyanyi, Itu akan cukup memuaskan bagi Aku.
-Aku adalah anak modern yang dibesarkan oleh Internet. Aku telah melihat banyak orang bernyanyi online, menjual CD pertama mereka, dan menjadi terkenal dalam semalam. Bahkan itu adalah sesuatu yang Aku dambakan. Lagipula, Aku sangat suka bernyanyi. Mungkin Aku bahkan mungkin berhasil jika Aku benar-benar mencoba, tetapi Aku tidak dapat mengambil langkah pertama itu.
-Itulah mengapa tidak berlebihan untuk mengatakan bahwa berada di tempat di mana Aku bisa menghasilkan uang dengan bernyanyi adalah impian Aku. Aku tidak yakin apakah itu karena Song Princess, karena Aku terus bernyanyi untuk waktu yang lama, atau karena Ciel benar-benar berbakat, tetapi Aku merasa bahwa Aku sekarang lebih baik dalam menyanyi daripada sebelum Aku mati, jadi Aku harus bisa memenangkan hati orang jika mereka mendengarkan Aku.
+Terlepas dari itu, jika Aku bisa mendapatkan sedikit uang hanya dengan bernyanyi, Itu akan cukup memuaskan bagiku.
 
-Setelah memberi tahu master pub bahwa Aku baik-baik saja dengan kondisi itu, Aku pindah ke ruang di sebelah konter.
-Itu adalah satu-satunya tempat Aku bisa bernyanyi, jadi Aku tidak punya pilihan lain.
-Jadi, orang-orang yang memperhatikan Aku saat ini adalah sekitar setengah dari semua pelanggan pub.
-Mulai saat ini, ini akan menjadi masalah menarik perhatian sebanyak mungkin orang. Namun demikian, itu berisik. Akankah mereka mendengarku?
-Aku bisa membuat mereka mendengarkanku dengan kekuatan Putri Song, tetapi jika aku melakukan itu, mereka akan tahu bahwa aku Putri Song. Jadi mulai sekarang, itu akan sepenuhnya bergantung pada nyanyian Aku.
+Aku adalah anak modern yang dibesarkan oleh Internet. Aku telah melihat banyak orang bernyanyi online, menjual CD pertama mereka, dan menjadi terkenal dalam semalam. Bahkan itu adalah sesuatu yang Aku dambakan. Lagipula, Aku sangat suka bernyanyi. Mungkin Aku berhasil jika Aku benar-benar mencoba, tetapi Aku tidak dapat mengambil langkah pertama itu.
+
+Itulah mengapa tidak berlebihan untuk mengatakan bahwa berada di tempat di mana Aku bisa menghasilkan uang dengan bernyanyi adalah impianku. Aku tidak yakin apakah itu karena Song Princess, karena Aku terus bernyanyi untuk waktu yang lama, atau karena Ciel benar-benar berbakat, tetapi Aku merasa bahwa Aku sekarang lebih baik dalam menyanyi daripada sebelum Aku mati, jadi Aku harusnya bisa memenangkan hati orang jika mereka mendengarkanku.
+
+Setelah memberi tahu master pub bahwa Aku tidak masalah dengan kondisi itu, Aku pindah ke ruang di sebelah konter.
+
+Itu adalah satu-satunya tempatku bisa bernyanyi, jadi Aku tidak punya pilihan lain.
+
+Jadi, orang-orang yang memperhatikanku saat ini adalah sekitar setengah dari semua pelanggan pub.
+
+Mulai saat ini, ini akan menjadi masalah menarik perhatian orang sebanyak mungkin. tapi, tempat ini berisik. bisakah mereka mendengarku?
+
+Aku bisa membuat mereka mendengarkanku dengan kekuatan song princess, tetapi jika aku melakukan itu, mereka akan tahu bahwa aku song princess. Jadi mulai sekarang, itu akan sepenuhnya bergantung pada nyanyianku.
 
 Dengan itu, aku menarik napas dalam-dalam dan meninggikan suaraku untuk melawan keributan.
 
 ◇
 
 Setelah menyanyikan lagu yang hidup, Aku menundukkan kepala.
-Karena Aku menyanyi sepenuhnya dalam bahasa Jepang, ada orang-orang yang pada awalnya bingung dan bahkan ada yang masih bergembira sendiri bahkan setelah Aku menyelesaikan lagu Aku. Tapi karena ada yang melempar koinnya setelah Aku selesai, Aku anggap sukses.
-Koin-koin itu sebagian besar adalah koin tembaga tetapi Aku juga bisa melihat beberapa perak, jadi ini seharusnya menghasilkan cukup banyak. Paling tidak, bahkan setelah dikurangi setengah untuk membayar biaya tempat, itu masih jauh lebih banyak daripada apa yang bisa diperoleh Hunter peringkat rendah dalam sehari.
+
+Karena Aku menyanyi sepenuhnya dalam bahasa Jepang, ada orang-orang yang pada awalnya bingung dan bahkan ada yang masih bersenang-senang sendiri bahkan setelah Aku menyelesaikan laguku. Tapi karena ada yang melempar koinnya setelah Aku selesai, Aku anggap sukses.
+
+Koin-koin itu sebagian besar adalah koin tembaga tetapi Aku juga bisa melihat beberapa perak, jadi ini seharusnya menghasilkan cukup banyak. Paling tidak, bahkan setelah dikurangi untuk membayar biaya tempat, itu masih jauh lebih banyak daripada apa yang bisa diperoleh Hunter peringkat rendah dalam sehari.
+
 "Hei nona kecil, beri kami satu lagu lagi."
 
-Seorang Hunter yang duduk di dekatnya yang tampaknya seusia dengan yang diminta oleh master pub, jadi aku dengan cepat melihat ke arah master pub.
-Sejak dia menganggukkan kepalanya, Aku menjadi sangat senang dan menyanyikan satu lagu lagi.
-Kali ini, lebih banyak orang yang mendengarkan Aku. Meskipun mereka seharusnya tidak tahu apa yang sebenarnya Aku katakan, mereka tampaknya menikmati mendengarkan Aku, jadi Aku merasa sangat baik sekarang.
-Dan sebelum Aku menyadarinya, Aku akhirnya menyanyikan sekitar lima lagu. Uang telah menumpuk menjadi gunung kecil dan tenggorokanku juga kering, jadi aku membungkuk dan pergi ke tempat Carol-san berada.
+Seorang Hunter yang duduk di dekatnya yang tampaknya seusia dengan master pub meminta, jadi aku dengan cepat melihat ke arah master pub.
+
+karena dia menganggukkan kepalanya, Aku menjadi sangat senang dan menyanyikan satu lagu lagi.
+
+Kali ini, lebih banyak orang yang mendengarkanku. Meskipun mereka seharusnya tidak tahu apa yang sebenarnya Aku katakan, mereka tampaknya menikmati mendengarkanku, jadi Aku merasa sangat senang sekarang.
+
+Dan tanpa aku sadari, Aku akhirnya menyanyikan sekitar lima lagu. Uang menumpuk menjadi gunung kecil dan tenggorokanku juga kering, jadi aku membungkuk dan pergi ke tempat Carol-san berada.
+
 Carol-san sedang meminum cairan merah seperti anggur di kursi konter.
 
 "Seperti biasa, kamu sangat pandai bernyanyi."
