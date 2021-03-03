@@ -1,33 +1,43 @@
 CHAPTER 30: THE PUB AND A SONG
 
 Sambil terlihat agak jengkel, Carol-san membawa kami ke pub yang sangat gaduh.
-Bahkan dari luar gedung, Aku dapat dengan jelas mendengar suara tawa riuh dan suara mug yang dipukul bersamaan.
 
-"Jadi, apakah kamu masuk? Atau lebih tepatnya, apa yang Kamu rencanakan untuk dilakukan di dalam?
-Bahkan jika itu adalah yang pub yang berwenang, Aku tidak akan terkejut jika mereka menendang keluar seorang anak di bawah umur seperti Kamu, Kamu tahu? "
-"Mengapa Kamu mengatakan bahwa sekarang?"
-" See, sekarang aku berpikir tentang hal itu, praktis tidak ada satu di bawah usia 15 tahun pernah datang ke tempat ini.
-Terlebih lagi, anak biasa berusia 10 tahun pasti tidak akan datang ke sini. Karena itu, bahkan Aku tidak tahu bagaimana mereka akan bereaksi terhadap Kamu.
-Yah, beberapa cemoohan kemungkinan besar akan terlibat setidaknya. "
-" Lalu, apakah sulit untuk meminta mereka mengizinkan Aku bernyanyi di pub? "
-" Orang yang mendapatkan uang yang mereka butuhkan dengan menghibur orang di pub bukanlah apa-apa baru.
-Terutama, karena Hunter memiliki terlalu banyak waktu luang, di sini lebih ramah dibandingkan dengan pub lain.
-Namun, apakah master pub mengizinkannya atau tidak, itu adalah masalah lain. Jangan berharap Aku membantu Kamu dalam hal itu juga, oke? "
-" Selama Kamu bisa memperkenalkan Aku kepada master pub, Aku akan menangani yang lainnya. "
+Bahkan dari luar gedung, Aku dapat dengan jelas mendengar suara tawa riuh dan suara gelas bersulang.
 
-Tetapi meskipun Aku mengatakan itu, Aku masih belum mendapatkan izin Ciel.
-Ciel bahkan mungkin mengatakan tidak di sini tetapi entah bagaimana Ciel hampir tidak pernah tidak setuju dengan apa pun yang ingin Aku lakukan, jadi Aku tidak bisa mengatakan dengan pasti.
+"Jadi, apakah kamu akan masuk? Atau lebih tepatnya, apa yang Kamu rencanakan di dalam? walaupun ini pub yang resmi, Aku tidak akan terkejut jika mereka menendang keluar seorang anak di bawah umur sepertimu, Kamu tahu?"
 
-"Umm , Ciel?"
-"Jika Ain ingin melakukannya, maka Aku tidak keberatan, oke?"
-"Tapi itu mungkin akan menyebabkan beberapa masalah bagi kita, jadi ……"
-"Ketika itu terjadi, kita hanya perlu lari. Kita bisa melakukan itu, kan? "
-" Jika hanya berjalan, maka seharusnya tidak sesulit itu, tapi… "
-" Maka tidak apa-apa. "
+a"kenapa baru bilang sekarang?"
 
-Jadi Aku mendapat izinnya, tetapi apakah ini benar-benar baik-baik saja?
+"Aku baru kepikiran sekarang, yaaah tidak ada anak dibawah usia 15 tahun pernah ketempat ini. Anak biasa berusia 10 tahun pasti tidak akan datang ke sini. Karena itu, bahkan Aku tidak tahu bagaimana mereka akan bereaksi terhadap Kamu. Yah, paling tidak beberapa cemoohan kemungkinan besar akan terlibat."
+
+a"Apakah sulit untuk meminta mereka mengizinkanku bernyanyi di pub?"
+
+"Orang yang mendapatkan uang yang mereka butuhkan dengan menghibur orang di pub bukanlah hal baru. Terutama, karena Hunter memiliki terlalu banyak waktu luang, di sini lebih ramah dibandingkan dengan pub lain. Apakah master pub mengizinkannya atau tidak, itu adalah masalah lain. Jangan berharap Aku membantumu dalam hal itu juga, oke?"
+
+a"Selama Kamu bisa memperkenalkanku kepada master pub, Aku akan menangani sisanya."
+
+meskipun Aku mengatakan itu, Aku masih belum mendapatkan izin Ciel.
+
+Ciel bahkan mungkin mengatakan tidak tetapi entah bagaimana Ciel hampir tidak pernah tidak setuju dengan apa pun yang ingin Aku lakukan, jadi Aku tidak bisa mengatakannya dengan pasti.
+
+a"Umm , Ciel?"
+
+c"Jika Ain ingin melakukannya, Aku tidak keberatan, oke?"
+
+a"Tapi itu mungkin akan menyebabkan beberapa masalah bagi kita, jadi ......"
+
+c"Ketika itu terjadi, kita hanya perlu lari. Kita bisa melakukan itu, kan?"
+
+a"Jika hanya lari, seharusnya tidak sesulit itu, tapi..."
+
+c"kalau begitu tidak apa-apa."
+
+Jadi Aku mendapat izinnya, tetapi apakah ini benar-benar tidak masalah?
+
 Nah, karena kita sudah di sini, Aku mengikuti Carol-san saat dia masuk.
+
 Ini hanya pub biasa dengan konter. Satu-satunya perbedaan di sini adalah bahwa hanya ada orang yang seperti petualang di dalamnya.
+
 Kebanyakan dari mereka berbadan tegap dan yang lebih penting, semuanya memiliki semacam senjata. Orang-orang yang tidak memiliki senjata adalah… mungkin penyihir. Rasio jenis kelamin mungkin sekitar 7: 3 dengan lebih banyak pria daripada wanita.
 Hal pertama yang Aku dengar ketika Aku masuk ke dalam adalah kata-kata "Oi , B-ranker ada di sini." Dan sejenisnya.
 Mereka mungkin membicarakan tentang Carol-san, tapi jika mereka melihatnya maka mereka akan memperhatikan yang di sebelahnya, aku.
