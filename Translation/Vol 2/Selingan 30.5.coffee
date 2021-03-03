@@ -36,105 +36,138 @@ Meskipun, Aku kira itu wajar jika dia tidak bisa melakukannya karena dia kemungk
 
 Tetap saja, sangat mengejutkan melihatnya, mengetahui betapa tak tertembusnya dia dan kemahirannya dalam sihir, kelelahan hanya karena mencoba membangun tenda.
 
-"Intinya adalah, setiap kali dia mampu menyelesaikan masalah apa pun hanya dengan kekuatan sihirnya, dia melakukannya dengan tepat.
-Selain itu, dia juga cukup pintar. Meskipun, terkadang dia ceroboh. Ketika Aku mengajarinya beberapa penguatan fisik sederhana, dia segera menguasainya, dan dia juga segera menghafal cara mendirikan tenda juga. "
-" Pertama-tama, bisakah Kamu benar-benar terus menggunakan sihir saat tidur? "
-"Tidak memungkinkan. Bahkan penghalang yang umumnya digunakan saat berkemah hanyalah sebuah item sihir praktis yang menyuplai kekuatan sihir, yang berasal dari batu sihir, ke lingkaran sihir. Menurutnya, dia mengatakan alasan sihir pelindungnya masih menyala adalah karena dia secara alami memulihkan lebih banyak kekuatan sihir daripada jumlah yang dibutuhkan untuk mempertahankan penghalang, yang biasanya tidak terjadi sama sekali.
-Contoh, jika Aku bersikeras bahwa Aku dapat berjalan terus menerus saat Aku tidur karena Aku memulihkan stamina Aku lebih cepat daripada berapa banyak yang Aku gunakan saat berjalan, apakah Kamu mengerti betapa gilanya itu? "
-" Sekarang Kamu mengatakannya seperti itu, memang begitu menyimpang dari norma. "
+carol"Intinya adalah, setiap kali dia mampu menyelesaikan masalah apa pun hanya dengan kekuatan sihirnya, dia melakukannya dengan tepat. Selain itu, dia juga cukup pintar. Meskipun, terkadang dia ceroboh. Ketika Aku mengajarinya beberapa penguatan fisik sederhana, dia segera menguasainya, dan dia juga segera menghafal cara mendirikan tenda juga."
 
-Celia seharusnya dengan jujur ​​menyebutnya gila.
-Yang lebih menakutkan adalah fakta bahwa anak itu masih berusia 10 tahun. Biasanya, Kamu akan menghabiskan lima tahun untuk merenungkan kemampuan Kamu sendiri, kemudian sepuluh tahun setelah itu adalah periode pertumbuhan. Bagi para penyihir, kekuatan sihir mereka tidak pernah berkurang, jadi pertumbuhan mereka secara praktis tidak pernah berhenti.
+celia"Bisakah Kamu benar-benar terus menggunakan sihir saat tidur?"
+
+carol"Tidak mungkin. Bahkan +BARRIER yang umumnya digunakan saat berkemah hanyalah sebuah item sihir yang menyuplai energi sihir, yang berasal dari batu magic, ke lingkaran sihir. Menurutnya, dia mengatakan alasan sihir +BARRIERnya masih menyala adalah karena dia secara alami memulihkan lebih banyak energi sihir daripada jumlah yang dibutuhkan untuk mempertahankan +BARRIER, yang biasanya tidak terjadi sama sekali. Contoh, jika Aku bersikeras bahwa Aku dapat berjalan terus menerus saat Aku tidur karena Aku memulihkan staminaku lebih cepat daripada yang Aku gunakan saat berjalan, apakah Kamu mengerti betapa gilanya itu?"
+
+celia"setelah kamu mengatakannya seperti itu, itu memang tidak normal."
+
+Celia dengan jujur ​​menyebutnya gila.
+
+Yang lebih menakutkan adalah fakta bahwa anak itu masih berusia 10 tahun. Biasanya, Kamu akan menghabiskan lima tahun untuk memikirkan kemampuanmu sendiri, kemudian sepuluh tahun setelah itu adalah periode perkembangan. Bagi para penyihir, kekuatan sihir mereka tidak pernah berkurang, jadi perkembangan mereka tidak pernah berhenti.
+
 Tapi meski begitu, jika aku hanya mempertimbangkan kemampuan bertahannya, dia sudah berada di level yang sama dengan penyihir tua yang licik.
-Dan meskipun kau bisa mengatakan bahwa kemampuan serangannya jauh lebih rendah sebagai gantinya, dia masih cukup kuat untuk mengalahkan seorang C-ranker dan, bahkan sekarang, aku belum melihatnya menghabiskan kekuatan sihirnya.
 
-"Pada tingkat ini, mencapai peringkat-C seharusnya mudah baginya juga."
-"Peringkat-C mudah benar-benar luar biasa.
-Tetap saja, ada bakat pesta sebagai rekomendasi, tapi Cielmer- san ... akankah dia baik-baik saja dalam hal itu? "
-" Itu agar Kamu dapat mempertahankan tingkat koordinasi tanpa skrip tertentu dalam situasi darurat seperti cap monster atau lebih, kan? "
-" Ya. "
-" Apakah dia bahkan membutuhkan itu? Dia tidak akan mati bahkan jika kamu melemparkannya ke tengah penyerbuan, itu sudah pasti.
-Sebagai gantinya, dia bahkan mungkin memusnahkannya. "
-" Tapi masalahnya adalah berapa banyak orang yang benar-benar percaya akan hal itu. "
+Dan meskipun kau bisa mengatakan bahwa kemampuan serangannya jauh lebih rendah sebagai gantinya, dia masih cukup kuat untuk mengalahkan seorang dengan rank C dan, bahkan sekarang, aku belum melihatnya menghabiskan energi sihirnya.
 
-Aku mengerti maksud Celia, tetapi praktis tidak ada orang lain yang menganggap bergabung dengan pesta tidak perlu sebanyak dia.
-Dalam pertempuran, dia hanya bisa mengandalkan penghalang dan menggunakan sihir yang kuat. Dan karena dia juga bisa menggunakan deteksi, dia selalu bisa tetap aman saat bergerak. Bahkan saat dia tidak menggunakan deteksi, indranya tampak tajam, jadi dia juga bisa bertindak seperti pengintai.
-Dia juga bisa menghasilkan air sendiri dengan sihir. Jadi sejujurnya, daripada mencarikannya sebuah pesta, akan jauh lebih praktis untuk mencarikannya tas ajaib sebagai gantinya.
-Dan sementara Aku membahas topik ini, Aku sudah mengajarinya penguatan fisik, jadi bukannya dia sama sekali tidak berdaya dalam hal kekuatan fisik.
+carol"Pada tingkat ini, mencapai rank-C seharusnya mudah baginya juga."
 
-"Daripada dia, bukankah kamu, sebagai anggota staf guild, lebih peduli dengan pemula yang menjanjikan?"
-"Anak-anak itu ...... baik-baik saja, kurasa. Pesta Prajurit, Penyihir, dan Pemanah. Mereka tidak seimbang tapi sepertinya Teren- kun melakukan yang terbaik dengan mereka. "
-" Yah, mereka sudah melibatkanku. Jika mereka tidak melakukannya dengan cukup baik, Aku akan bermasalah. Namun, salah satu dari mereka tampaknya tidak berkinerja baik. "
-" Bukan karena dia tidak berbuat baik, tetapi karena ada banyak harapan untuknya, banyak staf guild yang kecewa juga.
-Mereka mengatakan bahwa dia adalah Ksatria Agung, jadi orang-orang mengharapkan dia untuk mencapai peringkat C.
-"Ksatria Agung? Mengingat pekerjaannya sudah diketahui semua orang, Kamu tidak bisa berharap banyak darinya, bukan?
-Bahkan menilai dari bagaimana dia bertarung, dia adalah tipe yang bergantung pada Pekerjaan. Selama tidak ada perubahan dalam hal itu, dia bahkan tidak akan mencapai peringkat-D, tahu?
-Seorang Putri Lagu tertentu mungkin memecahkan rekor untuk kenaikan tercepat ke peringkat-B. Ironis, bukan? "
-" Aku punya masalah dengan Kamu menggunakan Cielmer- san sebagai perbandingan. "
+celia"rank-C dengan mudah benar-benar luar biasa. Tetap saja, ada bakat sebagai party sebagai rekomendasi, tapi Cielmer-san ... akankah dia baik-baik saja dalam hal itu?"
 
-Kamu sangat menyukai gadis itu, bukan, Celia? Aku tidak akan pernah mengatakannya di depanmu.
-Yah, aku tidak pernah bosan melihat gadis itu sendiri, jadi aku juga tidak membencinya. Lagipula, dia tidak membutuhkan banyak bantuan, jadi aku bisa meluangkan waktu untuk penelitian sihirku juga, dan yang terpenting, banyak hal yang dia lakukan dengan sihirnya cukup menarik.
-Penghalang itu khususnya, Aku tidak mengerti. Berapa banyak sihir yang dia masukkan ke dalam penghalang itu? Aku bahkan tidak tahu. Dia memberi tahu Aku tentang beberapa efeknya tetapi pertama-tama, orang biasanya tidak memikirkannya.
+carol"Itu agar Kamu dapat mempertahankan tingkat koordinasi yang tidak terduga dalam situasi darurat seperti sarang monster atau lainnya, kan?"
 
-"Ngomong-ngomong, ada sihir yang Aku tahu Kamu mungkin menyukainya ... Kamu ingin mendengarnya?"
-"Mungkin akan memakan waktu lama, jadi tidak."
-"Apakah Kamu tahu mengapa kulit Cielmer sama sekali tidak kecokelatan meskipun dia menghabiskan banyak waktu di luar? "
-" Jadi, ada apa? "
+celia"Ya."
+
+carol"Apakah dia bahkan membutuhkan itu? Dia tidak akan mati bahkan jika kamu melemparkannya ke tengah kerumunan monster, itu sudah pasti. Dia bahkan mungkin memusnahkannya."
+
+celia"Tapi masalahnya adalah berapa banyak orang yang benar-benar percaya akan hal itu."
+
+Aku mengerti maksud Celia, tapi tidak ada orang lain yang menganggap bergabung dengan party itu tidak perlu seperti dia.
+
+Dalam pertempuran, dia hanya bisa mengandalkan +BARRIER dan menggunakan sihir yang kuat. Dan karena dia juga bisa menggunakan +DETECTION, dia selalu bisa tetap aman saat bergerak. Bahkan saat dia tidak menggunakan +DETECTION, indranya tampak tajam, jadi dia juga bisa bertindak seperti pengintai.
+
+Dia juga bisa menghasilkan air sendiri dengan sihir. Jadi sejujurnya, daripada mencarikannya sebuah party, akan jauh lebih praktis untuk mencarikannya tas magic sebagai gantinya.
+
+Dan sementara Aku membahas topik ini, Aku sudah mengajarinya penguatan fisik, jadi dia tidak sama sekali tidak berdaya dalam hal kekuatan fisik.
+
+carol"Daripada dia, bukankah kamu, sebagai anggota staf guild, lebih peduli dengan pemula yang menjanjikan?"
+
+celia"Anak-anak itu ...... baik-baik saja, kurasa. party dengan seorang warrior, Penyihir, dan Pemanah. Mereka tidak seimbang tapi sepertinya Teren-kun melakukan yang terbaik dengan mereka."
+
+carol"Yah, mereka sudah melibatkanku. Jika mereka tidak melakukannya dengan cukup baik, Aku akan bermasalah. tapi, salah satu dari mereka tampaknya tidak cukup baik."
+
+celia"Bukan karena dia tidak bagus, tetapi karena ada banyak harapan untuknya, banyak staf guild yang kecewa juga.
+Mereka mengatakan bahwa dia adalah +GREATER KNIGHT[1], jadi orang-orang mengharapkan dia untuk mencapai rank C."
+
+carol"greater knight? Mengingat jobnya sudah diketahui semua orang, Kamu tidak bisa berharap banyak darinya, kan? Bahkan menilai dari bagaimana dia bertarung, dia adalah tipe yang bergantung pada job. Selama tidak ada perubahan dalam hal itu, dia bahkan tidak akan mencapai rank-D... Seorang Putri Lagu tertentu mungkin memecahkan rekor untuk kenaikan tercepat ke rank-B. Ironis, bukan?"
+
+celia"Aku punya masalah denganmu menggunakan Cielmer-san sebagai perbandingan."
+
+Kamu sangat menyukai gadis itu, kan, Celia? Aku tidak akan pernah mengatakannya di depanmu.
+
+Yah, aku tidak pernah bosan melihat gadis itu sendiri, jadi aku juga tidak membencinya. Lagipula, dia tidak membutuhkan banyak bantuan, jadi aku bisa meluangkan waktu untuk penelitian sihirku juga, dan yang terpenting, banyak hal yang dia lakukan dengan sihirnya dan itu cukup menarik.
+
+khususnya +BARRIER itu, Aku tidak mengerti itu. Berapa banyak sihir yang dia masukkan ke dalam +BARRIER itu? Aku bahkan tidak tahu. Dia memberi tahuku tentang beberapa efeknya tapi, orang biasanya tidak akan memikirkannya.
+
+carol"Ngomong-ngomong, ada sihir yang Kamu mungkin menyukainya ... Kamu ingin mendengarnya?"
+
+celia"Mungkin akan memakan waktu lama, jadi tidak."
+
+carol"Apakah Kamu tahu mengapa kulit Cielmer sama sekali tidak kecokelatan meskipun dia menghabiskan banyak waktu di luar?"
+
+celia"jadi, sihir apa itu?"
 
 Melihat reaksi yang cukup langka dari Celia, Aku menjadi sedikit bersemangat.
-Untuk mulai dengan, ini Celia di sini mendapatkan tertarik sihir praktis keajaiban dalam dirinya sendiri. Dia tidak menunjukkan ketertarikan sedikit pun pada sihirku secara umum.
-Meskipun Aku merasa agak frustasi tentang hal ini, Celia akhirnya tertarik pada ilmu sihir. Aku tidak punya rencana untuk menyia-nyiakan kesempatan ini.
 
-"Dia mengatakan bahwa salah satu efek penghalangnya adalah menghalangi sinar matahari.
-Berkat itu, dia tidak menjadi kecokelatan karena matahari, atau begitulah katanya. "
-" Jadi kamu bisa menggunakan sihir penghalang dengan cara itu juga. "
-" Satu-satunya yang menggunakannya dengan cara itu adalah dia. Biasanya, itu digunakan untuk melindungi diri sendiri.
-Selain itu, tidak ada yang bisa menggunakan sihir itu selain dia. "
-" Berarti kamu meningkatkan harapanku hanya untuk menjatuhkannya. "
-Celia putus asa tetapi Aku benar-benar tidak bisa berbuat apa-apa tentang bagian itu.
-Bagaimanapun, bahkan dalam kasus Aku, Aku tidak dapat menggunakan sihir lain saat Aku menggunakannya.
+Celia di sini tertarik dengan sihir adalah suatu keajaiban dalam dirinya sendiri. Dia tidak menunjukkan ketertarikan sedikit pun pada sihirku.
 
-"Aku memintanya untuk menuliskan lingkaran sihirnya, jadi jika itu hanya mengaktifkannya, maka kamu harus dapat melakukannya dengan latihan yang cukup."
-"Artinya bagian yang sulit adalah mempertahankannya?"
-"Tepat. Itu membutuhkan kontrol kekuatan sihir yang sangat halus.
-Sampai-sampai bahkan orang-orang yang telah menghabiskan bertahun-tahun mempraktikkan sihir hanya dapat menggunakannya dengan tidak benar. "
-" Jadi maksudmu sihir Cielmer- san tidak hanya mengandalkan kekuatan sihirnya yang melimpah? "
-" Dan bukannya bakat, ini sebenarnya masalah pengalaman.
-Jenis sihir apa yang bahkan Kamu gunakan untuk memiliki teknik sebanyak ini pada usia 10 tahun? "
+Meskipun Aku merasa agak frustasi tentang hal ini, Celia akhirnya tertarik pada sihir. Aku tidak punya rencana untuk menyia-nyiakan kesempatan ini.
 
-Bahkan jika ada Job seperti "Barrier Sorcery King" dan semacamnya, mungkin masih butuh beberapa tahun bagi mereka untuk bisa menggunakan penghalang yang menghalangi cahaya. Jika mereka mencoba membuat ulang pelindung gadis itu, berapa banyak waktu yang mereka butuhkan?
+carol"Dia mengatakan bahwa salah satu efek +BARRIERnya adalah menghalangi sinar matahari. Berkat itu, dia tidak menjadi kecokelatan karena matahari, begitulah katanya."
+
+celia"Jadi kamu bisa menggunakan sihir +BARRIER dengan cara itu juga."
+
+carol"Satu-satunya yang menggunakannya dengan cara itu adalah dia. Biasanya, itu digunakan untuk melindungi diri sendiri. Selain itu, tidak ada yang bisa menggunakan sihir itu selain dia."
+
+celia"Berarti kamu memberiku harapan hanya untuk menghancurkan harapanku juga."
+
+Celia putus asa tetapi Aku benar-benar tidak bisa berbuat apa-apa tentang hal itu.
+
+bahkan dalam kasusku, Aku tidak dapat menggunakan sihir lain saat Aku menggunakannya.
+
+carol"Aku memintanya untuk menuliskan lingkaran sihirnya, jadi jika itu hanya mengaktifkannya, maka kamu harusnya dapat melakukannya dengan latihan yang cukup."
+
+celia"dengan kata lain bagian yang sulit adalah mempertahankannya?"
+
+carol"Tepat. Itu membutuhkan kontrol energi sihir yang sangat halus. Sampai-sampai bahkan orang-orang yang telah menghabiskan bertahun-tahun memakai sihir hanya dapat menggunakannya dengan tidak sempurna."
+
+celia"Jadi maksudmu sihir Cielmer-san tidak hanya mengandalkan energi sihirnya yang melimpah?"
+
+carol"Dan ini bukannya bakat, ini sebenarnya masalah pengalaman. sihir apa yang dia gunakan untuk memiliki teknik sebanyak ini pada usia 10 tahun?"
+
+Bahkan jika ada Job seperti "+BARRIER SORCERY KING"[2] dan semacamnya, mungkin masih butuh beberapa tahun bagi mereka untuk bisa menggunakan +BARRIER yang menghalangi cahaya. Jika mereka mencoba membuat ulang +BARRIER gadis itu, berapa banyak waktu yang mereka butuhkan?
+
 Jika sihir yang dia kuasai adalah semacam sihir tempur, dia mungkin bisa menghancurkan kota dengan mudah dan itu menakutkan.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+carol"Aku masih terus meneliti ini, jadi Aku mungkin bisa mengubahnya menjadi item sihir suatu hari nanti.
+Meskipun ketika saatnya tiba, Aku tetap membutuhkan izinnya."
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+celia"Untuk berpikir bahwa hari pembatasan penggunaan ruang penelitianmu membuatmu frustrasi ..."
 
-"Mengenai ini, Aku masih terus meneliti ini, jadi Aku mungkin bisa mengubahnya menjadi item sihir suatu hari nanti.
-Meskipun saat itu tiba, Aku akan membutuhkan izinnya. "
-" Untuk berpikir bahwa hari pembatasan penggunaan ruang penelitian Kamu membuat frustrasi sebenarnya akan datang ... "
-" Aku tidak keberatan jika Kamu mencabut batasan, Kamu tahu? "
-" Itu tidak bisa jadi."
+carol"Aku tidak keberatan jika Kamu mencabut batasannya lho..."
 
-Aku benar-benar berharap dia akan melakukannya tetapi dia tidak jatuh untuk itu.
+celia"Itu tidak akan terjadi."
+
+Aku benar-benar berharap dia akan melakukannya tetapi dia tidak termakan untuk itu.
+
 Dia mungkin berpikir bahwa dia tidak akan bisa menghadapi gadis itu jika dia tidak menepati janji ini.
-Menghancurkan hubungan kami dengan gadis itu bukanlah niat Aku di sana, jadi Aku menahan diri di sini.
 
-"Jadi setelah itu, masih ada satu sihir lagi yang Aku dapatkan darinya."
-"Pada akhirnya, Aku masih tidak akan bisa menggunakannya, kan?"
-"Nah yang ini juga cukup sulit, tapi itu sangat berguna. "
+Menghancurkan hubungan kami dengan gadis itu bukanlah niatku, jadi Aku menahan diri di sini.
 
-Dan karena bukti berbicara lebih baik daripada debat, Aku mengucapkan mantra dan menghujani Celia dengan udara hangat.
+carol"Jadi setelah itu, masih ada satu sihir lagi yang Aku dapatkan darinya."
+
+celia"Pada akhirnya, Aku masih tidak akan bisa menggunakannya, kan?"
+
+carol"Nah yang ini juga cukup sulit, tapi itu sangat berguna."
+
+Dan karena bukti nyata lebih baik daripada debat, Aku mengucapkan mantra dan menghujani Celia dengan udara hangat.
+
 Ya, Aku bermaksud agar hangat tetapi hanya sedikit hangat. Menyesuaikan bagian ini merepotkan.
-Satu kesalahan dan Aku mungkin akan membakar tenggorokan Celia dan bahkan menyulut rambutnya. Jadi daripada mengambil risiko itu, Aku kira lebih aman membiarkannya dalam keadaan suam-suam kuku.
 
-"Apa ini?"
-"Dia bilang itu sihir untuk mengeringkan rambut. Bagaimanapun, itu merusak rambut jika dibiarkan basah.
-Awalnya, ini akan sedikit lebih panas, tetapi menyesuaikannya itu sulit. Satu langkah salah dan Aku mungkin tidak sengaja membunuh Kamu.
-Ketika dia menggunakan ini, dia mengeringkan rambut panjangnya hanya dalam 10 menit. "
-" Katakan, tidak bisakah kamu mengubahnya menjadi item ajaib? "
-" Aku ingin tahu. Ia menggunakan sihir api dan angin, jadi cukup sulit untuk membuatnya.
-Sebaliknya, bukankah lebih baik jika Kamu belajar sihir juga? "
-" Mempertimbangkan bagaimana mungkin ada sihir yang lebih nyaman muncul di masa depan, itu mungkin bukan ide yang buruk ...... "
+Satu kesalahan saja Aku mungkin akan membakar tenggorokan Celia dan bahkan menyulut rambutnya. Jadi daripada mengambil risiko itu, Aku kira lebih aman membiarkannya dalam keadaan hangat.
 
-Sepertinya mungkin saja untuk menyeret Celia ke dalam lubang sihir.
-Pada hari itu, Aku mengajarinya banyak hal tentang sihir sehingga dia tidak bisa cukup tidur.
+celia"Apa ini?"
+
+carol"Dia bilang itu sihir untuk mengeringkan rambut. Bagaimanapun juga, rambut akan rusak jika dibiarkan basah. Awalnya, ini sedikit lebih panas, tetapi menyesuaikannya itu sulit. Satu langkah salah dan Aku mungkin tidak sengaja membunuhmu. Ketika dia menggunakan ini, dia mengeringkan rambut panjangnya hanya dalam 10 menit."
+
+celia"hey, tidak bisakah kamu mengubahnya menjadi item sihir?"
+
+carol"entahlah. Ia menggunakan sihir api dan angin, jadi cukup sulit untuk membuatnya. Sebaliknya, bukankah lebih baik jika Kamu belajar sihir juga?"
+
+celia"Mempertimbangkan bagaimana mungkin ada sihir yang lebih nyaman muncul di masa depan, itu mungkin bukan ide yang buruk ......"
+
+Sepertinya aku mungkin bisa menyeret Celia ke dalam lubang sihir.
+
+Pada hari itu, Aku mengajarinya banyak hal tentang sihir sehingga dia tidak memiliki waktu tidur yang cukup.
