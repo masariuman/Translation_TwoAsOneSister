@@ -14,3 +14,6 @@ Glosarium
 [7]	FLAME SORCERER : Penyihir Api; ICE SORCERER : Penyihir Air.
 [8]	FAIRAS BAALARU FRALIE : Ucapan Mantra Ketika Ingin Menggunakan Sihir, Secara Teknis Memiliki Arti; Fairas : Api; BAALARU : Jadilah Bola; FRALIE : Terbang; Jadi bisa Seperti "API, JADI BOLA, TERBANG".
 [9]	CONCEALMENT : Skill Penyembunyian, Skill yang digunakan untuk menyembunyikan keberadaan diri agar tidak terdeteksi oleh orang lagin, baik dalam bentuk keberadaan ataupun tidak terlihat.
+
+[1] HUNTER : Pemburu
+
