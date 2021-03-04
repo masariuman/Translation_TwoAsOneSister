@@ -183,26 +183,36 @@ Terencio bertanya padanya berapa banyak yang harus kita berikan tetapi akan lebi
 
 Ketika Aku akan memberikan 10 persen dari hadiah, Terencio mengatakan sesuatu yang tidak pantas.
 
-"Karena dia mengatakan bahwa 10 persen sudah cukup, itu sudah cukup baik.
-Kami membutuhkan uang ini. Mengapa keluar dari cara Kamu untuk membuat kami kehilangan lebih banyak uang? "
-" Carol-san menyelamatkan kami. Jika dia tidak ada di sana saat itu, maka kita mungkin sudah mati.
-Jika kita lepas kendali di atas itu, maka kita tidak akan belajar pelajaran apa pun dari ini. "
-" Pelajaran tidak bisa membeli obat. "
-" Begitu. Kemudian dalam hal itu, Aku akan membayarnya sendiri. "
-" Lalu lakukan itu. "
+"Karena dia mengatakan bahwa 10 persen sudah cukup, itu sudah cukup. kita membutuhkan uang ini. Mengapa keluar dari caramu untuk membuat kita kehilangan lebih banyak uang?"
+
+"Carol-san menyelamatkan kita. Jika dia tidak ada di sana saat itu, kita mungkin sudah mati. Jika kita lepas kendali karena itu, kita tidak akan belajar pelajaran apa pun dari ini."
+
+"Pelajaran tidak bisa membeli obat."
+
+"Begitu... dalam hal itu, Aku akan membayarnya sendiri."
+
+"kalau begitu lakukanlah itu."
 
 Jika dia memiliki uang sebanyak itu, dia seharusnya memberikannya untuk membayar obat.
-Pertama-tama, karena satu-satunya yang hampir mati adalah mereka bertiga, maka aneh kalau porsiku juga berkurang.
-Wanita penyihir itu berkata, "Apakah Kamu selesai berdiskusi?" Dan mendesak kami, jadi Aku mengeluarkan 10 persen dari kantong dan memberikannya kepadanya.
+
+Karena satu-satunya yang hampir mati adalah mereka bertiga, maka aneh kalau porsiku juga berkurang.
+
+Wanita penyihir itu berkata, "Apakah kalian selesai berdiskusi?" Dan mendesak kami, jadi Aku mengeluarkan 10 persen dari kantong dan memberikannya kepadanya.
+
 Terencio akan memberikan lebih banyak uang daripada yang Aku serahkan tetapi Perla dan Ilda menghentikannya dan perlahan-lahan mengambil uang mereka juga.
+
 Setelah mereka semua menyerahkan uang mereka, mereka membungkuk padanya lagi.
 
 Setelah kami selesai berbicara dengan wanita itu, kami kembali ke penginapan kami dan berkumpul di kamar tempat Terencio dan aku menginap.
+
 Sebelumnya, lebih mudah karena kami tidak perlu memutuskan ruangan mana untuk berkumpul tetapi sekarang sangat menjengkelkan karena kami harus memikirkannya setiap saat.
-Alasan kami selalu melakukan ini adalah untuk membagikan hadiah kami. Sampai sekarang, setelah mengurangi apa yang kami butuhkan untuk keperluan pesta, hadiah yang tersisa akan dibagi menjadi 5 untuk memasukkan adik perempuanku. Tetapi jika kita tidak memiliki cukup uang untuk membayar kebutuhan pesta, masing-masing dari kita memberikan sejumlah uang secara adil. Ketika itu terjadi, kami mengambil sebagian dari bagian adik perempuan Aku juga.
+
+Alasan kami selalu melakukan ini adalah untuk membagikan hadiah kami. Sampai sekarang, setelah mengurangi apa yang kami butuhkan untuk keperluan party, hadiah yang tersisa akan dibagi menjadi 5 untuk termasuk adik perempuanku. Tetapi jika kami tidak memiliki cukup uang untuk membayar kebutuhan party, masing-masing dari kami memberikan sejumlah uang secara adil. Ketika itu terjadi, kami mengambil sebagian dari bagian adik perempuanku juga.
+
 Tapi kali ini, Aku pasti tidak akan menerima distribusi yang setara.
 
 "Aku mengambil setengah dari hadiah yang tersisa kali ini, oke?"
+
 "Apa sih yang kamu bicarakan?"
 
 Setelah mendengar apa yang Aku katakan, Ilda berbicara kembali kepada Aku. Meskipun itu adalah kesalahan mereka karena berjuang sehingga kami tidak dapat menyelesaikan permintaan, apa sih yang kamu bicarakan? Itu baris Aku.
