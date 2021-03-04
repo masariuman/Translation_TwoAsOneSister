@@ -106,28 +106,34 @@ dan, kejadian itu terjadi.
 
 Hari itu, Aku menerima salah satu permintaan yang lebih sulit di rank E, permintaan Pemimpin Goblin.
 
-Jika kita bisa berulang kali mengalahkan Pemimpin Goblin, maka aku seharusnya bisa membeli obat adik perempuanku dalam waktu singkat. Selain itu, aku, Pendekar Pedang Besar, mungkin bisa mengalahkan Pemimpin Goblin dengan mudah.
-Berpikir demikian, Aku menerima permintaan yang berbeda, bukan yang kami putuskan. Tiga lainnya mendesak Aku untuk menjawab mengapa Aku melakukannya, tetapi kami tidak dapat mengubah apa yang sudah Aku terima.
+Jika kita bisa berulang kali mengalahkan Pemimpin Goblin, maka aku seharusnya bisa membeli obat adik perempuanku dalam waktu singkat. Selain itu, aku, greater swordman, mungkin bisa mengalahkan Pemimpin Goblin dengan mudah.
+
+Berpikir demikian, Aku menerima permintaan yang berbeda, bukan yang kami putuskan. Tiga lainnya mendesakku untuk menjawab mengapa Aku melakukannya, tetapi kami tidak dapat mengubah apa yang sudah Aku terima.
+
 Jika kami membatalkan permintaan, akan ada penalti dan itu akan memengaruhi catatan kami sebagai Hunter. Karena itu, mereka akhirnya menyerah dan kami pergi untuk mengalahkan Pemimpin Goblin.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
-
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
-
 Kami mencari Pemimpin Goblin sejak pagi dan, setelah istirahat, akhirnya kami menemukan Pemimpin Goblin di sore hari bersama dengan beberapa goblin lainnya.
-Tetap saja, Aku segera mencari pemimpin. Dalam situasi seperti ini, mereka mengatakan segala sesuatu akan mudah selama Kamu menghancurkan ketua kelompok terlebih dahulu.
+
+Tetap saja, Aku segera mencari pemimpin. Dalam situasi seperti ini, segala sesuatu akan mudah selama Kamu menghancurkan ketua kelompok terlebih dahulu.
+
 Dan bukan untuk menyombongkan diri tapi entah bagaimana aku tahu monster mana yang terkuat di antara kerumunan.
+
 Berkat kemampuan ini, itu akan aman karena aku, yang terkuat di party, akan melawan musuh terkuat.
 
 Jika Aku bisa mengalahkan musuh dengan cepat maka Aku bisa mendukung yang lain setelahnya, jadi Aku pikir ini adalah pilihan terbaik.
-Rasanya seperti ada lebih banyak massa di sekitar waktu ini, tetapi tidak apa-apa jika aku mengalahkan Pemimpin Goblin segera dan membantu yang lain setelahnya. Itulah yang Aku pikir.
 
-Namun, Pemimpin Goblin ini lebih kuat dari yang Aku harapkan.
-Pedang yang dimilikinya compang-camping dan lebih pendek dariku tapi dia dengan mudah memblokir dan menghindari seranganku.
-Dan meskipun itu lebih besar dari goblin biasanya, itu masih lebih pendek dariku.
-Aku, Pendekar Pedang Agung, kesulitan melawannya? Maka mungkin monster ini sebenarnya bukanlah Pemimpin Goblin, tetapi High Goblin atau Kapten Goblin yang lebih kuat.
+Rasanya seperti ada lebih banyak monster, tetapi tidak apa-apa jika aku segera mengalahkan Pemimpin Goblin dan membantu yang lain setelahnya. Itulah yang Aku pikir.
 
-Tetapi bahkan jika itu masalahnya, kemampuan kita sama. Akan sulit untuk menang dengan segera, tetapi Aku tidak akan kalah.
+tapi, Pemimpin Goblin ini lebih kuat dari yang Aku harapkan.
+
+Pedang yang dimilikinya compang-camping dan lebih pendek dariku tapi dia dengan mudah menangkis dan menghindari seranganku.
+
+Dan meskipun monster itu lebih besar dari goblin biasanya, monster itu masih lebih pendek dariku.
+
+Aku, greater swordman, kesulitan melawannya? mungkin monster ini sebenarnya bukanlah Pemimpin Goblin, tetapi High Goblin atau Kapten Goblin yang lebih kuat.
+
+Tetapi bahkan jika itu masalahnya, kemampuan kami sama. sulit untuk menang dengan cepat, tapi Aku tidak akan kalah.
+
 Kemudian dalam hal ini, Aku hanya perlu menunggu sampai Terencio dan yang lainnya mengalahkan goblin lainnya. Setelah itu menjadi 2 lawan 1, maka kalah tidak mungkin dilakukan.
 
 Dan kemudian titik balik pertempuran segera datang. Sebuah panah terbang dari belakangku dan menembus mata pemimpin, jadi menggunakan kesempatan itu aku mengayunkan pedangku dengan semua yang aku miliki.
