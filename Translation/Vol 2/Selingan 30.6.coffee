@@ -23,59 +23,85 @@ Bahkan tanpa melakukan ini, Aku berpikir bahwa Aku, memiliki job yang Lebih Besa
 Teren dan yang lainnya terlihat sedikit terkejut tetapi mereka setuju pada akhirnya. Perla tersenyum dan mengatakan kepadaku bahwa dia berharap adik perempuanku segera sembuh dan mendorongku dari belakang.
 
 Perla bertubuh mungil, tidak seperti Ilda yang tinggi, dan sangat baik seperti penampilannya.
-Senyumannya telah menyelamatkan Aku berkali-kali di masa lalu. Dan Aku yakin itu akan terus menyelamatkan Aku bahkan di masa depan.
+
+Senyumannya telah menyelamatkanku berkali-kali di masa lalu. Dan Aku yakin itu akan terus menyelamatkanku bahkan di masa depan.
 
 ◇
 
 Ketika kami berangkat ke Sannois, orang tua kami memberi kami 1 koin emas.
-Dengan kata lain, kami memiliki masing-masing 2 koin perak besar dan 5 koin perak. Ini adalah anggaran kami untuk saat ini, tetapi ini bahkan tidak akan menahan kami di penginapan selama sebulan. Jika kita mengurangi pengeluaran kita, itu akan bertahan sekitar 20 hari di penginapan murah ketika termasuk makanan kita. Dan kami memiliki senjata, meskipun kualitasnya tidak bagus, jadi kami tidak perlu khawatir tentang itu.
-Aku ingin menggunakan koin emas ini untuk obat adik perempuan Aku tetapi jelas anggota partai lain tidak akan setuju untuk itu.
+
+Dengan kata lain, kami memiliki masing-masing 2 koin perak besar dan 5 koin perak. Ini adalah anggaran kami untuk saat ini, tetapi ini bahkan tidak cukup untuk kami menginap selama sebulan. Jika kami mengurangi pengeluaran kami, itu akan bertahan sekitar 20 hari di penginapan murah dan itu termasuk makanan kami. Dan kami memiliki senjata, meskipun kualitasnya tidak bagus, jadi kami tidak perlu khawatir tentang itu.
+
+Aku ingin menggunakan koin emas ini untuk obat adik perempuanku tetapi jelas anggota party lain tidak akan setuju untuk itu.
+
 Itu karena jika kami tidak mendapatkan mata pencaharian yang stabil dalam 20 hari kami masih punya uang, kami tidak akan dapat melanjutkan sebagai Hunter.
 
-Kami memulai dari peringkat-G dan tujuan kami adalah mencapai peringkat E. Aku tahu bahwa tidak mungkin untuk segera memulai peringkat-E, jadi rencananya adalah menjadi peringkat-F secepat mungkin dan menghasilkan uang sebanyak mungkin.
-Dan kemudian, jika kita bisa mencapai peringkat-E sebelum kita kehabisan uang, kita akan dapat memanfaatkan Pekerjaan kita dengan baik untuk mendapatkan lebih banyak uang. Aku benar-benar ingin cepat mendapatkan bayaran yang cukup untuk obatnya tapi jika kita bisa naik peringkat, akan mudah menabung selama kita tidak menyia-nyiakannya.
+Kami memulai dari rank G dan tujuan kami adalah mencapai rank E. Aku tahu bahwa tidak mungkin untuk segera memulai rank E, jadi rencananya adalah menjadi rank F secepat mungkin dan menghasilkan uang sebanyak mungkin.
 
-Itulah yang Aku pikirkan, tetapi sepertinya ada sistem sehingga Hunter dapat mendaftar sebagai peringkat-E sejak awal. Ini hanya bisa dilalui oleh orang-orang dengan kekuatan yang cukup tapi aku, Pendekar Pedang Agung, seharusnya bisa lulus ujian dengan mudah.
-Mereka meminta Aku untuk membuktikan kekuatan Aku, jadi Aku memberi tahu mereka Pekerjaan Aku dan Aku diizinkan untuk mengikuti tes.
-Akhirnya, Aku gagal dalam ujian. Tetapi mereka menjamin bahwa Aku memiliki beberapa janji dan mungkin akan mencapai peringkat-E dengan cepat, jadi Aku memutuskan untuk terus bekerja keras.
+Dan kemudian, jika kami bisa mencapai rank E sebelum kami kehabisan uang, kami akan dapat memanfaatkan job kami dengan baik untuk mendapatkan lebih banyak uang. Aku benar-benar ingin cepat mendapatkan bayaran yang cukup untuk obatnya tapi jika kami bisa naik rank, akan mudah menabung selama kami tidak menyia-nyiakannya.
 
-Kami berempat mulai dari G-rank dan bekerja untuk membantu di sekitar kota.
+Itulah yang Aku pikirkan, tetapi sepertinya ada sistem sehingga Hunter dapat mendaftar sebagai rank E sejak awal. Ini hanya bisa dilalui oleh orang-orang dengan kekuatan yang cukup tapi aku, Greater Swordman, seharusnya bisa lulus ujian dengan mudah.
+
+Mereka memintaku untuk membuktikan kekuatanku, jadi Aku memberi tahu mereka jobku dan Aku diizinkan untuk mengikuti tes.
+
+tapi, Aku gagal dalam ujian. Tetapi mereka menjamin bahwa Aku memiliki potensi dan mungkin akan mencapai rank E dengan cepat, jadi Aku memutuskan untuk terus bekerja keras.
+
+Kami berempat mulai dari rank G dan bekerja untuk membantu di sekitar kota.
+
 Masing-masing dari kami memperoleh sekitar 2-3 koin tembaga sehari. Menggabungkan semua penghasilan kami, kami memiliki sekitar 1 koin perak. Kami berempat membutuhkan sekitar 5 koin perak sehari, jadi kami hanya memiliki cukup untuk 4 hari bahkan setelah 20 hari bekerja.
-Tetap saja, orang-orang dari Guild Hunter mungkin telah memahami situasi kami, karena kami berhasil mencapai peringkat-F setelah sekitar 10 hari.
 
-Bahkan setelah kami mencapai peringkat F, kami umumnya masih menerima permintaan secara terpisah. Itu tergantung pada permintaan, tetapi sekarang kami dapat memperoleh setidaknya 5 koin tembaga, dan terkadang hampir 1 koin perak, sehari.
-Terlebih lagi, jika kita bisa berburu binatang, kita bisa mendapatkan lebih banyak uang sebagai bonus.
-Karena sekarang kami bisa pergi ke luar kota untuk berlatih pertarungan satu sama lain, kami telah mengurangi waktu yang kami habiskan untuk melakukan permintaan dan melakukan pelatihan tempur untuk mempersiapkan ujian peringkat-E. Kami sekarang terbiasa bergerak keluar, jadi jika kami bisa lulus ujian, kami akan mencapai peringkat-E.
+Tetap saja, orang-orang dari Guild Hunter mungkin telah memahami situasi kami, karena kami berhasil mencapai rank F setelah sekitar 10 hari.
 
-Kami berempat menjadi peringkat-E setahun setelah itu. Selama tahun itu, yang pada dasarnya kami lakukan hanyalah bekerja, berlatih, dan tidur, kami makan di waktu luang. Kami memutuskan untuk menurunkan masa inap kami dan pindah ke kamar tempat kami berempat berkumpul bersama. Sementara itu, Aku terus berhubungan dengan keluarga Aku. Jadi meski hanya lewat surat, aku selalu merasa lega saat tahu adikku baik-baik saja. Tetap saja, Aku berharap Aku dapat mengirimkan cukup uang untuk membeli obatnya segera.
+Bahkan setelah kami mencapai rank F, kami umumnya masih menerima permintaan secara terpisah. Itu tergantung pada permintaan, tetapi sekarang kami dapat memperoleh setidaknya 5 koin tembaga, dan terkadang hampir 1 koin perak, sehari.
 
-Aku bekerja keras untuk mencapai sejauh ini. Aku sangat senang kami mencapai peringkat-E. Tinggal satu peringkat lagi dan kita harus bisa memiliki kehidupan yang cukup stabil. Begitu kita mencapai peringkat D, kita bisa bangga menyebut diri kita Hunter.
-Meskipun benar bahwa butuh waktu bertahun-tahun untuk naik peringkat dari sini; semakin kuat Kamu, semakin pendek waktu yang dibutuhkan.
-Jika kita bisa mendapatkan sekitar 2 koin perak sehari dari hadiah dan batu ajaib, Aku harus bisa menabung untuk obat adik perempuan Aku.
-Dalam hal ini, Aku harus bisa menghemat hingga 3 koin emas dalam setengah tahun.
+Terlebih lagi, jika kami bisa berburu binatang, kami bisa mendapatkan lebih banyak uang sebagai bonus.
 
-Itulah yang Aku pikirkan, tetapi masalah terjadi dalam waktu sebulan setelah kami menjadi peringkat-E.
+Karena sekarang kami bisa pergi ke luar kota untuk berlatih, kami telah mengurangi waktu yang kami habiskan untuk melakukan permintaan dan melakukan pelatihan tempur untuk mempersiapkan ujian rank E. Kami sekarang terbiasa bergerak keluar, jadi jika kami bisa lulus ujian, kami akan mencapai rank E.
+
+Kami berempat menjadi rank E setahun setelah itu. Selama tahun itu, yang pada dasarnya kami lakukan hanyalah bekerja, berlatih, dan tidur, kami makan di waktu luang. Kami memutuskan untuk menurunkan gaya hidup kami dan pindah ke kamar dimana kami berempat berkumpul bersama. Sementara itu, Aku terus menghubungi keluargaku. Jadi meski hanya lewat surat, aku selalu merasa lega saat tahu adikku baik-baik saja. Tetap saja, Aku berharap Aku dapat mengirimkan cukup uang untuk membeli obatnya segera.
+
+Aku bekerja keras untuk mencapai sejauh ini. Aku sangat senang kami mencapai rank E. Tinggal satu rank lagi dan kami bisa memiliki kehidupan yang cukup stabil. Begitu kami mencapai rank D, kami bisa bangga menyebut diri kami Hunter.
+
+Meskipun benar bahwa butuh waktu bertahun-tahun untuk naik rank dari sini; semakin kuat Kamu, semakin pendek waktu yang dibutuhkan.
+
+Jika kami bisa mendapatkan sekitar 2 koin perak sehari dari hadiah dan batu magic, Aku harus bisa menabung untuk obat adik perempuanku.
+
+Dalam hal ini, Aku bisa menghemat hingga 3 koin emas dalam setengah tahun.
+
+Itulah yang Aku pikirkan, tetapi masalah terjadi dalam waktu sebulan setelah kami menjadi rank E.
+
 Ilda dan Perla mengatakan bahwa mereka ingin pindah. Sepertinya mereka ingin kami mengambil dua kamar untuk dua orang daripada tinggal di satu kamar untuk empat orang.
-Jika kita melakukan itu, itu akan menghabiskan lebih banyak uang. Aku benar-benar menentangnya tetapi karena Teren memihak gadis-gadis itu, kami akhirnya mendapatkan dua kamar untuk dua orang.
+
+Jika kami melakukan itu, itu akan menghabiskan lebih banyak uang. Aku benar-benar menentangnya tetapi karena Teren memihak gadis-gadis itu, kami akhirnya menyewa dua kamar untuk dua orang.
 
 Dan bahkan setelah itu, lebih banyak hal tak terduga terus terjadi.
-Pertama-tama, partai kami akhirnya memutuskan bahwa kami harus menargetkan gerombolan kecil goblin sebagai aturan umum. Untuk permintaan tersebut, kami akan menerima 【Kalahkan para goblin yang merusak ladang】 dan sebagainya, tapi hanya ada beberapa goblin yang muncul dan hadiahnya juga tidak seberapa.
-Ini lebih baik daripada permintaan peringkat-F tetapi Aku tidak bisa menabung, jadi itu benar-benar membuat frustrasi. Paling buruk, kami bahkan mungkin mengambil pemusnahan lendir yang tidak jauh berbeda dari permintaan peringkat-F sebagai hadiah.
+
+Pertama-tamaa, party kami akhirnya memutuskan bahwa kami harus menargetkan gerombolan kecil goblin sebagai aturan umum. Untuk permintaan tersebut, kami akan menerima 【Kalahkan para goblin yang merusak ladang】 dan sebagainya, tapi hanya ada beberapa goblin yang muncul dan hadiahnya juga tidak seberapa.
+
+Ini lebih baik daripada permintaan rank F tetapi Aku tidak bisa menabung, jadi itu benar-benar membuat frustrasi. Paling buruk, kami bahkan mungkin mengambil pemusnahan slime yang tidak jauh berbeda dari permintaan rank F sebagai hadiah.
 
 Selain itu, sejak kami mulai berburu monster, kerusakan senjata kami menjadi masalah.
-Kami belajar bagaimana melakukan perawatan pada senjata kami selama 5 tahun yang lalu di desa tapi tetap saja; semakin banyak kita menggunakan senjata kita, semakin usang mereka.
+
+Kami belajar bagaimana melakukan perawatan pada senjata kami 5 tahun yang lalu di desa tapi tetap saja; semakin banyak kami menggunakan senjata kami, semakin usang mereka.
+
 Pedang panjangku, pedang satu tangan Teren dan perisainya, dan panah Ilda terus-menerus rusak, jadi aku tidak bisa menghemat banyak uang.
-Mengirim surat kepada adik perempuan Aku sudah menghabiskan banyak biaya, kapan Aku bisa menghemat hingga 3 koin emas?
+
+Mengirim surat kepada adik perempuanku sudah menghabiskan banyak biaya, kapan Aku bisa menghemat hingga 3 koin emas?
 
 ◇
+
 Dan saat kami melanjutkan hidup ini, 2 tahun telah berlalu dan kami sekarang berusia 18 tahun.
-Adik perempuanku akan segera berumur 15 tahun. Sebelumnya, Aku ingin membelikannya obat. Jadi dengan pemikiran itu, Aku bertanya kepada party apakah kami dapat menerima permintaan peringkat-E yang paling sulit tetapi mereka tidak mau menerimanya.
+
+Adik perempuanku akan segera berumur 15 tahun. Sebelumnya, Aku ingin membelikannya obat. Jadi dengan pemikiran itu, Aku bertanya kepada party apakah kami dapat menerima permintaan rank E yang paling sulit tetapi mereka tidak mau menerimanya.
+
 Lebih dari itu, mereka bahkan berbicara tentang memikirkan kembali distribusi hadiah kami belakangan ini.
 
-Mereka berhenti ketika Aku memberi tahu mereka bahwa mereka berjanji akan memberi Aku lebih banyak untuk adik perempuan Aku, tetapi suasana pesta kami tidak baik.
-Terencio mulai memerintah kami saat kami bertarung melawan monster akhir-akhir ini, jadi aku mengabaikannya dan menyerang para goblin.
-Pertama-tama, jika Terencio tidak menggunakan perisainya maka kita bisa mengurangi uang peralatan kita dan Aku akan menabung 3 koin emas sekarang.
+Mereka berhenti ketika Aku memberi tahu mereka bahwa mereka berjanji akan memberi Aku lebih banyak untuk adik perempuanku, tetapi suasana party kami tidak baik.
 
+Terencio mulai memerintah kami saat kami bertarung melawan monster akhir-akhir ini, jadi aku mengabaikannya dan menyerang para goblin.
+
+jika Terencio tidak menggunakan perisainya maka kami bisa mengurangi uang peralatan kami dan Aku akan menabung 3 koin emas sekarang.
+------
 Selama ini, kejadian itu terjadi.
 Hari itu, Aku menerima salah satu permintaan yang lebih sulit di peringkat-E, permintaan Pemimpin Goblin.
 Jika kita bisa berulang kali mengalahkan Pemimpin Goblin, maka aku seharusnya bisa membeli obat adik perempuanku dalam waktu singkat. Selain itu, aku, Pendekar Pedang Besar, mungkin bisa mengalahkan Pemimpin Goblin dengan mudah.
