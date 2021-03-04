@@ -158,22 +158,28 @@ Jadi dia mengatakan kalau mereka bertiga bertarung setengah mati hanya kepada go
 
 Karena dia mengakui kalau dia menyelamatkan mereka, kami tidak punya pilihan selain memberikan sesuatu kepada wanita ini sebagai ucapan terima kasih. Permintaan tersebut tidak dianggap gagal, tetapi tidak akan dianggap berhasil.
 
-Singkatnya, kami tidak punya pilihan selain memberinya sebagian dari hadiah. Jadi karena ini, apa gunanya aku mendapatkan permintaan hadiah sejak awal.
+Singkatnya, kami tidak punya pilihan selain memberinya sebagian dari hadiah. Jadi karena ini, apa gunanya aku mengambil permintaan ini sejak awal.
 
 Aku meraih bahu Terencio dan hendak mengeluh tetapi Terencio memelototiku seperti dia sedang melihat sampah, jadi aku tidak bisa mengatakan apa-apa.
+
 Kami menangani mayat goblin sementara Perla dan Ilda sedang berbicara dengan penyihir itu, dan Terencio dan aku menghindari saling pandang. Setelah itu, kami kembali ke guild saat masih rapuh.
+
 ◇
 
 "Dalam hal ini, permintaan ini akan diproses sebagai kesuksesan tidak resmi yang tidak tercatat.
-Kamu masih akan menerima hadiah tetapi ini tidak akan dicatat sebagai pencapaian jadi harap diingat. "
+Kamu masih akan menerima hadiah tetapi ini tidak akan dicatat sebagai pencapaian jadi tolong di ingat."
 
-Resepsionis mengatakan demikian dan menyerahkan kantong dengan hadiah.
-Itu lebih dari yang pernah kami terima sebelumnya, tetapi setengah dari ini akan jatuh ke tangan wanita penyihir itu dalam kasus terburuk. Hanya memikirkan hal itu membuatku merasa kesal.
+Resepsionis berkata demikian dan menyerahkan kantong dengan hadiah.
+
+Itu lebih dari yang pernah kami terima sebelumnya, tetapi setengah dari ini akan jatuh ke tangan wanita penyihir itu. Hanya memikirkan hal itu membuatku merasa kesal.
+
 Terencio bertanya padanya berapa banyak yang harus kita berikan tetapi akan lebih bagus jika dia mengatakan bahwa dia tidak membutuhkannya.
 
-"Hadiah peringkat-E tidak seberapa, jadi Aku tidak terlalu membutuhkannya ... Itulah yang ingin Aku katakan, tetapi tidak mengambil apa pun dalam situasi ini akan menjadi masalah juga. Jadi dengan itu, 10 persen sudah cukup. "
-" Baiklah jika Kamu berkata begitu .... "
-" Karena itu aturannya, silakan ambil setengah dari uangnya. "
+"Hadiah rank E tidak seberapa, jadi Aku tidak terlalu membutuhkannya ... Itulah yang ingin Aku katakan, tetapi tidak mengambil apa pun dalam situasi ini akan menjadi masalah juga. Jadi, 10 persen sudah cukup."
+
+"Baiklah jika Kamu berkata begitu ...."
+
+"Karena itu aturannya, silakan ambil setengah dari uangnya."
 
 Ketika Aku akan memberikan 10 persen dari hadiah, Terencio mengatakan sesuatu yang tidak pantas.
 
