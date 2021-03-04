@@ -101,9 +101,11 @@ Mereka berhenti ketika Aku memberi tahu mereka bahwa mereka berjanji akan member
 Terencio mulai memerintah kami saat kami bertarung melawan monster akhir-akhir ini, jadi aku mengabaikannya dan menyerang para goblin.
 
 jika Terencio tidak menggunakan perisainya maka kami bisa mengurangi uang peralatan kami dan Aku akan menabung 3 koin emas sekarang.
-------
-Selama ini, kejadian itu terjadi.
-Hari itu, Aku menerima salah satu permintaan yang lebih sulit di peringkat-E, permintaan Pemimpin Goblin.
+
+dan, kejadian itu terjadi.
+
+Hari itu, Aku menerima salah satu permintaan yang lebih sulit di rank E, permintaan Pemimpin Goblin.
+
 Jika kita bisa berulang kali mengalahkan Pemimpin Goblin, maka aku seharusnya bisa membeli obat adik perempuanku dalam waktu singkat. Selain itu, aku, Pendekar Pedang Besar, mungkin bisa mengalahkan Pemimpin Goblin dengan mudah.
 Berpikir demikian, Aku menerima permintaan yang berbeda, bukan yang kami putuskan. Tiga lainnya mendesak Aku untuk menjawab mengapa Aku melakukannya, tetapi kami tidak dapat mengubah apa yang sudah Aku terima.
 Jika kami membatalkan permintaan, akan ada penalti dan itu akan memengaruhi catatan kami sebagai Hunter. Karena itu, mereka akhirnya menyerah dan kami pergi untuk mengalahkan Pemimpin Goblin.
