@@ -2,12 +2,14 @@ INTERLUDE: THE BOY, THE PARTY, AND THE BETRAYAL　※BRASS POV
 
 Kami berempat berasal dari desa yang sama. Kami sering bermain bersama ketika kami masih kecil dan karena kami semua mendapatkan job Tempur saat kami berusia 10 tahun, kami berjanji untuk menjadi Hunter bersama.
 
-Di desa, pengecekan Job dilakukan setahun sekali dan semua anak yang bisa mengikutinya dikumpulkan ketika waktunya. Itulah mengapa jika Kamu tidak beruntung, Kamu mungkin menghabiskan hampir setahun penuh dengan cemas menunggu untuk mengetahui apa sebenarnya Pekerjaan Kamu.
+Di desa, pengecekan Job dilakukan setahun sekali dan semua anak yang bisa mengikutinya dikumpulkan ketika waktunya. Itulah mengapa jika Kamu tidak beruntung, Kamu mungkin menghabiskan hampir setahun penuh dengan cemas menunggu untuk mengetahui apa sebenarnya jobmu.
 
-Selain itu, mereka tidak terlalu merahasiakan hasil, jadi akan segera dibicarakan jika ada Pekerjaan yang tidak biasa.
+Selain itu, mereka tidak terlalu merahasiakan hasil, jadi akan segera dibicarakan jika ada job yang tidak biasa.
 
-Karena itu, Pekerjaan kami segera diketahui semua orang juga.
-Aku, Brass, adalah seorang Greater Swordsman, Terencio adalah seorang Intermediate Warrior, Ilda adalah seorang Intermediate Archer, dan Perla adalah seorang Lesser, tapi masih jarang, Water Sorcerer. Kami sangat seimbang, dengan masing-masing dua barisan depan dan penjaga belakang, dan karena Aku, dengan Pekerjaan Besar Aku, berada di sini juga, menjadi Hunter top bukan hanya mimpi yang jauh.
+Karena itu, job kami segera diketahui semua orang juga.
+
+Aku dan Brass, adalah seorang +GREATER SWORDSMAN, Terencio adalah seorang +INTERMEDIATE WARRIOR, Ilda adalah seorang +INTERMEDIATE ARCHER, dan Perla adalah seorang +LESSER, tapi masih langka, +WATER SORCERER. Kami sangat seimbang, dengan masing-masing dua barisan depan dan penjaga belakang, dan karena Aku, dengan job Besarku, berada di sini juga, menjadi Hunter top bukan hanya mimpi yang jauh.
+
 Dengan desa yang memiliki harapan tinggi untuk kami juga, kami memutuskan untuk meninggalkan desa ketika kami mencapai usia 15 dan pergi ke Kota Sannois untuk menjadi Hunter.
 
 Tetapi ketika Aku berusia 14 tahun, adik perempuan Aku jatuh sakit. Itu bukan penyakit yang tidak bisa disembuhkan, tapi obatnya membutuhkan 3 koin emas.
