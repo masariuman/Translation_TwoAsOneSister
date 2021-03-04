@@ -1,6 +1,7 @@
 INTERLUDE: THE BOY, THE PARTY, AND THE BETRAYAL　※BRASS POV
 
 Kami berempat berasal dari desa yang sama. Kami sering bermain bersama ketika kami masih kecil dan karena kami semua mendapatkan Pekerjaan Tempur saat kami berusia 10 tahun, kami berjanji untuk menjadi Hunter bersama.
+
 Di desa, penilaian Job dilakukan setahun sekali dan semua anak yang bisa mengambilnya dikumpulkan selama waktu itu. Itulah mengapa jika Kamu tidak beruntung, Kamu mungkin menghabiskan hampir setahun penuh dengan cemas menunggu untuk mengetahui apa sebenarnya Pekerjaan Kamu.
 Selain itu, mereka tidak terlalu merahasiakan hasil, jadi akan segera dibicarakan jika ada Pekerjaan yang tidak biasa.
 
