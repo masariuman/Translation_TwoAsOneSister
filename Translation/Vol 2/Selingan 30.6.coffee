@@ -134,21 +134,30 @@ Aku, greater swordman, kesulitan melawannya? mungkin monster ini sebenarnya buka
 
 Tetapi bahkan jika itu masalahnya, kemampuan kami sama. sulit untuk menang dengan cepat, tapi Aku tidak akan kalah.
 
-Kemudian dalam hal ini, Aku hanya perlu menunggu sampai Terencio dan yang lainnya mengalahkan goblin lainnya. Setelah itu menjadi 2 lawan 1, maka kalah tidak mungkin dilakukan.
+Kemudian dalam hal ini, Aku hanya perlu menunggu sampai Terencio dan yang lainnya mengalahkan goblin lainnya. Setelah itu menjadi 2 lawan 1, jadi tidak mungkin kalah.
 
-Dan kemudian titik balik pertempuran segera datang. Sebuah panah terbang dari belakangku dan menembus mata pemimpin, jadi menggunakan kesempatan itu aku mengayunkan pedangku dengan semua yang aku miliki.
+kemudian titik balik pertempuran segera datang. Sebuah panah terbang dari belakangku dan menembus mata pemimpin goblin, dengan menggunakan kesempatan itu aku mengayunkan pedangku dengan semua yang aku miliki.
+
 Aku tidak bisa memotong kepalanya tetapi dampaknya cukup untuk membunuh goblin.
+
 Setelah melihat Pemimpin Goblin jatuh, aku menoleh ke yang lain.
-Dan yang Aku lihat adalah anggota party Aku yang biasa bersama dengan seorang wanita. Menilai dari fakta bahwa dia memakai kacamata berlensa dan tongkat, menurutku dia adalah seorang penyihir. Dia mungkin berusia sekitar 20 tahun.
+
+Dan yang Aku lihat adalah anggota partyku yang biasa bersama dengan seorang wanita. Menilai dari fakta bahwa dia memakai kacamata berlensa dan tongkat, menurutku dia adalah seorang penyihir. Dia mungkin berusia sekitar 20 tahun.
 
 Terencio menundukkan kepalanya kepada orang itu dan Perla menatapnya dengan kagum.
-Aku tidak mengerti situasinya jadi Aku melihat sekeliling dan melihat beberapa goblin dengan panah es mencuat dari kepala mereka.
+
+Aku tidak mengerti situasinya jadi Aku melihat sekeliling dan melihat beberapa goblin dengan panah es di kepala mereka.
+
 Seorang Penyihir Air seperti Perla mungkin bisa melakukan ini tapi sihirnya tidak sekuat ini.
+
 Dengan kata lain, wanita penyihir itu mengalahkan mereka.
 
-Aku menuju ke Terencio dan bertanya kepadanya apa yang terjadi dan dia mengatakan kepada Aku bahwa dia menyelamatkan mereka.
-Jadi dia bermaksud mengatakan bahwa mereka bertiga bertengkar hanya dengan goblin?
-Karena dia mengakui bahwa dia menyelamatkan mereka, kami tidak punya pilihan selain memberikan sesuatu kepada wanita ini sebagai ucapan terima kasih. Permintaan tersebut tidak dianggap gagal, tetapi tidak akan dianggap berhasil.
+Aku menuju ke Terencio dan bertanya kepadanya apa yang terjadi dan dia mengatakan kepadaku kalau dia menyelamatkan mereka.
+
+Jadi dia mengatakan kalau mereka bertiga bertarung setengah mati hanya kepada goblin?
+
+Karena dia mengakui kalau dia menyelamatkan mereka, kami tidak punya pilihan selain memberikan sesuatu kepada wanita ini sebagai ucapan terima kasih. Permintaan tersebut tidak dianggap gagal, tetapi tidak akan dianggap berhasil.
+
 Singkatnya, kami tidak punya pilihan selain memberinya sebagian dari hadiah. Jadi karena ini, apa gunanya aku mendapatkan permintaan hadiah sejak awal.
 
 Aku meraih bahu Terencio dan hendak mengeluh tetapi Terencio memelototiku seperti dia sedang melihat sampah, jadi aku tidak bisa mengatakan apa-apa.
