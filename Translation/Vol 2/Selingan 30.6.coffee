@@ -215,35 +215,42 @@ Tapi kali ini, Aku pasti tidak akan menerima distribusi yang setara.
 
 "Apa sih yang kamu bicarakan?"
 
-Setelah mendengar apa yang Aku katakan, Ilda berbicara kembali kepada Aku. Meskipun itu adalah kesalahan mereka karena berjuang sehingga kami tidak dapat menyelesaikan permintaan, apa sih yang kamu bicarakan? Itu baris Aku.
-Terencio mengatakan sesuatu padanya untuk menenangkannya dan Perla bergerak dengan bingung. Kemudian sepertinya Ilda yakin dengan apa yang dikatakan Terencio karena dia hanya mengangguk dalam diam.
+Setelah mendengar apa yang Aku katakan, Ilda berbicara kembali kepadaku. Meskipun itu adalah kesalahan mereka karena kesusahan melawan hanya goblin sehingga kami tidak dapat menyelesaikan permintaan, apa sih yang kamu bicarakan? Itu perkataanku.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+Terencio mengatakan sesuatu padanya untuk menenangkannya dan Perla kebingungan. sepertinya Ilda yakin dengan apa yang dikatakan Terencio karena dia hanya mengangguk dengan diam.
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
+"Jadi tidak ada yang keberatan kalau Aku mengambil setengah, ya?"
 
-"Jadi tidak ada keluhan jika Aku mengambil setengah, ya?"
 "Tidak, Aku dan Ilda tidak akan membutuhkan bagian kami juga."
-"Kamu yakin tentang itu?"
-"Ya, tapi kami akan meninggalkan pesta ini sebagai gantinya."
-"Haa? Apa yang kamu bicarakan? "
-" Aku sudah muak bekerja denganmu.
-Apalagi dengan bagaimana kita hampir mati hari ini. Semua berkat Kamu memilih permintaan yang melampaui level kami. "
-" Ini salah Kamu karena tidak bisa mengalahkan goblin belaka, Kamu tahu? "
-Ilda mengejekku. Merasa kesal dengan itu, aku balas memprovokasi dia. Kemudian Terencio meletakkan tangannya di bahunya dan menggelengkan kepalanya.
 
-"Jika Kamu tidak mengerti dari itu, maka Aku tidak punya apa-apa lagi untuk dikatakan.
-Dan satu hal lagi, berapa banyak yang telah Kamu tabung untuk obatnya? "
-" Masih belum cukup untuk mencapai bahkan satu koin emas. Menurut Kamu berapa biaya Aku untuk mengirim surat? "
-"Begitu . Kemudian. "
+"Kamu yakin tentang itu?"
+
+"Ya, tapi kami akan meninggalkan party ini sebagai gantinya."
+
+"Haa? Apa yang kamu bicarakan? "
+
+"Aku sudah muak bekerjasama denganmu. Apalagi dengan bagaimana kita hampir mati hari ini. Semua berkatmu memilih permintaan yang melampaui level kami."
+
+"Ini salahmu karena tidak bisa mengalahkan goblin saja"
+
+Ilda memancingku. Merasa kesal dengan itu, aku balas memprovokasi dia. Kemudian Terencio meletakkan tangannya di bahunya dan menggelengkan kepalanya.
+
+"Jika Kamu tidak mengerti itu, Aku tidak punya apa-apa lagi untuk dikatakan. Dan satu hal lagi, berapa banyak yang telah Kamu tabung untuk obatnya?"
+
+"Masih belum cukup bahkan satu koin emas. Menurutmu berapa biaya Aku untuk mengirim surat?"
+
+"Begitu ya... kalau begitu sampai jumpa."
 
 Terencio membawa barang-barangnya dan meninggalkan ruangan bersama Ilda.
+
 Sekarang hanya tinggal aku dan Perla yang tersisa jadi aku mengalihkan pandanganku padanya dan untuk beberapa alasan dia memelototiku.
 
-"Kuningan-kun. Benarkah Kamu mengirim surat ke adik perempuan Kamu? "
-" Ya. Aku perlu tahu apakah dia masih baik-baik saja. "
-"Begitu ...... meskipun semua orang sudah mengatakan bahwa kita harus mengirim surat kita bersama karena pengiriman itu mahal, kan?
-Ya. Kurasa aku juga tidak bisa tinggal bersamamu lagi, Brass-kun. Bye. "
+"Brass-kun. Benarkah Kamu mengirim surat ke adik perempuanmu?"
+
+"Ya. Aku perlu tahu apakah dia masih baik-baik saja."
+
+"Begitu ...... meskipun kita sudah sepakat kalau kita harus mengirim surat bersamaan karena pengiriman itu mahal, kan? Yah. Kurasa aku juga tidak bisa tinggal bersamamu lagi, Brass-kun. bye."
 
 Tunggu! Sebelum aku bisa menghentikannya, Perla meninggalkan ruangan.
-Hanya kantong hadiah yang tersisa di kamar, jadi bahkan ketika aku berteriak "Bukankah kita semua berjanji untuk bekerja sama untuk membeli obat adik perempuanku!?" Tidak ada yang menanggapi kata-kataku.
+
+Hanya kantong hadiah yang tersisa di kamar, bahkan ketika aku berteriak "Bukankah kita semua berjanji untuk bekerja sama untuk membeli obat adik perempuanku!?" Tidak ada yang menanggapi kata-kataku.
