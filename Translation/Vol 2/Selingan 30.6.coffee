@@ -12,12 +12,16 @@ Aku dan Brass, adalah seorang +GREATER SWORDSMAN, Terencio adalah seorang +INTER
 
 Dengan desa yang memiliki harapan tinggi untuk kami juga, kami memutuskan untuk meninggalkan desa ketika kami mencapai usia 15 dan pergi ke Kota Sannois untuk menjadi Hunter.
 
-Tetapi ketika Aku berusia 14 tahun, adik perempuan Aku jatuh sakit. Itu bukan penyakit yang tidak bisa disembuhkan, tapi obatnya membutuhkan 3 koin emas.
-Tentu, keluarga kami tidak punya banyak uang. Bahkan jika Aku meninggalkan rumah untuk mengurangi beban biaya, yang dapat dilakukan keluarga kami hanyalah menjaga adik perempuan Aku dan membayar kebutuhan.
-Karena itu, ketika kami berempat berusia 15 tahun dan meninggalkan desa untuk menjadi Hunter, Aku memohon kepada anggota partai lain untuk membuat bagian dari penghasilan kami sedikit lebih tinggi.
-Bahkan tanpa melakukan ini, Aku berpikir bahwa Aku, memiliki Pekerjaan yang Lebih Besar, secara alami memiliki porsi yang lebih besar dalam pesta tetapi kami telah bersama sejak kami masih kecil. Aku tidak ingin kita terlibat dalam perdebatan yang aneh.
+Tetapi ketika Aku berusia 14 tahun, adik perempuanku jatuh sakit. Itu bukan penyakit yang tidak bisa disembuhkan, tapi obatnya membutuhkan 3 koin emas.
 
-Teren dan yang lainnya terlihat sedikit terkejut tetapi mereka setuju pada akhirnya. Perla tersenyum ketika mengatakan kepada Aku bahwa dia berharap adik perempuan Aku segera sembuh dan mendorong Aku dari belakang.
+Tentu, keluarga kami tidak punya banyak uang. Bahkan jika Aku meninggalkan rumah untuk mengurangi beban biaya, yang dapat dilakukan keluarga kami hanyalah menjaga adik perempuanku dan membayar kebutuhan.
+
+Karena itu, ketika kami berempat berusia 15 tahun dan meninggalkan desa untuk menjadi Hunter, Aku memohon kepada anggota party lain untuk membuat bagian dari penghasilan kami sedikit lebih tinggi.
+
+Bahkan tanpa melakukan ini, Aku berpikir bahwa Aku, memiliki job yang Lebih Besar, secara alami memiliki porsi yang lebih besar dalam party tetapi kami telah bersama sejak kami masih kecil. Aku tidak ingin kami terlibat dalam perdebatan yang aneh.
+
+Teren dan yang lainnya terlihat sedikit terkejut tetapi mereka setuju pada akhirnya. Perla tersenyum dan mengatakan kepadaku bahwa dia berharap adik perempuanku segera sembuh dan mendorongku dari belakang.
+
 Perla bertubuh mungil, tidak seperti Ilda yang tinggi, dan sangat baik seperti penampilannya.
 Senyumannya telah menyelamatkan Aku berkali-kali di masa lalu. Dan Aku yakin itu akan terus menyelamatkan Aku bahkan di masa depan.
 
