@@ -1,15 +1,21 @@
 CHAPTER 31: PARTY AND THE BOY
 
-Meskipun kami telah mencapai peringkat-D, Aku tidak terlalu senang tentang itu.
-Dan karena itu hanya titik jalan menuju tujuan kami, Aku tidak benar-benar merasa kami perlu mempersiapkan diri untuk apa selanjutnya. Meskipun itu mungkin karena satu-satunya Hunter peringkat-D yang terlintas di pikiranku adalah kapak perang yang memegang Alejo juga.
-Sebenarnya, menyadari bahwa kita berada pada peringkat yang sama dengan itu membuatku merasa kurang bersemangat.
+Meskipun kami telah mencapai rank D, Aku tidak terlalu senang.
 
-Bahkan reaksi Ciel hanya "Jadi menjadi peringkat-D seharusnya luar biasa, kan?" Dan tidak ada yang lain.
-Jika Hunter lain mendengar kata-katanya, mereka mungkin akan berpikir bahwa dia mengejek mereka, tetapi Ciel hanya bertanya karena minat murni.
-Di sisi lain, Guild Hunter sudah kagum tentang kami mencapai peringkat-E pada usia 10 tahun dan mereka bahkan membual bahwa menjadi peringkat-D pada usia ini secara praktis tidak pernah terdengar.
-Padahal, sejak Celia- san yang menjelaskannya kepada kami, itu lebih rendah hati dan sopan daripada bagaimana Aku menjelaskannya.
+Dan karena itu hanya hal sementara demi menuju tujuan kami, Aku tidak benar-benar merasa kami perlu mempersiapkan diri untuk hal kedepan. Meskipun itu mungkin karena satu-satunya Hunter rank D yang terlintas di pikiranku adalah si pemegang battleaxe Alejo juga.
 
-Meskipun kekuatan Aku adalah sesuatu yang Aku dapatkan secara praktis dengan menipu, Ciel belajar menggunakan sihir dari usahanya sendiri dan dia memiliki kendali besar atas Pekerjaan Putri Tari juga. Tetap saja, orang lain mungkin akan berpikir bahwa Ciel kurang ajar.
+Sebenarnya, kami menyadari berada pada rank yang sama dengan dia membuatku merasa kurang bersemangat.
+
+Bahkan reaksi Ciel hanya "menjadi rank D seharusnya luar biasa, kan?" Dan tidak ada yang lain.
+
+Jika Hunter lain mendengar kata-katanya, mereka mungkin akan berpikir kalau dia mengejek mereka, tetapi Ciel hanya bertanya murni karena penasaran saja.
+
+Di sisi lain, Guild Hunter sudah kagum karena kami mencapai rank E pada usia 10 tahun dan mereka bahkan berkata bahwa menjadi rank D pada usia ini tidak pernah didengar dimanapun.
+
+yaaaah, karena Celia-san yang menjelaskannya kepada kami, itu jadi seperti rendah hati atau sopan.
+
+Meskipun kekuatanku adalah sesuatu seperti cheat, Ciel belajar menggunakan sihir dari usahanya sendiri dan dia memiliki kendali besar atas job dance princess juga. Tetap saja, orang lain mungkin akan berpikir bahwa Ciel kurang ajar.
+------
 Seperti tipe orang yang akan marah dan marah setelah Kamu memberi tahu mereka bahwa Kamu mendapat nilai tertinggi, padahal merekalah yang menanyakannya. Tapi yah, mungkin aku terlalu memikirkannya.
 
 Meskipun demikian, karena kami masih melakukan siklus yang sama dalam berburu monster dan mengambil tumbuhan meskipun kami sekarang peringkat-D, seharusnya tidak masalah untuk berpikir bahwa kami tidak perlu menahan diri seperti yang Aku pikirkan sebelumnya.
