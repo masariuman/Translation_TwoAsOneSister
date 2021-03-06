@@ -15,11 +15,13 @@ Di sisi lain, Guild Hunter sudah kagum karena kami mencapai rank E pada usia 10 
 yaaaah, karena Celia-san yang menjelaskannya kepada kami, itu jadi seperti rendah hati atau sopan.
 
 Meskipun kekuatanku adalah sesuatu seperti cheat, Ciel belajar menggunakan sihir dari usahanya sendiri dan dia memiliki kendali besar atas job dance princess juga. Tetap saja, orang lain mungkin akan berpikir bahwa Ciel kurang ajar.
-------
-Seperti tipe orang yang akan marah dan marah setelah Kamu memberi tahu mereka bahwa Kamu mendapat nilai tertinggi, padahal merekalah yang menanyakannya. Tapi yah, mungkin aku terlalu memikirkannya.
 
-Meskipun demikian, karena kami masih melakukan siklus yang sama dalam berburu monster dan mengambil tumbuhan meskipun kami sekarang peringkat-D, seharusnya tidak masalah untuk berpikir bahwa kami tidak perlu menahan diri seperti yang Aku pikirkan sebelumnya.
-Namun, laba-laba raksasa tidak bisa dimaafkan. Mengapa mereka bahkan peringkat-D? Tapi yang lebih penting, kenapa kita diminta untuk memburu mereka?
+Seperti tipe orang yang akan marah setelah Kamu memberi tahu mereka kalau Kamu mendapat nilai tertinggi, padahal merekalah yang menanyakannya. Tapi yah, mungkin aku terlalu memikirkannya.
+
+Meskipun demikian, karena kami masih melakukan siklus yang sama dalam berburu monster dan mengumpulkan herb meskipun kami sekarang rank D, seharusnya tidak masalah untuk berpikir bahwa kami tidak perlu menahan diri seperti yang Aku pikirkan sebelumnya.
+
+tapi, laba-laba raksasa tidak bisa dimaafkan. kenapa monster itu rank-D? Tapi, kenapa kami diminta untuk memburu mereka?
+
 Bahkan jika kita setuju untuk memburu mereka dengan suatu keajaiban, itu benar-benar tidak masuk akal mengharapkan kita untuk membawa kembali bagian bukti. Lagipula, laba-laba raksasa akan dimusnahkan seketika saat ditemukan dalam kasus kita. Memiliki bagian tubuh mereka atau bahkan batu ajaib tertinggal jarang terjadi.
 
 Secara umum, kami tidak memiliki masalah untuk melanjutkan sebagai Hunter peringkat-D, tetapi seperti yang diharapkan, tampaknya ada beberapa teknik dan kemampuan yang disukai yang diperlukan untuk mencapai peringkat C.
