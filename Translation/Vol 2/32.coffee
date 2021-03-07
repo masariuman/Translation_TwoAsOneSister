@@ -168,72 +168,90 @@ tapi, Carol-san, yang telah bersama kami sepanjang hari seperti biasa, menatapku
 
 ◇
 
-"Aku melihat Kamu sebelumnya, mendapat uang untuk Kamu, eh?"
+"Aku melihatmu sebelumnya, kamu dapat banyak uang, eh?"
 
-Segera setelah Aku pergi, seseorang menghalangi kami. Ini mungkin terjadi adalah mengapa Aku belum ingin meninggalkan guild.
-Aku perhatikan sebelumnya bahwa dia sepertinya telah menunggu seseorang di luar Hunter Guild tetapi sayangnya, seseorang itu adalah Aku.
+Segera setelah Aku pergi, seseorang menghalangi kami. Ini pasti terjadi dan itulah mengapa Aku belum ingin meninggalkan guild.
+
+Aku menyadari sebelumnya bahwa dia sepertinya telah menunggu seseorang di luar guild Hunter tetapi sayangnya, seseorang itu adalah Aku.
+
 Ketika Aku mengabaikannya dan mencoba melewatinya, tiga pria baru muncul seperti yang telah direncanakan sebelumnya.
+
 Mereka semua terlihat berusia sekitar 20 tahun, mereka tampaknya lebih tua dari Brass-kun tapi lebih muda dari Alejo.
 
-"Berhenti mengabaikan Aku. Aku hanya mengatakan bahwa alangkah baiknya jika kamu memperlakukan kami sedikit lebih baik, ya lihat? "
-" Ini semakin membosankan, mari kita bertempur. Jika Aku kalah, Aku akan menyerahkan semua uang yang Aku dapatkan hari ini.
-Sebagai gantinya, jika Aku menang, beri Aku jumlah uang yang sama dengan yang Aku miliki saat ini. "
-" Ya baik-baik saja dengan aturan itu, aight? "
-" Selama staf guild setuju. "
-" Kalau begitu ayo pergi. "
+"Berhenti mengabaikanku. Aku hanya mengatakan bahwa alangkah baiknya jika kamu memperlakukan kami sedikit lebih baik."
 
-Saat aku masuk melalui pintu, aku baru saja keluar, aku melihat Carol-san masih di sana dan, setelah melihat orang-orang mengikuti di belakangku, dia sekarang memasang ekspresi muak di wajahnya.
-Salahnya karena membuatku pergi, jadi aku akan membuatnya ikut bersamaku sekali lagi.
+ain"Ini semakin membosankan, mari kita bertarung. Jika Aku kalah, Aku akan menyerahkan semua uang yang Aku dapatkan hari ini. Sebagai gantinya, jika Aku menang, beri Aku jumlah uang yang sama dengan yang Aku miliki saat ini."
+
+"kamu tidak masalah dengan aturan itu?"
+
+ain"Selama staf guild setuju."
+
+"Kalau begitu ayo kita bertarung."
+
+Saat aku masuk melalui pintu dimana aku baru saja keluar, aku melihat Carol-san masih di sana dan, setelah melihat orang-orang mengikuti di belakangku, dia sekarang memasang ekspresi muak di wajahnya.
+
+yah itu salahnya karena membuatku pergi, jadi aku akan membuatnya ikut bersamaku sekali lagi.
+
 Aku menuju ke konter Celia-san dan setelah menjelaskan detailnya, dia menatapku dengan mata penuh simpati.
 
 ◇
 
 Kami dibawa ke tempat seperti arena dari sebelumnya, dengan Carol-san bertindak sebagai mediator lagi.
-Aturannya sederhana. Ini empat lawan satu, menyerah atau menjadi tidak berdaya dan Kamu kalah. Membunuh dilarang. Untuk beberapa alasan, dia benar-benar menekankannya.
 
-"Karena kita memiliki kesempatan, mengapa kita tidak menggunakan penguatan fisik dan bertarung sambil berlarian dan menghindari serangan mereka hari ini?"
-"Jadi itu sebabnya Ain menerima ini, kan?"
-"Sambil mengamati Brass-kun , Aku pikir itu mungkin menjadi lebih baik jika kita bergerak sampai batas tertentu.
-Juga, coba kalahkan mereka menggunakan tebasan angin puyuh seperti dengan Alejo. Sebagai latihan untuk mengontrol kekuatan sihir. "
-"Ugh …… kedengarannya cukup sulit. Jika Aku membuat sedikit kesalahan, Aku mungkin akan memotong lengan. "
-" Kalau begitu, cobalah yang terbaik agar itu tidak terjadi. "
+Aturannya sederhana. Ini empat lawan satu, menyerah atau menjadi tidak berdaya artinya kalah. dilarang Membunuh. Untuk beberapa alasan, dia benar-benar menekankannya.
 
-Bahkan ketika dia khawatir tentang itu, Ciel masih menjawab dengan "Mengerti." Jadi aku memutuskan untuk diam-diam mengawasinya.
-Lawan kita memposisikan diri untuk mengelilingi kita, dan tepat saat Carol-san mengumumkan "Mulai!", Mereka bergegas ke arah kita.
+ain"Karena kita memiliki kesempatan, mengapa kita tidak menggunakan penguatan fisik dan bertarung sambil berlarian dan menghindari serangan mereka hari ini?"
+
+ciel"Jadi itu sebabnya Ain menerima ini, kan?"
+
+ain"Sambil mengamati Brass-kun , Aku pikir itu mungkin menjadi lebih baik jika kita bergerak sampai batas tertentu. Juga, coba kalahkan mereka menggunakan tebasan +WHIRLWIND SLASH seperti waktu mengalahkan Alejo. Sebagai latihan untuk mengontrol kekuatan sihir."
+
+cuel"Ugh ...... kedengarannya cukup sulit. Jika Aku membuat sedikit kesalahan, Aku mungkin akan memotong lengan mereka."
+
+ain"Kalau begitu, cobalah yang terbaik agar itu tidak terjadi."
+
+Bahkan ketika dia khawatir tentang itu, Ciel masih menjawab dengan "baiklah." Jadi aku memutuskan untuk diam-diam mengawasinya.
+
+Lawan kami memposisikan diri untuk mengelilingi kami, dan tepat saat Carol-san mengumumkan "Mulai!", Mereka bergegas ke arah kami.
+
 Mereka berempat memiliki pedang, jadi mungkin lebih mudah karena kita tidak perlu memikirkan serangan jarak jauh.
 
-Ciel membuat lompatan besar ke belakang dan menembakkan beberapa tebasan angin puyuh untuk memberi kami jarak. Untung saja orang-orang ini terluka ringan, tetapi mereka keliru mengira ini yang terbaik yang bisa kami lakukan dan "Abaikan dan pergi!" Mereka bergegas sekaligus.
+Ciel membuat lompatan besar ke belakang dan menembakkan beberapa +WHIRLWIND SLASH untuk memberi kami jarak. Untung saja orang-orang ini terluka ringan, tetapi mereka keliru mengira ini yang terbaik yang bisa kami lakukan dan "Abaikan itu dan serang!" Mereka bergegas sekaligus.
 
 ◇
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
-
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
-
 Adapun hasil dari pertandingan tersebut, para pria itu akhirnya berlumuran luka, menjatuhkan pedang mereka, dan pingsan, mungkin karena anemia.
-Bahkan Ciel terengah-engah dan mendekati akhir, kontrolnya atas sihir semakin buruk. Sudah kuduga, kelemahan Ciel sepertinya adalah staminanya. Aku juga tidak memiliki banyak stamina, tetapi terlepas dari seberapa lelahnya Aku, Aku yakin bahwa Aku masih dapat menciptakan penghalang dengan presisi yang sama seperti yang biasa Aku lakukan.
-"Ngomong-ngomong, aku terus berlari sepanjang waktu, tapi apakah itu baik-baik saja?
-Lagipula, mereka terus berteriak "Jangan lari, itu tidak adil!" Lagi dan lagi selama pertarungan. "
-" Karena kamu seorang penyihir, Ciel, menjaga jarak seharusnya normal.
-Sebaliknya, itu adalah kesalahan mereka karena membiarkan penyihir mengambil jarak dari mereka. Bahkan untuk pelatihan, Aku pikir itu bagus. "
-" Begitukah? "
-" Aku tidak terlalu tahu banyak tentang pertarungan, jadi Aku sebenarnya tidak terlalu yakin tentang itu.
-Tapi untuk saat ini, mari kita bekerja tentang cara bergerak dan bertarung dengan benar sebagai penyihir. "
 
-"Apakah Kamu puas sekarang?"
-"Mengapa Kamu mengatakannya seperti Aku menginginkan pertarungan ini?
-Itu karena Kamu menatap Aku seperti Kamu ingin Aku pergi sehingga ini terjadi. "
+Bahkan Ciel terengah-engah dan mendekati akhir, kontrolnya untuk sihir semakin buruk. Sudah kuduga, kelemahan Ciel sepertinya adalah staminanya. Aku juga tidak memiliki banyak stamina, tetapi terlepas dari seberapa lelahnya Aku, Aku yakin bahwa Aku masih dapat menciptakan +BARRIER dengan presisi yang sama seperti yang biasa Aku lakukan.
+
+ciel"Ngomong-ngomong, aku terus berlari sepanjang waktu, tapi apakah itu baik-baik saja? Lagipula, mereka terus berteriak 'Jangan lari, itu tidak adil!' terus menerus selama pertarungan."
+
+ain"Karena kamu seorang penyihir, Ciel, menjaga jarak itu normal. itu kesalahan mereka karena membiarkan penyihir mengambil jarak dari mereka. Bahkan untuk latihan, Aku pikir itu bagus."
+
+ciel"Benarkah?"
+
+ain"Aku tidak terlalu tahu banyak tentang pertarungan, jadi Aku sebenarnya tidak terlalu yakin tentang itu. Tapi untuk saat ini, mari kita memikirkan cara bergerak dan bertarung dengan benar sebagai penyihir."
+
+carol"Apakah Kamu puas sekarang?"
+
+ain"Mengapa Kamu mengatakannya seperti Aku menginginkan pertarungan ini? Itu karena Kamu menatapku seperti Kamu ingin Aku pergi jadi hal ini terjadi."
 
 Carol-san mengatakannya dengan nada terkejut, jadi Aku membalasnya dengan jujur.
-Carol-san mengalihkan pandangannya dan berkata "Baiklah, baiklah." Seolah ingin melarikan diri.
 
-"Jika Aku benar, Kamu meminta mereka membayar Kamu dengan jumlah yang sama dengan yang Kamu miliki, bukan?
-Orang-orang ini, bukankah mereka akan kehilangan semuanya? "
-" Aku mungkin memiliki sekitar 10 koin emas. Kamu bisa membayar sebanyak itu dengan plop, kan? "
-" Lagipula aku adalah B-ranker. Orang-orang ini Rank E hingga D. Selain itu, mereka tampaknya bukan tipe yang menabung dalam kehidupan sehari-hari mereka. "
-" Baiklah, Aku akan berkompromi dengan meminta mereka membayar masing-masing tiga koin emas. "
+Carol-san mengalihkan pandangannya dan berkata "yaaah, yah sudahlah." Seolah ingin melarikan diri.
+
+carol"Jika Aku benar, Kamu meminta mereka membayar Kamu dengan jumlah yang sama dengan yang Kamu miliki, kan? Orang-orang ini, bukankah mereka akan kehilangan semuanya?"
+
+ain"Aku mungkin memiliki sekitar 10 koin emas. Kamu bisa membayar sebanyak itu dengan mudah, kan?"
+
+carol"yaah aku adalah hunter rank B. Orang-orang ini Rank E dan D. Selain itu, mereka tampaknya bukan tipe yang menabung dalam kehidupan sehari-hari mereka."
+
+ain"Baiklah, Aku akan berkompromi dengan meminta mereka membayar masing-masing tiga koin emas."
 
 Aku sebenarnya memiliki lebih dari itu. Itu sebabnya Aku mengatakan itu lebih awal tetapi tidak ada gunanya.
-Untuk memastikannya, Aku membangunkan mereka, menunjukkan 10 koin emas, dan meminta 3 koin emas masing-masing tetapi kemudian berubah menjadi pucat total.
+
+Untuk memastikannya, Aku membangunkan mereka, menunjukkan 10 koin emas, dan meminta 3 koin emas masing-masing dari mereka tetapi kemudian mereka berubah menjadi pucat total.
+
 Karena kami tidak punya pilihan lain, kami setuju dengan meminta mereka membayar dengan semua yang mereka miliki saat ini.
-Namun, karena mereka bahkan tidak dapat mengikuti aturan dalam pertarungan yang mereka mulai, mereka semua diturunkan pangkatnya.
+
+tapi, karena mereka bahkan tidak dapat mengikuti aturan dalam pertarungan yang mereka mulai, mereka semua diturunkan ranknya.
