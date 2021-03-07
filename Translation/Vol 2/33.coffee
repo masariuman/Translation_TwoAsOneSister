@@ -1,31 +1,47 @@
 CHAPTER 33: MEDICINE, THE BOY, AND EVALUATION
 
-"Kalau dipikir-pikir, kudengar kamu sesekali pergi ke pub."
-"Menghasilkan uang dari menyanyi membuatku bahagia. Sebagai bonus, Aku juga mendapatkan informasi."
-"Jadi informasi itu hanya bonus untuk Kamu, ya ."
+carol"Kalau dipikir-pikir, kudengar kamu sesekali pergi ke pub."
+
+ain"Menghasilkan uang dari menyanyi membuatku bahagia. Sebagai bonus, Aku juga mendapatkan informasi."
+
+carol"Jadi informasi itu hanya bonus untukmu, ya."
 
 Mungkin sekitar sebulan sejak Brass-kun dan aku membentuk party.
-Meskipun kami satu pesta, kami hanya bekerja bersama selama setengah minggu. Sepertinya dia juga menerima permintaan selama setengah minggu lainnya, tapi dia tidak benar-benar mencapai hasil yang bagus. Meskipun sepertinya dia belum benar-benar gagal dalam permintaan apa pun, dia masih menyakiti dirinya sendiri secara teratur dan kehilangan uangnya ke gereja, jadi dia praktis tidak menghasilkan apa-apa. Kami benar-benar tidak pergi ke gereja, jadi Aku tidak tahu berapa yang mereka minta sebagai bayaran tetapi karena mereka dapat menyembuhkan luka secara instan, biayanya mungkin mahal.
+
+Meskipun kami satu party, kami hanya bekerja sama selama setengah minggu. Sepertinya dia juga menerima permintaan selama setengah minggu lainnya, tapi dia tidak benar-benar mencapai hasil yang bagus. Meskipun sepertinya dia belum benar-benar gagal dalam permintaan apa pun, dia masih menyakiti dirinya sendiri dan kehilangan uangnya ke gereja, jadi dia tidak menghasilkan apa-apa. Kami benar-benar tidak pergi ke gereja, jadi Aku tidak tahu berapa yang mereka minta sebagai bayaran tetapi karena mereka dapat menyembuhkan luka secara instan, biayanya mungkin mahal.
+
 Dari pada gereja, ini lebih seperti rumah sakit. Tetapi uang yang Kamu bayarkan untuk penyembuhan adalah persembahan.
 
 Hari ini, karena kami dipanggil oleh Celia-san karena suatu alasan, Carol-san dan Aku sedang menunggunya sekarang.
-Sebelum Aku menyadarinya, kami sudah bersama mereka selama lebih dari setengah tahun. Biasanya itu akan terdengar seperti waktu yang singkat untuk bergaul dengan orang-orang tetapi dari sudut pandang Ciel, tidak termasuk duke, mereka adalah dua orang yang paling lama kita habiskan bersama.
 
-"Pertama-tama, jika Aku tidak suka bernyanyi, Pekerjaan Aku tidak akan ada hubungannya dengan itu."
-"Sekarang setelah Kamu menyebutkannya, bagus. Tetap saja, bukankah kamu juga hebat dalam ilmu sihir?"
-"Aku hanya menghabiskan lebih banyak waktu dengan bernyanyi dibandingkan dengan sihir, itu saja."
-"Berapa umurmu lagi?"
-"10."
-"Yah, kamu pasti tidak memiliki kelucuan seusia Kamu."
+tanpa aku sadari, kami sudah bersama mereka selama lebih dari setengah tahun. Biasanya itu akan terdengar seperti waktu yang singkat untuk bergaul dengan orang-orang tetapi dari sudut pandang Ciel, tidak termasuk duke, mereka adalah dua orang yang paling lama kami habiskan waktu bersama.
 
-"Apa yang dia bicarakan? Lihat saja betapa menggemaskannya Ciel."
-"Umm, aku menggemaskan?"
-"Itulah yang kupikirkan."
-"Begitu , begitu ......!"
-"Ada yang salah?"
-"Bukan apa-apa."
+ain"yaah pada dasarnya jika Aku tidak suka bernyanyi, jobku tidak akan ada hubungannya dengan itu."
+
+carol"setelah kamu menyebutkannya, benar juga. Tetap saja, kamu juga hebat dalam sihir kan?"
+
+ain"Aku hanya menghabiskan lebih banyak waktu dengan bernyanyi dibandingkan dengan sihir, itu saja."
+
+carol"Berapa umurmu lagi?"
+
+ain"10."
+
+carol"Yah, kamu pasti tidak memiliki keimutan seusiamu."
+
+ain"Apa yang dia bicarakan? lihatlah betapa menggemaskannya Ciel."
+
+ciel"Umm, aku menggemaskan?"
+
+ain"Itulah yang kupikirkan."
+
+ciel"Begitu ya, begitu ......!"
+
+ain"Ada yang salah?"
+
+ciel"Bukan apa-apa."
 
 Seharusnya tidak ada orang yang menganggap Ciel jelek.
+
 Karena Aku sangat fokus untuk melarikan diri, Aku belum benar-benar memujinya sampai kami melarikan diri dari mansion jadi mungkin dia tidak terbiasa memuji.
 Mungkin yang terbaik adalah aku sering memujinya mulai sekarang, agar dia tidak jatuh cinta pada pria yang mencurigakan juga.
 Aku juga tidak biasa memuji orang secara terus terang, tapi karena bukannya aku akan berbohong padanya, itu seharusnya tidak mustahil.
