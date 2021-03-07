@@ -20,28 +20,38 @@ Seperti tipe orang yang akan marah setelah Kamu memberi tahu mereka kalau Kamu m
 
 Meskipun demikian, karena kami masih melakukan siklus yang sama dalam berburu monster dan mengumpulkan herb meskipun kami sekarang rank D, seharusnya tidak masalah untuk berpikir bahwa kami tidak perlu menahan diri seperti yang Aku pikirkan sebelumnya.
 
-tapi, laba-laba raksasa tidak bisa dimaafkan. kenapa monster itu rank-D? Tapi, kenapa kami diminta untuk memburu mereka?
+tapi, laba-laba raksasa tidak bisa dimaafkan. kenapa monster itu rank-D? kenapa kami diminta untuk memburu mereka?
 
-Bahkan jika kita setuju untuk memburu mereka dengan suatu keajaiban, itu benar-benar tidak masuk akal mengharapkan kita untuk membawa kembali bagian bukti. Lagipula, laba-laba raksasa akan dimusnahkan seketika saat ditemukan dalam kasus kita. Memiliki bagian tubuh mereka atau bahkan batu ajaib tertinggal jarang terjadi.
+Bahkan jika kami setuju untuk memburu mereka dengan suatu keajaiban, itu benar-benar tidak masuk akal mengharapkan kami untuk membawa bagian tubuhnya bagian bukti. Lagipula, laba-laba raksasa akan dimusnahkan seketika kalau bertemu dengan kami. Memiliki bagian tubuh mereka atau bahkan batu magic tertinggal jarang terjadi.
 
-Secara umum, kami tidak memiliki masalah untuk melanjutkan sebagai Hunter peringkat-D, tetapi seperti yang diharapkan, tampaknya ada beberapa teknik dan kemampuan yang disukai yang diperlukan untuk mencapai peringkat C.
-Dengan mengatakan itu, Celia- san dan Carol- san membawa Aku ke stan di dalam guild.
+Secara umum, kami tidak memiliki masalah untuk melanjutkan sebagai Hunter rank-D, tetapi seperti yang diharapkan, tampaknya ada beberapa teknik dan kemampuan yang dibutuhkan yang diperlukan untuk mencapai rank C.
 
-"Kami akan membuat Kamu membentuk pesta."
-"Itu cukup mendadak."
-"Nah, Kamu bisa menolak jika Kamu mau. Lagipula itu bukan prasyarat. "
-" Tapi kamu ingin aku menerimanya jika memungkinkan, kan? Karena itulah yang dikatakan wajah Celia- san . "
+Dengan mengatakan itu, Celia-san dan Carol-san membawaku ke stan di dalam guild.
 
-Aku mengerti bahwa yang terbaik adalah bekerja dengan pesta, terutama dengan cara kerja Hunter.
-Dalam kasus kami, dengan mempertimbangkan latar belakang dan kemampuan kami, lebih baik bagi kami untuk bekerja sendiri, tetapi mungkin ada situasi di mana kami tidak dapat bersikeras untuk bersolo karier.
-Misalnya, monster dicap. Ini adalah bencana alam yang terjadi ketika, karena suatu alasan, monster kehabisan persediaan makanan mereka dan mulai mengincar manusia untuk dikonsumsi. Untuk memastikan hal itu tidak terjadi, Guild Hunter secara teratur memusnahkan monster dan karena itu, ini dianggap sebagai peristiwa yang jarang terjadi.
+celia"Kami akan membuatmu membentuk party."
 
-Tetap saja, karena stempel dapat dipicu secara artifisial, kita tidak bisa lengah.
-Kasus paling terkenal dari ini adalah penyerbuan bunuh diri Putri Lagu, tetapi obat-obatan yang dapat menarik monster juga ada dan dapat dibuat.
-Tentunya penggunaan obat-obatan ini dilarang dan bahan bakunya juga tidak mudah didapat. Menggunakan sedikit saja hampir tidak dapat menarik segelintir monster, jadi dikatakan bahwa membuat cukup banyak monster ini untuk menyebabkan penyerbuan praktis akan menghabiskan banyak uang.
+ain"Itu cukup mendadak."
+
+celia"Kamu bisa menolak jika Kamu mau. Lagipula itu bukan syaratnya kok."
+
+ain"Tapi kamu ingin aku menerimanya kalau bisa, kan? Karena itulah yang dikatakan wajah Celia-san."
+
+Aku mengerti party itu bagus, terutama dengan cara kerja Hunter.
+
+tapi Dalam kasus kami, dengan mempertimbangkan latar belakang dan kemampuan kami, lebih baik bagi kami untuk bekerja sendiri, tetapi mungkin ada situasi di mana kami tidak dapat bersikeras untuk sendirian.
+
+Misalnya, pasukan monster. Ini adalah bencana alam yang terjadi ketika, karena suatu alasan, monster kehabisan persediaan makanan mereka dan mulai mengincar manusia untuk dikonsumsi. Untuk memastikan hal itu tidak terjadi, Guild Hunter secara teratur memusnahkan monster dan karena itu, ini dianggap sebagai peristiwa yang jarang terjadi.
+
+Tetap saja, karena hal dapat dipicu, kita tidak bisa lengah.
+
+Kasus paling terkenal dari kejadian ini adalah penyerbuan bunuh diri song princess, tetapi obat-obatan yang dapat menarik monster juga ada dan dapat dibuat.
+
+Tentunya penggunaan obat-obatan ini dilarang dan bahan bakunya juga tidak mudah didapat. Menggunakan sedikit saja hampir tidak dapat menarik segelintir monster, jadi membuat cukup banyak monster untuk penyerbuan akan menghabiskan banyak uang.
 
 Ngomong-ngomong, jika Aku menggunakan semua uang yang kami miliki sekarang, Aku akan punya cukup uang untuk membeli obat itu.
-Karena kami memiliki beberapa koin emas, Aku yakin kami cukup kaya dari mata rumah tangga biasa.
+
+Karena kami memiliki beberapa koin emas, Aku yakin kami cukup kaya dari orang biasa.
+
 Padahal ini bisa dilihat sebagai perbedaan antara bangsawan dan rakyat biasa. Mempertimbangkan hal ini, kekuatan Duke Respelgia kemungkinan akan jauh lebih besar juga, dan itu adalah sesuatu yang sama sekali tidak Aku sukai.
 
 Kembali ke topik.
