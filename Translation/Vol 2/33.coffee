@@ -79,7 +79,8 @@ carol"...... Maaf sudah mengintimidasi Kamu."
 tekanan dari Carol-san mulai mereda, dia dengan lelah bersandar di kursinya. Dia kemudian meletakkan tangannya di wajahnya, mungkin memikirkan sesuatu.
 
 Berdasarkan reaksinya, sepertinya obat itu bukan hanya biasa. Mengabaikan apakah itu terkenal atau tidak untuk saat ini, obat itu mungkin adalah sesuatu yang dikategorikan sebagai obat yang mematikan atau bahkan racun.
-Karena siapa pun yang tidak terbiasa mengendalikan kekuatan sihir secara praktis memiliki kemungkinan 100% untuk mati karenanya, itu mungkin jenis obat yang dilarang digunakan karena sifatnya yang mematikan atau sebagai racun.
+
+Karena siapa pun yang tidak terbiasa mengendalikan energi sihir memiliki kemungkinan 100% untuk mati, itu mungkin jenis obat yang dilarang digunakan karena sifatnya yang mematikan atau sebagai racun.
 
 "Kamu mengatakan bahwa itu digunakan pada Kamu, seberapa sering?"
 "Setiap hari. Selama 5 tahun penuh sejak aku berusia lima tahun sampai aku melarikan diri."
