@@ -1,19 +1,24 @@
 CHAPTER 32: PARTY, THE FIRST REQUEST, AND MONEY
 
-Sekitar satu jam setelah kami memasuki hutan untuk permintaan tersebut, deteksi Aku menangkap keberadaan apa yang seharusnya menjadi kobold.
+Sekitar satu jam setelah kami memasuki hutan untuk permintaan tersebut, +DETECTIONku menangkap keberadaan kobold.
 
 Biasanya Aku hanya akan menuju ke sana, meminta Ciel mengalahkan mereka, dan itu saja, tetapi karena kita tidak sendirian hari ini, Aku ingin menghindari bergerak secara mandiri.
 
-Tetap saja, Aku tidak begitu murah hati untuk memberitahunya tentang sihir pendeteksian Aku, jadi Aku hanya memberi tahu Brass-kun"Aku mendengar sesuatu di sana."Agar terdengar bisa dipercaya.
+Tetap saja, Aku tidak begitu murah hati untuk memberitahunya tentang sihir +DETECTION ku, jadi Aku hanya memberi tahu Brass-kun "Aku mendengar sesuatu di sana." Agar terdengar bisa dipercaya.
 
 Meskipun dia mendecakkan lidahnya setelah mendengar itu, dia tetap pergi ke arah yang kutunjuk, mungkin karena dia tidak benar-benar tahu ke mana harus pergi.
-Apakah dia benci mendapatkan nasihat dari seseorang yang lebih muda darinya? Atau apakah dia hanya benar-benar lapar?
-Ini jauh lebih baik daripada dia menanyakan hal-hal tentang aku, jadi aku biarkan saja dia.
 
-"Kamu benar-benar sabar, Ain."
-"Aku hanya berpikir, mengingat usia Brass-kun , reaksinya sepertinya tidak bisa dihindari. Aku sudah memperkirakan bahwa dia akan menyebalkan. "
-" Tapi meskipun itu masalahnya, Ain tidak benar-benar perlu mentolerirnya, kan? "
-Benar, aku tidak. Tetap saja, bereaksi terhadap setiap hal kecil yang dia lakukan hanya akan membuang-buang waktu.
+Apakah dia benci mendapatkan arahan dari seseorang yang lebih muda darinya? Atau apakah dia hanya benar-benar lapar?
+
+Ini jauh lebih baik daripada dia menanyakan hal-hal tentangku, jadi aku biarkan saja dia.
+
+ciel"Kamu benar-benar sabar, Ain."
+
+ain"Aku hanya berpikir, mengingat usia Brass-kun, reaksinya sepertinya tidak bisa dihindari. Aku sudah memperkirakan bahwa dia akan menyebalkan."
+
+ciel"Tapi meskipun itu masalahnya, Ain tidak benar-benar perlu mentolerirnya, kan?"
+
+Benar. Tetap saja, bereaksi terhadap setiap hal kecil yang dia lakukan hanya akan membuang-buang waktu.
 Secara rasional, kecuali tentang sesuatu yang benar-benar akan menyebabkan masalah, Aku berencana untuk mengabaikan semua yang dia katakan.
 Bagaimanapun, ini adalah bagian dari ujian untuk menjadi Rank-C. "
 " Kamu sangat dewasa, Ain. "
