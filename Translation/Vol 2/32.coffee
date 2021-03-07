@@ -62,30 +62,42 @@ Jika kobold ini dapat menggunakan kelincahan mereka untuk dengan sengaja memimpi
 
 Padahal, serigala tidak benar-benar berjalan dengan dua kaki dan kobold terkadang menggunakan senjata untuk menyerang, jadi mereka tidak terlalu mirip.
 
-Dengan kata lain, perbedaan di antara keduanya bersifat monoton. Bahkan jika kobold bisa bergerak cepat, masih mudah untuk menghindari serangan berulang dan tidak akan sulit untuk membidik serangan balik juga. Jadi dalam pertarungan satu lawan satu, seorang Hunter yang berpengalaman dalam pertempuran akan mampu mengalahkan mereka tanpa masalah.
+Dengan kata lain, perbedaan di antara keduanya bersifat monoton. Bahkan jika kobold bisa bergerak cepat, masih mudah untuk menghindari serangan berulang dan tidak akan sulit untuk membuat serangan balik juga. Jadi dalam pertarungan satu lawan satu, seorang Hunter yang berpengalaman dalam pertempuran akan mampu mengalahkan mereka tanpa masalah.
 
-Jadi tentang Brass-kun , dia sama sekali tidak mengikuti gerakan kobold.
-Sepertinya dia bisa melihat melalui gerakan kobold, yang memungkinkan dia untuk menghindar, menangkis, dan memblokir, menjaga luka-lukanya seminimal mungkin, tetapi dia tidak mencocokkan serangannya dengan gerakan musuh. Bahkan sepertinya dia diayunkan oleh pedangnya sebagai gantinya.
-Karena dia mengejutkan, itu mungkin alasannya tapi aku tidak percaya dia bahkan berpikir untuk melakukan penaklukan kobold ini dalam keadaan itu.
+Jadi untuk Brass-kun, dia sama sekali tidak mengikuti gerakan kobold.
 
-Tetap saja, seperti yang diharapkan dari seseorang yang membanggakan diri sebagai Pendekar Pedang Agung, setiap serangannya tajam. Bahkan hanya goresan dari pedangnya nampaknya memberikan kerusakan yang baik karena masih bisa memotong cabang yang agak tebal.
-Lebih penting lagi, bahkan dengan kekuatan sebanyak itu, dia tetap tidak bisa menang.
-Dia melakukan ayunan besar dan kobold mengelak, dia kemudian dengan cepat memblokir serangan kobold dengan panik. Dia bahkan tidak menyadari bahwa Ciel sedang mengawasinya, benar-benar bosan dan sementara aku melakukannya, dia bahkan tidak menyadari bahwa kita telah mengalahkan, mengkremasi, dan mengubur para kobold.
-Aku mendeteksi monster mendekat, jadi Aku memberi tahu Ciel, menyuruhnya mengalahkan mereka, dan tubuh mereka dibuang dengan sihir.
+Sepertinya dia bisa melihat gerakan kobold, yang memungkinkan dia untuk menghindar, menangkis, dan menangkis, menjaga luka-lukanya seminimal mungkin, tetapi dia tidak mencocokkan serangannya dengan gerakan musuh. Bahkan sepertinya dia diayunkan oleh pedangnya sebagai gantinya.
 
-Aku tidak begitu tahu banyak tentang bagaimana pendekar pedang bertarung tetapi karena dia kemungkinan besar akan kalah jika terus begini, Aku meminta Ciel untuk membantunya sedikit.
-Tetapi meskipun Aku mengatakan bantuan, Aku hanya membuatnya membuat gumpalan kecil di tanah sehubungan dengan gerakan kobold. Ini trik sederhana tetapi cukup untuk memberi tip kepada seseorang.
+mungkin Karena dia goyah tapi aku tidak percaya dia bahkan berpikir untuk melakukan penaklukan kobold dalam keadaan itu.
+
+Tetap saja, seperti yang diharapkan dari seseorang yang membanggakan diri sebagai Greater Swordman, serangannya tajam. Bahkan hanya goresan dari pedangnya memberikan kerusakan yang cukup bagus karena masih bisa memotong cabang yang agak tebal.
+
+bahkan dengan kekuatan sebanyak itu, dia tetap tidak bisa menang.
+
+Dia melakukan ayunan besar dan kobold mengelak, dia kemudian dengan cepat menangkis serangan kobold dengan panik. Dia bahkan tidak menyadari bahwa Ciel yang mengawasinya benar-benar bosan dan sementara aku melakukannya, dia bahkan tidak menyadari bahwa kami telah mengalahkan, mengkremasi, dan mengubur para kobold.
+
+Aku mendeteksi monster mendekat, jadi Aku memberi tahu Ciel, menyuruhnya mengalahkan mereka, dan tubuh mereka dihancurkan dengan sihir.
+
+Aku tidak begitu tahu banyak tentang bagaimana swordman bertarung tetapi karena dia kemungkinan besar akan kalah jika terus begini, Aku meminta Ciel untuk membantunya sedikit.
+
+Tetapi meskipun Aku mengatakan bantuan, Aku hanya membuatnya membuat gumpalan kecil di tanah sehubungan dengan gerakan kobold. Ini trik sederhana tetapi cukup untuk memberi bantuan kepada seseorang.
+
 Setelah kobold tersandung gumpalan, Brass-kun memotong kobold yang terhuyung-huyung dan mengakhiri pertarungan. Sudah kuduga, sepertinya selama dia bisa mendapatkan serangan yang tepat, dia bisa mengalahkannya dalam satu serangan.
 
-Setelah Ciel bertukar denganku, aku pergi ke Brass-kun dan untuk beberapa alasan, dia memiliki ekspresi penuh kemenangan di wajahnya.
+Setelah Ciel bertukar denganku, aku menuju Brass-kun dan untuk beberapa alasan, dia memiliki ekspresi penuh kemenangan di wajahnya.
+
 Dan ketika dia melihatku tanpa cedera, dia berkata "He ~ eh , jadi kita sudah selesai, ya." Dengan nada puas.
-Ada banyak hal yang ingin " katakan tetapi Aku hanya menelan kata-kata Aku, menjawab "Ya." Dan menunjukkan kepadanya batu ajaib dan taring di dalam kantong kami. Dan seperti yang Aku perkirakan, dia bahkan tidak menyadari bahwa Ciel mengalahkan satu kelompok lagi.
-Brass-kun mengambil taring kobold dan batu ajaib dan hendak melemparkannya padaku, jadi aku menghentikannya.
 
-"Hadiah permintaan tidak akan benar-benar berubah, jadi mari kita simpan itu untuk diri kita sendiri."
-"Tsk , itu benar."
+Ada banyak hal yang ingin kukatakan tetapi Aku hanya menelan kata-kataku, dengan menjawab "Ya." Dan menunjukkan kepadanya batu magic dan taring di dalam kantong kami. Dan seperti yang Aku perkirakan, dia bahkan tidak menyadari bahwa Ciel mengalahkan satu kelompok lagi.
 
-Dia mendecakkan lidahnya tetapi mungkin karena dia tahu bahwa batu ajaib yang dimilikinya agak lebih besar dari batu ajaib Rank-E biasanya, dia masih setuju.
+Brass-kun mengambil taring kobold dan batu magic dan hendak melemparkannya padaku, tapi aku menghentikannya.
+
+ain"Hadiah permintaan tidak akan benar-benar berubah, jadi mari kita simpan itu untuk diri kita sendiri."
+
+brass"Tsk , itu benar."
+
+Dia mendecakkan lidahnya tapi mungkin karena dia tahu bahwa batu magic yang dimilikinya agak lebih besar dari batu ajaib Rank-E biasanya, dia masih setuju.
+
 Setelah itu, dalam perjalanan kembali ke kota, Brass-kun pergi ke arah yang sama sekali berbeda, jadi membimbingnya kembali sangat menjengkelkan.
 
 ◇
