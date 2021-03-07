@@ -43,33 +43,42 @@ ciel"Bukan apa-apa."
 Seharusnya tidak ada orang yang menganggap Ciel jelek.
 
 Karena Aku sangat fokus untuk melarikan diri, Aku belum benar-benar memujinya sampai kami melarikan diri dari mansion jadi mungkin dia tidak terbiasa memuji.
-Mungkin yang terbaik adalah aku sering memujinya mulai sekarang, agar dia tidak jatuh cinta pada pria yang mencurigakan juga.
-Aku juga tidak biasa memuji orang secara terus terang, tapi karena bukannya aku akan berbohong padanya, itu seharusnya tidak mustahil.
 
-"Kalau dipikir-pikir, apakah Kamu tahu tentang obat yang menggunakan batu ajaib, Carol-san ?"
-"Dari mana Kamu belajar tentang itu?"
+Mungkin lebih bagus aku sering memujinya mulai sekarang, agar dia tidak jatuh cinta pada pria yang mencurigakan juga.
 
-Aku bertanya padanya tentang itu karena kupikir kita mungkin bisa meningkatkan kekuatan sihir kita jika kita bisa membuat obat itu dari batu ajaib monster peringkat B itu, tapi dia menjawab dengan tatapan tajam.
-Aku sudah tahu bahwa Aku harus memberi tahu mereka tentang mengapa rambut kami memutih suatu hari nanti, tetapi untuk berpikir bahwa itu akan terjadi hari ini.
+Aku juga tidak biasa memuji orang secara terus terang, perkataanku padanya itu bukanlah kebohongan.
+
+ain"Kalau dipikir-pikir, apakah Kamu tahu tentang obat yang menggunakan batu magic, Carol-san ?"
+
+carol"Dari mana Kamu belajar tentang itu?"
+
+Aku bertanya padanya tentang itu karena kupikir kami mungkin bisa meningkatkan energi sihir kami jika kami bisa membuat obat itu dari batu magic monster rank B itu, tapi dia menjawab dengan tatapan tajam.
+
+Aku sudah tahu kalu Aku harus memberi tahu mereka tentang mengapa rambut kami memutih suatu hari nanti, tetapi untuk berpikir bahwa itu akan terjadi hari ini.
+
 Aku tidak punya niat untuk menjelaskannya secara formal, tetapi Aku mengharapkan situasi yang sedikit berbeda dari ini.
 
-"Aku tidak tahu apakah itu obat yang sama yang Kamu pikirkan tetapi karena Kamu bertanya di mana, itu terjadi ketika Aku dikurung."
-"Aku akan mengubah pertanyaan Aku. Mengapa Kamu ingin belajar tentang obat itu?"
-"Ahh , itu benar, itu juga bisa digunakan untuk membunuh seseorang.
-Mungkin, apakah Kamu berpikir bahwa Aku akan menggunakannya pada seseorang?"
-"Cukup, bisakah Kamu menjawabnya? Bergantung pada jawaban Kamu, Aku mungkin harus menangkap Kamu sebagai individu berbahaya di sini dan saat ini."
+ain"Aku tidak tahu apakah itu obat yang sama dengan yang Kamu pikirkan tetapi karena Kamu bertanya di mana, itu terjadi ketika Aku dikurung."
 
-Iklan
+carol"Aku akan mengubah pertanyaanku. Mengapa Kamu ingin belajar tentang obat itu?"
+
+ain"Ahh, itu benar, itu juga bisa digunakan untuk membunuh seseorang. Mungkin, apakah Kamu berpikir Aku akan menggunakannya pada seseorang?"
+
+carol"Cukup, bisakah Kamu menjawabnya? tergantung pada jawabanmu, Aku mungkin harus menangkapmu sebagai individu berbahaya di sini dan saat ini."
 
 Carol-san mendesak dengan tekanan Hunter top yang luar biasa intens.
-Karena Aku dapat melihat jendela berkabut, suhu mungkin telah turun tetapi dilindungi oleh penghalang, Aku tidak merasa lebih dingin.
-Aku membayangkan bahwa jika Aku membuat pilihan yang salah di sini, tombak es mungkin akan terbang begitu saja. Aku bermain-main dengannya sedikit sebagai balas dendam karena mereka menekan Brass-kun padaku, tapi sepertinya aku berlebihan.
 
-"Mengapa Aku ingin mempelajarinya, bukan? Aku hanya ingin tahu tentang obat yang digunakan pada Aku di masa lalu."
-"...... Maaf sudah mengintimidasi Kamu."
+Karena Aku dapat melihat jendela berkabut, suhu mungkin telah menjadi dingin tetapi dilindungi oleh +BARRIER, Aku tidak merasa lebih dingin.
 
-Saat tekanan dari Carol-san mulai mereda, dia dengan lelah bersandar di kursinya. Dia kemudian meletakkan tangannya di wajahnya, mungkin memikirkan sesuatu.
-Berdasarkan reaksinya, sepertinya obat itu bukan hanya komoditas biasa. Mengabaikan apakah itu terkenal atau tidak untuk saat ini, obat itu mungkin adalah sesuatu yang dikategorikan sebagai obat yang mematikan atau bahkan racun.
+Aku membayangkan bahwa jika Aku membuat pilihan yang salah di sini, tombak es mungkin akan terbang begitu saja. Aku bermain-main dengannya sedikit sebagai balas dendam karena mereka memaksakan Brass-kun padaku, tapi sepertinya aku berlebihan.
+
+ain"Mengapa Aku ingin mempelajarinya, ya? Aku hanya ingin tahu tentang obat yang digunakan padaku di masa lalu."
+
+carol"...... Maaf sudah mengintimidasi Kamu."
+
+tekanan dari Carol-san mulai mereda, dia dengan lelah bersandar di kursinya. Dia kemudian meletakkan tangannya di wajahnya, mungkin memikirkan sesuatu.
+
+Berdasarkan reaksinya, sepertinya obat itu bukan hanya biasa. Mengabaikan apakah itu terkenal atau tidak untuk saat ini, obat itu mungkin adalah sesuatu yang dikategorikan sebagai obat yang mematikan atau bahkan racun.
 Karena siapa pun yang tidak terbiasa mengendalikan kekuatan sihir secara praktis memiliki kemungkinan 100% untuk mati karenanya, itu mungkin jenis obat yang dilarang digunakan karena sifatnya yang mematikan atau sebagai racun.
 
 "Kamu mengatakan bahwa itu digunakan pada Kamu, seberapa sering?"
