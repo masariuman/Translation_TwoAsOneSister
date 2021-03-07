@@ -132,65 +132,62 @@ carol"Itu hanya dalam kasusmu. Haa...... Mengetahui bahwa Aku tidak boleh melanj
 
 Melihat Carol-san menghela nafas membuatku teringat betapa cantiknya dia, tapi kata-katanya benar-benar mengerikan.
 
-Selain itu, situasi kita, ritual untuk menarik dewa, atau fakta bahwa obat dapat digunakan untuk meningkatkan kekuatan sihir terdengar seperti hal-hal yang menarik minatnya, tapi kupikir semua itu mungkin tabu di dunia ini.
+Selain itu, situasi kami, ritual untuk menarik dewa, atau fakta bahwa obat dapat digunakan untuk meningkatkan energi sihir terdengar seperti hal-hal yang menarik minatnya, tapi kupikir semua itu mungkin tabu di dunia ini.
 
-"Sepertinya kita tidak bisa membuat obat itu."
-"Memiliki lebih banyak kekuatan sihir mungkin berguna, tetapi bahkan sekarang aku belum benar-benar kehabisan kekuatan sihir.
-Bukankah lebih baik mempertimbangkan untuk menjual batu ajaib atau memikirkan cara lain untuk menggunakannya?"
-"Itu benar. Sebaliknya, Aku bersyukur mereka menggunakan obat mahal itu pada kami selama 5 tahun berturut-turut."
-"Ain mungkin merasa seperti itu tetapi cukup sulit bagi Aku, Kamu tahu?"
+ain"Sepertinya kita tidak bisa membuat obat itu."
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+ciel"Memiliki lebih banyak energi sihir mungkin berguna, tetapi bahkan sekarang aku belum benar-benar kehabisan energi sihir. Bukankah lebih baik mempertimbangkan untuk menjual batu magic atau memikirkan cara lain untuk menggunakannya?"
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+ain"Itu benar. Aku bersyukur mereka menggunakan obat mahal itu pada kita selama 5 tahun berturut-turut."
 
-Saat kami melakukan pertukaran semacam ini, Celia-san tiba.
+ciel"Ain mungkin merasa seperti itu tetapi cukup sulit bagiku, kau tahu?"
 
-"Terima kasih telah menunggu. Apa terjadi sesuatu?"
-"Butuh waktu lama. Dan tentang itu, Aku tidak bisa mengatakannya.
-Aku tahu Aku tidak masuk akal, tetapi bisakah Kamu membaca suasana hati?"
-"Itu membuat Aku penasaran, tetapi untuk saat ini, ke topik utama.
-Alasan kami memintamu untuk datang ke sini juga adalah untuk menanyakanmu tentang Brass-kun ."
-"Itu, apakah tidak apa-apa menanyakanku tentang itu? Aku tahu ini terkait dengan ujian Aku juga, tapi…"
+celia"Terima kasih telah menunggu. Apa terjadi sesuatu?"
 
-Jika Aku berbicara tentang Brass-kun sekarang, Aku mungkin dapat meningkatkan evaluasi Aku sendiri.
-Itu sebabnya Aku berpikir bahwa memanggil Aku ke sini bukanlah ide yang baik tetapi melihat raut wajah mereka, Aku mungkin salah.
+carol"lama sekali. Dan tentang itu, Aku tidak bisa mengatakannya. Aku tahu Aku tidak masuk akal, tetapi bisakah Kamu membaca suasana sekarang?"
 
-"Kami sudah melihat lebih dari cukup bagaimana Kamu bekerja di sebuah pesta.
-Sekarang Aku memikirkannya, karena Kamu dapat melakukan semuanya sendiri, masuk akal jika Kamu dapat melakukan apa pun yang diperlukan saat berada di pesta, bukan?
-Kekhawatiran utama dari kerja tim mid-combat adalah, dalam artian melakukan apa yang diperintahkan, sudah lumayan. Meskipun ada banyak yang bisa dikatakan tentang bagian di mana Kamu meninggalkannya setiap kali sampai dia mendapat bahaya, dukungan Kamu yang akhirnya harus cukup praktis bahkan untuk Hunter tingkat tinggi."
-"Kamu sudah bekerja di pesta ini terus menerus selama sebulan penuh, dalam hal ini, Kamu hampir pasti mendapat nilai kelulusan.
-Jika memungkinkan, kami ingin Kamu mengambil komando sebagai Hunter tingkat tinggi juga, tapi ……"
-"Itu tidak mungkin. Dia hanya mendengar Aku ketika Aku membimbingnya ke suatu tujuan."
-"Ya, Aku mengerti. Ini adalah masalah dari pihaknya, jadi kami tidak berniat menyalahkan Kamu dalam hal ini.
-Namun, ada evaluasi tentang kerjasama dalam memelihara Hunter peringkat rendah, jadi kecuali ada masalah yang terjadi, kami ingin Kamu bekerja di pesta sedikit lebih lama tapi ……"
-"Kalau begitu, tidak apa-apa."
+celia"Itu membuatku penasaran, tetapi untuk saat ini, kita langsung ke topik utama. Alasan kami memintamu untuk datang ke sini juga adalah untuk menanyakanmu tentang Brass-kun."
+
+ain"Apakah tidak apa-apa menanyakanku tentang itu? Aku tahu ini terkait dengan ujianku juga, tapi..."
+
+Jika Aku berbicara tentang Brass-kun sekarang, Aku mungkin dapat meningkatkan evaluasiku sendiri.
+
+Itu sebabnya Aku berpikir bahwa memanggilku ke sini bukanlah ide yang baik tetapi melihat raut wajah mereka, Aku mungkin salah.
+
+carol"Kami sudah melihat lebih dari cukup bagaimana Kamu bekerja di sebuah party. Sekarang Aku memikirkannya, karena Kamu dapat melakukan semuanya sendiri, masuk akal jika Kamu dapat melakukan apa pun yang diperlukan saat berada di pary, kan? Kekhawatiran utama dari kerja tim adalah, dalam artian melakukan apa yang diperintahkan, sudah cukup. Meskipun ada banyak yang bisa dikatakan tentang bagian di mana Kamu meninggalkannya setiap kali sampai dia mendapat bahaya, dukunganmu yang akhirnya cukup bahkan untuk Hunter tingkat tinggi."
+
+celia"Kamu sudah di party ini terus menerus selama sebulan penuh, dalam hal ini, Kamu hampir pasti mendapat nilai kelulusan. Jika memungkinkan, kami ingin Kamu mengambil komando sebagai Hunter tingkat tinggi juga, tapi ......"
+
+ain"Itu tidak mungkin. Dia(brass) hanya mendengarku ketika Aku mengarahkannya ke suatu tujuan."
+
+celia"Ya, Aku mengerti. Ini adalah masalah dari pihaknya, jadi kami tidak berniat menyalahkanmu dalam hal ini. Tapi, ada evaluasi tentang kerjasama dalam menjaga Hunter rank rendah, kecuali ada masalah yang terjadi, kami ingin Kamu bekerja di party sedikit lebih lama tapi ......"
+
+ain"Kalau begitu, tidak apa-apa."
 
 Meningkatkan kesan Guild Hunter tentang kami itu sendiri bukanlah hal yang buruk bagi kami, jadi tidak perlu menolak.
+
 Wajah Celia-san terlihat lega tapi, meskipun aku terus bekerja dengannya, kurasa itu tidak akan mengarah pada rehabilitasinya.
 
-"Sekarang, berbicara tentang Brass-kun , bagaimana dia? Aku tidak keberatan mendengar pendapat jujur ​​Anda, jadi tolong beri tahu kami."
-"Dia tidak cocok menjadi Hunter."
+celia"Sekarang, berbicara tentang Brass-kun, bagaimana menurutmu? Aku tidak keberatan mendengar pendapat jujurmu, jadi tolong beri tahu kami."
+
+ain"Dia tidak cocok menjadi Hunter."
 
 Mendengar jawaban langsungku, Celia-san menunjukkan senyuman bermasalah.
 
-"Bisakah Kamu memberikan contoh mengapa?"
-"Hanya dengan melihat kekuatannya, dia dapat secara konsisten melawan 2 goblin sendirian, jadi seharusnya tidak sulit baginya untuk mencari nafkah sebagai Hunter peringkat-E.
-Dia masih bisa menang melawan monster peringkat-E yang lebih kuat satu lawan satu juga, jadi jika dia bisa menjadi sedikit lebih kuat maka dia mungkin bisa mengalahkan monster peringkat-D sendirian. Namun, dia benar-benar bencana dalam segala hal.
-Lagipula, dia hanya berkeliling sembarangan tanpa berpikir panjang, hanya mencari target, dan ketika dia menemukannya, dia langsung saja bergegas untuk berduel. Karena dia meninggalkan semua musuh lainnya kepada sekutunya, semakin banyak musuh yang ada, semakin tidak masalah keberadaannya. Bahkan jika kita menemukan monster dan berada dalam posisi yang menguntungkan, dia masih bergegas di depan mereka, dan dia bahkan tidak mendengarkan apa yang aku katakan. Aku curiga dia mungkin belum pernah melihat Aku bertarung sekali pun.
-Dia memiliki kekuatan untuk melihat melalui individu terkuat dalam kerumunan, jadi dia mungkin meningkat secara dramatis jika dia menggunakannya dengan baik, tetapi karena dia hanya menggunakannya untuk menemukan dirinya lawan untuk bertarung, itu membuang-buang bakat."
-Iklan
+celia"Bisakah Kamu memberikan alasannya?"
 
+ain"Hanya dengan melihat kekuatannya, dia dapat secara konsisten melawan 2 goblin sendirian, jadi seharusnya tidak sulit baginya untuk mencari uang sebagai Hunter rank-E. Dia masih bisa menang melawan monster rank-E yang lebih kuat satu lawan satu juga, jadi jika dia bisa menjadi sedikit lebih kuat maka dia mungkin bisa mengalahkan monster rank-D sendirian. tapi, dia benar-benar bencana dalam segala hal. Lagipula, dia hanya berjalan sembarangan tanpa berpikir panjang, hanya mencari target, dan ketika dia menemukannya, dia langsung saja bergegas untuk bertarung. Karena dia meninggalkan semua musuh lainnya kepada rekan timnya, semakin banyak musuh yang ada, semakin tidak masalah keberadaannya. Bahkan jika kami menemukan monster dan berada dalam posisi yang menguntungkan, dia masih bergegas ke depan mereka, dan dia bahkan tidak mendengarkan apa yang aku katakan. Aku curiga dia mungkin belum pernah melihat Aku bertarung sekali pun. Dia memiliki kekuatan untuk melihat melalui individu terkuat dalam keramaian, jadi dia mungkin meningkat secara dramatis jika dia menggunakannya dengan baik, tetapi karena dia hanya menggunakannya untuk menemukan lawan untuk bertarung, itu menyia-nyiakan bakatnya."
 
 Masih banyak yang ingin Aku bicarakan, tetapi ini sudah cukup untuk saat ini.
+
 Celia-san menatap Carol-san dan Carol-san mengangguk sebagai jawaban.
 
-"Seperti yang kamu katakan. Dia mungkin melakukan hal yang buruk saat berkemah juga, bukan?
-Bagaimanapun, sikapnya bermasalah. Sejak dia mendapatkan Greater Swordsman sebagai Job-nya, egonya membengkak dan tidak menyusut sama sekali. Ketika dia mengambil permintaan bersamanya dan mereka menyelesaikan permintaan itu, dia dengan jujur ​​berpikir bahwa itu semua berkat dirinya sendiri.
-Bagaimana dia sampai pada kesimpulan itu, Aku tidak tahu sama sekali.
-Pertama-tama, apakah dia pernah memikirkan mengapa dia diizinkan untuk menerima permintaan peringkat-E yang sulit selama dia pergi dengan gadis ini?"
-"Aku mengerti. Aku sangat menyesal Cielmer-san , tetapi kami ingin meminta Kamu untuk bekerja dengannya beberapa kali lagi."
+carol"Seperti yang kamu katakan. Dia mungkin melakukan hal yang buruk saat berkemah juga, bukan? sikapnya saja bermasalah. Sejak dia mendapatkan Greater Swordsman sebagai Job-nya, egonya membengkak dan tidak menyusut sama sekali. Ketika dia mengambil permintaan dan mereka menyelesaikan permintaan itu, dia dengan jujur ​​berpikir bahwa itu semua berkat dirinya sendiri. Bagaimana dia sampai pada kesimpulan itu, Aku tidak tahu sama sekali. Apakah dia pernah memikirkan mengapa dia diizinkan untuk menerima permintaan rank-E yang sulit selama dia pergi dengan anak ini?"
 
-Celia-san menghela napas dalam-dalam karena suatu alasan, tetapi bagiku, aku benar-benar senang kita hanya perlu pergi bersamanya beberapa kali lagi.
-Aku tidak yakin kapan kami akan naik peringkat ke peringkat-C, tetapi mengingat itu akan menjadi tahun sejak kami tiba di Sannois setelah beberapa bulan, mungkin baik untuk mengharapkan itu terjadi selama waktu itu. Bahkan jika tidak, Celia-san mungkin punya penjelasan.
-Tetap saja, panen terbesar kita hari ini mungkin fakta bahwa obat itu sebenarnya adalah bahan yang cukup berbahaya.
+celia"Aku mengerti. Aku mintamaaf, Cielmer-san, tetapi kami ingin meminta Kamu untuk bekerja dengannya beberapa kali lagi."
+
+Celia-san menghela napas dalam-dalam karena suatu alasan, tetapi bagiku, aku benar-benar senang kami hanya perlu pergi bersamanya beberapa kali lagi.
+
+Aku tidak yakin kapan kami akan naik peringkat ke rank-C, tetapi mengingat itu akan menjadi setahun sejak kami tiba di Sannois setelah beberapa bulan, mungkin baik untuk mengharapkan itu terjadi selama waktu itu. Bahkan jika tidak, Celia-san mungkin punya penjelasan.
+
+Tetap saja, panen terbesar kami hari ini mungkin fakta bahwa obat itu sebenarnya adalah bahan yang cukup berbahaya.
