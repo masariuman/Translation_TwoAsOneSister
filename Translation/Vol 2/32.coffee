@@ -41,18 +41,27 @@ dia bergegas maju tanpa menunggu jawabanku. para kobold mungkin bahkan belum men
 Aku berganti dengan Ciel dan mempercayakan pertempuran kepadanya. Dengan sikap Brass-kun barusan, tidak heran kenapa anggota partynya meninggalkannya.
 
 Mungkin saja dia sangat lapar sehingga dia tidak bisa mengendalikan dirinya sendiri tetapi kita tidak punya alasan untuk terlalu memikirkannya.
-Sebaliknya, jika Aku mempertimbangkan pengakuan Brass-kun atas Aku, atau lebih seperti kekuatan Ciel, Aku mungkin akan mati di sini.
-Apakah dia baik-baik saja dengan kita sekarat? Bukan? Atau apakah dia tidak berpikir sejauh itu?
+
+Sebaliknya, jika Aku mempertimbangkan Brass-kun menganggap kekuatanku, atau tepatnya kekuatan Ciel, Aku mungkin akan mati di sini.
+
+Apakah dia baik-baik saja walaupun kami sekarat? Atau apakah dia tidak berpikir sejauh itu?
+
 Aku sedikit marah sekarang. Dan saat aku memikirkan itu, Ciel mengalahkan kobold terakhir.
 
-Dengan sentuhan berpengalaman, dia mengeluarkan batu sihir mereka dan mematahkan bagian bukti mereka, taring mereka.
-Butuh beberapa saat karena mereka berlima tapi melihat Brass-kun , sepertinya dia masih belum selesai dengan pertarungannya.
-Ciel sepertinya tidak berencana membantunya, dia hanya mengawasi pertarungan.
-Dan sambil tetap waspada dengan deteksi jika ada monster baru mendekat, Aku memutuskan untuk menonton juga.
+Dengan sentuhan berpengalaman, dia mengeluarkan batu magic mereka dan mematahkan bagian bukti mereka, taring mereka.
 
-Berbicara tentang kobold, mereka menggunakan keempat anggota tubuhnya saat berlari dan dapat berlari lebih cepat dari anjing normal. Karena itu, jika orang biasa dikejar oleh kobold, mereka mungkin tidak akan bisa kabur. Jika Aku hanya mempertimbangkan kemampuan fisik Ciel, dia tidak terlalu cepat, jadi kobold dapat dengan mudah mengejar kita.
-Jika kobold ini dapat menggunakan kelincahan mereka untuk dengan sengaja memimpin musuhnya, mereka mungkin sekuat monster Rank-D daripada Rank-E. Monster mirip anjing lainnya, serigala, dapat dikatakan sebagai contoh sempurna dari efek tersebut.
+Butuh beberapa waktu karena mereka ada lima tapi melihat Brass-kun, sepertinya dia masih belum selesai dengan pertarungannya.
+
+Ciel sepertinya tidak berencana membantunya, dia hanya mengawasi pertarungan.
+
+Dan sambil tetap waspada dengan +DETECTION jika ada monster baru mendekat, Aku memutuskan untuk menonton juga.
+
+Berbicara tentang kobold, mereka menggunakan keempat anggota tubuhnya saat berlari dan dapat berlari lebih cepat dari anjing normal. Karena itu, jika orang biasa dikejar oleh kobold, mereka mungkin tidak akan bisa kabur. Jika Aku hanya mempertimbangkan kemampuan fisik Ciel, dia tidak terlalu cepat, jadi kobold dapat dengan mudah mengejar kami.
+
+Jika kobold ini dapat menggunakan kelincahan mereka untuk dengan sengaja memimpin musuhnya, mereka mungkin sekuat monster Rank-D daripada Rank-E. Monster mirip anjing lainnya, serigala, dapat dikatakan sebagai contoh sempurna dari hal tersebut.
+
 Padahal, serigala tidak benar-benar berjalan dengan dua kaki dan kobold terkadang menggunakan senjata untuk menyerang, jadi mereka tidak terlalu mirip.
+
 Dengan kata lain, perbedaan di antara keduanya bersifat monoton. Bahkan jika kobold bisa bergerak cepat, masih mudah untuk menghindari serangan berulang dan tidak akan sulit untuk membidik serangan balik juga. Jadi dalam pertarungan satu lawan satu, seorang Hunter yang berpengalaman dalam pertempuran akan mampu mengalahkan mereka tanpa masalah.
 
 Jadi tentang Brass-kun , dia sama sekali tidak mengikuti gerakan kobold.
