@@ -52,30 +52,39 @@ Ngomong-ngomong, jika Aku menggunakan semua uang yang kami miliki sekarang, Aku 
 
 Karena kami memiliki beberapa koin emas, Aku yakin kami cukup kaya dari orang biasa.
 
-Padahal ini bisa dilihat sebagai perbedaan antara bangsawan dan rakyat biasa. Mempertimbangkan hal ini, kekuatan Duke Respelgia kemungkinan akan jauh lebih besar juga, dan itu adalah sesuatu yang sama sekali tidak Aku sukai.
+ini bisa dilihat sebagai perbedaan antara bangsawan dan rakyat biasa. Mempertimbangkan hal ini, kekuatan Duke Respelgia kemungkinan akan jauh lebih besar juga, dan itu adalah sesuatu yang sama sekali tidak Aku sukai.
 
 Kembali ke topik.
 
-Jika aku membentuk party, maka bekerja dengan Carol- san adalah yang terbaik, tapi karena perbedaan peringkat kita, itu tidak mungkin.
-Dengan kata lain, ada seseorang yang mereka ingin Aku ajak bekerja. Celia- san yang saat ini putus asa mungkin akan menjelaskan padaku detailnya. Tapi aku tidak punya perasaan yang baik tentang ini.
+Jika aku membentuk party, maka dengan Carol-san adalah yang terbaik, tapi karena perbedaan rank kami, itu tidak mungkin terjadi.
 
-"Cielmer- san , apakah Kamu masih ingat pesta berempat yang Kamu bantu sebelumnya?"
-"Yang Aku serahkan ke Carol- san , kan?"
-"Itu benar. Setelah kejadian itu, itu benar-benar merepotkan. "
-" Kemungkinan hal itu terjadi adalah mengapa Aku menyerahkannya kepada Kamu. "
-" Bagaimanapun, kami sudah selesai dengan itu. Namun, apa yang terjadi waktu itu terkait dengan ini. "
+Dengan kata lain, ada seseorang yang mereka ingin Aku ajak bekerja sama. Celia-san yang saat ini putus asa mungkin akan menjelaskan padaku detailnya. Tapi aku tidak punya perasaan yang baik tentang ini.
 
-Terus terang, mereka tidak meninggalkan banyak kesan pada Aku. Aku hanya melihat mereka dari jauh, meminta Ciel membantu mereka dengan tepat, dan kemudian kami kabur begitu saja.
-Dan berbicara tentang Ciel, "Siapa mereka lagi?" Sepertinya dia praktis tidak memiliki ingatan tentang mereka.
+celia"Cielmer-san , apakah Kamu masih ingat party berempat yang Kamu bantu sebelumnya?"
 
-"Mengenai pihak tersebut, mereka berpisah seperti sekarang dan bertindak secara terpisah, dengan tiga dari mereka bekerja sebagai tim dan yang lainnya bekerja sendiri."
-"Jadi mereka menendang yang lain. Sekarang aku mengingatnya, mereka tampaknya bertindak seperti itu bahkan ketika mereka bertarung saat itu. "
-" Tepatnya, tampaknya tiga orang lainnya adalah orang-orang yang pergi tetapi itu tidak terlalu penting.
-Cielmer- san , yang kami maksudkan padamu, adalah yang bertindak sendiri. Kami ingin Kamu membentuk pesta dengan Hunter peringkat-E yang berperan sebagai pendekar pedang, Brass- kun . "
+ain"Yang Aku serahkan ke Carol-san, kan?"
 
-Mereka mungkin mendorong sesuatu yang menyusahkan kita lagi, tapi Aku tetap diam dan mendengarkan.
-Hingga saat ini, permintaan yang diberikan Celia- san kepada kami termasuk banyak permintaan yang tidak diproses di guild. Dalam kasus seperti itu, karena menyelesaikan permintaan yang tidak populer dimaksudkan untuk meningkatkan kesan guild terhadap kami, Aku mengikutinya sampai batas tertentu.
-Kali ini kemungkinan merupakan perpanjangan dari itu juga. Bahkan setelah mendengar nama orang lain, aku masih belum benar-benar tahu siapa itu, tapi karena itu mungkin anak laki-laki yang dengan sembrono bergegas menuju Pemimpin Goblin, itu pasti akan merepotkan.
+carol"benar. Setelah kejadian itu, itu benar-benar merepotkan."
+
+ain"Kemungkinan hal itu terjadi adalah mengapa Aku menyerahkannya kepadamu."
+
+carol"yaaah, kita sudah selesai dengan hal itu. tapi, apa yang terjadi sekarang itu terkait dengan hal ini."
+
+Terus terang, mereka tidak meninggalkan banyak kesan padaku. Aku hanya melihat mereka dari jauh, meminta Ciel membantu mereka dengan tepat, dan kemudian kami kabur begitu saja.
+
+Dan berbicara tentang Ciel, "Siapa mereka? yang mana?" Sepertinya dia tidak memiliki ingatan tentang mereka.
+
+celia"Mengenai pihak tersebut, mereka berpisah seperti sekarang dan bertindak secara terpisah, dengan tiga dari mereka bekerja sebagai party dan yang satunya bekerja sendiri."
+
+ain"Jadi mereka mengeluarkannya ya. Sekarang aku mengingatnya, mereka tampaknya bertindak seperti itu bahkan ketika mereka bertarung saat itu."
+
+celia"Tepatnya, tampaknya tiga orang tersebutlah yang keliar tapi itu tidak terlalu penting. Cielmer-san, yang kami maksudkan padamu, adalah yang bertindak sendiri. Kami ingin Kamu membentuk party dengan Hunter rank-E yang berperan sebagai swordman, Brass-kun."
+
+Mereka mungkin mendorong sesuatu yang menyusahkan kami lagi, tapi Aku tetap diam dan mendengarkan.
+
+Hingga saat ini, permintaan yang diberikan Celia-san kepada kami termasuk banyak permintaan yang tidak diproses di guild. Dalam kasus seperti itu, karena menyelesaikan permintaan yang tidak populer dimaksudkan untuk meningkatkan kesan guild terhadap kami, Aku mengikutinya sampai batas tertentu.
+
+Kali ini kemungkinan seperti itu juga. Bahkan setelah mendengar nama orang lain, aku masih belum benar-benar tahu siapa itu, tapi karena itu mungkin anak laki-laki yang dengan sembrono bergegas menuju Pemimpin Goblin, itu pasti akan merepotkan.
 
 Peran menentukan apa yang dapat dilakukan seseorang dalam sebuah pesta, terlepas dari Pekerjaannya, atau lebih. Dalam kasus kami, kami mungkin bisa pergi dengan Penyihir sebagai peran kami. Sama seperti dalam kasus Aku, peran seseorang tidak selalu sesuai dengan Pekerjaan mereka.
 Peran seseorang adalah keputusan pribadi tetapi umumnya mereka seperti pendekar pedang, tombak, manusia kapak, penyihir, dan sebagainya. Karena itu, bahkan jika seseorang menyebut dirinya pendekar pedang, sulit ditebak apakah mereka mengacu pada Pekerjaan atau peran mereka.
