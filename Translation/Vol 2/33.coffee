@@ -82,38 +82,56 @@ Berdasarkan reaksinya, sepertinya obat itu bukan hanya biasa. Mengabaikan apakah
 
 Karena siapa pun yang tidak terbiasa mengendalikan energi sihir memiliki kemungkinan 100% untuk mati, itu mungkin jenis obat yang dilarang digunakan karena sifatnya yang mematikan atau sebagai racun.
 
-"Kamu mengatakan bahwa itu digunakan pada Kamu, seberapa sering?"
-"Setiap hari. Selama 5 tahun penuh sejak aku berusia lima tahun sampai aku melarikan diri."
-"Kamu berhasil hidup melalui itu."
-"Aku hanya ingin memastikan, tetapi obat itu adalah sesuatu yang menekan kekuatan sihir dari batu ajaib dan melepaskannya ke dalam tubuh seseorang , kan?"
-"Benar, Aku belum melihatnya secara langsung tetapi obat itu sangat dihargai di kalangan bangsawan sebagai racun.
-Lagipula, karena itu hanya kekuatan sihir yang mengamuk, itu tidak meninggalkan jejak zat tidak seperti racun asli. Kekuatan sihir mengamuk akhirnya menyebar dengan sendirinya juga, jadi itu cukup ideal. Padahal akhir-akhir ini, analisis rangkaian juga bisa dilakukan, jadi penggunaannya akan cukup jelas dengan sekali lihat.
-Karena betapa merepotkannya, tidak hanya dilarang untuk digunakan, tetapi bahkan juga dilarang untuk memilikinya. Namun untungnya, membuatnya akan membutuhkan sejumlah besar uang, jadi seharusnya tidak muncul di mana pun tanpa alasan apa pun."
-"Aku pikir Kamu tidak akan mati bahkan jika Kamu meminumnya, Carol-san . Ini sangat mengganggu."
-"Aku sama sekali tidak berencana untuk meminumnya."
-"Setelah meminumnya tidak akan menjadi kejahatan, kan?"
-"Jika seseorang yang dipaksa untuk minum racun yang dilarang untuk dimiliki bisa jadi dilihat sebagai penjahat, maka tentu saja, itu kejahatan."
+carol"Kamu mengatakan itu digunakan padamu, seberapa sering?"
+
+ain"Setiap hari. Selama 5 tahun penuh sejak aku berusia lima tahun sampai aku melarikan diri."
+
+carol"Kamu berhasil dengan baik hidup melalui itu."
+
+ain"Aku hanya ingin memastikan, tetapi obat itu adalah sesuatu yang menekan energi sihir dari batu magic dan melepaskannya ke dalam tubuh seseorang , kan?"
+
+carol"Benar, Aku belum melihatnya secara langsung tetapi obat itu sangat dihargai di kalangan bangsawan sebagai racun. Lagipula, karena itu hanya energi sihir yang liar, itu tidak meninggalkan jejak tidak seperti racun asli. energi sihir liar akhirnya menyebar dengan sendirinya juga, jadi itu cukup ideal. Padahal akhir-akhir ini, analisis rangkaian juga bisa dilakukan, jadi penggunaannya akan cukup jelas dengan sekali lihat. Karena betapa merepotkannya, tidak hanya dilarang untuk digunakan, tetapi bahkan juga dilarang untuk memilikinya. tapi untungnya, membuatnya akan membutuhkan sejumlah besar uang, jadi seharusnya tidak muncul di mana pun tanpa alasan apa pun."
+
+ain"Aku pikir Kamu tidak akan mati bahkan jika Kamu meminumnya, Carol-san. itu sangat tidak enak dan merepotkan juga."
+
+carol"Aku sama sekali tidak berencana untuk meminumnya."
+
+ain"meminumnya tidak akan menjadi kejahatan, kan?"
+
+carol"Jika seseorang yang dipaksa untuk minum racun yang dilarang bisa jadi dilihat sebagai penjahat, maka tentu saja, itu kejahatan."
 
 Untuk beberapa alasan, Carol-san tampak kelelahan, tetapi apakah itu benar-benar mengejutkan?
-Terus terang, Aku tidak merasakan bahaya besar dari obat itu, jadi Aku tidak bisa berhubungan dengannya.
-Tetapi jika Aku menganggap bahwa Ciel sendiri tidak dapat menahannya kecuali dia mengubah rambutnya menjadi sirkuit, maka itu mungkin sebenarnya cukup berbahaya.
-Dengan kata lain, pada tahap itu, sang duke sudah mengambil risiko. Kamu pasti akan mati; jika Kamu bertahan, Aku akan menggunakan Kamu , atau sesuatu seperti itu. Mempertimbangkan hal itu, Ciel yang hidup mungkin juga mengejutkan sang duke, dan kekecewaannya saat mengetahui bahwa dia adalah seorang Putri Tari mungkin tidak terbayangkan.
-Padahal, bagi Aku, yang bisa Aku katakan adalah melayani dia dengan benar .
 
-"Tetap saja, sekarang Aku mengerti. Kamu memiliki sesuatu yang memungkinkan Kamu bertahan bahkan setelah meminum obat itu. Tentu saja Kamu akan kuat."
-"Alasan Aku bertahan adalah ini."
+Terus terang, Aku tidak merasakan bahaya besar dari obat itu, jadi Aku tidak bisa mengerti maksudnya.
+
+Tetapi jika Aku menganggap bahwa Ciel sendiri tidak dapat menahannya kecuali dia mengubah rambutnya menjadi sirkuit, maka itu mungkin sebenarnya cukup berbahaya.
+
+Dengan kata lain, pada tahap itu, sang duke sudah mengambil risiko. Kamu pasti akan mati; jika Kamu bertahan, Aku akan menggunakanmu, atau sesuatu seperti itu. Mempertimbangkan hal itu, Ciel yang hidup mungkin juga mengejutkan sang duke, dan kekecewaannya saat mengetahui bahwa dia adalah seorang dance princess mungkin tidak terbayangkan.
+
+Padahal, bagiku, dia memanen apa yang dia tanam.
+
+carol"Sekarang Aku mengerti. Kamu memiliki sesuatu yang memungkinkan Kamu bertahan bahkan setelah meminum obat itu. Tentu saja Kamu akan kuat."
+
+ain"Alasanku bertahan adalah ini."
 
 Aku menyisir rambut panjang Ciel ke depanku, seolah memeluknya.
-Saat pandangan Carol-san terpaku pada rambut putih bersih, Aku mulai menjelaskan.
-"Hasil dari memaksa kekuatan sihir mengamuk adalah rambut ini."
-"Awalnya pirang, bukan? Singkatnya, Kamu mengatakan bahwa setiap helai rambut Kamu berubah menjadi rangkaian, bukan?"
-"Seharusnya begitu. Aku hanya tahu bahwa mereka menjadi sirkuit sebagai hasilnya, jadi Aku tidak mengerti persis bagaimana itu terjadi.
-Namun, alasan mengapa orang berambut putih menjadi ahli sihir yang hebat mungkin karena mereka dapat menggunakan rambutnya sebagai sirkuit. Sebaliknya, Aku pikir rambut Kamu memutih ketika menjadi sirkuit."
-"Ini adalah penemuan baru. Terobosan besar, bahkan. Tapi kami tidak bisa benar-benar membuat publik ini diam."
-"Bahkan anak berusia lima tahun bisa mengelolanya."
-"Itu hanya dalam kasus Kamu. Haa…… Mengetahui bahwa Aku tidak boleh melewatinya meskipun ada bahan penelitian yang sempurna tepat di depan Aku adalah, buruk bagi pikiran Aku."
 
-Melihat Carol-san mendesah membuatku teringat betapa cantiknya dia, tapi kata-katanya benar-benar mengerikan, jadi tidak terlalu membantu.
+Saat pandangan Carol-san terpaku pada rambut putih bersih, Aku mulai menjelaskan.
+
+ain"Hasil dari mengendalikan energi sihir liar adalah rambut ini."
+
+carol"Awalnya pirang, kan? Singkatnya, Kamu mengatakan bahwa setiap helai rambutmu berubah menjadi sirkuit, kan?"
+
+ain"Seharusnya begitu. Aku hanya tahu bahwa mereka menjadi sirkuit sebagai hasilnya, jadi Aku tidak mengerti persis bagaimana itu terjadi. tapi, alasan mengapa orang berambut putih menjadi ahli sihir yang hebat mungkin karena mereka dapat menggunakan rambutnya sebagai sirkuit. Aku pikir rambutmu memutih ketika menjadi sirkuit."
+
+carol"Ini adalah penemuan baru. bahkan Terobosan besar. Tapi kami tidak bisa benar-benar membuat ini menjadi publik."
+
+ain"Bahkan anak berusia lima tahun bisa mengatasinya."
+
+carol"Itu hanya dalam kasusmu. Haa...... Mengetahui bahwa Aku tidak boleh melanjutkannya meskipun ada bahan penelitian yang sempurna tepat di depanku, buruk untuk pikiranku."
+
+Melihat Carol-san menghela nafas membuatku teringat betapa cantiknya dia, tapi kata-katanya benar-benar mengerikan.
+
 Selain itu, situasi kita, ritual untuk menarik dewa, atau fakta bahwa obat dapat digunakan untuk meningkatkan kekuatan sihir terdengar seperti hal-hal yang menarik minatnya, tapi kupikir semua itu mungkin tabu di dunia ini.
 
 "Sepertinya kita tidak bisa membuat obat itu."
