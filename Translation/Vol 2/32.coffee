@@ -19,18 +19,26 @@ ain"Aku hanya berpikir, mengingat usia Brass-kun, reaksinya sepertinya tidak bis
 ciel"Tapi meskipun itu masalahnya, Ain tidak benar-benar perlu mentolerirnya, kan?"
 
 Benar. Tetap saja, bereaksi terhadap setiap hal kecil yang dia lakukan hanya akan membuang-buang waktu.
+
 Secara rasional, kecuali tentang sesuatu yang benar-benar akan menyebabkan masalah, Aku berencana untuk mengabaikan semua yang dia katakan.
-Bagaimanapun, ini adalah bagian dari ujian untuk menjadi Rank-C. "
-" Kamu sangat dewasa, Ain. "
-" Aku sebenarnya tidak terlalu dewasa. Aku jauh dari dewasa. "
 
-Bahkan jika aku mengabaikan Brass-kun , aku masih memiliki Ciel untuk diajak bicara. Jadi bagaimanapun, Aku masih akan memiliki waktu yang menyenangkan.
-Beberapa saat kemudian, tepat ketika Brass-kun mulai mengeluh "Kamu benar-benar yakin bahwa kamu mendengar sesuatu?" Kami bertemu dengan segerombolan kobold. Karena ada 6 dari mereka, biasanya orang akan berpikir bahwa kita harus menangani masing-masing 3 dari mereka. Jika dia mempertimbangkan pangkatku juga, maka 4 untukku dan 2 untuk dia.
-Dan jika Brass-kun tidak hanya berbicara, maka Aku akan menangani 2 dari mereka sementara dia mencari 4 lainnya, Aku rasa.
+ain"yaah, ini adalah bagian dari ujian untuk menjadi Rank-C."
 
-Jadi, untuk instruksi Brass-kun , itu "Aku akan mendapatkan yang terkuat jadi bawa mereka." Katanya.
-Apalagi, dia bergegas masuk tanpa menunggu jawabanku. Mereka mungkin bahkan belum memperhatikan kita, sekarang mereka pasti tahu kita ada di sini.
-Aku beralih dengan Ciel dan mempercayakan pertempuran kepadanya. Dengan sikap Brass-kun barusan, tidak heran kenapa anggota partynya meninggalkannya.
+ciel"Kamu sangat dewasa, Ain."
+
+ain"Aku sebenarnya tidak terlalu dewasa. Aku masih jauh dari dewasa."
+
+Bahkan jika aku mengabaikan Brass-kun , aku masih memiliki Ciel untuk diajak bicara. Jadi, Aku masih akan memiliki waktu yang menyenangkan.
+
+Beberapa saat kemudian, tepat ketika Brass-kun mulai mengeluh "Kamu benar-benar yakin bahwa kamu mendengar sesuatu?" Kami bertemu dengan segerombolan kobold. Karena ada 6 dari mereka, biasanya orang akan berpikir bahwa kita harus melawan masing-masing 3 per orang. Jika dia mempertimbangkan rank ku juga, maka 4 untukku dan 2 untuknya.
+
+Dan jika Brass-kun tidak hanya berbicara, maka Aku akan menangani 2 sementara dia melawan 4 sisanya, mungkin.
+
+Jadi, untuk instruksi Brass-kun, "Aku akan melawan yang terkuat jadi lawan sisanya.", Katanya.
+
+dia bergegas maju tanpa menunggu jawabanku. para kobold mungkin bahkan belum menyadari kami, sekarang mereka pasti tahu kita ada di sini.
+
+Aku berganti dengan Ciel dan mempercayakan pertempuran kepadanya. Dengan sikap Brass-kun barusan, tidak heran kenapa anggota partynya meninggalkannya.
 
 Mungkin saja dia sangat lapar sehingga dia tidak bisa mengendalikan dirinya sendiri tetapi kita tidak punya alasan untuk terlalu memikirkannya.
 Sebaliknya, jika Aku mempertimbangkan pengakuan Brass-kun atas Aku, atau lebih seperti kekuatan Ciel, Aku mungkin akan mati di sini.
