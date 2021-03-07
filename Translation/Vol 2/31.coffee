@@ -86,96 +86,125 @@ Hingga saat ini, permintaan yang diberikan Celia-san kepada kami termasuk banyak
 
 Kali ini kemungkinan seperti itu juga. Bahkan setelah mendengar nama orang lain, aku masih belum benar-benar tahu siapa itu, tapi karena itu mungkin anak laki-laki yang dengan sembrono bergegas menuju Pemimpin Goblin, itu pasti akan merepotkan.
 
-Peran menentukan apa yang dapat dilakukan seseorang dalam sebuah pesta, terlepas dari Pekerjaannya, atau lebih. Dalam kasus kami, kami mungkin bisa pergi dengan Penyihir sebagai peran kami. Sama seperti dalam kasus Aku, peran seseorang tidak selalu sesuai dengan Pekerjaan mereka.
-Peran seseorang adalah keputusan pribadi tetapi umumnya mereka seperti pendekar pedang, tombak, manusia kapak, penyihir, dan sebagainya. Karena itu, bahkan jika seseorang menyebut dirinya pendekar pedang, sulit ditebak apakah mereka mengacu pada Pekerjaan atau peran mereka.
-"Bisakah Aku punya waktu untuk memikirkannya?"
-"Ya. Silakan. "
+Peran menentukan apa yang dapat dilakukan seseorang dalam sebuah party, terlepas dari jobnya. Dalam kasus kami, kami mungkin bisa dianggap sebagai penyihir sebagai peran kami. Sama seperti dalam kasusku, peran seseorang tidak selalu sesuai dengan job mereka.
 
-"Untuk Kamu Ain, apa pendapat Kamu tentang ini?
-Aku tidak dapat mengingat apapun tentang dia, jadi aku tidak benar-benar tahu apa yang harus dilakukan. "
-" Apa pendapatmu tentang membentuk pesta? "
-" Jika dengan Ain, maka aku benar-benar ingin melakukannya. Padahal kita selalu berpesta jika dipikir-pikir.
-Adapun orang lain, Aku bertanya-tanya. Aku tidak bisa membayangkannya, tapi mungkin yang terbaik adalah mencoba membentuknya setidaknya sekali karena ini kan? Jadi Ain, bagaimana menurutmu? "
-" Bagi Aku, Aku pikir kita harus mencobanya.
-Namun, membentuk party tanpa berpikir panjang mungkin akan membawa kita ke dalam masalah, jadi aku tidak terlalu menyukainya. "
+Peran mereka adalah keputsan mereka sendiri tapi umumnya mereka seperti swordman, spearman, Axman, sorcerer, dan sebagainya. Karena itu, bahkan jika seseorang menyebut dirinya swordman, sulit menebak apakah mereka mengacu pada job atau peran mereka.
 
-Bagaimanapun, itu adalah seseorang yang ditinggalkan oleh setiap anggota partainya.
-Dalam kasus Aku, Aku telah memikirkan beberapa kondisi yang Aku inginkan sebelum kami menyetujuinya, tetapi Aku ingin memberi Ciel kesempatan untuk merenungkan secara mendalam tentang hal itu, jadi Aku memutuskan untuk menunggu tanggapannya.
+ain"Bisakah Aku punya waktu untuk memikirkannya?"
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+celia"Ya. Silakan."
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+ciel"Ain, bagaimana pendapatmu? Aku tidak dapat mengingat apapun tentang dia, jadi aku tidak benar-benar tahu apa yang harus dilakukan."
 
-"Dia Hunter peringkat-E, benar? Maka itu berarti dia setidaknya lebih lemah dari kita.
-Dengan asumsi bahwa kami akan menerima permintaan, itu harus menjadi permintaan peringkat-E, jadi bahkan jika dia hanyalah beban, kami kemungkinan besar tidak akan berada dalam bahaya apa pun.
-Jadi, yang perlu kita waspadai adalah hal-hal selain permintaan, bukan? Bisakah kamu bertanya apakah yang terjadi waktu itu adalah satu-satunya alasan party mereka dibubarkan? "
-" Dimengerti. "
-" Terima kasih. Aku sangat menghargai itu."
+ain"Apa pendapatmu tentang membuat party?"
 
-"Mengapa partainya berpisah?"
-"Aku yakin Kamu telah melihatnya secara langsung tetapi tampaknya itu berasal dari cara bertempur sembrono Brass- kun dan karena mereka memiliki masalah dengan alokasi hadiah mereka."
-" Aku melihat."
+ciel"Jika dengan Ain, maka aku benar-benar ingin melakukannya. Padahal kita selalu satu party sih. kalau untuk orang lain, entahlah. Aku tidak bisa membayangkannya, tapi mungkin lebih baik kita mencobanya sekali saja kan? Jadi Ain, bagaimana menurutmu?"
 
-"Jadi dalam hal ini, kita seharusnya hanya membentuk pihak sementara yang hanya akan bekerja sama untuk menyelesaikan permintaan. Akan lebih baik jika, setelah permintaan, guild juga memastikan bahwa pihak lain tidak berhubungan dengan kita lebih dari yang diperlukan.
-Dan kemudian, kita harus meminta guild agar dia setuju dengan pembagian hadiah kita secara adil.
-Akhirnya, bagaimana kalau mereka menyadari bahwa kita tidak akan membantunya menjadi lebih kuat atau mencoba untuk mereformasi dia? "
-" Tentu, Aku pikir itu bagus. "
+ain"Aku pikir kita harus mencobanya. Tapi, membentuk party tanpa berpikir panjang mungkin akan membawa kita ke dalam masalah, jadi aku tidak terlalu menyukainya."
+
+yah, orang itu adalah seseorang yang ditinggalkan oleh setiap anggota partynya.
+
+Dalam kasusku, Aku telah memikirkan beberapa kondisi yang Aku inginkan sebelum kami menyetujuinya, tetapi Aku ingin memberi Ciel kesempatan untuk merenungkan secara mendalam tentang hal itu, jadi Aku memutuskan untuk menunggu tanggapannya.
+
+cie"Dia Hunter rank E, kan? berarti dia setidaknya lebih lemah dari kita. Dengan asumsi bahwa kita akan menerima permintaan, Permintaan tersebut permintaan rank-E, jadi kalaupun dia hanyalah beban, kita kemungkinan besar tidak akan berada dalam bahaya apa pun. Jadi, yang perlu kita waspadai adalah hal-hal selain permintaan, kan? Bisakah kamu bertanya apakah yang terjadi waktu itu adalah satu-satunya alasan party mereka dibubarkan?"
+
+ain"baiklah."
+
+ciel"Terima kasih. Aku sangat menghargai itu."
+
+ain"Mengapa partynya berpisah?"
+
+celia"Aku yakin Kamu telah melihatnya secara langsung tetapi tampaknya itu berasal dari cara bertempur sembrono Brass-kun dan karena mereka memiliki masalah dengan alokasi hadiah mereka."
+
+ain"begitu ya."
+
+ciel"Jadi dalam hal ini, kita hanya membentuk pihak sementara yang hanya akan bekerja sama untuk menyelesaikan permintaan. Akan lebih baik jika, setelah permintaan, guild juga memastikan bahwa pihak lain tidak berhubungan dengan kita lebih dari yang diperlukan. Dan kemudian, kita harus meminta guild agar dia setuju dengan pembagian hadiah kita secara adil. bagaimana kalau mereka menyadari bahwa kita tidak akan membantunya menjadi lebih kuat atau mencoba untuk mereformasi dia?"
+
+ain"Tentu, Aku pikir itu bagus."
 
 Aku tidak yakin tentang apa yang sebenarnya diinginkan guild dari kami, tetapi apa yang mereka minta dari kami hanya jika kami dapat bekerja sama di saat-saat darurat.
-Bahkan jika mereka benar-benar ingin kita mendorong pertumbuhan pribadinya, kita tidak punya alasan untuk merawatnya sejauh itu.
-Ketika Aku memberi tahu mereka apa yang dikatakan Ciel hampir secara praktis saat dia mengatakannya kepada Aku, Celia- san menunjukkan senyum sedikit sedih sebelum mengatakan "Kalau begitu tolong lakukan yang terbaik." Dan menundukkan kepalanya.
-Carol- san bahkan bergumam "Diragukan bahwa kamu benar-benar berusia 10 tahun." Saat dia menatapku, tetapi Ciel yang memikirkan ini. Itulah mengapa sebenarnya itu adalah sesuatu yang akan dikatakan oleh anak berusia 10 tahun, jadi tidak ada masalah di sini.
 
-Hehe ~ Ciel-ku sangat luar biasa, bukan? Hanya bercanda.
+Bahkan jika mereka benar-benar ingin kita mendorong pertumbuhan pribadinya, kita tidak punya alasan untuk membantunya sejauh itu.
 
-"Juga, Aku punya satu permintaan lagi, atau lebih tepatnya, satu pertanyaan lagi."
-"Masih ada sesuatu, Aku mengerti."
-"Aku hanya ingin bertanya, bahkan jika kita membentuk pesta, apakah tidak apa-apa untuk memperlakukannya seperti biasa ? "
-" Yah tentu saja. Bagaimanapun, ini hanyalah tes. "
-" Kalau begitu, tidak apa-apa. "
+Ketika Aku memberi tahu mereka apa yang dikatakan Ciel seperti dia mengatakannya kepadaku, Celia-san menunjukkan senyum sedikit sedih sebelum mengatakan "Kalau begitu tolong lakukan yang terbaik." Dan menundukkan kepalanya.
 
-Dengan itu, pekerjaan pihak pertama kami diputuskan seperti itu adalah semacam uji coba gratis.
+Carol-san bahkan bergumam "Aku ragu kalau kau benar-benar berusia 10 tahun." Saat dia menatapku, tetapi Ciel yang memikirkan ini. Itulah mengapa sebenarnya itu adalah sesuatu yang akan dikatakan oleh anak berusia 10 tahun, jadi tidak ada masalah di sini.
+
+Hehe ~ Ciel-ku sangat luar biasa, kan? Hanya bercanda.
+
+ain"Juga, Aku punya satu permintaan lagi, atau lebih tepatnya, satu pertanyaan lagi."
+
+celia"ada lagi ya, baiklah."
+
+ain"Aku hanya ingin bertanya, bahkan jika kkami membentuk party, apakah tidak apa-apa untuk memperlakukannya seperti biasa ?"
+
+celia"Yah tentu saja. Bagaimanapun juga, ini hanyalah tes."
+
+ain"Kalau begitu, tidak masalah."
+
+Dengan itu, pekerjaan party kami diputuskan semacam uji coba gratis.(free trial, bukan full version hehe)
 
 ◇
+
 Setelah keputusan itu, kami dibawa ke suatu tempat, dan yang menunggu kami adalah seorang anak laki-laki yang jauh lebih tinggi dariku yang sepertinya terlihat di antara remaja dan dewasa muda.
+
 Rambutnya coklat dengan sedikit warna merah, dan matanya berwarna hijau. Dia juga memiliki tubuh maskulin yang kokoh.
-Sepertinya dia anak muda yang suka mengejar mimpi. Yah, kurasa aku juga masih anak muda, tapi bagaimanapun juga.
 
-Dia seharusnya adalah Brass- kun , tapi tolong berhenti menatapku.
-Aku yakin dia berpikir Mengapa Aku perlu bermain sebagai babysitter? atau sesuatu sekarang.
-Lagipula, menilai dari penampilanku, dia mungkin berpikir bahwa aku hanya Hunter peringkat-G, dan dia sepertinya tidak akan mempercayai kita bahkan jika kita memberitahunya bahwa aku di peringkat-D. Itulah yang Aku dapat dari ekspresinya.
+Sepertinya dia anak muda yang suka mengejar mimpi. Yah, kurasa aku juga masih anak muda.
 
-"Jadi, Aku hanya perlu merawat udang ini di sini, kan?"
-"Jika itu definisi Kamu tentang membentuk pesta, maka tentu. Secara alami, Kamu tidak punya hak untuk menolak. Karena Kamu terus berulang kali gagal dalam permintaan Kamu akhir-akhir ini, jika Kamu menolak sekarang atau tidak dapat bekerja sama sebagai pihak, Kamu akan diturunkan pangkatnya menjadi F. "
-" Hmph. "
+Dia seharusnya adalah Brass-kun, tapi tolong berhenti menatapku.
 
-Mendengar kata-kata Carol- san , Brass- kun dengan penuh kebencian memelototiku. Tidak peduli bagaimana Kamu melihatnya, itu sepenuhnya salahnya sendiri.
-Mengambil alih dari Carol- san , Celia- san memulai penjelasannya.
+Aku yakin dia berpikir Mengapa Aku perlu bermain sebagai babysitter? atau semacamnya.
 
-"Jika Kamu membentuk party dengannya, maka kami dapat mengizinkan Kamu untuk menerima permintaan peringkat-E dengan tingkat kesulitan tinggi.
-Dan karena pesta Kamu diatur oleh guild, apa pun alasannya, hadiah Kamu akan selalu dibagi rata. Tidak seperti pesta biasa, jika ada masalah di antara kalian berdua saat kalian berdua tidak mengerjakan permintaan, itu akan dianggap sebagai konflik antara Hunter, jadi harap diingat. "
-" Dan jika dia memberatkanku? "
-" Nah, karena kalian berdua adalah Hunter, pada akhirnya itu adalah tanggung jawab diri sendiri. "
-" Kalau begitu baiklah, mengerti. "
+Lagipula, menilai dari penampilanku, dia mungkin berpikir bahwa aku hanya Hunter rank-G, dan dia sepertinya tidak akan mempercayai kami bahkan jika kami memberitahunya bahwa aku di rank-D. Itulah yang Aku dapat dari ekspresinya.
 
-Dia mungkin bermaksud bahwa dia akan meninggalkan kita jika situasinya membutuhkannya. Kami sedang berpikir untuk melakukan hal yang sama, jadi Aku tidak terlalu mempermasalahkannya.
-Tetap saja, tidakkah dia mengerti bahwa melakukan sesuatu yang tidak pantas bagi seorang anggota partai akan membuatnya diturunkan pangkatnya?
+brass"Jadi, Aku hanya perlu menjaga udang ini, kan?"
 
-"Lalu Aku akan menerima permintaan ini. Jangan seret aku. Udang. "
-" Permintaan penaklukan Kobold, apakah tidak apa-apa? "
-" Kamu hanya mendengarkan apa yang dikatakan Pendekar Pedang Besar, udang. "
+carol"Jika itu definisi Kamu tentang membentuk party, maka tentu saja. Secara alami, Kamu tidak punya hak untuk menolak. Karena Kamu terus berulang kali gagal dalam permintaanmu akhir-akhir ini, jika Kamu menolak sekarang atau tidak dapat bekerja sama, Kamu akan diturunkan menjadi F."
 
-Setelah mengatakan itu, Brass- kun pergi ke meja resepsionis dan kemudian meninggalkan guild.
-Sebelum mengikutinya, Aku melirik ke arah Carol- san dan Celia- san , dan di sana Aku melihat mereka menatap Aku dengan ekspresi bingung di wajah mereka.
-Bagaimana Aku bisa mengatakan ini, Brass- kun jauh lebih tidak bisa didekati daripada yang Aku bayangkan. Tapi melihat lebih dekat, dia berjalan agak goyah.
-Mereka mengatakan bahwa dia telah gagal dalam permintaannya berulang kali, dia mungkin tidak punya uang sama sekali. Pakaiannya juga terlihat usang dan Aku bisa melihat banyak goresan di tubuhnya. Mungkin dia juga goyah karena lapar, atau lebih.
+grass" Hmph. "
 
-Aku tidak percaya dia bahkan berpikir untuk menerima permintaan penaklukan kobold di negara bagian itu.
-Kobold adalah peringkat-E, jadi Aku tidak menganggap mereka kuat tetapi karena kobold yang tampak seperti anjing bipedal selalu bertindak dalam kelompok yang terdiri dari 5-6 orang, mereka lebih menyebalkan dibandingkan dengan goblin.
-Meskipun umum untuk melihat gerombolan dengan Pemimpin Goblin memimpin lebih dari 10 dari mereka, para goblin umumnya bergerak secara mandiri dan seseorang hanya akan bertemu paling banyak tiga dari mereka pada saat yang bersamaan.
-Jadi mengingat dia bertengkar jarak dekat hanya dengan seorang Pemimpin Goblin, kurasa dia tidak bisa menangani beberapa kobold pada saat yang bersamaan.
+Mendengar kata-kata Carol-san , Brass-kun dengan penuh kebencian memelototiku. Tidak peduli bagaimana Kamu melihatnya, itu salahnya sendiri.
 
-Pertama-tama, kami bahkan belum memperkenalkan diri kami satu sama lain. Aku heran dia benar-benar menerima permintaan seperti itu.
-Aku tahu siapa dia, tapi dia mungkin bahkan tidak tahu siapa Aku. Nah, karena deteksi menunjukkan hasil yang sama seperti biasanya, Aku akan membiarkan Brass- kun melakukan apa yang dia inginkan dan meminta Ciel untuk fokus mendukungnya.
+Mengambil alih dari Carol-san , Celia-san memulai penjelasannya.
+
+celia"Jika Kamu membentuk party dengannya, maka kami dapat mengizinkan Kamu untuk menerima permintaan rank-E dengan tingkat kesulitan tinggi. Dan karena party Kamu diatur oleh guild, apa pun alasannya, hadiahmu akan selalu dibagi rata. Tidak seperti party biasa, jika ada masalah di antara kalian berdua saat kalian berdua tidak mengerjakan permintaan, itu akan dianggap sebagai konflik antar Hunter, jadi mohon diingat."
+
+brass"Dan jika dia memberatkanku?"
+
+carol"Nah, karena kalian berdua adalah Hunter, pada akhirnya itu adalah tanggung jawab diri sendiri."
+
+brass"Kalau begitu baiklah, aku mengerti."
+
+Dia mungkin bermaksud bahwa dia akan meninggalkan kami jika situasinya buruk. Kami sedang berpikir untuk melakukan hal yang sama, jadi Aku tidak terlalu mempermasalahkannya.
+
+Tetap saja, tidakkah dia mengerti bahwa melakukan sesuatu yang tidak pantas bagi seorang anggota party akan membuatnya diturunkan ranknya?
+
+brass"Lalu Aku akan menerima permintaan ini. Jangan seret aku. Udang."
+
+ain"Permintaan penaklukan Kobold, apakah tidak apa-apa?"
+
+brass"dengarkan saja apa yang dikatakan greater swordman, udang."
+
+Setelah mengatakan itu, Brass-kun pergi ke meja resepsionis dan kemudian meninggalkan guild.
+
+Sebelum mengikutinya, Aku melirik ke arah Carol-san dan Celia-san, dan di sana Aku melihat mereka menatapku dengan ekspresi bingung di wajah mereka.
+
+Bagaimana ya, Brass-kun jauh lebih tidak bisa didekati daripada yang Aku bayangkan. Tapi melihat lebih dekat, dia berjalan agak goyah.
+
+Mereka mengatakan bahwa dia telah gagal dalam permintaannya berulang kali, dia mungkin tidak punya uang sama sekali. Pakaiannya juga terlihat usang dan Aku bisa melihat banyak goresan di tubuhnya. Mungkin dia juga goyah karena lapar.
+
+Aku tidak percaya dia bahkan berpikir untuk menerima permintaan penaklukan kobold .
+
+Kobold adalah rank-E, jadi Aku tidak menganggap mereka kuat tetapi karena kobold yang tampak seperti anjing selalu bertindak dalam kelompok yang terdiri dari 5-6 ekor, mereka lebih menyebalkan dibandingkan dengan goblin.
+
+Meskipun sudah biasa untuk melihat gerombolan dengan Pemimpin Goblin memimpin lebih dari 10, para goblin umumnya bergerak secara mandiri dan seseorang hanya akan bertemu paling banyak tiga dari mereka pada saat yang bersamaan.
+
+Jadi mengingat dia bertarung jarak dekat hanya dengan seorang Pemimpin Goblin, kurasa dia tidak bisa menangani beberapa kobold pada saat yang bersamaan.
+
+kami bahkan belum memperkenalkan diri kami satu sama lain. Aku heran dia benar-benar menerima permintaan seperti itu.
+
+Aku tahu siapa dia, tapi dia mungkin bahkan tidak tahu siapa Aku. Nah, karena +DETECTION menunjukkan hasil yang sama seperti biasanya, Aku akan membiarkan Brass-kun melakukan apa yang dia inginkan dan meminta Ciel untuk fokus mendukungnya.
+
 Meskipun sampai pertempuran dimulai, aku akan tetap menjadi orang yang paling memegang kendali.
 
