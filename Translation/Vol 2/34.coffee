@@ -175,36 +175,44 @@ Brass-kun berkata "Ada apa denganmu?" Tapi aku ingin mengembalikan kata-kata itu
 
 Aku berjalan selama beberapa menit. +DETECTION sangat mudah digunakan tetapi jangkauanku lebih luas dari yang Aku harapkan, jadi perlu waktu untuk menjangkau monster setelah menemukannya.
 
-Berkat itu, aku bahkan tidak bisa menghitung berapa kali Brass-kun mengutukku.
+Berkat itu, aku bahkan tidak bisa menghitung berapa kali Brass-kun menyumpahiku.
 
-"Ada gerombolan yang dipimpin oleh Pemimpin Goblin di sana."
+ain"Ada gerombolan yang dipimpin oleh Pemimpin Goblin di sana."
 
-Saat aku menunjuk ke tempat itu, seolah-olah akhirnya gilirannya, Brass- kun segera menyerbu ke arah Leader.
-Tapi sebelum dia bisa mencapainya, Ciel lebih cepat saat dia beralih dan menyerang.
-Brass- kun berdiri di sana tanpa berkata-kata saat dia melihat kepalanya melayang di depan matanya, tetapi apakah dia mengerti bahwa dia sedang berdiri di tengah-tengah gerombolan goblin sekarang?
+Saat aku menunjuk ke tempat itu, seolah-olah akhirnya gilirannya, Brass-kun segera menyerbu ke arah pemimpinnya.
 
-"Aku mengalahkan pria terkuat, jadi tolong jaga yang lain."
+Tapi sebelum dia bisa mencapainya, Ciel lebih cepat ketika dia mengambil alih tubuhnya dan menyerang.
 
-Aku berteriak begitu setelah Ciel bertukar denganku dan Brass- kun akhirnya melakukan boot ulang.
+Brass-kun berdiri di sana tanpa berkata-kata ketika dia melihat kepala pemimpin goblin melayang di depan matanya, tetapi apakah dia mengerti bahwa dia sedang berdiri di tengah-tengah gerombolan goblin sekarang?
+
+ain"Aku mengalahkan yang terkuat, jadi tolong urus yang lain."
+
+Aku berteriak begitu setelah Ciel bertukar denganku dan Brass-kun akhirnya melakukan sadar kembali.
+
 Meski begitu, dia sepertinya masih belum mengerti apa yang terjadi.
-Dan sementara dia bingung, para goblin mengelilinginya dan memulai serangan mereka. Setelah kehilangan pemimpin mereka, serangan para goblin sangat ceroboh tapi karena Brass- kun tidak terbiasa diserang dari semua sisi dan tidak tahu bagaimana bergerak untuk menghindari pengepungan , mereka sangat mengganggunya.
-Jika dia mengayunkan pedangnya, goblin yang berbeda bergegas dari sisinya, jadi dia tidak bisa menyerang sesuai keinginannya. Di pihak goblin, Brass- kun memiliki waktu reaksi yang bagus, jadi mereka tidak bisa mendapatkan serangan yang fatal.
 
-Jika dia meminta bantuan, Aku - atau lebih tepatnya Ciel - berniat untuk melakukannya, tetapi Aku kira karena kontribusi sama dengan hadiah sekarang, dia hanya sesekali memelototi Aku dan tidak melakukan apa-apa lebih dari itu.
-Meskipun demikian, akan merepotkan jika dia mati, jadi sambil mengawasinya, aku menyuruh Ciel mengalahkan goblin satu per satu sampai Brass- kun akhirnya bisa melakukan pertarungan yang bagus melawan mereka, meninggalkan dia empat orang untuk bertarung pada akhirnya.
+Dan sementara dia bingung, para goblin mengelilinginya dan memulai serangan mereka. Setelah kehilangan pemimpin mereka, serangan para goblin sangat ceroboh tapi karena Brass-kun tidak terbiasa diserang dari semua sisi dan tidak tahu bagaimana bergerak untuk menghindari pengepungan, mereka sangat mengganggunya.
+
+Jika dia mengayunkan pedangnya, goblin yang berbeda menyerang dari sampingnya, jadi dia tidak bisa menyerang sesuai keinginannya. Di pihak goblin, Brass-kun memiliki waktu reaksi yang bagus, jadi mereka tidak bisa memberikan serangan yang fatal.
+
+Jika dia meminta bantuan, Aku - atau lebih tepatnya Ciel - berniat untuk melakukannya, tetapi Aku kira karena kontribusi sama dengan hadiah sekarang, dia hanya sesekali memelototiku dan tidak melakukan apa-apa lebih dari itu.
+
+Meskipun demikian, akan merepotkan jika dia mati, jadi sambil mengawasinya, aku menyuruh Ciel mengalahkan goblin satu per satu sampai Brass-kun akhirnya bisa melakukan pertarungan yang baik melawan mereka, meninggalkan empat monster untuk bertarung dengannya pada akhirnya.
 
 ◇
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
-
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
-
 Pada saat dia mengalahkan keempat goblin, tubuhnya compang-camping dan penuh luka.
-Padahal, dibandingkan dengan Alejo saat itu, Alejo terlihat jauh lebih dekat dengan kematian.
-Sejujurnya, Aku ingin membuatnya melakukan pembongkaran dan pembuangan juga, tetapi karena Aku tidak punya rencana untuk tinggal di hutan selamanya, Aku - Ciel akan - membantunya.
-Sementara kami mengurus pembuangan, dia sepertinya sudah cukup pulih untuk bergerak, jadi kami kembali ke kota.
-Dalam perjalanan pulang, Aku memastikan untuk menghindari pertemuan monster sebanyak mungkin dan kami berhasil kembali saat matahari masih tinggi.
-Kami pergi ke meja resepsionis tetapi Celia- san tidak ada di sana. Sementara kami meminta orang-orang memanggilnya, Brass- kun berpikir dengan alisnya berkerut karena suatu alasan.
-Dengan hadiah yang bergantung pada kontribusinya, Brass- kun mungkin bahkan tidak akan mendapatkan 30% dari hadiah kali ini, jadi aku bisa mengerti dia ingin mengerutkan alisnya.
 
-Saat Celia- san tiba tidak lama setelah itu, Brass- kun berkata sambil berkata "Dia tidak melakukan apa-apa sama sekali."
+Padahal, dibandingkan dengan Alejo saat itu, Alejo terlihat jauh lebih dekat dengan kematian.
+
+Sejujurnya, Aku ingin membuatnya melakukan pengambilan bukti goblin dan batu magic, tetapi karena Aku tidak punya rencana untuk tinggal di hutan selamanya, Aku - Ciel akan - membantunya.
+
+Sementara kami mengurusnya, dia sepertinya sudah cukup pulih untuk bergerak, jadi kami kembali ke kota.
+
+Dalam perjalanan pulang, Aku memastikan untuk menghindari pertemuan monster sebanyak mungkin dan kami berhasil kembali saat matahari masih tinggi.
+
+Kami pergi ke meja resepsionis tetapi Celia-san tidak ada di sana. Sementara kami meminta orang-orang memanggilnya, Brass-kun berpikir dengan alisnya berkerut karena suatu alasan.
+
+Dengan hadiah yang bergantung pada kontribusinya, Brass-kun mungkin bahkan tidak akan mendapatkan 30% dari hadiah kali ini, jadi aku bisa mengerti dia ingin mengerutkan alisnya.
+
+Saat Celia-san tiba tidak lama setelah itu, Brass-kun berkata sambil berkata "Dia tidak melakukan apa-apa sama sekali."
