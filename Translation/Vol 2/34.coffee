@@ -1,81 +1,110 @@
 CHAPTER 34: PEACE, GAZE, AND TO THE STRATOSPHERE
 
-Di masa lalu, lama Aku tinggal di hotel sekitar seminggu, jadi Aku tidak menganggapnya sebagai tempat untuk menetap. Namun, sepertinya tinggal di sini di penginapan selama lebih dari setengah tahun benar-benar membuatnya merasa seperti tempat untuk kembali.
+Di masa lalu, aku paling lama tinggal dihotel sekitar seminggu, jadi Aku tidak menganggapnya sebagai tempat untuk menetap. tapi, sepertinya tinggal di penginapan ini selama lebih dari setengah tahun benar-benar membuatnya merasa seperti rumah saja.
 
-Meskipun Aku pikir itu mungkin bukan hal yang baik, kami sebenarnya tidak punya pilihan lain sekarang, jadi Aku hanya perlu mengatasinya.
+Meskipun Aku pikir itu mungkin bukan hal yang baik, kami sebenarnya tidak punya pilihan lain sekarang, jadi aku menikmatinya.
 
-Saat aku memikirkan hal itu, sambil berbaring di tempat tidur - yah, Ciel yang sebenarnya berbaring - Ciel tiba-tiba mengajukan pertanyaan padaku.
+Saat aku memikirkan hal itu, sambil berbaring di tempat tidur - yaaaaah, Ciel yang sebenarnya berbaring - Ciel tiba-tiba bertanya padaku.
 
-"Ain, Kamu tidak terlalu suka berinteraksi dengan orang-orang di kota ini, kan?"
-[Aku tidak berencana terlalu banyak berhubungan dengan mereka. Selain itu, daripada hanya kota ini, Aku ingin membatasi interaksi Aku dengan orang-orang di negara ini sebanyak mungkin. ]
-" Mengapa begitu? "
-[ Tujuan kita saat ini adalah meninggalkan negara ini dan itu berarti kita tidak akan akan kembali ke kota ini.
-Tetapi jika kita berinteraksi dengan orang-orang di negara ini lebih dari yang kita butuhkan, kita mungkin akan berubah pikiran untuk pergi. Jika kami memiliki beberapa sentimen yang tersisa tentang negara ini, kami mungkin akhirnya ingin membantu ketika sesuatu terjadi. Jadi Aku melakukan ini untuk mencegah kita merasa seperti itu. ]
+ciel[Ain, Kamu tidak terlalu suka berinteraksi dengan orang-orang di kota ini, kan?]
 
-Karena itu, Aku tidak tahu berapa tahun yang akan berlalu sebelum Ciel dapat berteman; tapi mengingat keamanan kita, lebih baik kita tidak meninggalkan apapun di negara ini.
-Yang bisa Aku lakukan adalah mendukungnya sehingga kita bisa meninggalkan negara ini secepat mungkin.
-Bagaimanapun, selama kita cepat keluar dari negara ini, kita harus aman bahkan jika kita berinteraksi dengan lebih banyak orang.
+ain[Aku tidak berencana terlalu banyak berhubungan dengan mereka. Selain itu, Aku ingin membatasi interaksiku dengan orang-orang di negara ini sebanyak mungkin.]
 
-"Meskipun Kamu mengatakan itu, Kamu masih rukun dengan beberapa orang, Kamu tahu?"
+ciel[kenapa?]
+
+ain[Tujuan kita saat ini adalah meninggalkan negara ini dan itu berarti kita tidak akan akan kembali ke kota ini. Tapi jika kita berinteraksi dengan orang-orang di negara ini lebih dari yang kita butuhkan, kita mungkin akan berubah pikiran untuk pergi. Jika kita memiliki beberapa sentimen yang tersisa tentang negara ini, kita mungkin akhirnya ingin membantu ketika sesuatu terjadi. Jadi Aku melakukan ini untuk mencegah kita merasa seperti itu.]
+
+Karena itu, Aku tidak tahu berapa tahun yang akan berlalu sebelum Ciel memiliki teman; tapi mengingat keamanan kami, lebih baik kami tidak meninggalkan apapun di negara ini.
+
+Yang bisa Aku lakukan adalah mendukungnya sehingga kami bisa meninggalkan negara ini secepat mungkin.
+
+Selama kami cepat keluar dari negara ini, kami harusnya bisa aman bahkan jika berinteraksi dengan lebih banyak orang.
+
+ciel[Meskipun Kamu bilang begitu, Kamu masih akrab dengan beberapa orang lho...]
 
 Mendengar Ciel terkikik, aku akhirnya menelan kata-kataku.
 
-[Aku tidak bisa menahannya. Jika kita tidak bergaul dengan penjaga gerbang, kita akan ditahan setiap kali, dan setelah tinggal di penginapan nya selama lebih dari setengah tahun, itu wajar untuk setidaknya mendapatkan bersama dengan Nilda- san .
-Adapun Celia- san dan Carol- san , mereka bukan dari negara ini, jadi …… ]
-" Tidak apa-apa, Aku mengerti. Aku hanya ingin sedikit menggoda Ain.
-Aku tidak begitu bodoh untuk tidak menyadari bahwa Ain menjaga interaksi manusia seminimal mungkin demi Aku, Kamu tahu? "
+ain[Aku tidak bisa menahannya. Jika kita tidak bergaul dengan penjaga gerbang, kita akan ditahan setiap hari, dan setelah tinggal di penginapan nya selama lebih dari setengah tahun, itu wajar untuk setidaknya akrab dengan Nilda-san. kalau Celia-san dan Carol-san , mereka bukan dari negara ini, jadi ......]
 
-Sepertinya Ciel membawaku ke sana. Aku tidak yakin apakah ini percakapan normal untuk anak seusianya, tapi melihat Ciel bisa tersenyum dan tertawa seperti ini membuatku merasa bahagia.
-Akankah dia juga mengatakan sesuatu seperti "Kamu menyebalkan, Ain." Di masa depan? Mungkin membuat Aku senang melihatnya sebagai tanda pertumbuhan, tetapi Aku mungkin tidak akan bisa menerimanya. Ugh , itu menyedihkan. Membayangkannya saja sudah sangat tak tertahankan.
+ciel[Tidak apa-apa, Aku mengerti. Aku hanya ingin sedikit mengganggu Ain. Aku tidak begitu bodoh untuk tidak menyadari kalau Ain menjaga interaksi manusia seminimal mungkin demi Aku...]
 
-"Ain, Ain. Apakah ada yang salah? "
-[ Tidak, aku hanya kesal dengan pikiranku yang terlalu imajinatif. ]
-" Begitukah? Bagaimanapun, Ain, jaga aku hari ini juga. "
+Sepertinya Ciel berhasil mengerjaiku. Aku tidak yakin apakah ini percakapan normal untuk anak seusianya, tapi melihat Ciel bisa tersenyum dan tertawa seperti ini membuatku merasa bahagia.
 
-Ciel dan Aku beralih dan hari kami dimulai lagi seperti biasa.
-Di ruang makan, kami mendapat sarapan kami dari Nilda- san . Selama waktu itu, Nilda- san dan Aku berbicara tentang hal-hal yang normal dan tidak berbahaya dan ketika kami meninggalkan penginapan, dia mengatakan kepada Aku untuk berhati-hati dan menghindari cedera.
-Karena kita adalah seorang Hunter, itu normal untuk kembali dengan setidaknya beberapa goresan tetapi Aku tidak terlalu kasar untuk benar-benar menunjukkannya. Di tempat pertama, Nilda- san sendiri mungkin tidak mengharapkan kita untuk kembali sepenuhnya tanpa cedera.
+Akankah dia juga mengatakan sesuatu seperti "Kamu menyebalkan, Ain." Di masa depan? Mungkin itu akan membuatku senang karena melihatnya sebagai tanda pertumbuhan, tetapi Aku mungkin tidak akan bisa menerimanya. Ugh, itu menyedihkan. Membayangkannya saja sudah sangat tak tertahankan.
+
+ciel[Ain, Ain. ada yang salah?]
+
+ciel[Tidak, aku hanya kesal dengan pikiranku yang terlalu imajinatif.]
+
+ain[Begitu? yaaah apapun itu, Ain, jaga aku hari ini juga.]
+
+Ciel dan Aku berganti dan hari kami dimulai lagi seperti biasa.
+
+Di ruang makan, kami mendapat sarapan kami dari Nilda-san. Selama waktu itu, Nilda-san dan Aku berbicara tentang hal-hal yang normal dan tidak berbahaya dan ketika kami meninggalkan penginapan, dia mengatakan kepadaku untuk berhati-hati dan menghindari cedera.
+
+Karena kami adalah seorang Hunter, itu normal untuk kembali dengan setidaknya beberapa goresan tetapi Aku tidak terlalu benar-benar menunjukkannya. Nilda-san sendiri mungkin tidak mengharapkan kami untuk kembali sepenuhnya tanpa cedera.
 
 Aku ingin pagi yang damai dan tidak berubah ini tetap seperti itu, tetapi setelah kami keluar dari penginapan, Aku merasakan beberapa tatapan tidak sedap pada kami.
-Sambil berpikir bahwa itu mungkin hanya imajinasiku, saat aku dalam perjalanan ke guild, beberapa kehadiran mengikuti di belakang kami. Saat Aku berhenti, mereka juga berhenti.
-Namun, mereka tidak melakukan apa pun selain itu. Aku baru saja mencapai guild seperti biasanya.
-Aku kira mereka hanya mengamati kita. Tapi untuk apa?
+
+Sambil berpikir bahwa itu mungkin hanya imajinasiku, saat aku dalam perjalanan ke guild, beberapa orang mengikuti di belakang kami. Saat Aku berhenti, mereka juga berhenti.
+
+tapi, mereka tidak melakukan apa pun selain itu. Aku baru saja mencapai guild seperti biasanya.
+
+Aku kira mereka hanya mengamati kami. Tapi untuk apa?
 Agak menakutkan, jadi untuk saat ini, Aku memberi tahu Ciel tentang hal itu.
 
-[Sepertinya beberapa orang sedang memantau kita.]
-[Maksudmu mereka hanya menonton tanpa melakukan apa-apa, kan?]
-[Ya. Sejauh ini mereka tidak menunjukkan tanda-tanda pergerakan lebih lanjut. Mereka mungkin menunggu waktu.
-Aku pikir kami akan baik-baik saja, tapi tolong simpan itu di sudut pikiran Kamu. ]
-[ Benar, mengerti. ]
+ain[Sepertinya beberapa orang sedang memantau kita.]
 
-Meski aku mengatakan itu, itu akan baik-baik saja selama aku tetap waspada. Tetap saja, jika ada sesuatu yang terjadi di suatu tempat yang tidak Aku sadari, tidak peduli betapa Aku memperhatikannya, Aku mungkin tidak dapat mencegahnya.
-Jika Aku tidak memberi tahu Ciel dan sesuatu terjadi, Aku punya firasat bahwa itu mungkin membuat situasi menjadi lebih buruk dalam banyak kasus, jadi setidaknya Aku memberi tahu dia tentang apa yang Aku ketahui.
+ciel[Maksudmu mereka hanya menonton tanpa melakukan apa-apa, kan?]
+
+ain[Ya. Sejauh ini mereka tidak menunjukkan tanda-tanda pergerakan lebih lanjut. Mereka mungkin menunggu waktu.
+Aku pikir kami akan baik-baik saja, tapi tolong ingat ini.]
+
+ciel[oke baiklah.]
+
+Meski aku mengatakan itu, semua akan baik-baik saja selama aku tetap waspada. Tetap saja, jika ada sesuatu yang terjadi di suatu tempat yang tidak Aku sadari, tidak peduli betapa Aku waspada, Aku mungkin tidak dapat mencegahnya.
+
+Jika Aku tidak memberi tahu Ciel dan sesuatu terjadi, Aku punya firasat itu mungkin membuat situasi menjadi lebih buruk dalam banyak kasus, jadi setidaknya Aku memberi tahu dia tentang apa yang Aku ketahui.
+
 Yang menakutkan adalah jika alasan mereka tidak melakukan apa-apa karena kami sudah bergerak sesuai rencana mereka.
 
-Sayangnya, bahkan jika Aku mencoba untuk berpikir dengan otak Aku yang lemah, tidak ada yang masih muncul di pikiran Aku, jadi kami benar-benar tidak punya pilihan selain membiarkannya saja.
-Singkatnya, kita hanya perlu beradaptasi dengan situasi; tapi sejujurnya, kami berjalan tanpa berpikir tanpa rencana.
+Sayangnya, bahkan jika Aku mencoba untuk berpikir dengan otakku yang lemah, tidak ada yang muncul di pikiranku apa itu, jadi kami benar-benar tidak punya pilihan selain membiarkannya saja.
 
-Mengabaikan fakta bahwa kami sedang diawasi untuk saat ini, aku secara acak melihat sekeliling guild sambil menunggu Brass- kun di area lounge.
-Para Hunter yang sering Aku lihat di pub menyambut Aku dengan "Yo ~" dan mengangkat tangan mereka, jadi Aku balas melambai. Tetapi bagi mereka yang tidak mengenal Aku, terutama para Hunter peringkat F dan D, mereka bahkan tidak mencoba melakukan kontak mata.
-Karena Aku mendapatkan 4 Hunter yang pernah diturunkan pangkatnya, sepertinya itu akhirnya menimbulkan rumor. Singkatnya, "siapa pun yang bergaul dengan Aku akan diturunkan pangkatnya" adalah hal yang umum.
+Singkatnya, kami hanya perlu beradaptasi dengan situasi; tapi sejujurnya, kami berjalan tanpa rencana.
+
+Mengabaikan fakta bahwa kami sedang diawasi untuk saat ini, aku secara acak melihat sekeliling guild sambil menunggu Brass-kun di area ruang tunggu.
+
+Para Hunter yang sering Aku lihat di pub menyambutku dengan "Yo ~" dan mengangkat tangan mereka, jadi Aku balas melambainya. Tetapi bagi mereka yang tidak mengenalku, terutama para Hunter rank F dan D, mereka bahkan tidak mencoba melakukan kontak mata.
+
+Karena Aku membuat 4 Hunter pernah diturunkan pangkatnya, sepertinya itu akhirnya menimbulkan rumor. Singkatnya, "siapa pun yang bergaul denganku akan diturunkan pangkatnya".
+
 Berkat itu, tidak ada lagi orang aneh yang mencoba mengacaukan kami, jadi itu cukup nyaman.
 
-Saat jam sibuk pagi hari berakhir dan hanya ada beberapa Hunter yang tersisa, Brass- kun akhirnya tiba. Apakah ini yang disebut pintu masuk CEO? Dia pasti tidak memiliki kemampuan untuk menjadi CEO.
-Jika dia melambaikan tangannya dan mengusir Aku saat dia melihat Aku, dia menerima permintaan sendiri. Jika tidak, kami melakukannya bersama.
+Saat jam sibuk pagi hari berakhir dan hanya ada beberapa Hunter yang tersisa, Brass-kun akhirnya tiba. Apakah ini yang disebut pintu masuk CEO? Dia pasti tidak memiliki kemampuan untuk menjadi CEO.
+
+Jika dia melambaikan tangannya dan mengusirku saat dia melihatku, dia menerima permintaan sendiri. Jika tidak, kami melakukannya bersama.
+
 Sungguh, dia pikir aku ini apa?
 
-Karena dia tidak mengusirku, kami bertemu. Brass- kun mengambil formulir permintaan dan kami menuju ke meja resepsionis.
-Ini adalah pemandangan yang cukup familiar di dalam guild tapi pada awalnya, para hunter lainnya akan merinding melihat bagaimana Brass- kun bersikap terhadapku.
-Sehingga dikombinasikan dengan rumor Aku, sebuah rumor bahwa mungkin Brass- kun sebenarnya kuat lahir, yang menurut Aku akhirnya menyebabkan ego Brass- kun yang membengkak, karena dia benar-benar mempercayainya, meledakkan langit hingga ke stratosfer.
-Permintaan yang dia pilih tanpa izin Aku - mungkin karena dia berpikir bahwa dia dapat menyelesaikannya sendiri - adalah yang dia ambil dengan party sebelumnya, permintaan penaklukan Pemimpin Goblin.
-Karena diketahui bahwa Pemimpin Goblin dapat mengumpulkan lebih dari 10 orang, menerimanya hanya dengan dua orang adalah definisi sembrono. Selagi aku berpikir bahwa Celia- san mungkin akan mengizinkannya karena aku di sini, sebelum itu terjadi, Brass- kun tiba-tiba mulai mengatakan omong kosong.
+Karena dia tidak mengusirku, kami bertemu. Brass-kun mengambil formulir permintaan dan kami menuju ke meja resepsionis.
 
-"Mulai sekarang, kita akan membagi hadiah menjadi tiga."
-"Apa yang kamu bicarakan? Guild mengatakan kepada kita untuk membaginya secara merata, ingat? "
-" Ya, itulah mengapa kita membicarakannya dengan guild. "
+Ini adalah pemandangan yang cukup familiar di dalam guild tapi pada awalnya, para hunter lainnya akan merinding melihat bagaimana Brass-kun bersikap terhadapku.
+
+Sehingga dikombinasikan dengan rumorku, sebuah rumor bahwa mungkin Brass-kun sebenarnya kuat dari lahir, yang menurutku akhirnya menyebabkan ego Brass-kun yang membengkak, karena dia benar-benar mempercayainya, meledakkan langit hingga ke stratosfer.
+
+Permintaan yang dia pilih tanpa izinku - mungkin karena dia berpikir bahwa dia dapat menyelesaikannya sendiri - adalah yang dia ambil dengan party sebelumnya, permintaan penaklukan Pemimpin Goblin.
+
+Karena diketahui bahwa Pemimpin Goblin dapat mengumpulkan lebih dari 10 orang, menerimanya hanya dengan dua orang sangat sembrono. Selagi aku berpikir bahwa Celia-san mungkin akan mengizinkannya karena aku di sini, sebelum itu terjadi, Brass-kun tiba-tiba mulai mengatakan omong kosong.
+
+brass"Mulai sekarang, kita akan membagi hadiah menjadi tiga."
+
+ain"Apa yang kamu bicarakan? Guild mengatakan kepada kita untuk membaginya secara merata, ingat?"
+
+brass"Ya, itulah mengapa kita membicarakannya dengan guild."
 
 Aku bertanya-tanya mengapa dia mengatakannya di meja resepsionis tetapi sepertinya dia memiliki cukup otak untuk mempertimbangkan itu.
-Namun, ini praktis hanya dia yang menyeret Celia- san ke dalam kecelakaan. Padahal bekerja sama dengan Brass- kun sendiri sudah seperti kecelakaan bagiku.
+
+tapi, ini sama saja dia yang menyeret Celia-san ke dalam kecelakaan. Padahal bekerja sama dengan Brass- kun sendiri sudah seperti kecelakaan bagiku.
 
 (Bab ini disediakan untuk Kamu oleh Re: Library)
 
