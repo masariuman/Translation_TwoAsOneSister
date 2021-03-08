@@ -1,7 +1,9 @@
 CHAPTER 34: PEACE, GAZE, AND TO THE STRATOSPHERE
 
 Di masa lalu, lama Aku tinggal di hotel sekitar seminggu, jadi Aku tidak menganggapnya sebagai tempat untuk menetap. Namun, sepertinya tinggal di sini di penginapan selama lebih dari setengah tahun benar-benar membuatnya merasa seperti tempat untuk kembali.
+
 Meskipun Aku pikir itu mungkin bukan hal yang baik, kami sebenarnya tidak punya pilihan lain sekarang, jadi Aku hanya perlu mengatasinya.
+
 Saat aku memikirkan hal itu, sambil berbaring di tempat tidur - yah, Ciel yang sebenarnya berbaring - Ciel tiba-tiba mengajukan pertanyaan padaku.
 
 "Ain, Kamu tidak terlalu suka berinteraksi dengan orang-orang di kota ini, kan?"
