@@ -104,31 +104,31 @@ brass"Ya, itulah mengapa kita membicarakannya dengan guild."
 
 Aku bertanya-tanya mengapa dia mengatakannya di meja resepsionis tetapi sepertinya dia memiliki cukup otak untuk mempertimbangkan itu.
 
-tapi, ini sama saja dia yang menyeret Celia-san ke dalam kecelakaan. Padahal bekerja sama dengan Brass- kun sendiri sudah seperti kecelakaan bagiku.
+tapi, ini sama saja dia yang menyeret Celia-san. Padahal bekerja sama dengan Brass-kun sendiri sudah seperti kecelakaan bagiku.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+ain"Pertama-tama, mengapa kita harus membagi hadiah menjadi tiga?"
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+brass"Aku punya adik perempuan tetapi dia sakit dan tidak bisa bekerja dengan baik. Aku butuh uang untuk membeli obatnya, jadi tolong buat menjadi tiga dan beri adikku porsi. Kamu sudah punya uang, kan? seharusnya tidak ada masalah bahkan dengan hadiah yang lebih sedikit, kan?"
 
-"Pertama-tama, mengapa kita harus membagi hadiah dengan tiga?"
-"Aku punya adik perempuan tetapi dia sakit dan tidak bisa bekerja dengan baik. Aku butuh uang untuk membeli obatnya, jadi tolong buat tiga dan beri adik Aku porsi. Kamu sudah punya uang, bukan? Maka seharusnya tidak ada masalah bahkan dengan hadiah yang lebih sedikit, kan? "
+Jadi alasan mengapa Brass-kun menginginkan uang, adalah demi adik perempuannya.
 
-Jadi alasan mengapa Brass- kun menginginkan uang, adalah demi adik perempuannya.
 Mendengar itu, dia mungkin kakak yang pekerja keras tapi jelas bukan nilai tambah baginya dalam situasi ini.
 
-"Aku memiliki adik laki-laki yang tidak bisa menggerakkan kakinya karena cedera. Untuk merawatnya, Aku membutuhkan lebih banyak uang daripada yang sudah Aku miliki.
-Jadi tolong beri Aku dua pertiga dari permintaan hadiah. "
-" Jangan berbohong padaku. "
-" Tepat, itu bohong. Namun, Aku bisa mengatakan hal yang sama kepada Kamu.
-Bahkan jika itu benar, mengapa Aku bahkan harus bekerja sama dengan Kamu? "
-" Pihak Aku sebelumnya, melakukannya. "
-" Kalau begitu tolong bentuk pesta dengan orang-orang itu.
-Setidaknya, adik perempuanmu hanyalah orang asing bagiku. Selain itu, Aku bahkan belum melihatnya.
-Tidak ada alasan bagiku untuk membantu, kan? "
-" Pertama-tama, Hunter's Guild bukanlah organisasi amal, jadi kecuali untuk keadaan tertentu, guild tidak mengizinkan ketidaksetaraan semacam ini.
-Karena itu, apa pun alasannya, hadiah akan dibagi rata di antara Kamu berdua. Secara alami akan ada penalti jika uang diambil secara paksa setelah itu, jadi harap ingat ini. "
+ain"Aku memiliki adik laki-laki yang tidak bisa menggerakkan kakinya karena cedera. Untuk merawatnya, Aku membutuhkan lebih banyak uang daripada yang sudah Aku miliki. Jadi tolong beri Aku dua pertiga dari hadiah permintaan."
 
-Dengan dukungan Celia- san , Brass- kun akhirnya menutup mulutnya dan memelototiku.
+brass"Jangan berbohong padaku."
+
+ain"Benar, itu bohong. tapi, Aku bisa mengatakan hal yang sama kepadamu. Bahkan jika itu benar, mengapa Aku bahkan harus bekerja sama denganmu?"
+
+brass"partyku sebelumnya, melakukannya."
+
+ain"Kalau begitu tolong bikin party dengan orang-orang itu.
+Setidaknya, adik perempuanmu hanyalah orang asing bagiku. Selain itu, Aku bahkan belum melihatnya. Tidak ada alasan bagiku untuk membantu, kan?"
+
+celia"Guild Hunter bukanlah organisasi amal, jadi kecuali untuk keadaan tertentu, guild tidak mengizinkan ketidaksetaraan semacam ini. Karena itu, apa pun alasannya, hadiah akan dibagi rata di antara Kamu berdua. Secara alami akan ada denda jika uang diambil secara paksa, jadi harap ingat ini."
+
+Dengan dukungan Celia-san, Brass-kun akhirnya menutup mulutnya dan memelototiku.
+
 Sepertinya pihak sebelumnya memasukkan adik perempuannya sebagai anggota dan memberinya sebagian dari uang, tetapi apakah orang-orang itu semacam orang suci? Mungkin mereka sama sekali tidak tidak mengenal adik perempuan Brass- kun .
 Misalnya, mungkin mereka sekelompok teman yang berasal dari kampung halaman yang sama atau semacamnya.
 Tepat ketika tampaknya Brass- kun diam-diam memikirkan sesuatu, dia kemudian memasang wajah sombong seolah-olah dia baru saja memikirkan ide yang bagus.
