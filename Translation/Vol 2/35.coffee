@@ -155,10 +155,6 @@ Untuk alasan itu saja, biarpun kita menghadapi beberapa monster peringkat B yang
 Pertama-tama, kami tidak dapat menerima permintaan peringkat-B, jadi mengingat bahwa pada umumnya kami akan melawan monster hingga peringkat-C, seharusnya tidak terlalu berbahaya di mana pun kami bekerja.
 Karena kita tidak akan berada di lautan begitu kita meninggalkan Sannois, mengintip permintaan dari guild di sepanjang jalan sambil mencari kota atau desa yang sempurna untuk tinggal seharusnya bagus juga.
 
-(Bab ini disediakan untuk Anda oleh Re: Library)
-
-(Jika Anda membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
-
 『Jadi, Ain. Bisakah Anda memberi tahu saya asal usul nama Ainsel? 』
 『Ahh , umm …… Ini rahasia. 』
 『 Anda sangat jahat, Ain. 』
