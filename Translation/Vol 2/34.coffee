@@ -129,38 +129,53 @@ celia"Guild Hunter bukanlah organisasi amal, jadi kecuali untuk keadaan tertentu
 
 Dengan dukungan Celia-san, Brass-kun akhirnya menutup mulutnya dan memelototiku.
 
-Sepertinya pihak sebelumnya memasukkan adik perempuannya sebagai anggota dan memberinya sebagian dari uang, tetapi apakah orang-orang itu semacam orang suci? Mungkin mereka sama sekali tidak tidak mengenal adik perempuan Brass- kun .
+Sepertinya pihak sebelumnya memasukkan adik perempuannya sebagai anggota dan memberinya sebagian dari uang, tetapi apakah orang-orang itu semacam orang suci? Mungkin merekaa mengenal adik perempuan Brass-kun.
+
 Misalnya, mungkin mereka sekelompok teman yang berasal dari kampung halaman yang sama atau semacamnya.
-Tepat ketika tampaknya Brass- kun diam-diam memikirkan sesuatu, dia kemudian memasang wajah sombong seolah-olah dia baru saja memikirkan ide yang bagus.
 
-"Maka mari kita mendasarkan hadiah pada kontribusi terhadap permintaan seperti yang dilakukan Hunter. Bagaimanapun, Aku akan mendapatkan banyak karena Aku selalu mengalahkan orang terkuat. "
-" Haah ...... Aku tidak mengerti omong kosong “pria terkuat” Kamu tetapi Aku baik-baik saja dengan mendasarkan distribusi hadiah pada kontribusi kami. Sebagai gantinya, kami akan mempercayakan penjurian kepada Hunter's Guild.
-Juga, Aku akan melakukan apa yang Aku suka, jadi ingatlah itu. "
-" Umm, apakah Kamu benar-benar yakin tentang ini? "
+Tepat tampaknya Brass-kun diam-diam memikirkan sesuatu, dia kemudian memasang wajah sombong seolah-olah dia baru saja memikirkan ide yang bagus.
 
-Celia- san meminta konfirmasi dari Brass- kun tetapi karena dia sama sekali tidak menyangka akan mendengarnya, dia menjadi terkejut. Lalu dia berkata "Tentu saja." Sebagai balasan.
+brass"kalau begitu ayo kita mendasarkan hadiah pada kontribusi terhadap permintaan seperti yang dilakukan Hunter. Aku akan mendapatkan banyak uang karena Aku selalu mengalahkan orang terkuat."
+
+ain"Haah ...... Aku tidak mengerti omong kosong 'pria terkuat'mu tetapi Aku tidak masalah dengan mendasarkan distribusi hadiah pada kontribusi kita. Sebagai gantinya, kita akan mempercayakan penjurian kepada guild Hunter. dan Juga, Aku akan melakukan apa yang Aku suka, jadi ingatlah itu."
+
+celia"Umm, apakah Kamu benar-benar yakin tentang ini?"
+
+Celia-san meminta konfirmasi dari Brass-kun tetapi karena dia sama sekali tidak menyangka akan mendengarnya, dia menjadi terkejut. Lalu dia berkata "Tentu saja." Sebagai balasan.
+
 Dia benar-benar tidak turun dari stratosfer, bukan? Aku harus berhati-hati agar tidak berubah seperti ini di masa depan.
 
-"Lalu ayo pergi."
+brass"kalau begitu ayo pergi."
 
-Tampaknya puas dengan negosiasi kami, Brass- kun keluar dari guild.
-Mengikutinya, aku juga meninggalkan guild sambil memikirkan apa yang harus kita lakukan.
+Tampaknya puas dengan negosiasi kami, Brass-kun keluar dari guild.
+
+Mengikutinya, aku juga meninggalkan guild sambil memikirkan apa yang harus kami lakukan.
+
 ◇
 
-[Jadi sekarang apa yang harus Aku lakukan?]
-[Tolong bunuh Pemimpin Goblin segera dan kemudian mari kita tunggu dan lihat.]
-[Jadi kita lakukan padanya apa yang telah dia lakukan pada kita selama ini. Apakah ini untuk balas dendam? ]
-[ Yah, semacam itu. ]
+ciel[Jadi sekarang apa yang harus Aku lakukan?]
 
-Sekitar satu jam setelah memasuki hutan, Aku sudah merasakan tempat di mana Pemimpin Goblin bisa masuk.
-Namun, Aku tidak berencana untuk bertindak seperti biasanya, jadi Aku memberi Ciel beberapa instruksi.
-Karena Brass- kun benar-benar mendapatkan pengalaman bertarung melawan monster, dia mungkin bisa menang melawan Pemimpin Goblin.
+ain[Tolong bunuh Pemimpin Goblin segera dan setelah itu mari kita tunggu dan lihat apa yang terjadi.]
+
+ciel[Jadi kita lakukan padanya apa yang telah dia lakukan pada kita selama ini. Apakah ini untuk balas dendam?]
+
+ain[Yah, semacam itu.]
+
+Sekitar satu jam setelah memasuki hutan, Aku sudah merasakan tempat di mana Pemimpin Goblin berada.
+
+Tapi, Aku tidak berencana untuk bertindak seperti biasanya, jadi Aku memberi Ciel beberapa instruksi.
+
+Karena Brass-kun benar-benar mendapatkan pengalaman bertarung melawan monster, dia mungkin bisa menang melawan Pemimpin Goblin.
+
 Tetap saja, membuatnya bertarung satu lawan satu, menang, dan bertindak penting diri seperti yang selalu dia lakukan adalah sesuatu yang sudah muak dilihat.
 
-Karena kami telah memutuskan apa yang harus dilakukan, Aku mengabaikan Brass- kun dan mengarahkan kaki Aku ke arah kehadiran massa.
-Brass- kun berkata "Ada apa denganmu?" Tapi aku ingin mengembalikan kata-kata itu padanya.
-Aku berjalan selama beberapa lusin menit. Deteksi sangat mudah digunakan tetapi jangkauan Aku lebih luas dari yang Aku harapkan, jadi perlu waktu untuk menjangkau monster setelah menemukannya.
-Berkat itu, aku bahkan tidak bisa menghitung berapa kali Brass- kun mengutukku.
+Karena kami telah memutuskan apa yang harus dilakukan, Aku mengabaikan Brass-kun dan mengarahkan kakiku ke arah kerumunan monster.
+
+Brass-kun berkata "Ada apa denganmu?" Tapi aku ingin mengembalikan kata-kata itu padanya.
+
+Aku berjalan selama beberapa menit. +DETECTION sangat mudah digunakan tetapi jangkauanku lebih luas dari yang Aku harapkan, jadi perlu waktu untuk menjangkau monster setelah menemukannya.
+
+Berkat itu, aku bahkan tidak bisa menghitung berapa kali Brass-kun mengutukku.
 
 "Ada gerombolan yang dipimpin oleh Pemimpin Goblin di sana."
 
