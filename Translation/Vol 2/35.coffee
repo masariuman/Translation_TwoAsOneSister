@@ -1,6 +1,7 @@
 CHAPTER 35: MESS UP, DEMOTION, AND THE NEXT OBJECTIVE
 
-Aduh . Dia akhirnya berhasil.
+Uh-oh. Dia akhirnya melakukannya.
+
 Saat Brass- kun menyatakan bahwa saya tidak bekerja, saya hanya dapat menatapnya dengan rasa kasihan sekarang.
 Celia- san mengalihkan pandangannya ke arahku, jadi aku hanya menggelengkan kepalaku sebagai jawaban.
 
