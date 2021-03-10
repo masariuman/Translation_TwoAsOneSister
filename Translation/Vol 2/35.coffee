@@ -22,28 +22,33 @@ Meskipun kali ini, Aku sebenarnya tidak perlu melakukan ini sendiri tetapi tidak
 
 ain"Aku mengalahkan 7 monster sendirian, dia hanya mengalahkan sisanya."
 
-Kebetulan, karena kita belum memperkenalkan diri satu sama lain, aku berpura-pura tidak tahu nama satu sama lain.
+Kebetulan karena kami belum memperkenalkan diri satu sama lain, aku berpura-pura tidak tahu namanya.
 
-Padahal, untuk Brass-kun, dia mungkin tidak berpura-pura.
+bagi Brass-kun, dia mungkin tidak berbohong.
 
-Seharusnya sudah beberapa kali aku dipanggil dengan nama tepat di depannya tapi karena dia tidak pernah memanggilku dengan itu, kurasa dia tidak tertarik. Aku senang tentang itu, jadi aku membiarkannya begitu saja.
+sudah beberapa kali aku dipanggil dengan namaku tepat di depannya tapi karena dia tidak pernah memanggilku dengan namaku, kurasa dia tidak tertarik. Aku senang karena itu, jadi aku membiarkannya begitu saja.
 
-「Seperti ada kemungkinan udang seperti Kamu bisa melakukan itu. Baik? 」
+brass"memangnya udang sepertimu bisa melakukan hal seperti itu. huh?"
 
-Brass-kun memanggil beberapa pemburu yang tersisa di guild.
-Begitu, jadi dia berencana untuk melibatkan yang lain. Namun, mengetahui rumor tentang Aku, para pemburu tidak setuju atau tidak setuju dan hanya tidak yakin bagaimana harus bereaksi.
+Brass-kun memanggil beberapa hunter yang tersisa di guild.
+
+Begitu, jadi dia berencana untuk melibatkan yang lain juga. tapi, mengetahui rumor tentangku, para hunter tidak memihak siapapun dan hanya tidak yakin bagaimana harus bereaksi.
+
 Mungkin berbeda dari reaksi yang dia harapkan, Brass-kun memandang Celia-san dengan ekspresi sedikit kesal.
 
-「Brass-kun , bukan? Untuk berpikir bahwa Kamu akan memalsukan laporan Kamu, Kamu benar-benar tidak cocok menjadi pemburu, bukan? 」
+carol"Brass-kun , ya? Untuk berpikir Kamu akan memalsukan laporanmu, Kamu benar-benar tidak cocok menjadi huh..."
 
-Aku sudah menyadarinya sebelumnya, tapi menyadari kehadirannya saat dia mendengar suaranya, Brass-kun berbalik karena terkejut.
-Pemilik suara ini, Carol-san , dengan ekspresi muak di wajahnya, menatapku karena suatu alasan. Aku tidak berpikir bahwa ini adalah salah Aku.
+Aku sudah menyadarinya sebelumnya, tapi brass-kun baru menyadari kehadirannya saat dia mendengar suaranya dan dia terkejut.
 
-「Apa maksudmu?」
-「Apa maksudku? Aku mengamati kalian berdua sejak awal.
-Dengan kata lain, Aku telah melihat semuanya. Dari Kamu berlari ke gerombolan goblin, hingga Kamu berjuang saat Kamu dikelilingi, hingga gadis di samping Kamu secara bertahap menghilangkan goblin satu per satu. 」
+Pemilik suara ini, Carol-san, dengan ekspresi muak di wajahnya, menatapku karena suatu alasan. Aku tidak berpikir bahwa ini adalah salahku.
+
+brass"Apa maksudmu?"
+
+carol"Apa maksudku? Aku mengamati kalian berdua sejak awal.
+Dengan kata lain, Aku telah melihat semuanya. Dari Kamu berlari ke gerombolan goblin, hingga Kamu berjuang saat Kamu dikepung, hingga gadis di sampingmu secara bertahap menghilangkan goblin satu per satu."
 
 Brass-kun mengertakkan gigi saat dia menatap Carol-san dengan kesal.
+
 Untuk berpikir bahwa dia bahkan akan bertindak seperti ini kepada seorang pemburu peringkat-B. Jika mereka berdua pernah bertarung, Brass-kun mungkin akan mati dalam waktu kurang dari 10 detik.
 
 「Kamu mengintip, itu buruk.」
