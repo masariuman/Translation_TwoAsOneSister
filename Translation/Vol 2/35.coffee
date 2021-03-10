@@ -6,10 +6,10 @@ Saat Brass-kun menyatakan Aku tidak bekerja, Aku hanya dapat menatapnya dengan r
 
 Celia-san mengalihkan pandangannya ke arahku, jadi aku hanya menggelengkan kepalaku menjawabnya.
 
-celia : "sepertinya ada sekitar 11 monster, tetapi Kamu bermaksud mengatakan bahwa Kamu mengalahkan semuanya, kan?"
+celia"sepertinya ada sekitar 11 monster, tetapi Kamu bermaksud mengatakan bahwa Kamu mengalahkan semuanya, kan?"
 
-「Ya. Ada buktinya di sini, lihat? Selain itu, Aku terluka tetapi dia tidak.
-Itu artinya kami menang karena Aku bekerja keras. Aku satu-satunya yang melakukan pekerjaan itu. 」
+brass"Ya. ini buktinya. Selain itu, Aku terluka tetapi dia tidak terluka sama sekali. Itu artinya kami menang karena Aku bekerja keras. Aku satu-satunya yang melakukan pekerjaan itu."
+
 「 Yah dia adalah seorang penyihir, jadi seharusnya ada lebih sedikit kesempatan baginya untuk terluka, namun ...... 」
 「 Mengatakan bahwa dia tidak melakukan apa pun mungkin terlalu berlebihan. Tapi aku tetap yang melakukan lebih. 」
 
