@@ -10,17 +10,22 @@ celia"sepertinya ada sekitar 11 monster, tetapi Kamu bermaksud mengatakan bahwa 
 
 brass"Ya. ini buktinya. Selain itu, Aku terluka tetapi dia tidak terluka sama sekali. Itu artinya kami menang karena Aku bekerja keras. Aku satu-satunya yang melakukan pekerjaan itu."
 
-「 Yah dia adalah seorang penyihir, jadi seharusnya ada lebih sedikit kesempatan baginya untuk terluka, namun ...... 」
-「 Mengatakan bahwa dia tidak melakukan apa pun mungkin terlalu berlebihan. Tapi aku tetap yang melakukan lebih. 」
+celia"Dia adalah seorang penyihir, jadi seharusnya ada lebih sedikit kesempatan baginya untuk terluka, tapi ...... "
 
-Saat Brass-kun selesai berbicara, Aku berkata 「Tidak benar.」 Dan memotong percakapan.
-Menyebalkan mengikuti lelucon ini. Namun, jika Aku tidak menegaskan diri Aku dengan benar, pendapat Brass-kun mungkin memiliki peluang untuk diterima .
+brass"Mengatakan bahwa dia tidak melakukan apa pun mungkin terlalu berlebihan. Tapi aku tetap yang bekerja yang paling banyak."
+
+Saat Brass-kun selesai berbicara, Aku berkata "Itu Salah." Dan memotong percakapan.
+
+Menyebalkan mengikuti lelucon ini. tapi, jika Aku tidak menegaskan diriku dengan benar, pendapat Brass-kun mungkin memiliki peluang untuk diterima .
+
 Meskipun kali ini, Aku sebenarnya tidak perlu melakukan ini sendiri tetapi tidak ada ruginya menunjukkan bahwa Aku tetap melakukannya.
 
-「Saya mengalahkan 7 monster sendirian, dia hanya mengalahkan yang tersisa.」
+ain"Aku mengalahkan 7 monster sendirian, dia hanya mengalahkan sisanya."
 
 Kebetulan, karena kita belum memperkenalkan diri satu sama lain, aku berpura-pura tidak tahu nama satu sama lain.
-Padahal, untuk Brass-kun , dia mungkin tidak berpura-pura.
+
+Padahal, untuk Brass-kun, dia mungkin tidak berpura-pura.
+
 Seharusnya sudah beberapa kali aku dipanggil dengan nama tepat di depannya tapi karena dia tidak pernah memanggilku dengan itu, kurasa dia tidak tertarik. Aku senang tentang itu, jadi aku membiarkannya begitu saja.
 
 「Seperti ada kemungkinan udang seperti Kamu bisa melakukan itu. Baik? 」
