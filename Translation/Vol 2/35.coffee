@@ -49,21 +49,24 @@ Dengan kata lain, Aku telah melihat semuanya. Dari Kamu berlari ke gerombolan go
 
 Brass-kun mengertakkan gigi saat dia menatap Carol-san dengan kesal.
 
-Untuk berpikir bahwa dia bahkan akan bertindak seperti ini kepada seorang pemburu peringkat-B. Jika mereka berdua pernah bertarung, Brass-kun mungkin akan mati dalam waktu kurang dari 10 detik.
+tidak kusangkaa dia bahkan akan bertindak seperti ini kepada seorang pemburu rank-B. Jika mereka berdua pernah bertarung, Brass-kun mungkin akan mati dalam waktu kurang dari 10 detik.
 
-「Kamu mengintip, itu buruk.」
-「Ini adalah pekerjaan resmi dari guild.
-Pertama-tama, apakah Kamu ingat mengapa Kamu berdua membentuk pesta? 」「 Ini tentang hal penurunan pangkat F atau semacamnya, kan? Tapi hari-hari ini, Aku menyelesaikan permintaan tanpa gagal, bukan? 」
-「 Kamu tahu, karena ini adalah ujian, itu wajar untuk diamati tetapi bagaimanapun juga.
-Untuk saat ini, mengenai permintaan saat ini, 20 persen sudah cukup untuk dia.
-Berdasarkan monster yang dia kalahkan, begitulah jadinya, benar? 」
-「 Ini 4 dan 7 jadi …… Uhhh …… 」
-「 Kamu mungkin cenderung mengatakan bahwa Kamu harus mendapatkan 30-40 persen tetapi Kamu akan sangat salah .
-Bagaimanapun, sepertinya Kamu mengatakannya sendiri. Bahwa orang yang mengalahkan monster terkuat akan mendapatkan 50 persen lebih dan semacamnya.
-Jika Kamu menganggap bahwa orang yang mengalahkan Pemimpin Goblin mendapat setengah, maka perhitungan Aku seharusnya tidak salah. 」
+brass"Kamu mengintip kami, itu hal buruk."
 
-Sepertinya Brass-kun tidak bisa melakukan perhitungan, jadi dia tidak bisa mengatakan apa-apa terhadap Carol-san .
-Padahal, Aku cukup yakin Carol-san membuat jumlah pemimpin menjadi 50 persen karena dia juga tidak bisa diganggu untuk menghitung dengan benar.
+carol"Ini adalah pekerjaan resmi dari guild. Apakah Kamu ingat mengapa Kamu berdua membentuk Party?"
+
+brass"Ini tentang hal penurunan rank F atau semacamnya, kan? Tapi akhir-akhir ini, Aku menyelesaikan permintaan tanpa gagal, kan?"
+
+carol"yaah, karena ini adalah ujian, itu wajar untuk diamati tetapi bagaimanapun juga Untuk saat ini, mengenai permintaan saat ini, 20 persen sudah cukup untuk dia(brass).
+Berdasarkan monster yang dia kalahkan, begitu kan?"
+
+brass"4 dan 7 jadi ...... Uhhh ......"
+
+carol"Kamu mungkin cenderung mengatakan kalau Kamu harus mendapatkan 30-40 persen tetapi Kamu akan sangat salah. sepertinya Kamu lupa kalau kamu mengatakannya sendiri Bahwa orang yang mengalahkan monster terkuat akan mendapatkan 50 persen lebih dan semacamnya. Jika Kamu menganggap bahwa orang yang mengalahkan Pemimpin Goblin mendapat setengah, maka perhitunganku seharusnya tidak salah."
+
+Sepertinya Brass-kun tidak bisa melakukan perhitungan, jadi dia tidak bisa mengatakan apa-apa terhadap Carol-san.
+
+Padahal, Aku cukup yakin Carol-san membuat jumlah pemimpin menjadi 50 persen karena dia juga tidak mau repot menghitung dengan benar.
 
 「Jadi dengan mengatakan itu, permintaan hadiah kali ini akan dibagi seperti yang dikatakan Carol.
 Selain itu, karena Kamu memalsukan laporan tersebut, kami menilai bahwa ada masalah dalam temperamen Kamu sebagai pemburu. Karena itu, Brass-kun , mulai saat ini, kamu akan diturunkan ke peringkat F. 」
