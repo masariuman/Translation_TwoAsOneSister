@@ -49,7 +49,7 @@ Dengan kata lain, Aku telah melihat semuanya. Dari Kamu berlari ke gerombolan go
 
 Brass-kun mengertakkan gigi saat dia menatap Carol-san dengan kesal.
 
-tidak kusangkaa dia bahkan akan bertindak seperti ini kepada seorang pemburu rank-B. Jika mereka berdua pernah bertarung, Brass-kun mungkin akan mati dalam waktu kurang dari 10 detik.
+tidak kusangkaa dia bahkan akan bertindak seperti ini kepada seorang hunter rank-B. Jika mereka berdua pernah bertarung, Brass-kun mungkin akan mati dalam waktu kurang dari 10 detik.
 
 brass"Kamu mengintip kami, itu hal buruk."
 
@@ -68,64 +68,72 @@ Sepertinya Brass-kun tidak bisa melakukan perhitungan, jadi dia tidak bisa menga
 
 Padahal, Aku cukup yakin Carol-san membuat jumlah pemimpin menjadi 50 persen karena dia juga tidak mau repot menghitung dengan benar.
 
-「Jadi dengan mengatakan itu, permintaan hadiah kali ini akan dibagi seperti yang dikatakan Carol.
-Selain itu, karena Kamu memalsukan laporan tersebut, kami menilai bahwa ada masalah dalam temperamen Kamu sebagai pemburu. Karena itu, Brass-kun , mulai saat ini, kamu akan diturunkan ke peringkat F. 」
-「 Tunggu. Pertama-tama, dia selingkuh. Tidak mungkin udang ini bisa mengalahkan Pemimpin Goblin, lho?
-Lebih tepatnya, wanita itu diam-diam mengamati kami, kaulah yang mengalahkannya, bukan? Kamu mengatur Aku! 」
+celia"Jadi dengan mengatakan itu, permintaan hadiah kali ini akan dibagi seperti yang dikatakan Carol. Selain itu, karena Kamu memalsukan laporan tersebut, kami menilai bahwa ada masalah dalam temperamenmu sebagai hunter. Karena itu, Brass-kun , mulai saat ini, kamu akan diturunkan ke rank F."
 
-Brass-kun berteriak. Aku kira dia benar-benar tidak ingin diturunkan ke peringkat-F.
-Mengabaikan fakta bahwa dia tidak tahu bahwa aku peringkat-D, dia bahkan berkelahi dengan Carol-san peringkat-B . Apakah dia ingin mati? Aku bisa mendengar suara sesuatu yang membeku dari arah Carol-san , tapi itu pasti imajinasiku.
+brass"Tunggu. dia curang. Tidak mungkin udang ini bisa mengalahkan Pemimpin Goblin, kan? Lebih tepatnya, wanita itu diam-diam mengamati kami, kaulah yang mengalahkannya, kan? Kamu menjebakku!"
 
-「Cielmer-san adalah pemburu peringkat-D, jadi bisa mengalahkan Pemimpin Goblin adalah hal yang wajar .
-Jika Kamu berniat untuk menyebabkan keributan yang lebih besar dari ini, maka kami harus mempertimbangkan untuk menurunkan Kamu ke peringkat-G juga. Jadi, apa itu? 」
-Sebelum Carol-san pindah, Celia-san memperingatkannya dengan suara yang agak pelan dan Brass-kun hanya bisa mengertakkan gigi saat dia keluar dari guild.
-Semua orang di sekitar kita mengeluarkan udara lega.
+Brass-kun berteriak. Aku kira dia benar-benar tidak ingin diturunkan ke rank-F.
+
+Mengabaikan fakta bahwa dia tidak tahu bahwa aku rank-D, dia bahkan membentak dengan Carol-san si rank-B . Apakah dia ingin mati? Aku bisa mendengar suara sesuatu yang membeku dari arah Carol-san, tapi itu pasti imajinasiku.
+
+celia"Cielmer-san adalah hunter rank-D, jadi bisa mengalahkan Pemimpin Goblin adalah hal yang wajar. Jika Kamu berniat untuk menyebabkan keributan yang lebih besar dari ini, maka kami harus mempertimbangkan untuk menurunkanmu ke rank-G juga. Jadi, bagaimana?"
+
+Sebelum Carol-san bergerak, Celia-san memperingatkannya dengan suara yang agak pelan dan Brass-kun hanya bisa mengertakkan gigi dan dia keluar dari guild.
+
+Semua orang di sekitar kami mengeluarkan udara lega.
 
 ◇
 
-Meskipun pembunuhan tidak terjadi, karena lingkungan akan berisik jika mereka yang terlibat tetap tinggal, Carol-san dan Aku pindah ke bilik bersama dengan Celia-san .
+Meskipun pembunuhan tidak terjadi, karena lingkungan akan berisik jika mereka yang terlibat tetap tinggal ditempat, Carol-san dan Aku pindah ke ruangan bersama dengan Celia-san .
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+celia"Kita sudah membahas tentang bekerja sedikit lebih lama kecuali jika ada masalah yang terjadi, tapi ......"
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+carol"Dia kemudian segera menyebabkan masalah. Ketika Aku mendengar dia bersikeras untuk menambahkan bagian untuk adik perempuannya, Aku benar-benar bingung apakah Aku harus tertawa atau merasa kecewa."
 
-「Kami sudah membahas tentang bekerja sedikit lebih lama kecuali jika ada masalah yang terjadi, tapi ......」
-「Dia kemudian segera menyebabkan masalah. Ketika Aku mendengar dia bersikeras untuk menambahkan bagian adik perempuannya, Aku benar-benar bingung apakah Aku harus tertawa atau merasa kecewa. 」
-「 Ngomong-ngomong, tidak apa-apa menganggap ini sebagai akhir dari pesta? 」
+ain"Ngomong-ngomong, tidak apa-apa menganggap ini sebagai akhir dari party?"
 
-Bahkan jika kita berbicara tentang Brass-kun , itu mungkin hanya akan berubah menjadi pesta keluhan, jadi Aku mengganti topik. Sebaliknya, Aku ingin mengkonfirmasi ini terlebih dahulu.
-Setelah ini, mereka mungkin tidak akan meminta Aku untuk mengadakan pesta lagi tetapi Aku ingin mendapatkan kata-kata mereka.
+Bahkan jika kita berbicara tentang Brass-kun , itu mungkin hanya akan berubah menjadi penuh keluhan, jadi Aku mengganti topik. tapi, Aku ingin mengkonfirmasi ini terlebih dahulu.
 
-"Iya. Pekerjaan pestamu dengan Brass-kun berakhir di sini.
-Namun, jika Kamu bergabung dengan partai lain hanya sekali lagi, itu akan memperlancar promosi peringkat-C Kamu. Apakah akan baik-baik saja? 」
-「 Selama kamu tidak memaksaku lagi pada anak-anak bermasalah, maka aku tidak keberatan. 」
-「Ummm , ya. Seharusnya tidak apa-apa. Kami ingin meminta Kamu untuk melakukan permintaan peringkat-D dengan orang-orang yang awalnya bekerja dengan Brass-kun .
-Kali ini, kami telah memberi tahu pihak lain bahwa Kamu adalah pemburu peringkat-D sebelumnya, jadi jika mereka menunjukkan tanda-tanda memperlakukan Kamu dengan ringan, kami tidak akan keberatan jika Kamu menolak. 」
+Setelah ini, mereka mungkin tidak akan memintaku untuk membuat party lagi tetapi Aku ingin mendengarkan perkataan mereka.
 
-Orang-orang baik itulah yang bekerja dengan Brass-kun dan tampaknya memberikan bagian dari hadiah itu kepada adik perempuannya.
-Mempertimbangkan bahwa mereka tidak setuju dengan dia pada akhirnya dan berpisah dengannya juga, seharusnya tidak ada masalah dengan karakter mereka.
+celia"Iya. Pekerjaan partymu dengan Brass-kun berakhir di sini. Tapi, jika Kamu bergabung dengan party lain hanya sekali lagi, itu akan memperlancar promosi rank-Cmu. Apakah kamu tidak masalah dengna itu?"
 
-「Apakah anggota peringkat-D?」
-「Tidak, mereka peringkat-E. Namun, karena mereka secara konsisten menyelesaikan pekerjaan mereka dan promosi peringkat-D mereka seharusnya tidak terlalu jauh, kami ingin mereka mengalami permintaan peringkat-D setidaknya sekali. 」
-「 Kalau begitu, Aku terima. 」
-「 Terima kasih sangat banyak."
+ain"Selama kamu tidak memaksaku lagi pada anak-anak bermasalah, aku tidak keberatan."
 
-Jika ini memperlancar promosi peringkat-C Aku, maka tidak ada alasan untuk menolak.
-Secara hipotesis, bahkan jika mereka meminta Aku untuk berpesta dengan Brass-kun lagi, Aku mungkin akan menerimanya jika mereka memberi tahu Aku bahwa Aku akan dipromosikan ke peringkat-C dengan itu.
+celia"Ummm, ya. Seharusnya tidak apa-apa. Kami ingin memintamu untuk melakukan permintaan rank-D dengan orang-orang yang awalnya bekerja dengan Brass-kun. Kali ini, kami telah memberi tahu pihak tersebut kalau Kamu adalah hunter rank-D, jadi jika mereka menunjukkan tanda-tanda meremehkanmu, kami tidak akan keberatan jika Kamu menolaknya."
 
-「Yang mengingatkan Aku, apa rencanamu setelah mencapai peringkat-C, Cielmer-san ?」
-「Tinggal di kota ini tidak akan membantuku mencapai peringkat-B lebih cepat, kan?」
-「Untuk peringkat-B, itu akan sulit . Sebaliknya, bahkan dapat dikatakan bahwa mencapai peringkat-C itu sendiri dalam waktu singkat ini tidak teratur.
-Keberadaanmu sendiri bisa disebut tidak teratur juga, Cielmer-san , jadi kamu mungkin bisa segera mencapai peringkat B; tetapi di sekitar area ini secara umum, hanya ada beberapa permintaan peringkat-C ke atas, jadi Aku tidak bisa merekomendasikan melakukan itu. 」
-「 Sejujurnya, Aku ingin Kamu tetap di sini tetapi itu tidak mungkin, bukan ? 」
-「 Ya, itu tidak mungkin. 」
+Orang-orang yang bekerja dengan Brass-kun dan tampaknya yang memberikan bagian dari hadiah itu kepada adik perempuannya.
+
+Mempertimbangkan bahwa mereka tidak setuju dengan brass-kun pada akhirnya dan berpisah dengannya juga, seharusnya tidak ada masalah dengan karakter mereka.
+
+ain"Apakah anggotanya rank-D?"
+
+celia"Tidak, mereka rank-E. tapi, karena mereka secara konsisten menyelesaikan pekerjaan mereka dan promosi rank-D mereka seharusnya tidak lama lagi, kami ingin mereka merasakan permintaan rank-D setidaknya sekali."
+
+ain"Kalau begitu, Aku terima."
+
+celia"Terima kasih sangat banyak."
+
+Jika ini memperlancar promosi rank-C, tidak ada alasan untuk menolak.
+
+Secara hipotesis, bahkan jika mereka memintaku untuk membuat party dengan Brass-kun lagi, Aku mungkin akan menerimanya jika mereka memberi tahuku kalau Aku akan dipromosikan ke rank-C karena itu.
+
+celia"Apa rencanamu setelah mencapai rank-C, Cielmer-san ?"
+
+ain"Tinggal di kota ini tidak akan membantuku mencapai rank-B lebih cepat, kan?"
+
+celia"Untuk rank-B, itu akan sulit . bahkan dapat dikatakan bahwa mencapai rank-C itu sendiri dalam waktu singkat ini sudah hebat. Keberadaanmu sendiri bisa disebut normal juga, Cielmer-san, jadi kamu mungkin bisa segera mencapai rank B; tetapi di sekitar area ini, hanya ada beberapa permintaan rank-C ke atas, jadi Aku tidak bisa merekomendasikan melakukan itu."
+
+carol"Sejujurnya, Aku ingin Kamu tetap di sini tetapi itu tidak mungkin, kan ?"
+
+ain"Ya, itu tidak mungkin."
 
 Melanjutkan setelah Celia-san , Carol-san bertanya. Mendengar jawaban langsungku, dia menghela nafas.
 Aku benar-benar bertanya-tanya mengapa Aku tidak merasakan keengganan untuk berpisah dari desahan itu.
-「Apakah Kamu tahu tempat yang bagus untuk naik ke peringkat-B?」
+「Apakah Kamu tahu tempat yang bagus untuk naik ke rank-B?」
 「Secara umum, ibu kota, Aku kira? Semakin banyak orang yang berkumpul, semakin banyak permintaan.
 Kalau tidak, perbatasan di mana ada banyak monster. Meskipun, bahkan jika Kamu bertanya kepada Aku di mana itu, Aku benar-benar tidak tahu. 」
-「 Dimengerti. Aku akan memikirkannya sampai Aku menjadi peringkat C. 」
+「 Dimengerti. Aku akan memikirkannya sampai Aku menjadi rank C. 」
 
 Ini adalah sesuatu yang tidak bisa Aku putuskan sendiri.
 Sebaliknya, karena Ciel akan menjadi orang yang paling banyak bergerak setelah kami meninggalkan Sannois, tidak akan ada masalah bahkan jika Aku tidak memberikan pendapat Aku tentang ini.
@@ -152,23 +160,23 @@ Sambil tersenyum ketika dia berkata, Ciel terlihat sangat cantik sehingga membua
 Aku yakin ini bukan karena Aku awalnya laki-laki, tetapi karena dia memiliki pesona untuk menarik orang tanpa memandang jenis kelamin.
 Mungkin ada saatnya dia bisa menunjukkan senyuman ini kepada orang lain, tetapi mengingat bagaimana senyum itu saat ini hanya ditujukan kepada Aku, Aku merasa terhormat.
 
-『Ngomong-ngomong, apa yang akan kamu lakukan setelah kita menjadi peringkat-C, Ciel?』
+『Ngomong-ngomong, apa yang akan kamu lakukan setelah kita menjadi rank-C, Ciel?』
 『Itu pertanyaan hari ini, kan? Tidak apa-apa melakukan apa yang Kamu ingin tahu, Ain? 』
 『 Kami tidak bisa melakukan itu. Sebaliknya, Aku tidak punya apa-apa yang ingin Aku lakukan. 』
 『 Begitu. Kalau begitu, Aku ingin melihat lautan. Karena Aku sudah melihat ciel , Aku ingin melihat mer juga. Bisakah kita? 』
 『 Tentu kita bisa. Betul sekali. Aku ingin kamu melihat laut juga. 』
-『 Tapi kita mungkin akan mencapai peringkat B nanti, tahu? 』
+『 Tapi kita mungkin akan mencapai rank B nanti, tahu? 』
 『 Jika itu keputusanmu, aku tidak akan keberatan meskipun kita ditunda.
 Selain itu, kami tidak benar-benar tahu tempat kerja yang paling efisien dan, paling tidak, Aku sangat ingin berada jauh dari kota ini. 』
 
 Ciel mengingat asal namanya membuatku merasa senang, tapi agak memalukan.
 Aku hanya berharap dia tidak menyadari rasa maluku. Ingin pergi ke laut bukanlah masalah besar sama sekali. Sebaliknya, karena dikatakan bahwa monster menjadi lebih kuat saat seseorang mendekat ke laut, seharusnya ada lebih banyak permintaan penaklukan tingkat tinggi yang tersedia di sana.
-Aku tidak bisa memastikan seberapa banyak kita bisa bertarung melawan monster peringkat B, tapi bukannya aku tidak melakukan apa-apa selama setengah tahun.
+Aku tidak bisa memastikan seberapa banyak kita bisa bertarung melawan monster rank B, tapi bukannya aku tidak melakukan apa-apa selama setengah tahun.
 Mungkin hanya sedikit, tetapi daya tahan penghalang seharusnya meningkat dan penerapan ulang setelah dihancurkan sekarang jauh lebih cepat daripada sebelumnya.
 Ciel juga memiliki kemampuan yang jauh lebih baik dengan Dance Princess juga. Padahal, dengan yang satu ini, kami belum mendapatkan latihan yang benar sama sekali, jadi Aku tidak tahu bagaimana cara menggunakannya.
 
-Untuk alasan itu saja, biarpun kita menghadapi beberapa monster peringkat B yang lebih kuat dari cyclop, kita seharusnya bisa mengalahkan mereka tanpa kesulitan.
-Pertama-tama, kami tidak dapat menerima permintaan peringkat-B, jadi mengingat bahwa pada umumnya kami akan melawan monster hingga peringkat-C, seharusnya tidak terlalu berbahaya di mana pun kami bekerja.
+Untuk alasan itu saja, biarpun kita menghadapi beberapa monster rank B yang lebih kuat dari cyclop, kita seharusnya bisa mengalahkan mereka tanpa kesulitan.
+Pertama-tama, kami tidak dapat menerima permintaan rank-B, jadi mengingat bahwa pada umumnya kami akan melawan monster hingga rank-C, seharusnya tidak terlalu berbahaya di mana pun kami bekerja.
 Karena kita tidak akan berada di lautan begitu kita meninggalkan Sannois, mengintip permintaan dari guild di sepanjang jalan sambil mencari kota atau desa yang sempurna untuk tinggal seharusnya bagus juga.
 
 『Jadi, Ain. Bisakah Kamu memberi tahu Aku asal usul nama Ainsel? 』
