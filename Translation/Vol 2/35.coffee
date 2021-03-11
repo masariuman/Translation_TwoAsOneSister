@@ -128,12 +128,15 @@ carol"Sejujurnya, Aku ingin Kamu tetap di sini tetapi itu tidak mungkin, kan ?"
 
 ain"Ya, itu tidak mungkin."
 
-Melanjutkan setelah Celia-san , Carol-san bertanya. Mendengar jawaban langsungku, dia menghela nafas.
-Aku benar-benar bertanya-tanya mengapa Aku tidak merasakan keengganan untuk berpisah dari desahan itu.
-「Apakah Kamu tahu tempat yang bagus untuk naik ke rank-B?」
-「Secara umum, ibu kota, Aku kira? Semakin banyak orang yang berkumpul, semakin banyak permintaan.
-Kalau tidak, perbatasan di mana ada banyak monster. Meskipun, bahkan jika Kamu bertanya kepada Aku di mana itu, Aku benar-benar tidak tahu. 」
-「 Dimengerti. Aku akan memikirkannya sampai Aku menjadi rank C. 」
+Carol-san bertanya setelah celia-san berbicara. Mendengar jawaban langsungku, dia menghela nafas.
+
+Aku benar-benar penasaran mengapa Aku tidak merasakan keengganan untuk berpisah dari helaan nafas itu.
+
+ain"Apakah Kamu tahu tempat yang bagus untuk naik ke rank-B?"
+
+celia"Secara umum, ibu kota, mungkin? Semakin banyak orang yang berkumpul, semakin banyak permintaan. atau, di perbatasan di mana ada banyak monster. Meskipun, bahkan jika Kamu bertanya kepadaku di mana itu, Aku benar-benar tidak tahu."
+
+ain"baiklah, aku mengerti. Aku akan memikirkannya sampai Aku menjadi rank C."
 
 Ini adalah sesuatu yang tidak bisa Aku putuskan sendiri.
 Sebaliknya, karena Ciel akan menjadi orang yang paling banyak bergerak setelah kami meninggalkan Sannois, tidak akan ada masalah bahkan jika Aku tidak memberikan pendapat Aku tentang ini.
