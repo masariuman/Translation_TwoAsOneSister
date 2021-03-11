@@ -139,52 +139,81 @@ celia"Secara umum, ibu kota, mungkin? Semakin banyak orang yang berkumpul, semak
 ain"baiklah, aku mengerti. Aku akan memikirkannya sampai Aku menjadi rank C."
 
 Ini adalah sesuatu yang tidak bisa Aku putuskan sendiri.
-Sebaliknya, karena Ciel akan menjadi orang yang paling banyak bergerak setelah kami meninggalkan Sannois, tidak akan ada masalah bahkan jika Aku tidak memberikan pendapat Aku tentang ini.
+arena Ciel akan menjadi orang yang paling banyak bergerak setelah kami meninggalkan Sannois, tidak akan ada masalah bahkan jika Aku tidak memberikan pendapatku tentang ini.
 
 ◇
 
 Hari ini, kami pulang setelah bernyanyi di pub. Tapi seperti yang kuduga, rasanya seperti kami diawasi sepanjang jalan.
-Aku tidak merasakan bahaya apa pun untuk saat ini, tetapi itu tidak membuatnya lebih menyenangkan.
-Tetap saja, tidak ada tanda-tanda mereka mengikuti kami di penginapan, jadi kami bisa makan dengan tenang. Ciel juga sangat menantikan waktu makan, jadi jika mereka menghalangi, kita harus memusnahkan mereka.
-Aku beralih dengan Ciel ketika kita makan di ruang makan, karena Nilda-san hampir tidak berbicara kepada kita, tapi itu benar-benar penyembuhan untuk melihat wajah Ciel bereaksi terhadap setiap hal.
+
+Aku tidak merasakan bahaya apa pun untuk saat ini, tetapi itu tidak membuat situasi lebih baik.
+
+Tetap saja, tidak ada tanda-tanda mereka mengikuti kami di penginapan, jadi kami bisa makan dengan tenang. Ciel juga sangat menantikan waktu makan, jadi jika mereka menghalangi kami, kami harus memusnahkan mereka.
+
+Aku berganti dengan Ciel ketika kami makan di ruang makan karena Nilda-san hampir tidak berbicara kepada kami, tapi itu benar-benar menyembuhkanku dengan melihat wajah Ciel bereaksi terhadap setiap hal.
 
 Setelah kami selesai makan, kami kembali ke kamar kami dan Ciel segera berbaring di tempat tidur.
+
 Tempat tidur yang tertata rapi terasa nyaman meski hanya untuk berbaring, jadi Aku mengerti perasaan ingin melempar diri ke tempat tidur terlebih dahulu.
-Ciel dengan benar duduk di tempat tidur sebelum berbaring tetapi jika itu aku, aku mungkin akan melompatinya. Sangat sulit untuk mengatakan siapa anak yang sebenarnya di sini.
-Kami tidak menggunakan tempat tidur di rumah di kehidupan Aku sebelumnya, jadi fakta bahwa ada tempat tidur sedikit meningkatkan kegembiraan Aku.
 
-『Kalau dipikir-pikir, ada orang yang mungkin pernah Aku lihat di pub, tetapi apakah Kamu memperhatikan mereka, Ain?』
-『Tidak, Aku terlalu fokus pada bernyanyi, jadi Aku tidak terlalu banyak melihat sekeliling.』
-『 Ain selalu bersenang-senang menyanyi. Apakah lagu pengantar tidur yang Kamu nyanyikan untuk Aku menyenangkan untuk Kamu juga? 』
-『 Tentu saja. Sangat menyenangkan memikirkan lagu mana yang akan membantu Kamu tidur nyenyak, suara seperti apa yang Kamu nyanyikan, dan apa yang Kamu sukai, Ciel. 』
-『 Terima kasih, Ain. 』
+Ciel dengan benar duduk di tempat tidur sebelum berbaring tetapi jika itu aku, aku mungkin akan melompatinya. Sangat sulit untuk mengatakan siapa bocah yang sebenarnya di sini.
 
-Sambil tersenyum ketika dia berkata, Ciel terlihat sangat cantik sehingga membuat jantungku berdetak kencang.
+Kami tidak menggunakan tempat tidur di rumah di kehidupanku sebelumnya, jadi fakta bahwa ada tempat tidur sedikit meningkatkan kegembiraanku.
+
+ciel [Kalau dipikir-pikir, ada orang yang mungkin pernah Aku lihat di pub, tetapi apakah Kamu memperhatikan mereka, Ain?]
+
+ain [Tidak, Aku terlalu fokus pada bernyanyi, jadi Aku tidak terlalu banyak memperhatikan sekitarku.]
+
+ciel [Ain selalu bersenang-senang ketika bernyanyi. Apakah lagu pengantar tidur yang Kamu nyanyikan untukku menyenangkan untukmu juga?]
+
+ain [Tentu saja. Sangat menyenangkan memikirkan lagu mana yang akan membantumu tidur nyenyak, suara seperti apa yang Kamu nyanyikan, dan apa yang Kamu sukai, Ciel.]
+
+ciel [Terima kasih, Ain.]
+
+Sambil tersenyum ketika dia berkata begitu, Ciel terlihat sangat cantik sehingga membuat jantungku berdetak kencang.
+
 Aku yakin ini bukan karena Aku awalnya laki-laki, tetapi karena dia memiliki pesona untuk menarik orang tanpa memandang jenis kelamin.
-Mungkin ada saatnya dia bisa menunjukkan senyuman ini kepada orang lain, tetapi mengingat bagaimana senyum itu saat ini hanya ditujukan kepada Aku, Aku merasa terhormat.
 
-『Ngomong-ngomong, apa yang akan kamu lakukan setelah kita menjadi rank-C, Ciel?』
-『Itu pertanyaan hari ini, kan? Tidak apa-apa melakukan apa yang Kamu ingin tahu, Ain? 』
-『 Kami tidak bisa melakukan itu. Sebaliknya, Aku tidak punya apa-apa yang ingin Aku lakukan. 』
-『 Begitu. Kalau begitu, Aku ingin melihat lautan. Karena Aku sudah melihat ciel , Aku ingin melihat mer juga. Bisakah kita? 』
-『 Tentu kita bisa. Betul sekali. Aku ingin kamu melihat laut juga. 』
-『 Tapi kita mungkin akan mencapai rank B nanti, tahu? 』
-『 Jika itu keputusanmu, aku tidak akan keberatan meskipun kita ditunda.
-Selain itu, kami tidak benar-benar tahu tempat kerja yang paling efisien dan, paling tidak, Aku sangat ingin berada jauh dari kota ini. 』
+Mungkin ada saatnya dia bisa menunjukkan senyuman ini kepada orang lain, tetapi mengingat bagaimana senyum itu saat ini hanya ditujukan kepadaku, Aku merasa terhormat.
+
+ain [Ngomong-ngomong, apa yang akan kamu lakukan setelah kita menjadi rank-C, Ciel?]
+
+ciel [Itu pertanyaan yang diajukan tadi, kan? Tidak apa-apa melakukan apa yang Kamu ingin lakukan lho, Ain...]
+
+ain [Kite tidak bisa melakukan itu. Aku tidak punya apa-apa yang ingin Aku lakukan.]
+
+cie; [Begitu. Kalau begitu, Aku ingin melihat lautan. Karena Aku sudah melihat ciel , Aku ingin melihat mer juga. Boleh?]
+
+ain [Tentu saja. benar sekali. Aku ingin kamu melihat laut juga.]
+
+ciel [Tapi kita mungkin akan mencapai rank B setelah itu..]
+
+ain [Jika itu keputusanmu, aku tidak akan keberatan meskipun hal itu tertunda. Selain itu, kita tidak benar-benar tahu tempat kerja yang paling efisien dan, paling tidak, Aku sangat ingin berada jauh dari kota ini.]
 
 Ciel mengingat asal namanya membuatku merasa senang, tapi agak memalukan.
-Aku hanya berharap dia tidak menyadari rasa maluku. Ingin pergi ke laut bukanlah masalah besar sama sekali. Sebaliknya, karena dikatakan bahwa monster menjadi lebih kuat saat seseorang mendekat ke laut, seharusnya ada lebih banyak permintaan penaklukan tingkat tinggi yang tersedia di sana.
-Aku tidak bisa memastikan seberapa banyak kita bisa bertarung melawan monster rank B, tapi bukannya aku tidak melakukan apa-apa selama setengah tahun.
-Mungkin hanya sedikit, tetapi daya tahan penghalang seharusnya meningkat dan penerapan ulang setelah dihancurkan sekarang jauh lebih cepat daripada sebelumnya.
-Ciel juga memiliki kemampuan yang jauh lebih baik dengan Dance Princess juga. Padahal, dengan yang satu ini, kami belum mendapatkan latihan yang benar sama sekali, jadi Aku tidak tahu bagaimana cara menggunakannya.
 
-Untuk alasan itu saja, biarpun kita menghadapi beberapa monster rank B yang lebih kuat dari cyclop, kita seharusnya bisa mengalahkan mereka tanpa kesulitan.
-Pertama-tama, kami tidak dapat menerima permintaan rank-B, jadi mengingat bahwa pada umumnya kami akan melawan monster hingga rank-C, seharusnya tidak terlalu berbahaya di mana pun kami bekerja.
-Karena kita tidak akan berada di lautan begitu kita meninggalkan Sannois, mengintip permintaan dari guild di sepanjang jalan sambil mencari kota atau desa yang sempurna untuk tinggal seharusnya bagus juga.
+Aku hanya berharap dia tidak menyadari rasa maluku. Ingin pergi ke laut bukanlah masalah besar sama sekali. Sebaliknya, karena katanya monster menjadi lebih kuat semakin dekat ke laut, seharusnya ada lebih banyak permintaan penaklukan tingkat tinggi yang tersedia di sana.
 
-『Jadi, Ain. Bisakah Kamu memberi tahu Aku asal usul nama Ainsel? 』
-『Ahh , umm …… Ini rahasia. 』
-『 Kamu sangat jahat, Ain. 』
-『 Memiliki rahasia membuat seorang wanita menawan …… adalah apa yang pernah Aku dengar sebelumnya, kamu melihat?"
-Menjadi seseorang yang agak seperti wanita namun agak bukan, meskipun Aku masih menganggap diri Aku sebagai pria jika harus memilih, Aku tidak dapat mengatakannya dengan penuh percaya diri. Meskipun karena Aku sudah memutuskan untuk menyembunyikan jenis kelamin Aku, akan lebih baik jika Aku melakukannya.
-Tidak menyadari konflik batinku, Ciel berkata 『Aku akan berhenti di situ.』 Dengan tatapan lembut, membuatku ingin merasa lebih tertekan.
+Aku tidak bisa memastikan seberapa banyak kami bisa bertarung melawan monster rank B, tapi bukannya aku tidak melakukan apa-apa selama setengah tahun.
+
+Mungkin hanya sedikit, tetapi daya tahan +BARRIER seharusnya meningkat dan penerapan ulang setelah dihancurkan sekarang jauh lebih cepat daripada sebelumnya.
+
+Ciel juga memiliki kemampuan yang jauh lebih baik dengan Dance Princess juga. Padahal, Kami belum mendapatkan latihan yang benar sama sekali, jadi Aku tidak tahu bagaimana kelanjutannya.
+
+Untuk alasan itu saja, biarpun kami menghadapi beberapa monster rank B yang lebih kuat dari cyclop, kami seharusnya bisa mengalahkan mereka tanpa kesulitan.
+
+Pada dasarnya, kami tidak dapat menerima permintaan rank-B, jadi mengingat bahwa pada umumnya kami akan melawan monster hingga rank-C, seharusnya tidak terlalu berbahaya di mana pun kami bekerja.
+
+Karena kami tidak akan berada di lautan begitu kami meninggalkan Sannois, mengambil permintaan dari guild di sepanjang jalan sambil mencari kota atau desa yang sempurna untuk tinggal seharusnya bagus juga.
+
+ciel [Jadi, Ain. Bisakah Kamu memberi tahuku asal usul nama Ainsel?]
+
+ain [Ahh , umm ...... Itu rahasia.]
+
+ciel [Kamu sangat jahat, Ain.]
+
+ain [Memiliki rahasia membuat seorang wanita menawan ... adalah apa yang pernah Aku dengar sebelumnya...]
+
+
+Menjadi seseorang yang setengah seperti wanita tapi setengah bukan, meskipun Aku masih menganggap diriku sebagai pria jika aku harus memilih, Aku tidak dapat mengatakannya dengan penuh percaya diri. Meskipun karena Aku sudah memutuskan untuk menyembunyikan jenis kelaminku, akan lebih baik jika Aku melakukannya.
+
+Tidak menyadari konflik batinku, Ciel berkata [baiklah~] Dengan tatapan lembut, membuatku ingin merasa lebih tertekan.
