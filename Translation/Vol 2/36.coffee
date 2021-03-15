@@ -96,39 +96,48 @@ Setelah terkejut, dia mengeluarkan kantong berukuran kecil, yang sedikit lebih b
 
 Menakutkan betapa mulusnya percakapan ini, tetapi jika Aku bisa mendapatkannya, Aku benar-benar akan melakukannya.
 
-"Tas ajaib itu mahal, kan?"
-"Yah, memang begitu. Tapi yang ini tidak mahal.
-Ini dibuat oleh magang perajin barang kenalan untuk latihan. Praktis tidak ada harganya, tetapi karena Kamu hanya bisa mendapatkannya jika Kamu tahu seorang perajin barang, Aku kira itu akan cukup sulit didapat. "
-" Ini, berapa yang bisa ditampungnya? "
-"Sebesar bahu tipikal Hunter tas. Jika Kamu menggunakan sebagai ganti dompet, seharusnya tidak ada masalah, kan? "
-" Aku sudah berpikir itu terlalu banyak, tetapi jika Kamu memberikannya maka Aku akan memilikinya setelah kita selesai. "
+ain"Tas magic mahal, kan?"
+
+carol"Yah, memang mahal. Tapi yang ini tidak mahal.
+Ini dibuat oleh perajin barang kenalanku untuk latihan. yaah tidak ada harganya, tetapi karena Kamu hanya bisa mendapatkannya jika Kamu kenal dengan seorang perajin barang, Aku kira itu akan cukup sulit didapat."
+
+ain"Ini, daya tampungnya bagaimana?"
+
+carol"Sebesar tas bahu hunter. Jika Kamu menggunakan sebagai ganti dompet, seharusnya tidak ada masalah, kan?"
+
+ain"Aku pikir ini sudah terlalu banyak, tetapi jika Kamu memberikannya maka Aku akan memilikinya setelah kita selesai."
 
 Dengan negosiasi selesai, saatnya memikirkan apa yang harus Aku bicarakan.
-Karena Aku mendapatkan sesuatu yang Aku inginkan, jika memungkinkan, Aku juga ingin memberikan informasi yang dia suka kepada Carol- san .
-Sebaliknya, karena Carol- san suka melakukan penelitian, dia mungkin akan jauh lebih bahagia jika Aku memberinya beberapa bahan yang bisa dia teliti.
-Kalau begitu, karena Perla- san juga ada di sini sebelumnya, mungkin aku harus berbicara tentang Pekerjaan dan kekuatan sihir. Selain itu, ada sesuatu yang membuatku penasaran.
-"Sebelum kita berdiskusi, Aku ingin mengkonfirmasi sesuatu tentang persepsi umum. Carol- san , apa kamu tahu dari mana kekuatan sihir itu berasal? "
-" ...... Hanya dari kata pengantar ini, aku sudah merasa ini akan menghancurkan komunitas sihir.
-Yah, bagaimanapun, yang biasanya dikatakan adalah bahwa kekuatan sihir mengalir dari hati. Namun, karena ada orang yang sedikit tidak tahu di mana jantungnya berada, teori terbaru adalah bahwa itu dari sesuatu yang mengendalikan kekuatan sihir di suatu tempat di dalam tubuh. "
+
+Karena Aku mendapatkan sesuatu yang Aku inginkan, jika memungkinkan, Aku juga ingin memberikan informasi yang dia suka kepada Carol-san .
+
+Sebaliknya, karena Carol-san suka melakukan penelitian, dia mungkin akan jauh lebih bahagia jika Aku memberinya beberapa bahan yang bisa dia teliti.
+
+Kalau begitu, karena Perla-san juga ada di sini sebelumnya, mungkin aku harus berbicara tentang job dan energi sihir. Selain itu, ada sesuatu yang membuatku penasaran.
+
+ain"Sebelum kita berdiskusi, Aku ingin mengkonfirmasi sesuatu tentang persepsi umum. Carol-san , apa kamu tahu dari mana energi sihir itu berasal?"
+
+carol" ...... Hanya dari pembukaan ini, aku sudah merasa ini akan menghancurkan komunitas sihir. Yah, bagaimanapun juga, yang biasanya dikatakan adalah bahwa energi sihir mengalir dari jantung. tapi, karena ada orang yang sedikit tidak tahu di mana jantungnya berada, teori terbaru adalah bahwa itu dari sesuatu yang mengendalikan energi sihir di suatu tempat di dalam tubuh."
 
 Seperti yang Aku duga, itulah yang dianggap sebagai pengetahuan umum.
-Jika tidak, maka informasi yang akan Aku katakan tidak akan berharga dan Aku tidak akan mendapatkan tas ajaib, jadi ini bagus.
 
-"Tentang itu, sebenarnya itu berasal dari jiwa."
-"Kamu terdengar sangat percaya diri mengatakan itu. Biasanya tidak ada yang akan percaya jika Kamu mengatakan sesuatu yang tidak masuk akal, Kamu tahu? "
-" Aku akan mengatakan bahwa Kamu dan Aku mungkin bukan bagian dari "normal" itu.
-Dan tentang mengapa Aku sangat yakin tentang itu, yang bisa Aku katakan adalah bahwa Aku sendiri memiliki pengalaman seperti itu. "
-" Aku tidak akan bertanya kepada Kamu pengalaman seperti apa itu. Aku merasa, jika Aku melakukannya, Aku akan memiliki lebih banyak pekerjaan yang harus dilakukan.
-Namun, Aku tahu itu tidak berbohong. Paling tidak, kamu tidak perlu mengatakan kebohongan yang tidak berguna. "
-" Meskipun, jika aku sangat membencimu, aku mungkin bisa membuat satu atau dua kebohongan. Bagaimanapun, itu mungkin akan mencuri banyak waktu Kamu. "
-"Jika setelah memberi tahu Aku sebanyak ini, apa yang Kamu katakan sebenarnya tidak benar, Aku akan kagum."
+Jika tidak, maka informasi yang akan Aku katakan tidak akan berharga dan Aku tidak akan mendapatkan tas magic, jadi ini bagus.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+ain"itu, sebenarnya itu berasal dari jiwa."
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+carol"Kamu terdengar sangat percaya diri mengatakan itu. Biasanya tidak ada yang akan percaya jika Kamu mengatakan sesuatu yang tidak masuk akal, Kamu tahu?"
 
-Mengatakan demikian, mata Carol- san berbinar kegirangan.
-Dari sudut pandangku, karena seseorang masih bisa menggunakan sihir secara normal bahkan jika kekuatan sihir itu berasal dari tempat yang salah, kurasa ini tidak akan berdampak besar. Ya, tentu, Aku sadar bahwa ini akan berdampak besar, tetapi dari mana percakapan kita saat ini, tidak akan terlihat seperti itu.
+ain"Aku akan mengatakan bahwa Kamu dan Aku mungkin bukan bagian dari "normal" itu. Dan tentang mengapa Aku sangat yakin tentang itu, yang bisa Aku katakan adalah bahwa Aku sendiri memiliki pengalaman seperti itu."
+
+carol"Aku tidak akan bertanya kepadamu pengalaman seperti apa itu. Aku merasa, jika Aku melakukannya, Aku akan memiliki lebih banyak pekerjaan yang harus dilakukan. tapi, Aku tahu kau tidak berbohong. Paling tidak, kamu tidak perlu mengatakan kebohongan yang tidak berguna."
+
+ain"kalau aku sangat membencimu, aku mungkin bisa membuat satu atau dua kebohongan. itu mungkin akan mencuri banyak waktumu."
+
+carol"Jika setelah memberi tahuku sebanyak ini apa yang Kamu katakan sebenarnya tidak benar, Aku akan kagum."
+
+Mengatakan demikian, mata Carol-san berbinar kegirangan.
+
+Dari sudut pandangku, karena seseorang masih bisa menggunakan sihir secara normal bahkan jika kekuatan sihir itu berasal dari tempat yang salah, kurasa ini tidak akan berdampak besar. Ya, tentu, Aku sadar bahwa ini akan berdampak besar, tetapi dari percakapan kami saat ini, tidak akan terlihat seperti itu.
 
 "Oh . Terlepas dari mengalami terobosan ini sendiri, Kamu tidak benar-benar memiliki banyak reaksi. "
 " Nah, dari bagian yang Aku tinggalkan, sepertinya tidak ada yang akan berubah sama sekali.
