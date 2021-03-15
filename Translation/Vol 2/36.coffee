@@ -164,40 +164,48 @@ kenapa dia tidak memiliki ketenangan ini selama pertandingan formal kami?
 
 carol"Sebenarnya, tidak apa-apa memberitahuku tentang ini?"
 
-ain"Sudah ada bangsawan yang tahu tentang ini. Bahkan jika Aku tidak memberi tahumu, orang lain mungkin menemukannya dan menyebarkan informasi ini suatu hari nanti. Kamu bahkan mungkin menemukannya sendiri. Jadi dalam hal ini, bukankah lebih aman jika Aku mengajar dan memperingatkan Kamu tentang hal itu? "
-" Itu mungkin benar. Paling tidak, Aku akan berpikir untuk berhati-hati tentang itu. "
-" Selain itu, jika kita akan melawan bangsawan tersebut, pengetahuan tentang informasi dapat mempengaruhi gelombang pertempuran. "
-" Jadi kamu ' sedang berpikir bahwa ini mungkin saja. "
-" Siapa yang tahu? Aku baru saja dipenjara.
-Meskipun Aku agak menyadari metode apa yang dia gunakan untuk mencapai tujuannya, Aku tidak tahu apa tujuan itu.
-Namun, itu adalah individu yang akan mengunci bayi selama 10 tahun untuk tujuannya dan menjualnya ketika dia tidak dibutuhkan. "
+ain"Sudah ada bangsawan yang tahu tentang ini. Bahkan jika Aku tidak memberi tahumu, orang lain mungkin menemukannya dan menyebarkan informasi ini suatu hari nanti. Kamu bahkan mungkin menemukannya sendiri. Jadi dalam hal ini, bukankah lebih aman jika Aku memberitahu dan memperingatkanmu tentang hal itu?"
 
-Dia mungkin melakukan beberapa hal yang tidak masuk akal selain apa yang dia lakukan pada kita tapi menilai dari rumor yang beredar, tidak ada apa-apa padanya. Di pub, Aku hanya menanyakan tentang topik-topik yang relatif level permukaan sehingga orang tidak akan mengira bahwa Aku sedang menyelidiki rumah tangga Respelgia. Tetap saja, orang-orang hanya secara acak membicarakan tentang bangsawan yang sangat mengerikan tanpa aku bertanya. Berkat itu, Aku sudah memutuskan rute mana yang akan digunakan untuk mencapai laut setelah meninggalkan kota ini.
+carol"Itu mungkin benar. Paling tidak, Aku akan berpikir untuk berhati-hati tentang itu."
 
-Carol- san berkata "Aku akan mengingatnya." Saat dia mengangguk dengan sungguh-sungguh, jadi mungkin akan buruk jika aku tidak memberitahunya juga.
-"Kalau dipikir-pikir, Aku sudah menguliahi Perla- san beberapa waktu yang lalu tetapi bukankah menurut Kamu dia adalah individu yang cukup menarik?"
-"...... Tunggu, dengan kekuatan sihir berasal dari jiwa, itulah yang Kamu maksud ? "
+ain"Selain itu, jika kita akan melawan bangsawan tersebut, pengetahuan tentang informasi dapat mempengaruhi gelombang pertempuran."
 
-Hanya dengan menyebut nama Perla- san , Carol- san terguncang. Dia sangat cepat.
-Dan berdasarkan nada suaranya yang cemas, dia mungkin merasa bahwa hubungan antara Jobs dan kekuatan sihir itu berbahaya.
+carol"Jadi kamu sedang berpikir bahwa itu mungkin terjadi."
 
-"Dari pengalaman Aku, keduanya berbeda. Namun, Aku tidak dapat mengatakan bahwa mereka sama sekali tidak memiliki pengaruh satu sama lain. "
-" Aku mengerti, Kamu benar. Tas ajaib yang murah tidak akan cukup untuk informasi ini.
-Apakah ada hal lain yang Kamu inginkan? "
-" Dalam hal ini, harap merahasiakan percakapan kami dan penelitian yang akan Kamu mulai berdasarkan diskusi ini untuk diri Kamu sendiri.
-Setidaknya, selama Aku masih di negara ini. "
-" Tak perlu dikatakan lagi. Tidak mungkin aku bisa mempublikasikan ini. "
-" Lalu apakah kamu masih akan melakukan studi tentang ini? "
-" Bukannya aku melakukan penelitian sihir untuk menonjol sama sekali.
-Aku melakukannya karena itu menyenangkan. Aku punya banyak pelajaran privat selain yang ini. "
-"Dalam hal ini, Aku tidak keberatan jika setelah Aku meninggalkan negara ini, tolong beri tahu Aku tentang hasilnya di masa depan.
-Aku baru saja berusia 10 tahun baru-baru ini, Aku tidak memiliki pemahaman yang baik tentang Pekerjaan Aku sejak awal. "
+ain"Siapa yang tahu? Aku baru saja dikurung. Meskipun Aku agak menyadari metode apa yang dia gunakan untuk mencapai tujuannya, Aku tidak tahu apa tujuan itu. tapi, itu adalah individu yang akan mengunci bayi selama 10 tahun untuk tujuannya dan menjualnya ketika dia tidak dibutuhkan lagi."
 
-Sehubungan dengan Pekerjaan kami, Ciel mungkin memiliki kendali yang lebih baik atas miliknya dibandingkan dengan Aku.
-Tapi jika Aku bisa menguasainya, Aku harus bisa lebih bertenaga. Namun, berapa tahun kemudian itu akan terjadi?
+Dia mungkin melakukan beberapa hal yang tidak masuk akal selain apa yang dia lakukan pada kami tapi menilai dari rumor yang beredar, tidak ada apa-apa padanya. Di pub, Aku hanya menanyakan tentang topik-topik yang relatif bagian umum saja sehingga orang tidak akan mengira bahwa Aku sedang menyelidiki Respelgia. Tetap saja, orang-orang hanya secara acak membicarakan tentang bangsawan yang sangat mengerikan tanpa aku bertanya. Berkat itu, Aku sudah memutuskan rute mana yang akan digunakan untuk mencapai laut setelah meninggalkan kota ini.
 
-"Oh itu benar. Saat kami berdiskusi, benar-benar membuat Aku lupa tentang konsep usia.
-Setelah Kamu mencapai peringkat B, hubungi Aku di markas. Aku akan mengundang Kamu ke rumah Aku. Pada saat itu, pekerjaan Aku di negara ini harus selesai juga. "
-" Ketika saatnya tiba, tolong jaga Aku. Baiklah kalau begitu."
+Carol-san berkata "Aku akan mengingatnya." dan dia mengangguk dengan sungguh-sungguh, jadi mungkin akan buruk jika aku tidak memberitahunya juga.
 
-Supaya aku tidak melupakannya hari ini, aku memastikan untuk membawa tas ajaib itu sebelum keluar kamar.
+ain"Kalau dipikir-pikir, Aku sudah mengajari Perla-san beberapa waktu yang lalu tetapi bukankah menurutmu dia adalah individu yang cukup menarik?"
+
+carol"...... Tunggu, dengan energi sihir berasal dari jiwa, itulah yang Kamu maksud ?"
+
+Hanya dengan menyebut nama Perla-san , Carol-san terguncang. Dia sangat cepat.
+
+Dan berdasarkan nada suaranya yang cemas, dia mungkin merasa bahwa hubungan antara Jobs dan energi sihir itu berbahaya.
+
+ain"Dari pengalamanku, keduanya berbeda. tapi, Aku tidak dapat mengatakan bahwa mereka sama sekali tidak memiliki pengaruh satu sama lain."
+
+carol"Aku mengerti, Kamu benar. Tas magic yang murah tidak akan cukup untuk informasi ini. Apakah ada hal lain yang Kamu inginkan?"
+
+ain"tolong rahasiakan percakapan kita dan penelitian yang akan Kamu lakukan berdasarkan diskusi ini untuk dirimu sendiri. Setidaknya, selama Aku masih di negara ini."
+
+carol"Tak perlu dikatakan lagi. Tidak mungkin aku mempublikasikan ini."
+
+ain"Lalu apakah kamu masih akan melakukan studi tentang ini?"
+
+carol"aku melakukan penelitian sihir bukan untuk menonjol sama sekali. Aku melakukannya karena itu menyenangkan. Aku punya banyak penelitian rahasia selain yang ini."
+
+ain"Aku tidak keberatan jika setelah Aku meninggalkan negara ini, tolong beri tahu Aku tentang hasilnya di masa depan. Aku baru saja berusia 10 tahun baru-baru ini, Aku tidak memiliki pemahaman yang baik tentang jobku sejak awal."
+
+Sehubungan dengan job kami, Ciel mungkin memiliki kendali yang lebih baik dibandingkan denganku.
+
+Tapi jika Aku bisa menguasainya, Aku bisa lebih bertenaga. tapi, berapa tahun itu akan terjadi?
+
+carol"Oh itu benar. Saat kita berdiskusi, itu benar-benar membuatku lupa tentang konsep usia. Setelah Kamu mencapai rank B, hubungi Aku di markas. Aku akan mengundangmu ke rumahku. Pada saat itu, pekerjaan Aku di negara ini harusnya selesai juga."
+
+ain"Ketika saatnya tiba, aku akan melakukannya. Baiklah kalau begitu."
+
+Supaya aku tidak melupakan hari ini, aku memastikan untuk membawa tas magic itu sebelum keluar kamar.
