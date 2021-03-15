@@ -73,20 +73,28 @@ Sulit untuk dijelaskan, tetapi Aku percaya bahwa seseorang yang sepenuhnya otodi
 Tanpa ide yang jelas tentang apa yang Aku lakukan, Aku belajar +DETECTION dan +BARRIER, bagaimana menyembunyikannya, meminimalkan konsumsi energi, dan Aku bahkan tidak yakin apakah itu masih sorcery atau magic.
 
 Di sisi lain, Aku pikir Ciel memiliki cara belajar yang sepenuhnya ortodoks. tapi, fundamentalnya berasal dari rak buku keluarga Respelgia, jadi mungkin sangat tidak konvensional. Bagian di mana energi sihir berada pada jiwa sudah berbeda dari persepsi umum.
-------
-"Apakah itu benar-benar cukup?"
-"Dasar-dasarnya penting. Terlebih lagi jika Kamu awalnya tidak bisa menggunakan sihir. "
-" Yah, cukup bagus. Kamu sama sekali tidak mengatakan sesuatu yang salah.
-Kebetulan, bisakah Kamu mengajari Aku sesuatu juga? "
-" Mengapa Aku harus mengajari Kamu? "
-" Apakah ada yang Kamu inginkan? "
-" Aku ingin kualifikasi Hunter peringkat-B. "
-" Bisakah Kamu membuatnya menjadi sesuatu yang mungkin bagi Aku? Celia bertanggung jawab atas hal-hal semacam itu. "
-" Kalau begitu, tolong tas ajaib. Yang kecil sudah cukup. "
-"Oh , jadi kamu pandai dengan itu, begitu. Bagaimana kalau yang ini? "
 
-Setelah membuat tampilan terkejut, dia mengeluarkan kantong berukuran umumnya kecil, yang sedikit lebih besar dari tangan Ciel, dan meletakkannya di atas meja.
-Menakutkan betapa mulusnya percakapan ini, tetapi jika Aku bisa mengerti maka Aku benar-benar ingin melakukannya.
+carol"Apakah itu benar-benar cukup?"
+
+ain"Dasar-dasarnya itu penting. Terlebih lagi jika Kamu awalnya tidak bisa menggunakan sihir."
+
+carol"Yah, sudah cukup sih. Kamu sama sekali tidak mengatakan sesuatu yang salah. Kebetulan, bisakah Kamu mengajariku sesuatu juga?"
+
+ain"Mengapa Aku harus mengajarimu?"
+
+carol"Apakah ada yang Kamu inginkan?"
+
+ain"Aku ingin kualifikasi Hunter rank-B."
+
+carol"Bisakah Kamu membuatnya menjadi sesuatu yang mungkin bagiku? Celia bertanggung jawab atas hal-hal semacam itu."
+
+carol"Kalau begitu, tas magic saja. Yang kecil sudah cukup."
+
+carol"Oh, kalau itu aku bisa. Bagaimana kalau yang ini?"
+
+Setelah terkejut, dia mengeluarkan kantong berukuran kecil, yang sedikit lebih besar dari tangan Ciel, dan meletakkannya di atas meja.
+
+Menakutkan betapa mulusnya percakapan ini, tetapi jika Aku bisa mendapatkannya, Aku benar-benar akan melakukannya.
 
 "Tas ajaib itu mahal, kan?"
 "Yah, memang begitu. Tapi yang ini tidak mahal.
