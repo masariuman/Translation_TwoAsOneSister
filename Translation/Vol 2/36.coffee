@@ -137,28 +137,34 @@ carol"Jika setelah memberi tahuku sebanyak ini apa yang Kamu katakan sebenarnya 
 
 Mengatakan demikian, mata Carol-san berbinar kegirangan.
 
-Dari sudut pandangku, karena seseorang masih bisa menggunakan sihir secara normal bahkan jika kekuatan sihir itu berasal dari tempat yang salah, kurasa ini tidak akan berdampak besar. Ya, tentu, Aku sadar bahwa ini akan berdampak besar, tetapi dari percakapan kami saat ini, tidak akan terlihat seperti itu.
+Dari sudut pandangku, karena seseorang masih bisa menggunakan sihir secara normal bahkan jika energi sihir itu berasal dari tempat yang salah, kurasa ini tidak akan berdampak besar. Ya, tentu, Aku sadar bahwa ini akan berdampak besar, tetapi dari percakapan kami saat ini, tidak akan terlihat seperti itu.
 
-"Oh . Terlepas dari mengalami terobosan ini sendiri, Kamu tidak benar-benar memiliki banyak reaksi. "
-" Nah, dari bagian yang Aku tinggalkan, sepertinya tidak ada yang akan berubah sama sekali.
-Apakah itu benar-benar sesuatu
-yang membuatmu bersemangat? "" Apa yang kamu bicarakan? Selama Kamu tahu dari mana kekuatan sihir berasal, mungkin saja Kamu bisa mengeluarkan lebih banyak kekuatan sihir, Kamu tahu?
-Dalam hal itu, setidaknya itu akan menjadi peningkatan daya tembak secara langsung. "
+carol"Oh. Terlepas dari mengalami terobosan ini sendiri, Kamu tidak benar-benar memiliki banyak reaksi."
 
-Aku kewalahan oleh kegembiraan Carol- san .
-Meskipun benar bahwa itu harus mengarah pada peningkatan daya tembak, atau lebih tepatnya output, karena Aku sudah menemukannya cukup awal, Aku sendiri tidak benar-benar merasakan efeknya.
-Meskipun demikian, jika Carol- san senang tentang itu, baguslah. Sekarang kita bisa memiliki tas ajaib tanpa membebani hati nurani Aku.
-Tetap saja, Aku agak khawatir tentang kegembiraan murni Carol- san .
+ain"Nah, menurutku tidak ada yang akan berubah sama sekali.
+Apakah itu benar-benar sesuatu yang membuatmu bersemangat?"
 
-"Aku senang Kamu terlihat senang tentang itu tetapi harap diingat bahwa informasi ini berasal dari individu yang melahirkan makhluk seperti Aku."
-"Itu benar."
+carol"Apa yang kamu bicarakan? Selama Kamu tahu dari mana energi sihir berasal, mungkin saja Kamu bisa mengeluarkan lebih banyak kekuatan sihir, Kamu tahu? Dalam hal itu, setidaknya bisa saja meningkatkan kekuatan serangan secara langsung."
 
-Melihat Carol- san menjadi tenang dalam sekejap memang agak menakutkan.
-Sungguh, kenapa dia tidak memiliki ketenangan ini selama pertandingan formal kita?
+Aku kewalahan oleh kegembiraan Carol-san.
 
-"Sebenarnya, tidak apa-apa memberitahuku tentang ini?"
-"Sudah ada bangsawan yang tahu tentang ini. Bahkan jika Aku tidak memberi tahu Kamu, orang lain mungkin menemukan dan menyebarkan informasi ini suatu hari nanti. Sementara kami melakukannya, Kamu bahkan mungkin menemukannya sendiri.
-Jadi dalam hal ini, bukankah lebih aman jika Aku mengajar dan memperingatkan Kamu tentang hal itu? "
+Meskipun benar bahwa itu mengarah pada peningkatan daya tembak, atau lebih tepatnya output, karena Aku sudah menemukan hal itu, Aku sendiri tidak benar-benar merasakan efeknya.
+
+jika Carol-san senang karena itu, baguslah. Sekarang kami bisa memiliki tas magic tanpa membebani hati nuraniku.
+
+Tetap saja, Aku agak khawatir tentang kegembiraan murni Carol-san.
+
+ain"Aku senang Kamu terlihat senang tentang itu tetapi harap diingat bahwa informasi ini berasal dari individu yang melahirkan makhluk sepertiku."
+
+carol"Itu benar."
+
+Melihat Carol-san menjadi tenang dalam sekejap memang agak menakutkan.
+
+kenapa dia tidak memiliki ketenangan ini selama pertandingan formal kami?
+
+carol"Sebenarnya, tidak apa-apa memberitahuku tentang ini?"
+
+ain"Sudah ada bangsawan yang tahu tentang ini. Bahkan jika Aku tidak memberi tahumu, orang lain mungkin menemukannya dan menyebarkan informasi ini suatu hari nanti. Kamu bahkan mungkin menemukannya sendiri. Jadi dalam hal ini, bukankah lebih aman jika Aku mengajar dan memperingatkan Kamu tentang hal itu? "
 " Itu mungkin benar. Paling tidak, Aku akan berpikir untuk berhati-hati tentang itu. "
 " Selain itu, jika kita akan melawan bangsawan tersebut, pengetahuan tentang informasi dapat mempengaruhi gelombang pertempuran. "
 " Jadi kamu ' sedang berpikir bahwa ini mungkin saja. "
