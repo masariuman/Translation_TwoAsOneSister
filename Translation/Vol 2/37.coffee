@@ -12,15 +12,21 @@ Jika kita bahkan sedikit terlambat, dia mungkin akan menggunakan itu sebagai ala
 " Sungguh."
 
 Berbicara tentang itu di sepanjang jalan, aku membuka pintu guild saat kami tiba dan apa yang pertama kali kurasakan saat masuk ke dalam adalah panas.
+
 Aku khususnya merasakan banyak panas dari arah papan buletin, jadi Aku melarikan diri ke sisi yang berlawanan. Saat Aku berpikir untuk menunggu yang lain di sana, tiba-tiba "Umm. "Seseorang menginginkan perhatian Aku.
+
 Melihat dari mana suara itu berasal, Aku melihat bahwa semua orang yang akan Aku ajak berpesta hari ini sudah ada di sini.
 
 "Kalian semua di sini cukup awal hari ini."
+
 "Daripada lebih awal, ini adalah waktu berkumpul yang biasa."
+
 "Brass- kun datang lebih lama, Kamu tahu."
+
 "Ahh ......"
 
 Ilda- san , yang menjawab kata-kata Aku, sepertinya mengingat sesuatu dan menunjukkan tampilan yang tampaknya yakin tapi jengkel.
+
 Ilda- san dan Terencio- kun benar-benar resmi pada awalnya, tetapi setelah mengatakan kepada mereka bahwa mereka tidak perlu khawatir tentang cara mereka berbicara, terutama karena itu bisa membuat lebih sulit untuk berkomunikasi, keduanya menjadi jauh lebih santai. Adapun Perla- san , dia mengatakan bahwa dia baik-baik saja, oleh karena itu dia menjaga pidato formal.
 
 Meskipun ada banyak orang di depan papan buletin, kami mengabaikan mereka dan menempati meja di area bersantai untuk berdiskusi sebentar.
@@ -37,17 +43,23 @@ Meskipun ada banyak orang di depan papan buletin, kami mengabaikan mereka dan me
 Namun, hari ini kita akan berburu orc. "
 
 Mendengar pernyataan Aku, semua orang memiringkan kepala dengan bingung.
+
 Yah, mereka mungkin bingung tentang kita tidak akan mengejar laba-laba raksasa setelah Aku memberi tahu mereka bahwa itu pilihan yang bagus.
+
 Karena kehati-hatian itu penting, itu normal jika mereka mengambil rute teraman meskipun mereka memiliki Hunter peringkat-D bersama mereka. Tetap saja, ini adalah sesuatu yang tidak bisa Aku akui.
 
 "Mengapa?"
+
 "Itu karena aku benci laba-laba."
+
 "Kamu benci ......"
-"Bukannya aku membenci mereka sampai-sampai aku tidak bisa mengalahkan mereka, aku sangat membenci mereka sehingga aku langsung memusnahkan mereka ketika aku melihatnya .
-Sampai-sampai tidak ada jejak tubuh mereka yang tersisa. Akan sangat beruntung jika ada batu ajaib yang tertinggal. Jadi, dengan pertimbangan itu, niscaya ini akan bertentangan dengan tujuan hari ini. Dan karena kami tidak dapat memanen bagian bukti, permintaan tersebut tidak akan dianggap berhasil. "
+
+"Bukannya aku membenci mereka sampai-sampai aku tidak bisa mengalahkan mereka, aku sangat membenci mereka sehingga aku langsung memusnahkan mereka ketika aku melihatnya . Sampai-sampai tidak ada jejak tubuh mereka yang tersisa. Akan sangat beruntung jika ada batu ajaib yang tertinggal. Jadi, dengan pertimbangan itu, niscaya ini akan bertentangan dengan tujuan hari ini. Dan karena kami tidak dapat memanen bagian bukti, permintaan tersebut tidak akan dianggap berhasil. "
 
 Itu tidak akan berfungsi sebagai pelatihan pertempuran yang baik bagi mereka, apalagi kesempatan untuk berlatih membongkar monster.
+
 Aku sama sekali tidak akan pernah menerima permintaan terkait laba-laba atas keinginan Aku sendiri. Jika Aku pernah diminta untuk melakukannya, Aku pasti akan meminta guild menemukan cara lain untuk membuktikan bahwa Aku menaklukkan mereka selain bagian dan batu ajaib.
+
 Jika kebetulan kami menemukan laba-laba yang dapat menahan serangan Ciel, kami mungkin akan membakar seluruh tempat itu hingga rata dengan tanah.
 
 "Dengan itu, kami akan menaklukkan orc."
