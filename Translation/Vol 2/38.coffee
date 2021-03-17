@@ -41,44 +41,53 @@ ain [Ya.]
 
 Saat kami melewati gerbang sambil bertukar omong kosong itu, sepertinya pengejar kami juga ikut dengan kami kali ini.
 
-Pasangan hari ini bersembunyi di balik pohon ke pohon saat mereka mengejar kita.
+hari ini mereka bersembunyi di balik pohon ke pohon sambil mengejar kami.
 
-Karena Aku tahu waktu pergerakan mereka, Aku menyesuaikan waktu mereka dan menoleh. Di sana, Aku melihat dua pria yang biasa disebut Hunter kasar dan kasar.
+Karena Aku tahu waktu pergerakan mereka, Aku menyesuaikan waktu mereka dan menoleh. Di sana, Aku melihat dua pria yang biasa disebut Hunter kasar.
 
 Sepertinya aku mengingatnya dari suatu tempat, tapi dari mana? Karena ketahuan, para pengejar melarikan diri dengan kecepatan penuh, jadi akan sulit untuk memeriksanya untuk terakhir kalinya.
 
-Aku mendekati hutan sambil memeras kepalaku tentang siapa mereka ketika kali ini, aku melihat pesta yang pasti kuingat.
-Melihatku, salah satu dari mereka, Perla -san , dengan antusias melambaikan tangannya, mengatakan sesuatu pada dua lainnya, lalu tiba-tiba berlari ke arahku.
+ketika Aku mendekati hutan sambil memeras kepalaku tentang siapa mereka kali ini, aku melihat party yang pasti kukenal.
 
-"Guru, apakah Kamu pergi ke hutan untuk meminta juga?"
-"Itu benar, tapi" Guru "?"
-"Yup! Aku dapat melakukan lebih banyak hal sekarang karena bantuan Guru dan kami sekarang diizinkan untuk mengikuti tes peringkat-D. Itu semua berkat semua yang Kamu ajarkan kepada Aku, jadi Kamu adalah Guru Aku.
-Apakah itu buruk? "
-" Tidak, itu tidak terlalu buruk atau semacamnya. Bagaimanapun, selamat telah menerima izin untuk mengikuti tes peringkat-D. Kamu tidak menuju ujian sekarang, bukan? "
-" Kami telah memutuskan untuk mengambilnya setelah kami menjadi sedikit lebih baik dengan kerja tim kami.
-Lagipula aku masih membuat Teren- kun basah kuyup. "
+Melihatku, salah satu dari mereka, Perla-san , dengan antusias melambaikan tangannya, mengatakan sesuatu pada dua lainnya, lalu tiba-tiba berlari ke arahku.
 
-Seperti kita berbicara, Terencio- kun dan Ilda- san datang juga, jadi setelah bertukar salam cahaya, aku mulai berjalan lagi.
+perla"Guru, apakah Kamu pergi ke hutan untuk permintaan juga?"
 
-"Kalau dipikir-pikir, apa yang ada di tes peringkat-D?"
-"Aku juga penasaran tentang itu."
+ain"Benar, tapi 'Guru'?"
 
-Ilda- san ditindaklanjuti untuk Perla- san pertanyaan ‘s, tapi sayangnya, Aku tidak memiliki jawaban untuk itu.
+perla"Yup! Aku dapat melakukan lebih banyak hal sekarang karena bantuan Guru dan kami sekarang diizinkan untuk mengikuti tes rank-D. Itu semua berkat semua yang Kamu ajarkan kepadaku, jadi Kamu adalah Guruku. Apakah itu buruk?"
+
+ain"Tidak, itu tidak terlalu buruk. selamat telah menerima izin untuk mengikuti tes rank-D. kalian tidak melakukan ujian sekarang, kan?"
+
+perla"Kami telah memutuskan untuk mengikutinya setelah kami menjadi sedikit lebih baik dengan kerja tim kami. Lagipula aku masih membuat Teren-kun basah kuyup."
+
+ketika kami berbicara, Terencio-kun dan Ilda-san datang juga, jadi setelah bertukar salam cahaya, aku mulai berjalan lagi.
+
+perla"Kalau dipikir-pikir, tes rank-D seperti apa?"
+
+ilda"Aku juga penasaran tentang itu."
+
+Ilda-san berkata mengikuti pertanyaan Perla-san, tapi sayangnya, Aku tidak memiliki jawaban untuk itu.
+
 Aku ragu apakah Aku harus memberi tahu mereka atau tidak, tetapi karena tidak ada alasan untuk berbohong, Aku memutuskan untuk berbicara tentang apa yang terjadi sampai batas tertentu.
 
-"Aku sebenarnya dibebaskan dari ujian peringkat-D, jadi Aku tidak terlalu tahu."
-"Kamu bisa dibebaskan?"
-"Sepertinya ada sistem yang memungkinkannya selama Kamu cukup mampu.
-Setelah lulus tes kekuatan selama pendaftaran, Aku diberi pengecualian. "
+ain"Aku sebenarnya dibebaskan dari ujian rank-D, jadi Aku tidak terlalu tahu."
 
-Mendengar penjelasan Aku, mereka bertiga mengeluarkan "Ahh ~" yang yakin pada saat yang sama.
+perla"Kamu bisa dibebaskan?"
+
+ain"Sepertinya ada sistem yang memungkinkannya selama Kamu cukup mampu. Setelah lulus tes kekuatan selama pendaftaran, Aku diberi pengecualian."
+
+Mendengar penjelasanku, mereka bertiga mengeluarkan "Ahh ~" yang yakin pada saat yang sama.
 
 ◇
 
 Karena kami semua sedang menuju hutan, kami berempat memutuskan untuk tetap bersama sampai kami memasuki tepi hutan.
-Dalam perjalanan, mereka dengan antusias memberi tahu Aku tentang betapa mudahnya bertarung sekarang, tentang kekuatan tempur Terencio- kun , dan hal-hal serupa lainnya.
-Ini benar-benar lebih disukai daripada ditanya secara acak tentang berbagai hal, jadi Aku mengabdikan diri untuk mendengarkan dan hanya mengangguk terus menerus.
-Sebuah cerita tentang Brass- kun juga muncul dan sepertinya dia mendekati mereka semua dengan sikap merendahkan seperti biasa, karena tidak belajar sama sekali, jadi mereka mengalahkannya dalam pertandingan formal.
+
+Dalam perjalanan, mereka dengan antusias memberi tahuku tentang betapa mudahnya bertarung sekarang, tentang kekuatan Terencio-kun, dan hal-hal serupa lainnya.
+
+aku benar-benar lebih menyukai begini daripada ditanya secara acak tentang berbagai hal, jadi Aku mendengarkan dan hanya mengangguk terus menerus.
+
+cerita tentang Brass-kun juga muncul dan sepertinya dia mendekati mereka semua dengan sikap merendahkan seperti biasa, karena tidak belajar sama sekali, jadi mereka mengalahkannya dalam pertandingan formal.
 
 "Ini mengganggu tapi dia benar-benar putus asa, jadi harap berhati-hati."
 "Sebagai mantan anggota partainya, kami benar-benar ingin membantunya. Tetapi pada akhirnya, hanya itu yang bisa kami lakukan. "
