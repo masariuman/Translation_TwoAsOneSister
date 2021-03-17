@@ -2,10 +2,12 @@ INTERLUDE: BRASS, FACE-OFF, AND PARTING ※PERLA POV
 
 Namaku Perla. Aku penyihir air rendah yang saat ini bekerja sebagai Hunter dan Aku sudah membentuk party dengan dua teman dekatku dari kampungku, Teren-kun dan Ilda-chan. Kami sebelumnya memiliki satu anggota lagi tetapi karena penindasannya yang berlebihan, kami bertiga keluar dan membentuk party baru.
 
-Di masa lalu, meskipun dia sangat nakal, dia masih meminta maaf ketika dia melakukan sesuatu yang buruk; tapi setelah diberikan Job dengan peringkat tinggi, dia secara bertahap berubah.
+Di masa lalu, meskipun dia sangat nakal, dia masih meminta maaf ketika dia melakukan sesuatu yang buruk; tapi setelah diberikan Job tingkat tinggi, dia secara bertahap berubah.
 
-Mengubah topik, Aku memiliki seorang guru.
-Guruku adalah seorang gadis yang membentuk grup dengan kami untuk satu kali sehingga kami dapat mengalami permintaan peringkat-D, karena kami akan segera diizinkan untuk menjadi Hunter peringkat-D. Namanya Cielmer- san .
+Aku memiliki seorang guru.
+
+Guruku adalah seorang gadis yang membentuk grup dengan kami untuk satu kali saja sehingga kami dapat merasakan permintaan rank-D, karena kami akan segera diizinkan untuk menjadi Hunter rank-D. Namanya Cielmer-san.
+
 Sekilas, dia terlihat lebih muda dari 10 tahun dan memiliki rambut putih dan mata biru agak ke atas. Aku mendengar bahwa dia sebenarnya berusia 10 tahun, tetapi dia cukup kurus ketika mempertimbangkan itu.
 Kulitnya tidak memiliki satu noda pun, mungkin akan terasa halus saat disentuh. Rambut putihnya juga bukan tipe kering, itu sangat halus, atau lebih tepatnya sangat mengalir. Dia gadis seperti boneka yang cantik dan menggemaskan.
 
