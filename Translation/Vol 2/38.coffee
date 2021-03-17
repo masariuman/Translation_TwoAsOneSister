@@ -1,8 +1,11 @@
 CHAPTER 38: GAZE, DRUG, AND CAREFREE
 
-Mungkin sekitar sebulan setelah permintaan partai dan 10 bulan sejak kami datang ke kota Sannois.
+Mungkin sekitar sebulan setelah permintaan party dan 10 bulan sejak kami datang ke kota Sannois.
+
 Sejak Aku datang ke dunia ini, Aku biasanya tidak memperhatikan kalender, jadi Aku tidak pernah benar-benar yakin hari apa sekarang atau sudah berapa hari.
+
 Yang Aku tahu mungkin belum setahun penuh, mengingat kami masih belum diusir dari penginapan.
+
 Perubahan baru-baru ini adalah penguntit tidak lagi mengikuti Aku. Pertama-tama, Carol- san sudah menyadari bahwa Aku memperhatikan dia mengikuti kami, dan dia hanya melakukan itu untuk mengamati bakat kami sebagai Hunter, jadi selama mereka menyadari bakat kami, secara alami itu menjadi tidak perlu. .
 
 Namun, masih ada orang yang mengawasiku. Sementara Aku pertama kali berasumsi bahwa mereka mungkin hanya beberapa personel guild atau Hunter yang dikirim oleh Hunter Guild, mereka agak buruk dalam hal itu ketika mempertimbangkan itu, atau lebih tepatnya, mereka tampaknya tidak peduli tentang hal lain selama mereka tahu. dimana kita.
