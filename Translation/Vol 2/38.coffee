@@ -147,16 +147,24 @@ Yah, selama mereka agak mengerti bahwa ini akan berpacu dengan waktu, itu sudah 
 
 Aku sekali lagi memeriksa kehadiran dengan +DETECTION dan melihat bahwa orang yang berlari mencoba membuat jarak di antara kami.
 
-Jauh di belakangnya ada monster yang tak terhitung jumlahnya dan sepertinya monster-monster ini sedang menuju ke arah kita. Jadi ini berarti orang itu tidak mencoba untuk menghindari kita, tapi hanya berlari ke arah berlawanan dari arah yang monster itu tuju.
-Juga, mungkin bukan kita, tapi bau obat di dalam botol tadi, yang membuat monster tertarik. Jika monster itu menuju tempat dimana aromanya paling pekat, maka itu akan menjelaskan kenapa mereka menuju ke sini.
-Kalau dipikir-pikir, kurasa aku pernah mendengar tentang obat yang bisa menyebabkan stempel tapi ... kurasa tidak ada gunanya memikirkannya sekarang.
+Jauh di belakangnya ada monster yang tak terhitung jumlahnya dan sepertinya monster-monster ini sedang menuju ke arah kami. Jadi ini berarti orang itu tidak mencoba untuk menghindari kami, tapi hanya berlari ke arah berlawanan dari arah yang monster itu.
 
-"Sekarang, apa yang harus kita lakukan?"
-"Bahkan jika Kamu bertanya kepada Aku, Ain, Aku tidak tahu apa yang terjadi sekarang."
-"Segerombolan monster akan segera tiba di sini."
-"Dengan segerombolan, berapa banyak yang di sana? "
-" Aku tidak benar-benar ingin menghitung, tapi itu pasti mencapai tanda tiga digit. "
-" Bukankah itu ... hal yang menyerbu? "
+Juga, mungkin bukan kami, tapi bau obat di dalam botol tadi, yang membuat monster tertarik. Jika monster itu menuju tempat dimana aromanya paling pekat, maka itu akan menjelaskan kenapa mereka menuju ke sini.
+
+Kalau dipikir-pikir, kurasa aku pernah mendengar tentang obat yang bisa menyebabkan serbuan monster tapi ... kurasa tidak ada gunanya memikirkannya sekarang.
+
+ain [Sekarang, apa yang harus kita lakukan?]
+
+ciel [Bahkan jika Kamu bertanya kepadaku, Ain, Aku tidak tahu apa yang terjadi sekarang.]
+
+ain [Segerombolan monster akan segera tiba di sini.]
+
+ciel [Dengan segerombolan, berapa banyak jumlahnya?]
+
+ain [Aku tidak benar-benar ingin menghitungnya, tapi itu pasti mencapai angka tiga digit.]
+
+ciel [Bukankah itu ... penyerbuan?]
+
 " Pasti hal yang menyerbu. "
 " Ain, bagaimana menurutmu? "
 "Aku berpikir tidak apa-apa untuk melarikan diri, tetapi di sisi lain, jika kita mengalahkan banyak dari mereka di sini, kita mungkin bisa mencapai peringkat-C atau lebih.
