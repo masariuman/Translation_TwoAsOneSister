@@ -165,15 +165,20 @@ ain [Aku tidak benar-benar ingin menghitungnya, tapi itu pasti mencapai angka ti
 
 ciel [Bukankah itu ... penyerbuan?]
 
-" Pasti hal yang menyerbu. "
-" Ain, bagaimana menurutmu? "
-"Aku berpikir tidak apa-apa untuk melarikan diri, tetapi di sisi lain, jika kita mengalahkan banyak dari mereka di sini, kita mungkin bisa mencapai peringkat-C atau lebih.
-Kembali ke Sannois mungkin hanya akan menimbulkan masalah yang tidak perlu juga, jadi kita akan membutuhkan tempat lain jika kita melarikan diri. "
-" ...... Seberapa kuat kehadiran terkuat di antara mereka? "
+ain [Pasti.]
 
-Untuk beberapa alasan, rasanya Ciel bingung saat itu, tetapi Aku ingin mengatakan bahwa itu sama sekali bukan salah Aku.
+ciel [Ain, bagaimana menurutmu?]
+
+ain [Aku berpikir tidak apa-apa untuk melarikan diri, tetapi di sisi lain, jika kita mengalahkan banyak dari mereka di sini, kita mungkin bisa mencapai rank-C atau lebih. Kembali ke Sannois mungkin hanya akan menimbulkan masalah yang tidak perlu juga, jadi kita akan membutuhkan tempat lain jika kita melarikan diri.]
+
+ciel [ ...... Seberapa kuat yang terkuat di antara mereka?]
+
+Untuk beberapa alasan, rasanya Ciel bingung saat itu, tetapi Aku ingin mengatakan bahwa itu sama sekali bukan salahku.
+
 Selain itu, Aku pikir Ciel agak memahami situasinya, karena dia ikut serta dalam percakapan.
+
 Lagi pula, jika menurutnya itu sangat berbahaya, dia selalu dapat mengambil alih kendali tubuhnya dan melarikan diri.
+
 "Lebih kuat dari kelas-D, tapi harus lebih lemah dari cyclop. Ada banyak dari mereka pada level kekuatan itu, meskipun. "
 " Kamu cukup tenang bukan, Ain? "
 " Tak satu pun dari mereka bahkan mendekati tingkat bahaya tombak es.
