@@ -94,72 +94,94 @@ staf"Pertarungan ini akan dimulai dengan sinyalku dan akan berakhir ketika pihak
 
 Saat penjelasan berakhir, kami menghadapi Brass-kun dan dia membalas menghadap kami.
 
-Setelah mendengar sinyal "Mulai!", Teren- kun dan Brass- kun langsung berlari.
-Jika itu adalah masa lalu Teren- kun , dia akan menunggu Brass- kun menyerang tapi sekarang, dia dengan tegas menyerang dirinya sendiri.
+Setelah mendengar sinyal "Mulai!", Teren-kun dan Brass-kun langsung berlari.
 
-Meski mereka berdua menyerbu pada saat bersamaan, Brass- kun mengayunkan pedangnya lebih cepat.
-Dia melakukan ayunan yang sangat besar, tetapi seperti yang diharapkan dari seseorang dengan Job peringkat tinggi, meskipun ayunannya besar, tidak ada gerakan yang sia-sia dalam pukulannya yang berat.
-Teren- kun menyerah untuk menghindari dan mencoba untuk memblokir dengan perisainya tetapi dia akhirnya terlempar dari tanah. Untuk menindaklanjutinya, Brass- kun hendak mengambil satu langkah ke depan.
+Jika itu adalah Teren-kun yang dulu, dia akan menunggu Brass-kun menyerang tapi sekarang, dia dengan tegas menyerangnya sendiri.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+Meski mereka berdua menyerbu pada saat bersamaan, Brass-kun mengayunkan pedangnya lebih cepat.
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Dia melakukan ayunan yang sangat besar, tetapi seperti yang diharapkan dari seseorang dengan Job rank tinggi, meskipun ayunannya besar, tidak ada gerakan yang sia-sia dalam pukulannya yang berat.
 
-Namun, dengan begitu mudahnya dibaca, bahkan Aku dapat dengan mudah menanggapi tindakannya.
-Menggunakan mantra yang telah Aku persiapkan, Aku memutuskan untuk membuat genangan kecil di tanah di bawah kaki Brass- kun . Dengan tanah yang tiba-tiba berlumpur dan kekuatan di belakang langkahnya, Brass- kun tersandung sendiri.
+Teren-kun menyerah untuk menghindari dan mencoba untuk menangkis dengan perisainya tetapi dia akhirnya terlempar ke lantai. Untuk menindaklanjutinya, Brass-kun hendak mengambil satu langkah ke depan.
 
-Terketuk ke tanah, dia segera berdiri dan memelototiku.
+tapi, dengan begitu mudahnya dibaca, bahkan Aku dapat dengan mudah menanggapi tindakannya.
+
+Menggunakan sihir yang telah Aku persiapkan, Aku memutuskan untuk membuat genangan kecil di lantai di bawah kaki Brass- kun . Dengan lantai yang tiba-tiba berlumpur dan kekuatan di belakang langkahnya, Brass-kun tersandung sendiri.
+
+terjatuh ke lantai, dia segera berdiri dan memelototiku.
+
 Pemulihan cepatnya pasti tidak bisa dibandingkan dengan monster di luar.
-Tetap saja, apakah tidak apa-apa baginya untuk terus menatapku seperti itu? Aku pikir jika Ildan- chan atau Teren- kun menyerangnya sekarang, itu mungkin mengakhiri pertarungan.
 
-Ya. Aku sudah menyadarinya sebelumnya, tapi Brass- kun tidak terlalu kuat.
+Tetap saja, tidak apa-apa baginya untuk terus menatapku seperti itu? Aku pikir jika Ildan-chan atau Teren-kun menyerangnya sekarang, itu mungkin mengakhiri pertarungan.
+
+Ya. Aku sudah menyadarinya sebelumnya, tapi Brass-kun tidak terlalu kuat.
+
 Dia kuat secara fisik dan mungkin bisa membuat kami di garis belakang pingsan dengan satu pukulan.
-Namun, apa yang dia rencanakan untuk dilakukan sudah jelas hanya dari raut wajahnya. Jelas dari cara dia bergerak. Dia bahkan tidak berpikir untuk menipu kita sama sekali.
-Jika Teren- kun dengan tenang menangani pukulan pertama itu, dia mungkin akan menghindarinya tanpa masalah. Sebaliknya, itu adalah sesuatu yang seharusnya Aku tangani.
 
-Kali ini, kami menerima sinyal dari Teren- kun . Itu cukup sederhana. "Dengan musuh ini, latih kerja tim."
+tapi, apa yang dia rencanakan untuk dilakukan sudah jelas hanya dari raut wajahnya. Jelas dari cara dia bergerak. Dia bahkan tidak berpikir untuk menipu kami sama sekali.
+
+Jika Teren-kun dengan tenang menangani pukulan pertama itu, dia mungkin akan menghindarinya tanpa masalah. yaah, itu adalah sesuatu yang seharusnya Aku tangani.
+
+Kali ini, kami menerima sinyal dari Teren-kun . Itu cukup sederhana. "Dengan musuh ini, kita latih kerja tim kita."
+
 Belum lama ini kami mengikuti nasihat Guru dan mengubah gaya bertarung kami.
-Saat itu kami melawan Pemimpin Goblin sangat membantu.
 
-Saat Brass- kun hendak lari ke arahku, aku menyandungnya lagi, dan memberi isyarat kembali kepada Teren- kun sebagai pengakuan.
+kami melawan Pemimpin Goblin dan itu sangat membantu.
+
+Saat Brass-kun hendak lari ke arahku, aku menyandungnya lagi, dan memberi isyarat kembali kepada Teren-kun.
 
 ◇
 
-"Shi y t !"
+brass"SIALAN !"
 
-Brass- kun mengutuk dan melemparkan pedangnya ke tanah.
-Setelah tersandung air beberapa kali, Brass- kun menjadi berlumpur dan mungkin ada goresan kecil di sekujur tubuhnya.
-Aku akhirnya melakukannya secara berlebihan karena dia mengolok-olok Guru, tetapi itu adalah latihan yang sangat bagus untuk Aku.
-Meskipun sulit untuk mengetahui waktu karena dia bergerak cepat, mudah untuk mendukung yang lain karena gerakannya monoton.
-"Akhir pertempuran."
+Brass-kun mengutuk dan melemparkan pedangnya ke tanah.
 
-Staf guild mengira bahwa Brass- kun menerima kekalahannya, mungkin karena dia melemparkan pedangnya, dan mengumumkan akhir pertarungan.
-Brass- kun juga tidak keberatan. Meskipun dia jelas tidak senang, dia tidak berdebat dengan staf itu.
-Sebaliknya, dia berkata, "Kamu pengkhianat berhati dingin!" Dan memarahi kami.
+Setelah tersandung air beberapa kali, Brass-kun menjadi berlumpur dan mungkin ada goresan kecil di sekujur tubuhnya.
 
-"Pengkhianat apa?"
-"Kalian semua tidak peduli meskipun adik perempuanku sakit, kan? Meskipun kami berasal dari desa yang sama, mencapai sejauh ini bersama-sama.
-Mengapa Aku harus kalah dari orang-orang seperti Kamu. "
-" Mengapa? Karena kamu hampir membunuh kami, itu sebabnya. "
-"Ha ? "
-" Kamu tidak perlu mengerti.
-Kalau dipikir-pikir, aku punya koin emas ketika aku pergi. "
-" Serahkan. "
-" Itu rencananya. Karena Aku menabung satu koin emas untuk Aku, itu berarti Kamu juga harus menabung cukup untuk dua koin emas.
-Dengan itu, Kamu akan memiliki tiga koin emas dan bisa membeli obat. Tetapi sebaliknya, Kamu tidak melakukannya. "
-" Apa yang salah dengan Aku mengirim surat agar mereka tidak khawatir. "
+Aku akhirnya melakukannya secara berlebihan karena dia mengolok-olok Guru, tetapi itu adalah latihan yang sangat bagus untukku.
 
-Sejujurnya, setelah semua orang menabung cukup untuk satu koin emas masing-masing, kami bertiga berencana chipping dan memberikan Brass- kun satu koin emas. Saat kami mendiskusikannya, kami mengetahui bahwa Brass- kun telah mengirim surat sendiri.
+Meskipun sulit untuk mengetahui timingnya karena dia bergerak cepat, tapi mudah untuk melakukannya karena gerakannya monoton.
+
+staf"pertempuran berakhir."
+
+Staf guild mengira bahwa Brass-kun menerima kekalahannya, mungkin karena dia melemparkan pedangnya, dan mengumumkan pertarungan berakhir.
+
+Brass-kun juga tidak keberatan. Meskipun dia jelas tidak senang, dia tidak berdebat dengan staf itu.
+
+Sebaliknya, dia berkata, "kalian pengkhianat berhati dingin!" Dan memarahi kami.
+
+teren"Pengkhianat apanya?"
+
+brass"Kalian semua tidak peduli meskipun adik perempuanku sakit, kan? Meskipun kita berasal dari desa yang sama, mencapai sejauh ini bersama-sama. Mengapa Aku harus kalah dari orang-orang seperti kalian."
+
+teren"Mengapa? Karena kamu hampir membunuh kami, itu sebabnya."
+
+brass"Ha ?"
+
+teren"Kamu tidak perlu mengerti. Kalau dipikir-pikir, aku punya koin emas ketika aku pergi."
+
+brass"Serahkan itu."
+
+teren"Itu memang rencanaku. Karena Aku menabung satu koin emas untukku, itu berarti Kamu juga harus menabung cukup untuk dua koin emas. Dengan itu, Kamu akan memiliki tiga koin emas dan bisa membeli obat. Tetapi sebaliknya, Kamu tidak melakukannya."
+
+brass"Apa yang salah dengan Aku mengirim surat agar mereka tidak khawatir."
+
+Sejujurnya, setelah semua orang menabung cukup untuk satu koin emas masing-masing, kami bertiga berencana untuk memberikan Brass-kun satu koin emas. Saat kami mendiskusikannya, kami mengetahui bahwa Brass-kun telah mengirim surat sendiri.
+
 Hanya mengirim surat di dalam kota atau desa akan menjadi cerita yang berbeda, tetapi di luar itu, akan menghabiskan banyak biaya.
-Ketika itu terjadi, itu perlu diminta ke Hunter peringkat-D. Bagaimanapun, hanya Hunter peringkat D ke atas yang dapat bergerak bebas antar kota.
-Jika surat itu akan dikirim ke kota-kota tempat Hunter biasanya berkumpul, ada kalanya mereka menerima permintaan koin tembaga hanya untuk mendapatkan uang kembalian. Namun, desa kami berbeda cerita. Diperlukan sekitar dua hingga tiga koin perak untuk pengiriman.
 
-"Tidak ada yang salah dengan mengirim surat dan selama Kamu menggunakan uang Kamu sendiri untuk itu, itu bukan masalah.
-Tapi dalam hal ini berbeda, bukan? Kamu hanya menjadi pamer. Jika Kamu benar-benar ingin menyembuhkan penyakitnya, bukankah Kamu seharusnya menyimpan uang yang Kamu gunakan untuk mengirim surat untuk membeli obatnya sedini mungkin? "
-" Karena keluarga kita akan khawatir jika kita tidak menghubungi mereka sama sekali, kita berjanji untuk semua menyumbang dan mengirim surat bersama sekali setiap tahun, bukan?
-Jadi, mengapa Kamu tetap diam tentang mengirim surat secara teratur? "
+Ketika itu terjadi, itu perlu meminta ke Hunter rank-D. Bagaimanapun, hanya Hunter rank D ke atas yang dapat bergerak bebas antar kota.
 
-Ildan- chan dan aku juga menanyai Brass- kun , tapi dia hanya menjawab dengan mendecakkan lidah.
-Selain itu, Aku kira dia tidak bisa menahan situasi ini lagi saat dia memukul tanah sambil bergumam "Ahhh, geez !" Dan meninggalkan tempat itu.
-Mulai sekarang, kami tidak berhubungan lagi dengan Brass- kun . Itu tidak membuatku merasa lebih baik, tetapi aku sampai pada kesimpulan bahwa itu mungkin tidak akan membuat banyak perbedaan tidak peduli berapa lama kita mentolerirnya.
-Tetap saja, Aku belum memaafkannya karena menghina Guru. Mungkin seharusnya aku membuatnya lebih tersandung.
+Jika surat itu akan dikirim ke kota-kota tempat Hunter biasanya berkumpul, ada kalanya mereka menerima permintaan koin tembaga hanya untuk mendapatkan modal uang kembali. tapi, desa kami berbeda. Diperlukan sekitar dua hingga tiga koin perak untuk pengiriman.
+
+Ilda"Tidak ada yang salah dengan mengirim surat dan selama Kamu menggunakan uangmu sendiri untuk itu, itu bukan masalah. Tapi dalam hal ini berbeda, kan? Kamu hanya pamer. Jika Kamu benar-benar ingin menyembuhkan penyakitnya, bukankah Kamu seharusnya menyimpan uang yang Kamu gunakan untuk mengirim surat untuk membeli obatnya sedini mungkin?"
+
+Perla"Karena keluarga kita akan khawatir jika kita tidak menghubungi mereka sama sekali, kita berjanji untuk semua menyumbang dan mengirim surat bersama sekali setiap tahun, bukan? Jadi, mengapa Kamu tetap diam tentang mengirim surat itu?"
+
+Ildan-chan dan aku juga menanyai Brass-kun , tapi dia hanya menjawab dengan mendecakkan lidah.
+
+Selain itu, Aku kira dia tidak bisa menahan situasi ini lagi dan dia memukul lantai sambil bergumam "Ahhh, geez !" Dan meninggalkan tempat itu.
+
+Mulai sekarang, kami tidak berhubungan lagi dengan Brass-kun. Itu tidak membuatku merasa lebih baik, tetapi aku sampai pada kesimpulan bahwa itu mungkin tidak akan membuat banyak perbedaan tidak peduli berapa lama kita mentolerirnya.
+
+Tetap saja, Aku belum memaafkannya karena menghina Guru. Mungkin seharusnya aku membuatnya tersandung lebih banyak lagi.
