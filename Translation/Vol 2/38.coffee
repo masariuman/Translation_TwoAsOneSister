@@ -42,7 +42,9 @@ ain [Ya.]
 Saat kami melewati gerbang sambil bertukar omong kosong itu, sepertinya pengejar kami juga ikut dengan kami kali ini.
 
 Pasangan hari ini bersembunyi di balik pohon ke pohon saat mereka mengejar kita.
+
 Karena Aku tahu waktu pergerakan mereka, Aku menyesuaikan waktu mereka dan menoleh. Di sana, Aku melihat dua pria yang biasa disebut Hunter kasar dan kasar.
+
 Sepertinya aku mengingatnya dari suatu tempat, tapi dari mana? Karena ketahuan, para pengejar melarikan diri dengan kecepatan penuh, jadi akan sulit untuk memeriksanya untuk terakhir kalinya.
 
 Aku mendekati hutan sambil memeras kepalaku tentang siapa mereka ketika kali ini, aku melihat pesta yang pasti kuingat.
