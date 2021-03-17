@@ -6,29 +6,41 @@ Sejak Aku datang ke dunia ini, Aku biasanya tidak memperhatikan kalender, jadi A
 
 Yang Aku tahu mungkin belum setahun penuh, mengingat kami masih belum diusir dari penginapan.
 
-Perubahan baru-baru ini adalah penguntit tidak lagi mengikuti Aku. Pertama-tama, Carol- san sudah menyadari bahwa Aku memperhatikan dia mengikuti kami, dan dia hanya melakukan itu untuk mengamati bakat kami sebagai Hunter, jadi selama mereka menyadari bakat kami, secara alami itu menjadi tidak perlu. .
+terdapat perubahan baru-baru ini yaitu penguntit tidak lagi mengikutiku. Carol-san sudah menyadari bahwa Aku memperhatikan dia mengikuti kami, dan dia hanya melakukan itu untuk mengamati bakat kami sebagai Hunter, jadi selama mereka menyadari bakat kami, secara alami itu menjadi tidak diperlukan lagi...
 
-Namun, masih ada orang yang mengawasiku. Sementara Aku pertama kali berasumsi bahwa mereka mungkin hanya beberapa personel guild atau Hunter yang dikirim oleh Hunter Guild, mereka agak buruk dalam hal itu ketika mempertimbangkan itu, atau lebih tepatnya, mereka tampaknya tidak peduli tentang hal lain selama mereka tahu. dimana kita.
+tapi, masih ada orang yang mengawasiku. Aku pertama kali berasumsi bahwa mereka mungkin hanya beberapa personel guild atau Hunter yang dikirim oleh guild Hunter tapi mereka agak buruk dalam hal menguntit, atau lebih tepatnya, mereka tampaknya tidak peduli tentang hal lain selama mereka tahu dimana kami.
+
 Selain itu, biasanya hanya terjadi di dalam kota, jadi Aku hampir yakin itu adalah sesuatu yang lain.
+
 Hal yang mengganggu adalah, berdasarkan kehadiran mereka, sepertinya orang yang berbeda mengikuti kami setiap saat.
 Jadi, bahkan jika Aku menekan mereka untuk mendapatkan jawaban, kemungkinan mereka hanya akan menyatakan bahwa itu kebetulan dan mengacaukan segalanya.
 
 Hari ini, sambil merasakan tatapan tertentu itu, atau lebih tepatnya gerakan mereka yang tidak biasa lagi, kami mengambil permintaan dan menuju ke hutan.
+
 Meskipun hutan tidak biasa bagi kami selama pelarian kami sebelumnya, kami sekarang terbiasa setelah berjalan melewatinya setiap hari.
+
 Meskipun begitu, menurutku hutan tempat mansion itu berada dan hutan di dekat Sannois ini berada pada tingkat kesulitan yang sama sekali berbeda.
+
 Lagipula, cyclopses kelas B muncul di hutan itu dan serigala yang biasa terlihat di sana berkekuatan sekitar kelas D atau C.
 
-"Katakan, Ain?"
-"Ada apa?"
-"Aku bertanya-tanya mengapa laba-laba ada."
-"Laba-laba bukanlah makhluk yang benar-benar jahat, Kamu tahu.
-Mereka memang memakan serangga yang membahayakan manusia. "
-" Pikiranmu yang sebenarnya tentang mereka? "
-" Akan lebih bagus jika mereka punah, begitu menurutku. "
-" Rumit bukan? "
-" Ya, benar-benar . "
+ciel [hey, Ain?]
+
+ain [Ada apa?]
+
+ciel [Aku bertanya-tanya mengapa laba-laba itu ada.]
+
+ain [Laba-laba bukanlah makhluk yang benar-benar jahat. Mereka memakan serangga yang membahayakan manusia.]
+
+ciel [bagaimana pendapatmu yang sebenarnya tentang mereka?]
+
+ain [Akan lebih bagus jika mereka punah, begitulah menurutku.]
+
+ciel [Rumit bukan?]
+
+ain [Ya.]
 
 Saat kami melewati gerbang sambil bertukar omong kosong itu, sepertinya pengejar kami juga ikut dengan kami kali ini.
+
 Pasangan hari ini bersembunyi di balik pohon ke pohon saat mereka mengejar kita.
 Karena Aku tahu waktu pergerakan mereka, Aku menyesuaikan waktu mereka dan menoleh. Di sana, Aku melihat dua pria yang biasa disebut Hunter kasar dan kasar.
 Sepertinya aku mengingatnya dari suatu tempat, tapi dari mana? Karena ketahuan, para pengejar melarikan diri dengan kecepatan penuh, jadi akan sulit untuk memeriksanya untuk terakhir kalinya.
