@@ -74,18 +74,26 @@ Teren-kun menjawab sebagai pembalasan, tetapi mungkin tahu kalau itu akan memaka
 
 Teren-kun menjawab "Ya." Dan mundur, tapi kehilangan kesempatan untuk membalas Teren-kun , Brass-kun dengan marah memelototi staf tersebut.
 
-staf"Jika Brass-kun menang, selain bergabung dengan party, dia akan mendapatkan hak untuk setengah dari hadiah permintaan yang akan diterima party setelah selesai. Ini akan berlanjut sampai pembubaran partai dan jika partai tersebut dibubarkan, maka kalian berempat yang hadir di sini dilarang untuk membentuk partai satu sama lain. "
+staf"Jika Brass-kun menang, selain bergabung dengan party, dia akan mendapatkan hak untuk setengah dari hadiah permintaan yang akan diterima party setelah selesai. Ini akan berlanjut sampai pembubaran party dan jika party tersebut dibubarkan, maka kalian berempat yang hadir di sini dilarang untuk membentuk party satu sama lain."
 
 Detail pastinya telah sedikit diubah, tetapi itu mungkin tidak dapat dihindari.
-Jika setelah membentuk sebuah party, kita segera putus dan membentuk party lain tanpa Brass- kun lagi, pertarungan ini akan menjadi tidak berarti sama sekali.
-Staf guild melihat ke arah Teren- kun dan kemudian bertanya "Dan apa yang akan terjadi jika partymu menang?" Selanjutnya. Kalau dipikir-pikir, kami masih belum memutuskan itu. Tetap saja, tidak ada satu hal pun yang Aku inginkan, atau kami dapat memperolehnya dari Brass- kun .
-Saat Teren- kun menatapku, aku hanya menggelengkan kepalaku sebagai jawaban.
-"Tolong jangan biarkan dia berhubungan dengan kami mulai besok."
-"Brass- kun , apakah ini baik-baik saja?"
-"Tentu."
-"Pertarungan ini akan dimulai dengan sinyal Aku dan akan berakhir ketika pihak lawan telah benar-benar tidak berdaya, menyerah, atau saat Aku menghentikan pertempuran. Pembunuhan tidak bisa diterima. "
 
-Saat penjelasan berakhir, kami menghadapi Brass- kun dan dia membalas kami.
+Jika setelah membentuk sebuah party, kami segera putus dan membentuk party lain tanpa Brass-kun lagi, pertarungan ini akan menjadi tidak berarti sama sekali.
+
+Staf guild melihat ke arah Teren-kun dan kemudian bertanya "Dan apa yang akan terjadi jika partymu menang?". Kalau dipikir-pikir, kami masih belum memutuskan itu. Tetap saja, tidak ada satu hal pun yang Aku inginkan, atau kami dapat memperolehnya dari Brass-kun.
+
+Saat Teren-kun menatapku, aku hanya menggelengkan kepalaku sebagai jawaban.
+
+teren"Tolong jangan biarkan dia berhubungan dengan kami mulai besok."
+
+staf"Brass-kun, apakah ini tidak masalah?"
+
+brass"Tentu."
+
+staf"Pertarungan ini akan dimulai dengan sinyalku dan akan berakhir ketika pihak lawan telah benar-benar tidak berdaya, menyerah, atau saat Aku menghentikan pertempuran. Pembunuhan tidak bisa diterima."
+
+Saat penjelasan berakhir, kami menghadapi Brass-kun dan dia membalas menghadap kami.
+
 Setelah mendengar sinyal "Mulai!", Teren- kun dan Brass- kun langsung berlari.
 Jika itu adalah masa lalu Teren- kun , dia akan menunggu Brass- kun menyerang tapi sekarang, dia dengan tegas menyerang dirinya sendiri.
 
