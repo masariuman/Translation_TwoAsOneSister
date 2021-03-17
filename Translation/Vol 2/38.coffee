@@ -179,23 +179,26 @@ Selain itu, Aku pikir Ciel agak memahami situasinya, karena dia ikut serta dalam
 
 Lagi pula, jika menurutnya itu sangat berbahaya, dia selalu dapat mengambil alih kendali tubuhnya dan melarikan diri.
 
-"Lebih kuat dari kelas-D, tapi harus lebih lemah dari cyclop. Ada banyak dari mereka pada level kekuatan itu, meskipun. "
-" Kamu cukup tenang bukan, Ain? "
-" Tak satu pun dari mereka bahkan mendekati tingkat bahaya tombak es.
-Jika itu kamu, Ciel, mungkin akan baik-baik saja bahkan jika kamu tertidur. "
-" Maksudmu jika itu Ain , kan? "
-" Tidak masalah siapa di antara kita, tapi masalahnya di sini adalah bahwa ada juga banyak monster ini.
-Sementara mereka untungnya menuju ke arah kita, mungkin sulit untuk mengalahkan mereka semua tanpa membiarkan beberapa dari mereka lewat. "
+ain [Lebih kuat dari kelas-D, tapi harusnya lebih lemah dari cyclop. Ada banyak dari mereka pada level kekuatan itu.]
 
-Meskipun karena Carol- san juga kembali ke kota, menurutku beberapa orang yang tersesat tidak akan menjadi masalah.
+ciel [Kamu cukup tenang, Ain?]
 
-"Dengan 'kembali ke kota mungkin menyebabkan masalah yang tidak perlu', apa sebenarnya itu?"
-"Dibingkai karena menyebabkan penyerbuan ini, Aku kira?
-Karena beberapa orang langsung terlintas di pikiran ketika memikirkan orang yang menaruh dendam pada Aku, Aku menduga mereka bekerja sama hanya untuk menjebak Aku.
-Kami diikuti beberapa bulan terakhir ini mungkin agar mereka bisa mendapatkan waktu yang tepat, atau agar Aku tidak melarikan diri, atau alasan serupa lainnya dalam kasus ini. "
-" Bagaimana Aku harus mengatakan ini, mereka cukup gigih.
-Bagaimanapun, kesampingkan mereka, Ain. Aku ingin menari dengan semua yang Aku miliki. "
-" Kalau begitu, Aku akan bernyanyi dengan sepenuh hati juga. "
+ain [Tak satu pun dari mereka bahkan mendekati tingkat bahaya tombak es. Jika itu kamu, Ciel, mungkin akan baik-baik saja bahkan jika kamu tertidur.]
 
-Ada kemungkinan seseorang dari guild atau Hunter yang ditugaskan mungkin datang ke sini untuk memeriksa situasinya, tetapi Aku akan memikirkannya ketika itu terjadi. Setidaknya, dengan dukungan Aku, mereka seharusnya tidak menyadari bahwa Ciel adalah Putri Tari. Jika mereka melakukannya, tidak ada keraguan bahwa itu akan mengubah nilai dari Pekerjaan Putri Tarian di atas kepalanya.
+ciel [Maksudmu jika itu Ain , kan?]
+
+ain [Tidak masalah siapa di antara kita, tapi masalahnya di sini adalah ada juga banyak monster. Sementara mereka untungnya menuju ke arah kita, mungkin sulit untuk mengalahkan mereka semua tanpa membiarkan beberapa dari mereka lewat.]
+
+karena Carol-san juga kembali ke kota, menurutku beberapa monster yang lewat tidak akan menjadi masalah.
+
+ciel [Dengan 'kembali ke kota mungkin menyebabkan masalah yang tidak perlu', apa maksudnya?]
+
+ain [mungkin akan di tuduh sebagai penyebab semua ini? Karena beberapa orang langsung terlintas di pikiran ketika memikirkan orang yang menaruh dendam padaku, Aku menduga mereka bekerja sama hanya untuk menjebakku. kita diikuti beberapa bulan terakhir ini mungkin agar mereka bisa mendapatkan waktu yang tepat, atau agar Aku tidak melarikan diri, atau alasan serupa lainnya dalam kasus ini.]
+
+ciel [Bagaimana ya, mereka cukup gigih juga. kesampingkan mereka, Ain. Aku ingin menari dengan semua yang Aku miliki.]
+
+ain [Kalau begitu, Aku akan bernyanyi dengan sepenuh hati juga.]
+
+Ada kemungkinan seseorang dari guild atau Hunter yang ditugaskan mungkin datang ke sini untuk memeriksa situasinya, tetapi Aku akan memikirkannya ketika itu terjadi. Setidaknya, dengan dukunganku, mereka seharusnya tidak menyadari bahwa Ciel adalah dance princess. Jika mereka menyadarinya, tidak diragukan lagi itu akan mengubah nilai dari job dance princess.
+
 Tapi yang lebih penting, jika Ciel ingin menari, aku hanya perlu menyanyikan lagu yang senada untuknya.
