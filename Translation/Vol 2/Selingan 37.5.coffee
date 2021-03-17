@@ -8,11 +8,14 @@ Aku memiliki seorang guru.
 
 Guruku adalah seorang gadis yang membentuk grup dengan kami untuk satu kali saja sehingga kami dapat merasakan permintaan rank-D, karena kami akan segera diizinkan untuk menjadi Hunter rank-D. Namanya Cielmer-san.
 
-Sekilas, dia terlihat lebih muda dari 10 tahun dan memiliki rambut putih dan mata biru agak ke atas. Aku mendengar bahwa dia sebenarnya berusia 10 tahun, tetapi dia cukup kurus ketika mempertimbangkan itu.
-Kulitnya tidak memiliki satu noda pun, mungkin akan terasa halus saat disentuh. Rambut putihnya juga bukan tipe kering, itu sangat halus, atau lebih tepatnya sangat mengalir. Dia gadis seperti boneka yang cantik dan menggemaskan.
+Sekilas, dia terlihat lebih muda dari 10 tahun dan memiliki rambut putih dan mata biru. Aku mendengar bahwa dia sebenarnya berusia 10 tahun, tetapi dia cukup kurus.
 
-Guru hampir terlihat seperti seorang bangsawan, tetapi Aku tidak banyak bertanya tentang ceritanya. Lagipula, dia seorang Hunter pada usia 10 tahun, jadi kurasa pasti ada alasan bagus untuk itu.
+Kulitnya tidak memiliki satu noda pun, mungkin akan terasa halus saat disentuh. Rambut putihnya juga tidak kering, itu sangat halus. Dia gadis seperti boneka yang cantik dan menggemaskan.
+
+Guru hampir terlihat seperti seorang bangsawan, tetapi Aku tidak banyak bertanya tentangnya. Lagipula, dia seorang Hunter pada usia 10 tahun, jadi kurasa pasti ada alasan bagus untuk itu.
+
 Segala sesuatu tentang guruku sudah aneh, tetapi kemampuannya dengan sihir juga luar biasa. Aku mungkin jauh dari dia.
+
 Pertama-tama, berkat guru Aku, Aku sekarang memiliki peran dalam pesta kami.
 
 Saat berbicara tentang sihir, adalah hal biasa untuk memikirkan tentang sihir berkekuatan tinggi yang membersihkan monster dari garis belakang, tapi karena aku hanya bisa menggunakan sihir air peringkat rendah, aku tidak bisa menggunakan mantra kuat seperti itu.
