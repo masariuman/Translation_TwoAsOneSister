@@ -14,32 +14,41 @@ Kulitnya tidak memiliki satu noda pun, mungkin akan terasa halus saat disentuh. 
 
 Guru hampir terlihat seperti seorang bangsawan, tetapi Aku tidak banyak bertanya tentangnya. Lagipula, dia seorang Hunter pada usia 10 tahun, jadi kurasa pasti ada alasan bagus untuk itu.
 
-Segala sesuatu tentang guruku sudah aneh, tetapi kemampuannya dengan sihir juga luar biasa. Aku mungkin jauh dari dia.
+Segala sesuatu tentang guruku sudah aneh, tetapi kemampuannya dengan sihir juga luar biasa. Aku mungkin jauh dibawahnya.
 
-Pertama-tama, berkat guru Aku, Aku sekarang memiliki peran dalam pesta kami.
+berkat guruku, Aku sekarang memiliki peran dalam party kami.
 
-Saat berbicara tentang sihir, adalah hal biasa untuk memikirkan tentang sihir berkekuatan tinggi yang membersihkan monster dari garis belakang, tapi karena aku hanya bisa menggunakan sihir air peringkat rendah, aku tidak bisa menggunakan mantra kuat seperti itu.
-Karena itu, Aku menganggap diri Aku sebagai beban; tetapi setelah Guru menyuruh Aku untuk fokus mendukung pesta dan setelah melihatnya melakukannya dalam latihan, Aku dapat memiliki cukup kepercayaan diri untuk berpikir bahwa Aku dapat membantu pesta.
+Saat berbicara tentang sihir, biasanya otomatis akan berpikir sihir berkekuatan tinggi yang membersihkan monster dari garis belakang, tapi karena aku hanya bisa menggunakan sihir air tingkat rendah, aku tidak bisa menggunakan mantra kuat seperti itu.
+
+Karena itu, Aku menganggap diriku sebagai beban; tetapi setelah Guru menyuruhku untuk fokus mendukung party dan setelah melihatnya melakukannya dalam latihan, Aku memiliki cukup kepercayaan diri untuk berpikir bahwa Aku dapat membantu party.
 
 ◇
 
-Sebelum Aku menyadarinya, setengah bulan telah berlalu sejak kami berpesta dengan Guru.
-Kami berhenti di guild Hunter untuk menerima permintaan, seperti biasanya, ketika mantan anggota party kami, Brass- kun, muncul di hadapan kami.
-Sementara kami bertiga berhati-hati, bertanya-tanya apa alasan dia harus menemui kami setelah semua yang terjadi, Brass- kun mulai berbicara dengan sikap santai yang selalu dia miliki.
+Tanpa aku sadari, setengah bulan telah berlalu sejak kami berparty dengan Guru.
 
-"Kamu tidak memiliki cukup daya tembak, bukan? Aku akan menjadi kartu asmu lagi. "
-" Ditolak. "
+Kami berhenti di guild Hunter untuk menerima permintaan, seperti biasanya, dan kemudian mantan anggota party kami, Brass-kun, muncul di hadapan kami.
 
-Teren- kun hanya membalas singkat, dan baik Ildan- chan dan aku berpikir dengan cara yang sama.
-Mungkin tidak mengharapkan penolakan, Brass- kun dibiarkan terbelalak, tapi dia segera kehilangan kesabaran.
+kami bertiga berhati-hati, bertanya-tanya apa alasan dia harus menemui kami setelah semua yang terjadi. Brass-kun mulai berbicara dengan sikap santai yang selalu dia miliki.
 
-"Kamu tidak memiliki hak untuk menolak. Pokoknya, berpesta dengan Aku. "
-" Ditolak. "
-" Kamu tidak mengerti? Aku hanya mengatakan ini karena khawatir. "
-" Jika Kamu sangat khawatir, Kamu ingin mencoba bertarung? "
-" Oke, oke. Jika kita melakukan ini, aku bisa mengalahkan kalian semua, tahu? Lagipula kalian semua hanya Hunter peringkat-E.
-Tetapi jika Aku menang, setengah dari permintaan hadiah akan diberikan kepada Aku. Jika Kamu baik-baik saja dengan itu, Aku akan melawan Kamu. "
-" Baiklah. "
+brass"Kalian tidak memiliki cukup kekuatan, kan? Aku akan menjadi andalanmu lagi."
+
+teren"kami menolak."
+
+Teren-kun hanya membalas singkat, serta Ildan-chan dan aku berpikir dengan cara yang sama.
+
+Mungkin tidak mengharapkan penolakan, Brass-kun terbelalak, tapi dia segera kehilangan kesabaran.
+
+brass"Kamu tidak memiliki hak untuk menolak. Pokoknya, berparty denganku."
+
+teren"Kami menolak."
+
+brass"Kamu tidak mengerti? Aku hanya mengatakan ini karena khawatir."
+
+teren"Jika Kamu sangat khawatir, ingin mencoba bertarung melawan kami?"
+
+brass"Oke, oke. Jika kita melakukan ini, aku bisa mengalahkan kalian semua, kau tahu? Lagipula kalian semua hanya Hunter rank-E. Tetapi jika Aku menang, setengah dari hadiah permintaan akan diberikan kepadaku. Jika Kamu baik-baik saja dengan itu, Aku akan melawanmu."
+
+teren"Baiklah."
 
 Saat kami sedang bertengkar di dalam guild, di mana kami tidak bisa menghindari pandangan orang lain, diputuskan bahwa kami akan melakukan pertempuran tiruan.
 Kami meminta personel staf dan meminjam tempat pelatihan. Ini pertama kalinya Aku bertatap muka, tetapi meminjam tempat di tempat pelatihan dan meminta orang terkadang membutuhkan uang. Dalam kasus yang terjadi, Aku mendengar bahwa yang kalah membayar untuk itu.
