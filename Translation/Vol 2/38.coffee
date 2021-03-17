@@ -89,49 +89,64 @@ aku benar-benar lebih menyukai begini daripada ditanya secara acak tentang berba
 
 cerita tentang Brass-kun juga muncul dan sepertinya dia mendekati mereka semua dengan sikap merendahkan seperti biasa, karena tidak belajar sama sekali, jadi mereka mengalahkannya dalam pertandingan formal.
 
-"Ini mengganggu tapi dia benar-benar putus asa, jadi harap berhati-hati."
-"Sebagai mantan anggota partainya, kami benar-benar ingin membantunya. Tetapi pada akhirnya, hanya itu yang bisa kami lakukan. "
-" Tidak peduli seberapa keras Kamu mencoba, ada orang yang tidak mau mendengarkan sama sekali.
-Aku akan berhati-hati kalau begitu ...... Bukankah ada aroma manis entah bagaimana? "
+ain"Ini benar-benar mengganggu tapi dia benar-benar putus asa, jadi tolong berhati-hati."
+
+perla"Sebagai mantan anggota partynya, kami benar-benar ingin membantunya. Tetapi pada akhirnya, hanya itu yang bisa kami lakukan."
+
+ain"Tidak peduli seberapa keras Kamu mencoba, ada orang yang tidak mau mendengarkanmu sama sekali. Aku akan berhati-hati kalau begitu ...... Bukankah ada aroma manis sekarang?"
 
 Meskipun Aku sudah muak hanya berpikir bahwa kami mungkin terlibat dengan beberapa masalah lagi, Aku menjawab tanpa membiarkan pemikiran itu muncul.
-Saat itu, Aku mencium aroma manis dari hembusan angin yang datang dari arah hutan.
+
+Aku mencium aroma manis dari hembusan angin yang datang dari arah hutan.
+
 Itu bukan hanya aroma manis yang samar, tapi bau manis yang tidak enak yang sepertinya akan membuatku tercekik jika aku mendekat.
-"Izinkan aku melihat. Ada sesuatu yang manis. "
-" Ya, tapi baunya sangat redup. "
-" Benarkah? Aku sama sekali tidak mencium bau apa pun. "
 
-Ketiganya memiliki reaksi yang berbeda masing-masing. Meskipun ini pasti terdengar seperti topik yang sangat ingin diteliti oleh Carol- san , karena kami bertiga dari empat orang dapat merasakannya, bau ini mungkin bukan hanya imajinasiku.
-Saat kami mendekati hutan, aromanya semakin pekat dan saat kami mencapai tepi hutan, begitu lebatnya sehingga membuatku merasa agak mual.
-Namun, Perla- san itu bersorak "Baunya begitu baik!" Bersemangat tinggi, sementara Terencio- kun hanya meminta "Apakah Kamu benar-benar yakin tentang itu?" Dalam kebingungan dan Ilda- san tampak benar-benar merasa aneh.
+perla"sebentar. iya Ada sesuatu yang manis."
 
-Aku merenungkan hanya untuk memblokir aroma dengan penghalang ku, tetapi setelah mempertimbangkan bahwa akan lebih baik untuk menemukan apa yang menyebabkannya, aku menuju ke tempat dimana aromanya paling pekat.
+ilda"Ya, tapi baunya sangat samar."
+
+Terencio"Benarkah? Aku sama sekali tidak mencium bau apa pun."
+
+Ketiganya memiliki reaksi yang berbeda. Meskipun ini pasti terdengar seperti topik yang sangat ingin diteliti oleh Carol-san , karena kami bertiga dari empat orang dapat menciumnya, bau ini mungkin bukan hanya imajinasiku.
+
+Saat kami mendekati hutan, aromanya semakin pekat dan saat kami mencapai tepi hutan, begitu kuat aromanya sehingga membuatku merasa agak mual.
+
+tapi, Perla-san itu berkata "Baunya enak!" dengan Bersemangat tinggi, sementara Terencio-kun hanya berkata "Apakah Kamu benar-benar yakin tentang itu?" Dalam kebingungan dan Ilda-san tampak benar-benar merasa aneh.
+
+Aku berpikir untuk memblokir aromanya dengan +BARRIERku, tetapi setelah mempertimbangkan bahwa akan lebih baik untuk menemukan apa yang menyebabkannya, aku menuju ke tempat dimana aromanya paling pekat.
+
 Tak jauh dari tepi hutan, ada benda mirip labu bermulut sempit yang hampir tersembunyi di balik bayangan pohon. Di dalamnya ada sejumlah kecil cairan berwarna coklat muda kehijauan.
-Saat Aku mengambilnya, bertanya-tanya apa itu, ada tanggapan dari deteksi. Pada saat yang hampir bersamaan, Aku merasakan sesuatu mengalir jauh di dalam hutan. Sepertinya… seseorang.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
-
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Saat Aku mengambilnya, bertanya-tanya apa itu, ada respon dari +DETECTION. Pada saat yang hampir bersamaan, Aku merasakan sesuatu berlari jauh di dalam hutan. Sepertinya... seseorang.
 
 Sepertinya firasat Aku benar. Aku menjadi sangat tertekan sekarang.
-Bagaimanapun, Aku mencari penutup termos, memakainya, dan kembali ke tiga lainnya.
 
-"Apakah ada sesuatu?"
-"Obat ini? Aku seharusnya. Apakah ini terlihat familiar? "
-" Tidak juga, tapi apa itu? "
-" Kemungkinan sumber dari aroma itu. Aku punya firasat buruk tentang ini tapi untuk saat ini, maukah kamu kembali ke kota dan menunjukkan ini kepada orang-orang guild? Kamu dapat memberi tahu mereka bahwa Aku mengambilnya. "
+Aku mencari wadah, mengambilnya, dan kembali ke tiga lainnya.
 
-Mendengar permintaan Aku, mereka bertiga saling memandang dan mengangguk dalam diam.
-Setelah itu, mereka menerima termos dan kembali ke kota.
+"ada sesuatu?"
 
-"Guru, apa yang Kamu rencanakan?"
-"Aku ingin tahu apa sebenarnya. Jika tidak ada pilihan lain, Aku akan lari. "
-" Itu janji, oke? "
+ain"ini narkotika? seharusnya iya. Apakah ini terlihat familiar?"
 
-Perla- san berhenti, menoleh ke arahku, dan mengatakannya dengan ekspresi yang agak sedih. Meskipun Aku sangat menyesal telah merusak momen ini, Aku pikir kota ini mungkin akan dihancurkan terlebih dahulu sebelum sesuatu terjadi pada kami.
+"Tidak juga, tapi apa itu?"
+
+ain"Kemungkinan sumber dari aroma itu. Aku punya firasat buruk tentang ini tapi untuk saat ini, maukah kalian kembali ke kota dan menunjukkan ini kepada orang-orang guild? kalian dapat memberi tahu mereka kalai Aku mengambilnya."
+
+Mendengar permintaanku, mereka bertiga saling memandang dan mengangguk dalam diam.
+
+Setelah itu, mereka menerima benda itu dan kembali ke kota.
+
+perla"Guru, apa yang Kamu rencanakan?"
+
+ain"Aku ingin tahu ada apa sebenarnya. Jika tidak ada pilihan lain, Aku akan lari."
+
+perla"Itu janji, oke?"
+
+Perla-san berhenti, menoleh ke arahku, dan mengatakannya dengan ekspresi yang agak sedih. Meskipun Aku sangat menyesal telah merusak momen ini, Aku pikir kota ini mungkin akan dihancurkan terlebih dahulu sebelum sesuatu terjadi pada kami.
+
 Yah, selama mereka agak mengerti bahwa ini akan berpacu dengan waktu, itu sudah cukup baik.
 
-Aku sekali lagi memeriksa kehadiran dengan deteksi dan melihat bahwa orang yang berlari mencoba membuat jarak di antara kami.
+Aku sekali lagi memeriksa kehadiran dengan +DETECTION dan melihat bahwa orang yang berlari mencoba membuat jarak di antara kami.
+
 Jauh di belakangnya ada monster yang tak terhitung jumlahnya dan sepertinya monster-monster ini sedang menuju ke arah kita. Jadi ini berarti orang itu tidak mencoba untuk menghindari kita, tapi hanya berlari ke arah berlawanan dari arah yang monster itu tuju.
 Juga, mungkin bukan kita, tapi bau obat di dalam botol tadi, yang membuat monster tertarik. Jika monster itu menuju tempat dimana aromanya paling pekat, maka itu akan menjelaskan kenapa mereka menuju ke sini.
 Kalau dipikir-pikir, kurasa aku pernah mendengar tentang obat yang bisa menyebabkan stempel tapi ... kurasa tidak ada gunanya memikirkannya sekarang.
