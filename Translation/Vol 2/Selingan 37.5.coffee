@@ -50,25 +50,31 @@ brass"Oke, oke. Jika kita melakukan ini, aku bisa mengalahkan kalian semua, kau 
 
 teren"Baiklah."
 
-Saat kami sedang bertengkar di dalam guild, di mana kami tidak bisa menghindari pandangan orang lain, diputuskan bahwa kami akan melakukan pertempuran tiruan.
-Kami meminta personel staf dan meminjam tempat pelatihan. Ini pertama kalinya Aku bertatap muka, tetapi meminjam tempat di tempat pelatihan dan meminta orang terkadang membutuhkan uang. Dalam kasus yang terjadi, Aku mendengar bahwa yang kalah membayar untuk itu.
+Saat kami sedang bertengkar di dalam guild di mana kami tidak bisa menghindari pandangan orang lain, kami memutuskan untuk bertarung resmi.
+
+Kami meminta personel staf dan meminjam tempat pelatihan. Ini pertama kalinya Aku bertarung resmi, tetapi meminjam tempat di tempat pelatihan dan meminta orang sebagai juri terkadang membutuhkan uang. biasanya, Aku dengar yang kalah yang akan membayarnya.
+
 Jika yang kalah mempertaruhkan semua yang mereka miliki, sepertinya uang itu akan dikurangkan dari pendapatan masa depan mereka.
 
-"Dan aku, yang terus menyelesaikan permintaan peringkat-E dengan tingkat kesulitan tinggi bahkan sambil menarik beban mati, bahkan akan berpesta dengan kalian yang hampir tidak selamat dari peringkat-E. Bukankah kalian semua bodoh?
-Dari berpisah dari kalian semua, aku mendapatkan kekuatan sejati. Aku akan menjadi Hunter peringkat tinggi dalam waktu singkat, Kamu akan lihat. "
+brass"Dan aku, yang terus menyelesaikan permintaan rank-E dengan tingkat kesulitan tinggi bahkan sambil membawa beban, bahkan akan berparty dengan kalian yang hampir tidak selamat dari rank-E. Bukankah kalian semua bodoh? dengan berpisah dari kalian semua, aku mendapatkan kekuatan sejati. Aku akan menjadi Hunter rank tinggi dalam waktu singkat, kalian akan lihat itu."
 
-Saat ini, apa yang baru saja dikatakan Brass- kun ? Apakah dia baru saja mengatakan "beberapa bobot mati"?
-Sejauh yang Aku tahu, satu-satunya orang Brass- kun telah berpesta dengan lain selain kami, adalah Guru.
-Jika Guru benar-benar memiliki “beban mati”, maka Brass- kun seharusnya bisa menyelesaikan permintaan peringkat-D solo dengan sukses sekarang. Terkejut, Teren- kun dan Ilda- chan mencemooh apa yang Brass- kun kata tapi darah Aku benar-benar mendidih sekarang.
-Namun, karena Teren- kun dan Ilda- chan lebih jelas, Brass- kun bereaksi kepada mereka.
+Saat ini, apa yang baru saja dikatakan Brass-kun ? Apakah dia baru saja mengatakan "beban"?
 
-"Ada apa denganmu? Apakah Kamu mengejek Aku? "
-" Jika Kamu benar-benar sekuat itu, mengapa Kamu tidak bergabung dengan pihak lain saja? "
+Sejauh yang Aku tahu, satu-satunya orang yang telah berparty dengan Brass-kun selain kami, adalah Guru.
 
-Teren- kun menjawab sebagai pembalasan, tetapi mungkin tahu bahwa itu akan memakan waktu selamanya pada tingkat ini, "Kami akan mengonfirmasi detailnya." Orang staf memotong di antara percakapan.
-Teren- kun menjawab "Ya." Dan mundur, tetapi kehilangan kesempatan untuk menegur Teren- kun , Brass- kun dengan marah memelototi staf tersebut.
+Jika Guru benar-benar "beban", berarti Brass-kun seharusnya bisa menyelesaikan permintaan rank-D sendirian dengan sukses sekarang. Teren-kun dan Ilda-chan mencemooh apa yang Brass-kun kata tapi darahku benar-benar mendidih sekarang.
 
-"Jika Brass- kun menang, selain bergabung dengan party, dia akan mendapatkan hak untuk setengah dari hadiah permintaan yang akan diterima party setelah selesai. Ini akan berlanjut sampai pembubaran partai dan jika partai tersebut dibubarkan, maka kalian berempat yang hadir di sini dilarang untuk membentuk partai satu sama lain. "
+tapi, karena Teren-kun dan Ilda-chan lebih jelas melakukannya, Brass-kun bereaksi kepada mereka.
+
+brass"Ada apa denganmu? Apakah Kamu mengejekku?"
+
+teren"Jika Kamu benar-benar sekuat itu, mengapa Kamu tidak bergabung dengan orang lain saja?"
+
+Teren-kun menjawab sebagai pembalasan, tetapi mungkin tahu kalau itu akan memakan waktu saja, "Kami akan mengonfirmasi detailnya." Orang staf memotong di antara percakapan kami.
+
+Teren-kun menjawab "Ya." Dan mundur, tapi kehilangan kesempatan untuk membalas Teren-kun , Brass-kun dengan marah memelototi staf tersebut.
+
+staf"Jika Brass-kun menang, selain bergabung dengan party, dia akan mendapatkan hak untuk setengah dari hadiah permintaan yang akan diterima party setelah selesai. Ini akan berlanjut sampai pembubaran partai dan jika partai tersebut dibubarkan, maka kalian berempat yang hadir di sini dilarang untuk membentuk partai satu sama lain. "
 
 Detail pastinya telah sedikit diubah, tetapi itu mungkin tidak dapat dihindari.
 Jika setelah membentuk sebuah party, kita segera putus dan membentuk party lain tanpa Brass- kun lagi, pertarungan ini akan menjadi tidak berarti sama sekali.
