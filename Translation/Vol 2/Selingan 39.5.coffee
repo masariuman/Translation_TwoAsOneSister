@@ -151,41 +151,41 @@ Beberapa Hunter setuju dengan Alejo, mengatakan "Aku melihatnya." dan "Aku juga.
 
 Untuk beberapa alasan, warga kota tampaknya mempercayai apa yang dikatakan Alejo dan mulai mencari di kerumunan.
 
-Aku mengatakan Ilda-chan dan Teren-kun untuk menyerahkan botol untuk staf guild dan memutuskan untuk tinggal di sini.
+Aku mengatakan Ilda-chan dan Teren-kun untuk menyerahkan botol untuk staf guild dan memutuskan untuk tetap di sini.
 
-Lagipula, tak peduli seberapa banyak aku memikirkannya, orang yang dibicarakan Alejo… adalah Guru.
+Lagipula, tak peduli seberapa banyak aku memikirkannya, orang yang dibicarakan Alejo... adalah Guru.
 
-Tidak mungkin Guru menyebabkan penyerbuan itu. Bagaimanapun, dia bersama kami saat kami menuju ke hutan.
+Tidak mungkin Guru menyebabkan penyerbuan itu. dia bersama kami saat kami menuju ke hutan.
 
 "Bagaimana kalau Kamu menjelaskan apa yang Kamu maksud dengan itu?"
 
 Sebelum Aku mengajukan keberatan, salah satu veteran meminta Alejo.
 
-Aku tidak tahu apa pendapat orang ini tentang pernyataan Alejo. Tetap saja, Aku masih belum cukup kuat untuk menyela dalam situasi ini. Benar-benar membuat frustrasi.
+Aku tidak tahu apa pendapat orang ini tentang pernyataan Alejo. Tetap saja, Aku masih belum cukup kuat untuk menyela dalam situasi ini. Benar-benar membuatku frustrasi.
 
 Dan berbeda dengan diriku yang sekarang, dengan penuh percaya diri, Alejo mulai berbicara.
 
-"Ada bocah berambut putih yang menjadi pemburu baru-baru ini bernyanyi di pub. Dia juga berpenghasilan banyak, aku dengar. Tapi kamu sudah tahu itu, ya?"
+alejo "Ada bocah berambut putih yang menjadi pemburu baru-baru ini bernyanyi di pub. Dia juga berpenghasilan banyak, aku dengar. Tapi kamu sudah tahu itu, kan?"
 
 "Ya, jadi?"
 
-"Bukankah itu gila? Bocah 10 tahun. Kecuali ada alasan khusus, seperti neraka bahwa dia bisa mendapatkan banyak uang hanya dengan itu. Saya benar-benar pergi ke sana sekali, tetapi kemudian saya ditarik oleh lagu yang secara bertahap saya mulai mendengar lebih jelas di tengah semua hiruk pikuk pub. Dan tentu saja. Bocah itu adalah "Putri Song". Dia menggunakan kekuatannya untuk menjerat orang agar menyerahkan koin mereka. Aku bahkan hampir memberikannya sendiri."
+alejo "Bukankah itu gila? Bocah 10 tahun. Kecuali ada alasan khusus, seperti neraka dia bisa mendapatkan banyak uang hanya dengan itu. aku benar-benar pergi ke sana sekali, tetapi kemudian aku ditarik oleh lagu yang secara bertahap dan aku mulai mendengar lebih jelas di tengah semua hiruk pikuk pub. Dan tentu saja. Bocah itu adalah "song princess". Dia menggunakan kekuatannya untuk menjerat orang agar menyerahkan koin mereka. Aku bahkan hampir memberikannya sendiri."
 
-Saat dia selesai, para Hunter yang bersimpati dengan Alejo sebelumnya menindaklanjuti dengan"Aku juga mendengarnya!""Kami telah ditipu!"Sebagai balasan.
+Saat dia selesai, para Hunter yang bersimpati dengan Alejo sebelumnya menindaklanjuti dengan "Aku juga mendengarnya!" dan "Kami telah ditipu!" Sebagai balasan.
 
-Guru adalah Putri Lagu? Putri Song, jika Aku ingat, dikatakan dibenci sebagai contoh utama dari seorang putri yang mengecewakan.
+Guru adalah song princess? song princess, jika Aku ingat, dibenci sebagai contoh utama dari seorang putri yang mengecewakan.
 
-Aku merasa sangat tidak nyaman karena suatu alasan. Beberapa warga kota menjerit ketika mereka mendengar Song Princess, beberapa dari mereka tampak menjijikkan, dan yang jauh lebih mengerikan berteriak"Kick out Song Princess!"Dan semacamnya, memperburuk ketidaknyamananku.
+Aku merasa sangat tidak nyaman karena suatu alasan. Beberapa warga kota menjerit ketika mereka mendengar Song Princess, beberapa dari mereka tampak menjijikkan, dan yang jauh lebih mengerikan berteriak "keluarkan Song Princess dari kota!" Dan semacamnya, memperburuk ketidaknyamananku.
 
-"Jadi, untuk memastikan bocah bermata biru berambut putih itu tidak melakukan apa-apa, kami punya beberapa sukarelawan untuk mengawasinya. Dan kemudian hari ini terjadi. Seseorang melihat bocah itu tiba-tiba pergi ke hutan sendirian. Jadi kami mengikutinya, karena sangat aneh dia melakukan itu, dan di sanalah dia, menyanyikan lagu untuk memanggil monster sialan! Itu sebabnya kami bergegas kembali ke sini, lihat."
+alejo "Jadi, untuk memastikan bocah bermata biru berambut putih itu tidak melakukan apa-apa, kami punya beberapa sukarelawan untuk mengawasinya. Dan kemudian hari ini terjadi. Seseorang melihat bocah itu tiba-tiba pergi ke hutan sendirian. Jadi kami mengikutinya, karena sangat aneh dia melakukan itu, dan di sanalah dia, menyanyikan lagu untuk memanggil monster sialan! Itu sebabnya kami bergegas kembali ke sini, lihat."
 
-"Tunggu sebentar."
+perla "Tunggu sebentar."
 
-Itu tidak mungkin. Bagaimanapun, kami bertemu dengan Guru di sepanjang jalan.
+Itu tidak mungkin terjadi. kami bertemu dengan Guru di sepanjang jalan.
 
 Aku secara refleks meninggikan suaraku, segera mengumpulkan perhatian semua orang dan membuatku tersentak.
 
-Ditambah dengan"Apa?"Alejo yang tidak senang itu terus terang membuatku takut. Namun, ketika Aku menemukan wajah yang sangat akrab di antara para Hunter yang bersimpati padanya, ketakutan Aku secara bertahap berubah menjadi kemarahan.
+Ditambah dengan "Apa?" Alejo yang tidak senang itu terus terang membuatku takut. tapi, ketika Aku menemukan wajah yang sangat akrab di antara para Hunter yang bersimpati padanya, ketakutan Aku secara bertahap berubah menjadi kemarahan.
 
 "Kami telah pergi ke hutan bersamanya, jadi tidak mungkin Guru menyebabkan penyerbuan."
 
