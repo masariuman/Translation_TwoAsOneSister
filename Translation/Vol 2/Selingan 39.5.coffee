@@ -1,58 +1,57 @@
 INTERLUDE: PERLA AND DOUBTS ※PERLA POV
 
-Sudah tiga tahun sejak kami meninggalkan desa. Meskipun kami telah menemukan banyak kesulitan, peringkat-D hampir dalam genggaman kami. Pada suatu hari tertentu, rombongan kami menuju ke hutan dekat kota seperti biasa untuk sebuah permintaan.
+Sudah tiga tahun sejak kami meninggalkan desa. Meskipun kami telah menemukan banyak kesulitan, rank-D hampir dalam genggaman kami. Pada suatu hari tertentu, rombongan kami menuju ke hutan dekat kota seperti biasa untuk sebuah permintaan.
 
-Meskipun kami berempat ketika kami meninggalkan desa dan hanya kami bertiga yang tersisa bersama sekarang, Aku masih senang bahwa semuanya berakhir seperti ini.
+Meskipun kami berempat ketika kami meninggalkan desa dan hanya kami bertiga yang tersisa sekarang, Aku masih senang seperti ini.
 
-Karena ada masalah dengan adik perempuan Brass-kun juga, kami bertiga setuju untuk pulang ke rumah setelah menjadi D-rank dan berbicara dengannya secara langsung.
+Karena ada masalah dengan adik perempuan Brass-kun juga, kami bertiga setuju untuk pulang ke rumah setelah menjadi rank-D dan berbicara dengannya secara langsung.
 
-Bagaimanapun, kami sudah tahu tentang dia sebelum meninggalkan desa tetapi Kamu tidak pernah tahu berapa banyak orang yang bisa berubah dalam tiga tahun.
+kami sudah tahu tentang dia sebelum meninggalkan desa tetapi Kamu tidak pernah tahu bagaimana orang yang bisa berubah dalam tiga tahun.
 
 Kemudian setelah bertemu dengannya dan mendiskusikan berbagai hal, kami dapat memutuskan apakah kami harus membeli obatnya atau tidak.
 
-Lagi pula, sejak Brass-kun diturunkan pangkatnya — sesuatu yang baru kami pelajari setelah pertandingan — setelah mementingkan diri sendiri saat dia berada di pesta dengan Guru, Cielmer-san , praktis tidak mungkin baginya untuk membeli obat sekarang.
+Lagi pula, sejak Brass-kun diturunkan ranknya — sesuatu yang baru kami pelajari setelah pertandingan — setelah mementingkan diri sendiri saat dia berada di party dengan Guru, Cielmer-san, tidak mungkin baginya untuk membeli obat sekarang.
 
 Dengan melakukan itu, kami secara resmi dapat memutuskan hubungan kami dengannya. Itulah yang disepakati pihak kami.
 
 Karena kami bertiga bekerja keras dan menabung, kami semua memiliki satu koin emas masing-masing, jadi jika kami benar-benar ingin melakukannya, kami dapat membeli obat itu sekarang.
 
-Tetap saja, semua ini tentang setelah kita menjadi peringkat-D, jadi aku harus bekerja keras untuk permintaan kita sekarang. Saat berada dalam pikiran Aku, Aku melihat Guru berjalan di belakang kami. Aku secara refleks melambai untuk menyambutnya.
+Tetap saja, semua ini tentang setelah kami menjadi rank-D, jadi aku harus bekerja keras untuk permintaan kami sekarang. Saat berada dalam pikiranku, Aku melihat Guru berjalan di belakang kami. Aku secara refleks melambai untuk menyambutnya.
 
-Ini adalah ketiga kalinya Aku melihat Guru sejak kami bekerja sebagai pesta bersama. Tetap saja, Guru mengajari Aku banyak hal penting, jadi dia adalah guru Aku.
+Ini adalah ketiga kalinya Aku melihat Guru sejak kami bekerja sebagai party bersama. Tetap saja, Guru mengajariku banyak hal penting, jadi dia adalah guruku.
 
-"Teren-kun . Aku baru saja melihat Guru, Aku akan kembali."
+perla "Teren-kun . Aku baru saja melihat Guru, Aku akan kembali."
 
-"Tentu, sampai jumpa nanti."
+teren "baiklah."
 
-"Jangan ganggu dia, oke?"
+Ilda "Jangan ganggu dia, oke?"
 
-"Tidak apa-apa. Lagipula itu Guru."
+perla "Tidak apa-apa kok. Lagipula itu Guru."
 
 Aku bahkan tidak yakin apa yang Aku maksud dengan itu, tetapi Aku sangat senang melihatnya sehingga Aku berlari ke arahnya.
 
-Dia memiliki rambut putih halus, mata biru ke atas, di samping bibir dan hidung kecil. Meskipun cukup mengejutkan bahwa Guru adalah seorang Hunter pada usia 10 tahun, dia juga terlihat lebih muda dari itu.
+Dia memiliki rambut putih halus, mata biru, bibir dan hidung kecil. Meskipun cukup mengejutkan bahwa Guru adalah seorang Hunter pada usia 10 tahun, dia juga terlihat lebih muda dari itu.
 
 Apalagi dia imut seperti boneka. Dengan penampilan Guru, Aku bisa membayangkan dia benar-benar seorang bangsawan tetapi karena dia tidak berbicara tentang hidupnya, Aku tidak tahu pasti.
 
-"Guru, apakah Kamu pergi ke hutan untuk meminta juga?"
+perla "Guru, apakah Kamu pergi ke hutan untuk permintaan juga?"
 
-"Itu benar, tapi"Guru"?"
+ain "benar, tapi, 'Guru'?"
 
 Kalau dipikir-pikir, ini mungkin pertama kalinya aku benar-benar memanggilnya Guru saat berbicara dengannya.
 
-Guru membalas dengan tatapan bingung, tetapi karena"Guru"benar-benar cocok dengan hatinya, Aku membalasnya tanpa mempedulikannya.
+Guru membalas dengan tatapan bingung, tetapi karena 'Guru' benar-benar cocok dengannya dihatiku, Aku membalasnya tanpa mempedulikannya.
 
-"Ya! Aku dapat melakukan lebih banyak hal sekarang karena bantuan Guru dan kami sekarang diizinkan untuk mengikuti tes peringkat-D. Itu semua berkat semua yang Kamu ajarkan kepada Aku, jadi Kamu adalah Guru Aku.
-Apakah itu buruk?"
+perla "Ya! Aku dapat melakukan lebih banyak hal sekarang karena bantuan Guru dan kami sekarang diizinkan untuk mengikuti tes rank-D. Itu semua berkat semua yang Kamu ajarkan kepadaku, jadi Kamu adalah Guruku. Apakah itu buruk?"
 
-"Tidak, itu tidak terlalu buruk atau semacamnya. Bagaimanapun, selamat telah menerima izin untuk mengikuti tes peringkat-D. Kamu tidak menuju ujian sekarang, bukan?"
+ain "Tidak, itu tidak terlalu buruk atau semacamnya. yaah, selamat telah menerima izin untuk mengikuti tes rank-D. kalian tidak menuju ujian sekarang, kan?"
 
-"Kami telah memutuskan untuk mengambilnya setelah kami menjadi sedikit lebih baik dengan kerja tim kami.
-Aku masih membasahi Teren-kun suatu saat nanti."
+perla "Kami telah memutuskan untuk mengambilnya setelah kami menjadi sedikit lebih baik dengan kerja tim kami.
+Aku masih membasahi Teren-kun sampai sekarang."
 
-Sementara aku menikmati obrolan kami bersama-sama, kita terjebak dengan Teren-kun dan Ilda-chan .
+Sementara aku menikmati obrolan kami bersama-sama, kami terjebak dengan Teren-kun dan Ilda-chan .
 
-Itu terlalu pendek. Tetap saja, kami akan pergi ke hutan bersama sekarang, jadi Aku puas dengan itu.
+Itu sangat singkat. Tetap saja, kami akan pergi ke hutan bersama sekarang, jadi Aku puas dengan itu.
 
 ◇
 
@@ -60,21 +59,21 @@ Saat kami mendekati hutan, Guru bertanya apakah ada bau yang harum.
 
 Mendengar itu, aku mencoba menciumnya dan, seperti yang dia katakan, benar-benar ada bau yang harum.
 
-Namun, Teren-kun agak tidak yakin tentang itu, sementara Ildan-chan sepertinya tidak bisa mencium baunya sama sekali.
+tapi, Teren-kun agak tidak yakin tentang itu, sementara Ildan-chan sepertinya tidak bisa mencium baunya sama sekali.
 
 Ini benar-benar misterius tetapi karena Guru terus berjalan tanpa ragu-ragu, Aku mengikutinya tanpa khawatir.
 
 Saat kami hampir berada di tepi hutan, atau lebih tepatnya saat kami semakin mendekat, Aku perhatikan bahwa aroma manis semakin kuat.
 
-Baunya seperti permen gula yang sesekali Aku lihat di toko-toko, menyebabkan Aku berkata"Baunya sangat enak!"Dengan semangat tinggi, tetapi tidak ada yang setuju dengan Aku.
+Baunya seperti permen gula yang sesekali Aku lihat di toko-toko, menyebabkan Aku berkata 'Baunya sangat enak!' Dengan semangat tinggi, tetapi tidak ada yang setuju denganku.
 
-"Apakah Kamu benar-benar yakin tentang itu?"
+ilda "Apakah Kamu benar-benar yakin tentang itu?"
 
-"Bukankah baunya seperti permen?"
+perla "Bukankah baunya seperti permen?"
 
-"Tapi Aku benar-benar tidak mencium apa pun."
+ilda "Tapi Aku benar-benar tidak mencium apa pun."
 
-"Guru, tentang ini ......"
+perla "Guru, ini ......"
 
 Aku berpikir untuk bertanya kepada Guru karena yang terbaik adalah bertanya tentang hal-hal yang tidak Aku ketahui, tetapi dia sudah pindah dari tempat dia sebelumnya dan mengambil botol kaca berbentuk aneh yang hampir tidak berada di dalam hutan.
 
