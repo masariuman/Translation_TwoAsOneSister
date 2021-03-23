@@ -185,29 +185,29 @@ Itu tidak mungkin terjadi. kami bertemu dengan Guru di sepanjang jalan.
 
 Aku secara refleks meninggikan suaraku, segera mengumpulkan perhatian semua orang dan membuatku tersentak.
 
-Ditambah dengan "Apa?" Alejo yang tidak senang itu terus terang membuatku takut. tapi, ketika Aku menemukan wajah yang sangat akrab di antara para Hunter yang bersimpati padanya, ketakutan Aku secara bertahap berubah menjadi kemarahan.
+Ditambah dengan "Apa?" Alejo yang tidak senang itu terus terang membuatku takut. tapi, ketika Aku menemukan wajah yang sangat akrab di antara para Hunter yang bersimpati padanya, ketakutanku secara bertahap berubah menjadi kemarahan.
 
-"Kami telah pergi ke hutan bersamanya, jadi tidak mungkin Guru menyebabkan penyerbuan."
+perla "Kami telah pergi ke hutan bersamanya, jadi tidak mungkin Guru menyebabkan penyerbuan."
 
-"Bersama ...... huh. Kamu baru saja memanggilnya"Guru", ya? Kamu bersekongkol dengannya, bukan? Terdengar sangat akrab dengannya dan semuanya."
+alejo "Bersama ...... huh. Kamu baru saja memanggilnya 'Guru', ya? Kamu bersekongkol dengannya, kan? Terdengar sangat akrab dengannya."
 
-"Itu, berbeda."
+perla "Itu, berbeda."
 
 Aku merasa malu membiarkan hal itu tergelincir, tetapi aku tidak bisa mentolerir melihat seringai Brass-kun , jadi aku membalasnya.
 
-Dan meskipun Aku mengatakan yang sebenarnya, tidak ada warga kota yang mendukung Aku. Itu bahkan lebih membuat frustrasi.
+Dan meskipun Aku mengatakan yang sebenarnya, tidak ada warga kota yang mendukungku. Itu bahkan lebih membuat frustrasi.
 
-Tetapi ketika Aku berpikir demikian, salah satu veteran yang menghadapi Alejo, yang menanyainya sebelumnya, berkata,"Kamu berbuat baik di sana, gadis."Saat dia menyembunyikanku di belakang punggungnya.
+Tetapi ketika Aku berpikir demikian, salah satu veteran yang menghadapi Alejo, yang menanyainya sebelumnya, berkata,"Kamu sudah melakukan yang terbaik, gadis." Saat dia menyembunyikanku di belakang punggungnya.
 
-"Beberapa pertanyaan, tetapi pertama-tama tentang mengapa Kamu menyimpulkan bahwa gadis berambut putih itu adalah Putri Lagu. Kamu mengatakan itu karena barang-barang di pub, kan?"
+"aku ada Beberapa pertanyaan, tetapi pertama-tama tentang mengapa Kamu menyimpulkan bahwa gadis berambut putih itu adalah song princess. Kamu mengatakan itu karena sesuatu dari pub, kan?"
 
-"Ya, tepatnya."
+alejo "Ya, benar sekali."
 
 "Kemudian dalam hal ini, bagian di mana Kamu mendengar lagu itu secara bertahap aneh."
 
-"Tidak, itu pasti normal. Karena semua orang yang mendengar lagu bocah itu mulai terdiam, suaranya perlahan-lahan akan menjangkau semakin jauh."
+alejo "Tidak, itu pasti normal. Karena semua orang yang mendengar lagu bocah itu mulai terdiam, suaranya perlahan-lahan akan menjangkau semakin jauh."
 
-"Begitulah biasanya. Tapi itu cerita yang berbeda untuk Putri Song. Sama sekali tidak mungkin suara sebanyak itu akan menenggelamkan suara Song Princess. Lagu Putri Lagu hanya bisa didengar atau tidak, tidak ada di antaranya. Itu sebabnya jika mereka berada dalam pertempuran, musuh juga akan diperkuat. Itu cerita yang cukup terkenal, ya?"
+"Begitulah biasanya. Tapi itu cerita yang berbeda untuk song princess. Sama sekali tidak mungkin suara sebanyak itu akan menenggelamkan suara Song Princess. Lagu song princess hanya bisa didengar atau tidak, tidak ada selain itu. Itu sebabnya jika mereka berada dalam pertempuran, musuh juga akan diperkuat. Itu cerita yang cukup terkenal, kan?"
 
 Benar, ini adalah cerita yang cukup terkenal.
 
@@ -215,9 +215,9 @@ Penduduk kota, sekarang bingung, menatap langsung ke Alejo dan veteran itu.
 
 "Sebagai permulaan, cukup berisiko bagi seseorang untuk memanggil monster itu sendiri, Kamu tahu?"
 
-"Kota ini memiliki Hunter peringkat-B di dalamnya."
+alejo "Kota ini memiliki Hunter rank-B di dalamnya."
 
-"Kalau begitu, tidak ada gunanya memanggil monster kalau begitu. Sial, kenapa dia yang melakukannya? Dan pertama-tama, bagaimana Kamu tahu bahwa itu adalah lagu yang memanggil monster?"
+"Kalau begitu, tidak ada gunanya memanggil monster kalau begitu. Sial, kenapa dia yang melakukannya? Dan pada dasarnya, bagaimana Kamu tahu kalau itu adalah lagu yang memanggil monster?"
 
 Veteran itu mengatakan itu ketika dia mendekati Alejo, yang sekarang kehilangan kata-kata.
 
