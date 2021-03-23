@@ -103,29 +103,29 @@ Aku hanya merasa cemas. Ada yang aneh dengan hutan. tapi, kita harus cepat kemba
 
 ◇
 
-Dalam perjalanan pulang, kami melewati Hunter peringkat-B, Carol-san.
+Dalam perjalanan pulang, kami melewati Hunter rank-B, Carol-san.
 
-Dia juga terburu-buru, hanya memberi tahu kami"Kembalilah ke kota, cepat."Tetapi mendengarnya membuatku semakin cemas.
+Dia juga terburu-buru, hanya memberi tahu kami "Kembalilah ke kota, cepat." Tetapi mendengarnya membuatku semakin cemas.
 
-Bagaimanapun, ini adalah situasi yang harus dilakukan oleh Hunter peringkat-B.
+ini adalah situasi yang harus dilakukan oleh Hunter rank-B.
 
 Karena itu, kami lari diam-diam. Saat kami semakin dekat ke kota, orang-orang yang berlari seperti kami berangsur-angsur bertambah. Kami tidak memiliki waktu luang untuk berbicara dengan mereka, tetapi kami mendengar sedikit percakapan mereka.
 
 Ada penyerbuan, monster sepertinya langsung menuju ke kota.
 
-Aku langsung membeku di kakiku, tapi Ilda-chan menarik Aku dengan tangan Aku dan Aku berhasil lari lagi.
+Aku langsung membeku di kakiku, tapi Ilda-chan menarikku dengan tanganku dan Aku berhasil lari lagi.
 
-Guru memperhatikan penyerbuan itu.
+Guru menyadari penyerbuan itu.
 
 Dan berbicara tentang penyerbuan, Aku sekarang bisa menebak apa yang ada di dalam botol aneh ini. Obat pemikat monster ilegal.
 
-Kalau begitu, kita tidak bisa kembali ke tempat Guru berada lagi. Kami telah memperhatikan pentingnya botol ini.
+Kalau begitu, kami tidak bisa kembali ke tempat Guru berada lagi. Kami telah menyadari pentingnya botol ini.
 
-Mengapa Guru tinggal sendirian? Dia bisa saja kabur bersama kita sebagai gantinya.
+Mengapa Guru sendirian? Dia bisa saja kabur bersama kami sebagai gantinya.
 
 Banyak monster datang. Dan bahkan ketika keadaan menjadi buruk, tidak ada cara untuk melarikan diri.
 
-Seharusnya ada penyerbuan sekarang, tapi tidak ada satupun monster yang terlihat. Ini mungkin jawaban atas pertanyaan Aku.
+Seharusnya ada penyerbuan sekarang, tapi tidak ada satupun monster yang terlihat. Ini mungkin jawaban atas pertanyaanku.
 
 Aku berdoa agar Guru tidak mati, dia kembali dengan selamat.
 
@@ -133,25 +133,25 @@ Aku berdoa agar Guru tidak mati, dia kembali dengan selamat.
 
 Saat kami sampai di kota, ada keributan sejauh yang Aku bisa lihat. Dengan serbuan datang, ini tidak terlalu aneh.
 
-Tapi mengingat itu, Aku tidak melihat ada persiapan untuk melawan penyerbuan itu. Karena monster sudah datang, seharusnya ada Hunter yang ditempatkan untuk melindungi kota.
+Tapi mengingat itu, Aku tidak melihat ada persiapan untuk melawan penyerbuan itu. Karena monster menuju kesini, seharusnya ada Hunter yang ditempatkan untuk melindungi kota.
 
-Saat Aku memikirkan itu,"Aku tahu orang yang menyebabkan penyerbuan ini!"Aku perhatikan ada seseorang yang berteriak keras-keras.
+Saat Aku memikirkan itu, "Aku tahu orang yang menyebabkan penyerbuan ini!" Aku mendengar ada seseorang yang berteriak keras-keras.
 
 Pria berotot besar yang tampaknya adalah seorang Hunter. Jika Aku ingat dengan benar, namanya adalah Alejo.
 
 Orang-orang yang berdiri di sekitar Alejo adalah penduduk kota dan di seberang mereka adalah para Hunter veteran di kota ini.
 
-Mempertimbangkan bahwa para veteran tampak bingung saat mereka menatap Alejo yang berteriak-teriak, kurasa itu salahnya jika persiapannya terlambat.
+Mempertimbangkan bahwa para veteran tampak bingung saat mereka menatap Alejo yang berteriak-teriak, kurasa itu salahnya jika persiapan perlindungan terlambat.
 
-"Ayo, cepat."
+ilda "Ayo, cepat."
 
-Didorong oleh Ildan-chan , aku hendak memasuki gedung Guild Hunter tetapi kemudian ketika aku mendengar dia berkata"Bocah berambut putih yang nongkrong di pub itu yang melakukannya."Aku berhenti di jalurku.
+Didorong oleh Ildan-chan , aku hendak memasuki gedung Guild Hunter tetapi kemudian ketika aku mendengar dia berkata "Bocah berambut putih yang nongkrong di pub itu yang melakukannya." Aku berhenti di jalurku.
 
-Beberapa Hunter setuju dengan Alejo, mengatakan"Aku melihatnya.""Aku juga."Setelah dia mengatakan itu.
+Beberapa Hunter setuju dengan Alejo, mengatakan "Aku melihatnya." dan "Aku juga." Setelah dia mengatakan itu.
 
 Untuk beberapa alasan, warga kota tampaknya mempercayai apa yang dikatakan Alejo dan mulai mencari di kerumunan.
 
-Aku mengatakan Ilda-chan dan Teren-kun untuk menyerahkan botol untuk staf serikat dan memutuskan untuk tinggal di sini.
+Aku mengatakan Ilda-chan dan Teren-kun untuk menyerahkan botol untuk staf guild dan memutuskan untuk tinggal di sini.
 
 Lagipula, tak peduli seberapa banyak aku memikirkannya, orang yang dibicarakan Alejo… adalah Guru.
 
