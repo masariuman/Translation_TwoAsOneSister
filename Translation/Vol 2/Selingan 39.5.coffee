@@ -225,29 +225,27 @@ Dengan situasi yang tampaknya sekarang melawan mereka, wajah Brass-kun menjadi p
 
 Saat pihak Alejo terdiam, tidak dapat melanjutkan argumen mereka, satu staf muncul dari gedung guild. Di tangannya ada botol yang kami bertiga kirimkan kepada mereka.
 
-"Penyebab penyerbuan telah diverifikasi. Itu adalah hasil dari 『Monster Lure』 yang diproduksi secara ilegal. Selain itu, Alejo dan 6 lainnya dicurigai memproduksi dan menggunakan 『Monster Lure』 secara ilegal dan karena itu, akan ditahan. Selain itu, Kamu akan dihukum karena berusaha memfitnah seorang Hunter tentang Ayub mereka. Selain itu, penyerbuan sebagian besar telah dimusnahkan, jadi untuk memastikannya, harap tetap waspada."
+staf "Penyebab penyerbuan telah diverifikasi. Itu adalah hasil dari 『Monster Lure』 yang diproduksi secara ilegal. Selain itu, Alejo dan 6 lainnya dicurigai memproduksi dan menggunakan 『Monster Lure』 secara ilegal dan karena itu, akan ditahan. Selain itu, Kamu akan dihukum karena berusaha memfitnah seorang Hunter tentang job mereka. Selain itu, penyerbuan sebagian besar telah dimusnahkan, jadi untuk memastikannya, harap tetap waspada."
 
-Saat staf guild berkata demikian, beberapa ksatria muncul secara tiba-tiba dan menangkap Alejo dan para Hunter yang bersimpati padanya. Brass-kun ditangkap bersama mereka dan membuat keributan tetapi mengingat apa yang baru saja dia lakukan, itu wajar.
+Saat staf guild berkata demikian, beberapa knight muncul secara tiba-tiba dan menangkap Alejo dan para Hunter yang bersimpati padanya. Brass-kun ditangkap bersama mereka dan membuat keributan tetapi mengingat apa yang baru saja dia lakukan, itu wajar.
 
 Tidak, siapa yang peduli tentang itu. Guru berada di tengah penyerbuan.
 
 Aku memasuki gedung guild dan mulai mencari staf guild yang berbicara sebelumnya. Adapun mengapa, itu karena dia sepertinya tahu banyak tentang situasinya karena suatu alasan.
 
-Aku dapat menemukannya dengan cepat, jadi Aku bertanya"Apakah Guru baik-baik saja!?"Tetapi dia hanya memiringkan kepalanya dengan bingung.
+Aku dapat menemukannya dengan cepat, jadi Aku bertanya "Apakah Guru baik-baik saja!?" Tetapi dia hanya memiringkan kepalanya dengan bingung.
 
-"Apakah Cielmer-chan baik-baik saja? Untuk membiarkan kami melarikan diri, dia, penyerbuan ..."
+perla "Apakah Cielmer-chan baik-baik saja? Untuk membiarkan kami melarikan diri, dia, penyerbuan ..."
 
-"Begitu ...... Jika Aku tidak salah, Kamu diajari sihir oleh Cielmer-san , benar? Kamu memanggil gurunya, tetapi apakah itu sama sampai sekarang?"
+staf "Begitu ya ...... Jika Aku tidak salah, Kamu diajari sihir oleh Cielmer-san , kan? Kamu memanggilnya guru, tetapi apakah itu tetap sampai sekarang?"
 
-"Y-Ya!"
+ilda "Y-Ya!"
 
-Di tempat Aku, Ildan-chan menyatakan apa yang ingin Aku katakan, yang tampaknya dipahami oleh staf guild.
+Ildan-chan menyatakan apa yang ingin Aku katakan, yang tampaknya dipahami oleh staf guild.
 
-Pertanyaannya yang tiba-tiba membuat Aku gagap, tetapi Guru akan selalu menjadi Guru bagi Aku, jadi tidak ada masalah sama sekali.
+Pertanyaannya yang tiba-tiba membuatku gagap, tetapi Guru akan selalu menjadi Guru bagiku, jadi tidak ada masalah sama sekali.
 
-"Dalam hal ini, Aku akan membuat pengecualian dan memberi tahu Kamu sedikit. Apakah kalian berdua keberatan menunggu sebentar?
-
-Tidak perlu khawatir, Aku yakin Kamu akan segera memahami situasinya."
+staf "Dalam hal ini, Aku akan membuat pengecualian dan memberi tahumu sedikit. Apakah kalian berdua keberatan menunggu sebentar? Tidak perlu khawatir, Aku yakin Kamu akan segera memahami situasinya."
 
 Hanya mengatakan itu, dia membawaku ke suatu tempat.
 
@@ -255,34 +253,34 @@ Dia tampak sangat tenang karena suatu alasan, aku bertanya-tanya mengapa.
 
 Mungkin, mungkin saja, dia tidak terburu-buru berarti sudah terlambat.
 
-"Singkatnya, Cielmer-san aman."
+staf "Singkatnya, Cielmer-san aman."
 
-"Sungguh!?"
+perla "benarkah!?"
 
-"Ya. Sebenarnya, orang yang memusnahkan penyerbuan itu adalah Cielmer-san ."
+staf "Ya. Sebenarnya, orang yang memusnahkan penyerbuan itu adalah Cielmer-san ."
 
-Aku tidak mengerti apa yang dia katakan untuk sesaat, membuatku hanya berkedip karena terkejut saat dia terkikik geli.
+Aku tidak mengerti apa yang dia katakan untuk sesaat, membuatku hanya berkedip karena terkejut dan dia terkikik geli.
 
-"Bahkan jika penyerbuan mencapai kota ini dan menghancurkannya, Cielmer-san sendiri akan bertahan. Betapa kuatnya dia."
+staf "Bahkan jika penyerbuan mencapai kota ini dan menghancurkannya, Cielmer-san sendirian yang akan bertahan. Betapa kuatnya dia."
 
-"Guru baru berusia 10 tahun, kan?"
+perla "Guru baru berusia 10 tahun, kan?"
 
-"Itu tidak dapat disangkal. Namun, gurumu adalah orang yang penampilannya memungkiri kekuatannya sendiri."
+staf "Itu tidak dapat disangkal. tapi, gurumu adalah orang yang penampilannya memungkiri kekuatannya sendiri."
 
 Guru sekuat itu? Karena dia mengalahkan monster kelas-D dengan satu serangan, aku tahu dia cukup kuat tetapi untuk berpikir bahwa dia cukup kuat untuk memusnahkan seluruh penyerbuan.
 
 Entah bagaimana, Aku mendapatkan orang yang luar biasa sebagai guru.
 
-"Tentang apa yang terjadi sebelumnya, apa yang akan terjadi jika Guru benar-benar Putri Lagu?"
+perla "Tentang apa yang terjadi sebelumnya, apa yang akan terjadi jika Guru benar-benar song princess?"
 
-"Akan ada kemungkinan asumsi pihak Alejo mungkin telah disetujui."
+staf "Akan ada kemungkinan asumsi pihak Alejo mungkin disetujui."
 
-"Tapi Guru menyelesaikan penyerbuan, kan? Bahkan setelah itu?"
+perla "Tapi Guru menyelesaikan penyerbuan, kan? Bahkan setelah semua itu?"
 
-"Itu mungkin. Setidaknya di negara ini, begitulah cara mereka melihat Putri Song."
+staf "itu masih kemungkinan. Setidaknya di negara ini, begitulah cara mereka melihat Song princess."
 
-Dengan keamanan Guru sekarang dikonfirmasi, Aku mencoba bertanya tentang apa yang membuat Aku merasa tidak nyaman sebelumnya tetapi, yang membuat Aku kecewa, itu seperti yang Aku bayangkan.
+Dengan keamanan Guru sekarang dikonfirmasi, Aku mencoba bertanya tentang apa yang membuatku merasa tidak nyaman sebelumnya tetapi, yang membuatku kecewa, itu seperti yang kubayangkan.
 
-Meskipun Alejo dan kelompoknya adalah orang-orang yang menggunakan umpan monster dan Guru menyelesaikan semuanya, jika Guru adalah Putri Lagu, dia akan diperlakukan sebagai yang buruk.
+Meskipun Alejo dan kelompoknya adalah orang-orang yang menggunakan umpan monster dan Guru menyelesaikan semuanya, jika Guru adalah song princess, dia akan diperlakukan sebagai yang buruk.
 
-Keraguan di benak Aku sepertinya sama sekali tidak memiliki jawaban yang terlihat.
+Keraguan di benakku sepertinya sama sekali tidak memiliki jawaban yang terlihat.
