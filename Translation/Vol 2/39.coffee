@@ -225,29 +225,29 @@ Nah, orang yang tidak terbiasa melihat kepala monster yang hancur dan organ yang
 Ciel dengan cepat mengambil batu magic dengan sihir, dan setelah membersihkannya dengan air, dia menjejalkannya ke dalam tas magic yang bisa digunakan di dompet.
 
 Sangat nyaman. Jika kita memiliki kantong magic yang jauh lebih besar, apakah kita bisa membawa semua monster ini?
----
-"Aku sudah melihat sekilas tetapi, apakah ada laba-laba raksasa-......"
 
-"Sama sekali tidak ada yang seperti itu."
+carol "Aku sudah melihat sekilas tetapi, apakah ada laba-laba raksasa-......"
 
-"Bisakah Anda menjawab Aku dengan serius? Itu akan mempengaruhi bagaimana kita harus menghadapi masa depan."
+ain "Sama sekali tidak ada yang seperti itu."
 
-"Bagaimanapun, setiap orang yang menuju ke sini berubah menjadi abu. Batu ajaib mereka seharusnya berguling-guling di tanah di suatu tempat, kurasa."
+carol "Bisakah kamu menjawabku dengan serius? Itu akan mempengaruhi bagaimana kita harus menghadapi kedepannya."
 
-"Benar. Dimengerti."
+ain "setiap laba-laba yang menuju ke sini berubah menjadi abu. Batu magic mereka seharusnya berguling-guling di tanah di suatu tempat, kurasa."
 
-Mengabaikan perasaan Aku tentang mereka, hanya memiliki satu jenis monster tertentu yang bertahan mungkin akan menjadi masalah tersendiri.
+carol "baiklah. Dimengerti."
+
+Mengabaikan perasaanku, hanya memiliki satu jenis monster tertentu yang bertahan mungkin akan menjadi masalah tersendiri.
 
 Ini mungkin menjadi spesies tingkat tinggi. Atau lebih tepatnya, apakah monster dunia ini berevolusi atau bertransformasi?
 
-"Aku punya pertanyaan, Aku tahu bahwa ada monster yang memiliki spesies tingkat tinggi, subspesies, dan sebagainya, tetapi apakah spesies yang ada tiba-tiba berubah juga?"
+ain "Aku punya pertanyaan, Aku tahu bahwa ada monster yang memiliki spesies tingkat tinggi, subspesies, dan sebagainya, tetapi apakah spesies yang ada tiba-tiba berubah juga?"
 
-"Kalau dipikir-pikir, kita belum membicarakan evolusi, surga ' bukan? Telah dikonfirmasi bahwa monster berumur panjang berubah menjadi spesies tingkat tinggi. Meskipun dengan itu, tidak ada perbedaan antara monster yang lahir sebagai spesies tingkat tinggi dan yang berevolusi menjadi satu."
+carol "Kalau dipikir-pikir, kita belum membicarakan evolusi, kan? Telah dikonfirmasi bahwa monster berumur panjang berubah menjadi spesies tingkat tinggi. Tidak ada perbedaan antara monster yang lahir sebagai spesies tingkat tinggi dan yang berevolusi tingkat tinggi."
 
-"Jadi itu sebabnya kamu bertanya tentang laba-laba, kan?"
+ain "Jadi itu sebabnya kamu bertanya tentang laba-laba?"
 
-"Akan menyebalkan jika seseorang menjadi tingkat yang lebih tinggi setelah semua. Selain itu, banyak monster menjadi lebih cerdas setelah berevolusi ke tingkat yang lebih tinggi, dan ada kasus di mana hal itu memicu penyerbuan."
-
+carol "Akan menyebalkan jika ada laba-laba menjadi tingkat yang lebih tinggi. Selain itu, banyak monster menjadi lebih cerdas setelah berevolusi ke tingkat yang lebih tinggi, dan ada kasus di mana hal itu memicu kejadian seperti ini."
+----
 Sepertinya ada suatu masa ketika spesies tingkat tinggi lahir, mengumpulkan monster dari garis keturunan yang sama, meningkatkan jumlah mereka, dan turun ke desa.
 
 Dapat dikatakan bahwa Hunter mengurangi jumlahnya sehingga hal ini tidak terjadi.
