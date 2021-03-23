@@ -247,56 +247,53 @@ carol "Kalau dipikir-pikir, kita belum membicarakan evolusi, kan? Telah dikonfir
 ain "Jadi itu sebabnya kamu bertanya tentang laba-laba?"
 
 carol "Akan menyebalkan jika ada laba-laba menjadi tingkat yang lebih tinggi. Selain itu, banyak monster menjadi lebih cerdas setelah berevolusi ke tingkat yang lebih tinggi, dan ada kasus di mana hal itu memicu kejadian seperti ini."
-----
+
 Sepertinya ada suatu masa ketika spesies tingkat tinggi lahir, mengumpulkan monster dari garis keturunan yang sama, meningkatkan jumlah mereka, dan turun ke desa.
 
 Dapat dikatakan bahwa Hunter mengurangi jumlahnya sehingga hal ini tidak terjadi.
 
-Sementara kami melakukannya, Aku bertanya tentang bagaimana monster berkembang biak juga, dan sepertinya mereka bisa muncul begitu saja atau lahir dari telur dan lahir hidup. Mengenai yang muncul secara spontan, tidak banyak yang diketahui tentang mereka.
+Sementara kami melakukannya, Aku bertanya tentang bagaimana monster berkembang biak juga, dan sepertinya mereka bisa muncul begitu saja atau lahir dari telur. Mengenai yang muncul secara spontan, tidak banyak yang diketahui tentang mereka.
 
-Dalam perjalanan pulang, saat mengobrol dengan Carol-san , Aku tiba-tiba menyadari sesuatu yang penting.
+Dalam perjalanan pulang, saat mengobrol dengan Carol-san, Aku tiba-tiba menyadari sesuatu yang penting.
 
-"Sekarang Aku memikirkannya, insiden ini akan ditambahkan ke pencapaian Aku, bukan?"
+ain "oh iya, insiden ini akan ditambahkan ke pencapaianku, kan?"
 
-"Itu akan. Orang lain dan Aku memverifikasinya, jadi ini pasti akan menjadi pencapaian Anda."
+carol "Pasti. Orang lain dan Aku memverifikasinya, jadi ini pasti akan menjadi pencapaianmu."
 
-"Aku bisa menjadi peringkat-C, kan?"
+ain "Aku bisa menjadi rank-C, kan?"
 
-"Karena Anda menyelesaikan penyerbuan dengan beberapa lusinan monster kelas-C di dalamnya, itu tidak akan aneh bahkan jika Anda menjadi peringkat C peringkat teratas sejak awal. Dan sementara kami melakukannya, karena Anda sudah lulus ujian, masih tidak aneh bagi Anda untuk mencapai peringkat-B sekarang, tetapi itu akan sulit mengingat usia Anda."
+carol "Karena kamu menyelesaikan kasus ini dengan beberapa lusinan monster kelas-C di dalamnya, itu tidak akan aneh bahkan jika kamu menjadi rank C teratas sejak awal. Dan masih tidak aneh juga untukmu untuk mencapai rank-B, tetapi itu akan sulit mengingat usiamu."
 
-"Tidak mungkin membantu kemudian."
+ain "yah mau bagaimana lagi."
 
-Untuk saat ini, menjadi peringkat-C sudah cukup baik.
+Untuk saat ini, menjadi rank-C sudah cukup baik.
 
-"Jadi apa yang menyebabkan penyerbuan hari ini?"
+ain "Jadi apa yang menyebabkan hal ini terjadi hari ini?"
 
-"Aku hanya datang ke sini untuk melihat apakah memang ada penyerbuan, jadi siapa yang tahu? Sebaliknya, bagaimana denganmu? Apakah Anda tahu sesuatu?"
+carol "Aku hanya datang ke sini untuk melihat apakah memang ada penyerbuan monster, jadi entahlah... Sebaliknya, bagaimana denganmu? Apakah kamu tahu sesuatu?"
 
-"Aku menemukan cairan berwarna aneh, beraroma manis."
+ain "Aku menemukan cairan berwarna aneh, beraroma manis."
 
-"Itu manis yang memuakkan, bukan?"
+carol "Itu manis yang memuakkan, kan?"
 
-"Begitulah rasanya bagiku, tetapi pesta yang bersamaku kebetulan tidak sepertinya merasakan hal yang sama.
-Sebaliknya, salah satu dari mereka bahkan tidak mencium apapun sama sekali."
+ain "Begitulah, tapi party yang bersamaku kebetulan tidak merasakan hal yang sama. Sebaliknya, salah satu dari mereka bahkan tidak mencium apapun sama sekali."
 
-"...... Nah, itu praktis mengatasinya."
+carol "...... Nah, itu sudah dipastikan."
 
-"Seperti yang Aku pikirkan, aromanya akan terasa berbeda tergantung pada jumlah kekuatan sihir yang dimiliki, kan?"
+ain "Seperti yang Aku pikirkan, aromanya akan terasa berbeda tergantung pada jumlah energi sihir yang dimiliki, kan?"
 
-"Tepat. Dan karena monster memiliki batu ajaib secara alami, Anda dapat mengatakan bahwa mereka secara alami memiliki kekuatan sihir. Tertarik oleh aromanya saja sudah cukup, tetapi yang menjengkelkan adalah semakin tinggi kelas monsternya, semakin kuat mereka tertarik padanya."
+carol "Tepat. Dan karena monster memiliki batu magic secara alami, kamu dapat mengatakan bahwa mereka secara alami memiliki energi sihir. Tertarik oleh aromanya saja sudah cukup, tetapi yang menjengkelkan adalah semakin tinggi kelas monsternya, semakin kuat mereka tertarik pada benda itu."
 
 Menghela nafas panjang, Carol-san kemudian bertanya padaku.
 
-"Dan obatnya?"
+carol "Dan bendanya mana?"
 
-"Setelah menutupinya, Aku meminta pesta bersama Aku untuk membawanya ke kota."
+ain "Setelah menutupinya, Aku meminta party yang bersamaku untuk membawanya ke kota."
 
-"Kalau begitu, semuanya harus diselesaikan pada saat kita kembali.
+carol "Kalau begitu, semuanya harus diselesaikan pada saat kita kembali. hal paling buruk, kita mungkin tiba di tengah-tengah keributan."
 
-Meskipun paling buruk, kita mungkin tiba di tengah-tengah keributan."
+ain "Kedengarannya sangat mengganggu."
 
-"Kedengarannya sangat mengganggu."
+Aku memiliki firasat bahwa kesalahan akan ditimpakan padaku.
 
-Aku memiliki firasat bahwa kesalahan akan ditimpakan pada Aku.
-
-Menyimpan itu hanya dalam pikiran Aku, Aku memutuskan untuk mengakhiri diskusi kami tentang kejadian ini.
+Menyimpan itu hanya dalam pikiranku, Aku memutuskan untuk mengakhiri diskusi kami tentang kejadian ini.
