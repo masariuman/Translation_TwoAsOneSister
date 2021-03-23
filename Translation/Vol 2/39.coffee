@@ -46,11 +46,11 @@ Serigala kehilangan mobilitas mereka dan para goblin melambat seperti siput.
 
 Menyiapkan panggung ini, Ciel berdiri di atas air seperti peri air.
 
-Kami sudah memiliki musik dan tarian, jadi dengan berpikir bahwa kami harus bisa membuat panggung kami sendiri, Ciel menciptakan — menemukan — kemampuan Dance Princess yang satu ini. kurasa Aku akan menyebutnya Deagua Elicinary, Panggung Air.
+Kami sudah memiliki musik dan tarian, jadi dengan berpikir bahwa kami harus bisa membuat panggung kami sendiri, Ciel menciptakan — menemukan — kemampuan Dance Princess yang satu ini. kurasa Aku akan menyebutnya +DEAGUA ELICINARY, Panggung Air.
 
-Yah, itu hanya nama sementara yang digunakan untuk merujuknya selama diskusi. Pertama-tama, tidak jelas apakah ini dibuat dengan Dance Princess atau sihir, dan karena tidak memiliki kekuatan sebesar Glacio Lentso, itu bukan nama mantra. Itu hanyalah sesuatu yang digunakan untuk mengatur panggung.
+Yah, itu hanya nama sementara saja. pada dasarnya, tidak jelas apakah ini dibuat dengan Dance Princess atau sihir, dan karena tidak memiliki kekuatan sebesar +GLACIO LENTSO, itu bukan nama mantra. Itu hanyalah sesuatu yang digunakan untuk mengatur panggung.
 
-Semua air ini digunakan untuk tarian Ciel. Buktinya, air di tanah benar-benar jernih. Ini akan menjadi berlumpur jika Ciel menginginkannya, tetapi Aku kira kali ini, dia ingin menggunakan kejelasan ini.
+Semua air ini digunakan untuk tarian Ciel. Buktinya, air di tanah benar-benar jernih. Ini akan menjadi berlumpur jika Ciel menginginkannya, tetapi Aku kira kali ini, dia ingin menggunakan kejernihan ini.
 
 Saat Ciel berputar, air sebening kristal berputar di sekelilingnya, naik seperti ular.
 
@@ -58,18 +58,19 @@ Saat dia melambaikan tangannya, jejak air menelusuri jalurnya.
 
 Dan saat dia mengambil langkah, ombaknya keluar.
 
-Mencocokkan laguku, Ciel menari. Menyesuaikan tariannya, airnya berdebar-debar.
+Mencocokkan laguku, Ciel menari. Menyesuaikan tariannya, airnya berombak-ombak.
 
-Dan sejujurnya, dia bisa meluncur di sekitar permukaan air juga, tapi sepertinya dia tidak akan melakukannya hari ini.
+sejujurnya, dia bisa meluncur di sekitar permukaan air juga, tapi sepertinya dia tidak akan melakukannya hari ini.
 
 Di depan kami, monster menyerang langsung ke arah Ciel.
+
 Menari berarti mempesona dan mengesankan. Karena itu, apa pun yang melihat tarian Ciel tidak akan bisa mengalihkan pandangan darinya.
 
-Dalam istilah seperti game, ketika Ciel menggunakan kekuatan penuhnya sebagai Putri Penari, dia menarik aggro musuh.
+Dalam istilah seperti game, ketika Ciel menggunakan kekuatan penuhnya sebagai dance princess, dia menarik aggro musuh.
 
-Oleh karena itu, selama jalannya penyerbuan diatur ke arah kita, monster akan berlari menuju Ciel atas kemauan mereka sendiri.
+Oleh karena itu, selama jalannya penyerbuan diatur ke arah kami, monster akan berlari menuju Ciel atas kemauan mereka sendiri.
 
-Maka mereka kemudian terlempar oleh air seperti cambuk yang membentang di sekitar Ciel. Ditelan ombak. Diratakan oleh berat air. Monster-monster itu tenggelam, terlempar, dan dihancurkan, mengakhiri hidup mereka. Tariannya yang halus menciptakan adegan bencana yang tidak proporsional ini.
+mereka kemudian terlempar oleh air seperti cambuk yang membentang di sekitar Ciel, Ditelan ombak, Diratakan oleh berat air, Monster-monster itu tenggelam, terlempar, dan dihancurkan, mengakhiri hidup mereka. Tariannya yang halus menciptakan adegan bencana yang tidak proporsional ini.
 
 Saat kami secara kasar menyingkirkan semua monster kelas-E, monster-monster kelas-D mulai bertambah jumlahnya.
 
@@ -79,29 +80,29 @@ Aku kemudian menyanyikan lagu tentang dinginnya musim dingin, menambahkan es pad
 
 Saat Ciel melompat, melangkah, dan mengangkat kakinya, percikan air di udara berubah menjadi panah es, menghujani rentetan tembakan yang tidak mungkin dihindari monster dari kelas ini.
 
-Sementara masing-masing mungkin tampak kecil, dipenuhi dengan kekuatan sihir yang melimpah, anak panahnya tajam dan cukup kaku untuk ditembus.
+masing-masing mungkin tampak kecil, tapi dipenuhi dengan kekuatan sihir yang melimpah, anak panahnya tajam dan cukup kaku untuk ditembus.
 
 Hujan es segera diwarnai menjadi hujan darah.
 
-Sementara jeritan monster bergema, itu tiba.
+Sementara jeritan monster bergema, monster lainnya tiba.
 
 Memiliki delapan mata merah dan rahang seperti sabit. Delapan kaki menjulur dari tubuh berbulu mereka, empat di setiap sisi.
 
-Apa yang sebenarnya musuh alami kami langsung terbakar habis saat memasuki bidang penglihatan Ciel.
+monster itu adalah musuh alami kami yang langsung terbakar habis saat memasuki penglihatan Ciel.
 
-Dengan penggunaan penuh 100% kekuatan Putri Penari, selain mendapat dukungan dari Putri Lagu, tidak ada satu pun jejak yang tertinggal. Baru kali ini, mereka segera dibuang, terlepas dari perubahan aliran yang tiba-tiba.
+Dengan penggunaan penuh 100% kekuatan dance princess, selain mendapat dukungan dari song princess, tidak ada satu pun jejak yang tertinggal. Baru kali ini, mereka segera dibinasakan, terlepas dari perubahan aliran yang tiba-tiba.
 
-Itu terus terang berlebihan tetapi melihat sedikit ketidaknyamanan di wajah Ciel, itu tidak bisa dihindari. Sebaliknya, bahkan Aku ingin mereka segera binasa.
+terus terang itu cukup berlebihan tetapi melihat sedikit ketidaknyamanan di wajah Ciel, itu tidak bisa dihindari. bahkan Aku ingin mereka segera binasa.
 
-Lagipula, dengan lusinan laba-laba, itu adalah pemicu tepat untuk trauma kita. Menahan diri tidak mungkin dilakukan sejak awal.
+Lagipula, dengan lusinan laba-laba, itu adalah pemicu untuk trauma kita. kami tidak akan dapat Menahan diri.
 
-Ada risiko untuk membakar pohon jika Ciel menggunakan terlalu banyak daya tembak tetapi seharusnya baik-baik saja dengan area sekitarnya yang kebanjiran.
+Ada risiko untuk membakar pohon jika Ciel menggunakan terlalu banyak kekuatan tetapi seharusnya baik-baik saja dengan area sekitarnya yang kebanjiran.
 
 ◇
 
 Mungkin sekitar lima lagu telah berlalu, kira-kira sekitar 20 menit. Bernyanyi itu menyenangkan, tetapi ketika Aku bersenang-senang, Aku lupa berapa banyak lagu yang sudah Aku nyanyikan.
 
-Kecuali ketika laba-laba datang, Ciel tampaknya bersenang-senang menari sepanjang waktu, jadi mungkin juga mirip untuknya.
+selain ketika laba-laba datang, Ciel tampaknya bersenang-senang menari sepanjang waktu, jadi mungkin juga tidak masalah untuknya.
 
 Meskipun saat dia bersenang-senang, tariannya sendiri dan raut wajahnya terlihat cukup tajam.
 
@@ -115,19 +116,19 @@ Dari apa yang Aku lihat, satu-satunya kelas C di sini adalah salah satu dari ked
 
 Mereka jelas jauh lebih besar dari monster sampai sekarang, dan bahkan setelah mereka melangkah ke panggung Ciel, mereka menyerang dengan hampir tidak ada tanda-tanda terpengaruh olehnya.
 
-Bahkan setelah memukul mereka dengan cambuk air, bahkan setelah memukul mereka dengan bola air, bahkan dengan ombak yang berdesir dan anak panah yang melonjak, itu semua tampak seperti usaha yang sia-sia, semua masih diabaikan.
+Bahkan setelah memukul mereka dengan cambuk air, bahkan setelah memukul mereka dengan bola air, bahkan dengan ombak yang berdesir dan anak panah yang banyak, itu semua tampak seperti usaha yang sia-sia.
 
-"Menyusahkan sekali."
+ciel [Menyusahkan sekali.]
 
-"Anda tidak terdengar terlalu bermasalah mengingat itu, Ciel."
+ain [Kamu tidak terdengar terlalu bermasalah dengan itu, Ciel.]
 
-"Fufu , aku bercanda. Haruskah kita membekukannya?"
+ciel [Fufu, aku bercanda. Haruskah kita membekukannya?]
 
-"Dimengerti. Ngomong-ngomong, apakah kamu masih ahli dalam kekuatan sihir?"
+ain [Baiklah. Ngomong-ngomong, apakah kamu masih ahli dalam kekuatan sihir?]
 
-"Aku ... mungkin bermain-main sedikit terlalu banyak, tapi ini tidak apa-apa."
+ciel [Aku ... mungkin bermain-main sedikit terlalu banyak, tapi ini tidak apa-apa.]
 
-Kami berhenti tampil sebentar dan mengobrol.
+Kami berhenti sebentar dan mengobrol.
 
 Setelah menggunakan kekuatan ini dalam skala besar, bahkan Ciel harus memotongnya dengan kekuatan sihir, atau begitulah yang kupikir, tapi sepertinya bukan itu masalahnya sama sekali. Setidaknya, dia harus bisa bertahan sampai akhir penyerbuan.
 
