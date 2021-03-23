@@ -1,35 +1,36 @@
 CHAPTER 39: SONG, DANCE, AND STAMPEDE
 
-"Sebelum kita beralih, maukah kamu jika Aku bernyanyi sebentar?"
+ain [Sebelum kita berganti tubuh, maukah kamu jika Aku bernyanyi sebentar?]
 
-"Tidak sama sekali, tapi mengapa?"
+ciel [Tidak masalah, tapi mengapa?]
 
-"Aku ingin memiliki monster sebanyak mungkin untuk datang kepada kita. Seharusnya tidak ada orang dalam jangkauan pendengaran, jadi kupikir jika kita bisa memimpin aliran monster ke arah kita, yang lain harus mengikuti di belakang."
+ain [Aku ingin monster sebanyak mungkin datang kepada kita. tidak ada orang dalam jangkauan kita, jadi kupikir jika kita bisa menuntun monster ke arah kita, sisanya yang lain akan mengikutinya.]
 
-"Dimengerti. Aku akan menyerahkan waktu peralihan ke Ain."
+ciel [Baiklah. Aku akan menyerahkan timing nya ke Ain.]
 
 Dari tepi hutan, kami sekarang berada sedikit di dekat kota. Segerombolan monster akan tiba dalam beberapa menit, tapi Ciel dan aku terus berbicara seperti yang selalu kami lakukan.
 
-Karena kami benar-benar tidak dapat membiarkan siapa pun tahu bahwa Aku adalah Putri Lagu, Aku benar-benar memeriksa dengan deteksi sebelum bernyanyi a la ~ la ~ la ~ , bahkan membuat monster yang tersesat dari kerumunan mengarahkan kaki mereka ke arah kami.
+Karena kami benar-benar tidak dapat membiarkan siapa pun tahu bahwa Aku adalah Song Princess, Aku benar-benar memeriksa dengan +DETECTION sebelum bernyanyi a la ~ la ~ la ~ , bahkan membuat monster yang tersesat dari kerumunan mengarahkan kaki mereka ke arah kami.
 
-Setelah itu, efek obat harus menangani yang lainnya. Aku beralih dengan Ciel dan menyerahkan sisanya padanya.
+Sisanya akan mengikuti. Aku beralih dengan Ciel dan menyerahkan sisanya padanya.
 
-"Ain. Bukankah hari ini terasa agak panas?"
+ciel [Ain. Bukankah hari ini terasa agak panas?]
 
-"Benarkah? ...... Tidak, itu benar. Lalu, haruskah Aku menyanyikan sesuatu dengan nuansa yang sejuk dan menyegarkan?"
+ain [Benarkah? ...... Tidak, itu benar. Lalu, haruskah Aku menyanyikan sesuatu dengan nuansa yang sejuk dan menyegarkan?]
 
-"Kita mungkin akan tinggal di sini untuk waktu yang lama, tapi ....... Tidak perlu khawatir tentang itu, kan?"
+ciel [Kita mungkin di sini untuk waktu yang lama, tapi ....... Tidak perlu khawatir tentang itu, kan?]
 
-Ciel terkikik. Bahkan jika itu akan memakan waktu beberapa jam seperti yang dia perkirakan, repertoar Aku seharusnya sudah cukup untuk bertahan.
+Ciel terkikik. Bahkan jika itu akan memakan waktu beberapa jam seperti yang dia perkirakan, +REPERTOARku seharusnya sudah cukup untuk bertahan.
 
-Jika Aku tidak membatasi lagu, Aku dapat melakukannya sepanjang hari, dan yang lebih penting, tidak ada yang menghentikan Aku untuk mengulang lagu.
+Jika Aku tidak membatasi lagunya, Aku dapat bernyanyi sepanjang hari, dan yang lebih penting, tidak ada yang menghentikanku untuk mengulangi lagu yang dinyanyikan.
 
-Di antara mereka, Aku memutuskan untuk menyanyikan lagu yang berhubungan dengan air terlebih dahulu.
+Di antara lagu-lagu tersebut, Aku memutuskan untuk menyanyikan lagu yang berhubungan dengan air terlebih dahulu.
 
 Meskipun Aku tidak tahu seperti apa nada yang menyegarkan itu, Aku mulai bernyanyi sambil membayangkan sesuatu dengan perasaan yang sejuk.
 
-Pada saat itu, kumpulan monster terkemuka sudah terlihat.
-Yang pertama tiba adalah serigala berkaki cepat dan para goblin serta kobold dari bagian dangkal.
+Pada saat itu, kumpulan monster sudah terlihat.
+
+Yang pertama tiba adalah serigala berkaki cepat dan para goblin serta kobold.
 
 Meskipun kita sudah berada pada jarak yang terlihat, mereka sama sekali tidak melihat Ciel, kemungkinan karena mereka tertarik dengan aromanya.
 
@@ -37,14 +38,15 @@ Tampak gila, monster itu menatap ke udara kosong saat mereka menuju ke arah kami
 
 Satu-satunya tindakan yang diambil Ciel adalah dengan elegan mengangkat dan menurunkan lengannya, tetapi menyesuaikan gerakannya, pilar air dua kali ukurannya naik dari tanah dan runtuh menjadi gelombang pasang, menukik ke bawah pada monster.
 
-Sementara melihat beberapa monster tersapu cukup pemandangan, tujuan sebenarnya untuk melakukan ini adalah membanjiri tanah.
+Sementara melihat beberapa monster tersapu, tujuan sebenarnya untuk melakukan ini adalah membanjiri tanah.
 
 Meskipun air di tanah hanya mencapai pergelangan kaki Ciel, itu sudah cukup untuk membuat kaki monster tersandung.
-Serigala kehilangan mobilitas mereka dan para goblin melambat menjadi kecepatan siput.
+
+Serigala kehilangan mobilitas mereka dan para goblin melambat seperti siput.
 
 Menyiapkan panggung ini, Ciel berdiri di atas air seperti peri air.
 
-Kami sudah memiliki musik dan dance, jadi berpikir bahwa kami harus bisa mengatur panggung kami sendiri, Ciel menciptakan — menemukan — kemampuan Dance Princess yang satu ini. Aku menyebutnya Deagua Elicinary, Panggung Air, Aku rasa.
+Kami sudah memiliki musik dan tarian, jadi dengan berpikir bahwa kami harus bisa membuat panggung kami sendiri, Ciel menciptakan — menemukan — kemampuan Dance Princess yang satu ini. kurasa Aku akan menyebutnya Deagua Elicinary, Panggung Air.
 
 Yah, itu hanya nama sementara yang digunakan untuk merujuknya selama diskusi. Pertama-tama, tidak jelas apakah ini dibuat dengan Dance Princess atau sihir, dan karena tidak memiliki kekuatan sebesar Glacio Lentso, itu bukan nama mantra. Itu hanyalah sesuatu yang digunakan untuk mengatur panggung.
 
