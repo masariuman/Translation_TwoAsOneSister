@@ -136,101 +136,96 @@ Sebaliknya, karena aku hanya bernyanyi, konsumsi kekuatan sihirku hampir nol.
 
 Pertempuran dimulai kembali. Secara total, ogre dan troll bersama-sama berjumlah kurang dari seratus. Semua dari mereka telah memasuki panggung Ciel dan yang di garis depan mengacungkan tongkat mereka karena mereka sekarang hanya beberapa langkah darinya. Meskipun pemandangan itu mungkin akan meninggalkan dampak yang cukup besar pada orang lain, karena kita telah melihat cyclop kelas atas menyerang kita tepat di depan mata kita, itu sama sekali tidak membuatku takut.
 
-Selain itu, sayangnya bagi mereka, bahkan sebelum mereka dapat mencapai Ciel, dia sudah selesai mengetuk dua kali jari kakinya di permukaan air.
+Selain itu, sayangnya bagi mereka, bahkan sebelum mereka dapat mencapai Ciel, CIEL sudah selesai mengetuk dua kali jari kakinya di permukaan air.
 
 Kali ini, seperti riak yang mengalir, es mulai menyelimuti air.
 
-Secara alami, kaki monster juga membeku, menyebabkan beberapa monster yang berlari jatuh dan jatuh ke tanah. Dan setelah itu, yang di belakang mereka jatuh juga, lalu berikutnya, dan seterusnya, memberikan pertunjukan penyerbuan harfiah.
+Secara alami, kaki monster juga membeku, menyebabkan beberapa monster yang berlari jatuh ke tanah. Dan setelah itu, yang di belakang mereka jatuh juga, lalu berikutnya, dan seterusnya.
 
-Namun, seperti yang diharapkan dari vitalitas monster, kurasa, tidak ada dari mereka yang mati saat itu.
+Tapi, seperti yang diharapkan dari vitalitas monster, kurasa, tidak ada dari mereka yang mati saat itu.
 
-Meskipun sepertinya Ciel mengantisipasi hal itu, atau mungkin dia hanya ingin menari di lingkungan yang unik ini, saat dia mulai meluncur di sekitar permukaan es.
+Meskipun sepertinya Ciel mengantisipasi hal itu, atau mungkin dia hanya ingin menari di lingkungan yang unik ini, dia mulai meluncur di sekitar permukaan es.
 
-Dengan kata lain, dia berseluncur di atas es. Meskipun dapat dikatakan bahwa figure skating adalah suatu bentuk tarian, kali ini Ciel tidak melakukan lompatan ataupun putaran.
+Dengan kata lain, dia berseluncur di atas es. Meskipun dapat dikatakan bahwa skating adalah suatu bentuk tarian, kali ini Ciel tidak melakukan lompatan ataupun putaran.
 
 Sambil meluncur melalui celah di antara monster, dia menciptakan jarum es di bawah telapak kakinya dan mulai memusnahkan mereka semua. Di antara mereka, ada beberapa yang tidak tersandung, tetapi itu tidak mengubah fakta bahwa mereka tidak bisa bergerak. Mengayunkan lengannya ke bawah dengan gerakan yang dipoles, es menghancurkan kepala mereka.
 
 Semburan darah membeku bahkan sebelum mencapai Ciel.
 
-Mulai sekarang, ini pekerjaan rutin, atau lebih tepatnya, hanya untuk kesenangan kita. Sampai Ciel puas, Aku hanya perlu bernyanyi.
+Dan dari sini, inilah yang kami lakukan, atau lebih tepatnya, kami hanya bersenang-senang, Sampai Ciel puas, dan Aku hanya perlu bernyanyi.
 
-Bagaimanapun, hanya dengan melakukan itu, monster mati dengan sendirinya.
+hanya dengan melakukan itu, monster mati dengan sendirinya.
 
 ◇
 
 Saat aku menyelesaikan satu lagu terakhir, dengan tidak ada tanda-tanda monster hidup yang tersisa, Ciel juga berhenti menari.
 
-Dia melakukan pose seperti itu di akhir pertunjukan skating, tetapi karena dia tidak memberikan pertunjukan kepada siapa pun, Ciel segera mengembalikan bentuk biasanya.
+Dia melakukan pose di akhir pertunjukan skating, tetapi karena dia tidak memberikan pertunjukan kepada siapa pun, Ciel segera kembali semula.
 
 Sementara dia terengah-engah dengan bahu terayun-ayun, raut wajahnya mengatakan bahwa dia masih belum cukup menari dan itu menggemaskan.
 
-Nah, entah bagaimana kita telah menangani penyerbuan itu, tetapi masih ada masalah.
+Nah, entah bagaimana kami telah menangani semua ini, tetapi masih ada masalah.
 
-Bagaimanapun, ada dua kehadiran yang datang dari kota dan salah satunya kembali. Dengan kata lain, masih ada satu yang tersisa. Aku lebih suka jika keduanya kembali bersama. Kami terus diawasi sejak bagian es, tapi mengingat tidak ada Putri Penari yang bisa menunjukkan kekuatan pada skala ini sendiri, itu mungkin akan dianggap sebagai sihir skala besar atau sesuatu yang serupa ...... Biasanya, begitulah.
+ada dua keberadaan yang datang dari kota dan salah satunya kembali. Dengan kata lain, masih ada satu. Aku lebih suka jika keduanya kembali bersama. Kami terus diawasi sejak bagian es, tapi mengingat tidak ada dance princess yang bisa menunjukkan kekuatan pada skala ini sendiri, itu mungkin akan dianggap sebagai sihir skala besar atau sesuatu yang serupa ...... Biasanya, begitulah.
 
-"Sungguh buruk bagimu untuk mengintip, Carol-san ."
+ain "jahat sekali kamu hanya mengintip saja, Carol-san."
 
-"Setelah bersenang-senang menari, mengapa suasana hati yang buruk tiba-tiba?"
+carol "Setelah bersenang-senang menari, mengapa suasana hatimu tiba-tiba buruk?"
 
-"Seseorang menerobos masuk saat aku menikmati diriku sendiri, jadi aku tidak bisa menahannya."
+ain "Seseorang menerobos masuk saat aku menikmati diriku sendiri, jadi aku tidak bisa menahannya."
 
-Sambil berbalik, aku melihat Carol-san terkejut saat dia menatapku.
+Sambil berbalik, aku melihat Carol-san yang terkejut saat dia menatapku.
 
-Kami telah menyelesaikan seluruh penyerbuan sendiri, Anda tahu? Meskipun ada alasan untuk menunjukkan rasa syukur, tidak ada alasan untuk bereaksi seperti itu! Hanya bercanda.
+Kami telah menyelesaikan sendirian... Meskipun ada alasan untuk menunjukkan rasa syukur, tidak ada alasan untuk bereaksi seperti itu! Hanya bercanda.
 
-"Untuk saat ini, kamu tidak cukup kasar untuk meminta penjelasan, kan?"
+ain "Untuk saat ini, kamu tidak cukup kasar untuk meminta penjelasan, kan?"
 
-"Yah, tentu saja. Setelah semua yang baru saja terjadi. Selain itu, Aku bukan Hunter yang terlalu buruk untuk menuntut penjelasan di sini."
+carol "Yah, tentu saja. Setelah semua yang baru saja terjadi. Selain itu, Aku bukan Hunter yang terlalu buruk untuk menuntut penjelasan di sini."
 
-"Tapi Anda penasaran, bukan? Tentang Pekerjaanku."
+ain "Tapi kamu penasaran, kan? Tentang Jobku."
 
-"Itu ...... salahmu karena memberitahuku tentang hubungan sihir dan Pekerjaan, bukan?"
+carol "Itu ...... salahmu karena memberitahuku tentang hubungan sihir dan Job, kan?"
 
-Carol-san membuang muka dengan wajah cemberut begitu lucu, aku hampir tertawa.
+Carol-san membuang muka dengan wajah cemberut dan itu begitu lucu, aku hampir tertawa.
 
-Sementara itu hanya akhirnya membuatnya lebih pemarah, sepertinya kenikmatan yang tersisa dari sebelumnya membuatku sedikit lebih banyak bicara.
+sepertinya kenikmatan yang tersisa dari sebelumnya membuatku sedikit lebih banyak bicara.
 
-Tetap saja, Aku tidak berniat menyampaikan semuanya selama kita masih di negara ini.
+Tetap saja, Aku tidak berniat menyampaikan semuanya selama kami masih di negara ini.
 
-"Ayo lihat. Job Aku bilang itu tidak bohong. Hanya itu yang bisa Aku katakan untuk saat ini."
+ain "gimana ya, Job yang Aku katakan itu benar. Hanya itu yang bisa Aku katakan untuk saat ini."
 
-"Benar. Aku akan memikirkannya nanti."
+carol "Benar. Aku akan memikirkannya nanti."
 
-"Ngomong-ngomong, tentang monster ini, haruskah Aku membongkar semuanya?
+ain "Ngomong-ngomong, tentang monster ini, haruskah Aku membongkar semuanya? meskipun Mengambil bagian bukti, batu magic, dan sebagainya akan merepotkan."
 
-Mengambil bagian bukti, batu ajaib, dan sebagainya akan merepotkan, meskipun."
+carol "Itu tergantung padamu. Jika ada bahan dan batu magic yang kamu inginkan, ambillah. Jika kamu tidak menginginkan apa pun, mintalah guild untuk menangani ini. Setelah itu, kamu akan diberi hadiah untuk menyelesaikan ini semua sebesar 70% dari jumlah pembelian material."
 
-"Itu tergantung padamu. Jika ada bahan dan batu ajaib yang Anda inginkan, ambillah.
+Aku penasaran mengapa hanya 70%, sepertinya 30% akan digunakan untuk biaya perantara guild dan hadiah untuk Hunter yang menerima permintaan tersebut. Ini pasti jauh lebih baik daripada melakukannya sendiri.
 
-Jika Anda tidak menginginkan apa pun, mintalah guild untuk menangani bencana ini. Setelah itu, Anda akan diberi hadiah untuk menyelesaikan penyerbuan dan 70% dari jumlah pembelian material."
+Dengan mengatakan itu, seharusnya tidak masalah untuk mengambil batu magic monster kelas-C yang memiliki reaksi yang sangat kuat dari +DETECTION.
 
-Aku bertanya-tanya mengapa hanya 70%, tetapi Aku kira sisa 30% akan digunakan untuk biaya perantara guild dan hadiah untuk Hunter yang menerima permintaan tersebut. Ini pasti jauh lebih baik daripada melakukannya sendiri.
+ain [Ciel, apakah kamu memiliki bahan yang kamu inginkan?]
 
-Dengan mengatakan itu, seharusnya tidak masalah untuk mengambil batu sihir monster kelas-C yang memiliki reaksi yang sangat kuat dari deteksi.
+ciel [Bahan? Bahkan jika kamu bertanya kepadaku Ain, Aku tidak tahu bagaimana cara menggunakannya. bisakah tanduk dan semacamnya berubah menjadi senjata? Bulu menjadi baju besi? walau begitu, aku tidak membutuhkannya, kan?]
 
-"Ciel, apakah Anda memiliki bahan yang Anda inginkan?"
+ain [Benar, kamu tidak membutuhkannya. Ini tidak seperti kita bisa membuat pil, tapi batu magic mungkin berguna untuk sesuatu, jadi kupikir tidak apa-apa hanya mengambil itu saja.]
 
-"Bahan? Bahkan jika Anda bertanya kepada Aku bahwa Ain, Aku tidak tahu bagaimana cara menggunakannya.
-Akankah tanduk dan semacamnya berubah menjadi senjata? Bulu menjadi baju besi? Meski begitu, aku tidak membutuhkannya, kan?"
+ciel [Begitu . Ain, bisakah kamu memilih mana yang bagus?]
 
-"Benar, kamu tidak akan. Ini tidak seperti kita bisa membuat pil, tapi batu ajaib mungkin berguna untuk sesuatu, jadi kupikir tidak apa-apa hanya meminumnya."
+ain [Dalam hal ini, Aku akan mengambil hanya beberapa batu magic.]
 
-"Begitu . Ain, bisakah kamu memilih mana yang bagus?"
+ciel [baiklah, nikmati waktumu.]
 
-"Dalam hal ini, Aku akan mengambil hanya beberapa batu ajaib."
+Aku beralih dengan Ciel, memilih 10 dari monster yang dibekukan di kaki mereka, dan meminta Ciel mendapatkan batu magic mereka.
 
-"Tentu, luangkan waktu Anda."
-
-Aku beralih dengan Ciel, memilih 10 dari monster yang dibekukan di kaki mereka, dan meminta Ciel mendapatkan batu ajaib mereka.
-
-Kalau dipikir-pikir, Carol-san menyebutnya"bencana"tapi bukankah itu mengerikan?
+Kalau dipikir-pikir, Carol-san menyebutnya "bencana" tapi bukankah itu mengerikan?
 
 Nah, orang yang tidak terbiasa melihat kepala monster yang hancur dan organ yang terbuka mungkin akan muntah.
 
-Ciel dengan cepat mengambil batu ajaib dengan sihir, dan setelah membersihkannya dengan air, dia menjejalkannya ke dalam tas ajaib yang bisa digunakan di dompet.
+Ciel dengan cepat mengambil batu magic dengan sihir, dan setelah membersihkannya dengan air, dia menjejalkannya ke dalam tas magic yang bisa digunakan di dompet.
 
-Sangat nyaman. Jika kita memiliki kantong ajaib yang jauh lebih besar, apakah kita bisa membawa serta semua monster ini?
-
+Sangat nyaman. Jika kita memiliki kantong magic yang jauh lebih besar, apakah kita bisa membawa semua monster ini?
+---
 "Aku sudah melihat sekilas tetapi, apakah ada laba-laba raksasa-......"
 
 "Sama sekali tidak ada yang seperti itu."
