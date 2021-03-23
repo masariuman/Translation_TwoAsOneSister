@@ -123,11 +123,11 @@ Sepertinya firasat Aku benar. Aku menjadi sangat tertekan sekarang.
 
 Aku mencari wadah, mengambilnya, dan kembali ke tiga lainnya.
 
-"ada sesuatu?"
+ilda "ada sesuatu?"
 
 ain"ini narkotika? seharusnya iya. Apakah ini terlihat familiar?"
 
-"Tidak juga, tapi apa itu?"
+ilda "Tidak juga, tapi apa itu?"
 
 ain"Kemungkinan sumber dari aroma itu. Aku punya firasat buruk tentang ini tapi untuk saat ini, maukah kalian kembali ke kota dan menunjukkan ini kepada orang-orang guild? kalian dapat memberi tahu mereka kalai Aku mengambilnya."
 

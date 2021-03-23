@@ -59,7 +59,7 @@ Saat kami mendekati hutan, Guru bertanya apakah ada bau yang harum.
 
 Mendengar itu, aku mencoba menciumnya dan, seperti yang dia katakan, benar-benar ada bau yang harum.
 
-tapi, Teren-kun agak tidak yakin tentang itu, sementara Ildan-chan sepertinya tidak bisa mencium baunya sama sekali.
+tapi, Teren-kun agak tidak yakin tentang itu, sementara Ildan-chan sepertinya tidak bisa mencium baunya sama sekali. (note : di chapter 38 diberitahu kalau teren yang tidak menciumnya tapi saya tidak tahu mungkin authornya lupa dan terbalik antara teren dan ilda)
 
 Ini benar-benar misterius tetapi karena Guru terus berjalan tanpa ragu-ragu, Aku mengikutinya tanpa khawatir.
 
@@ -67,7 +67,7 @@ Saat kami hampir berada di tepi hutan, atau lebih tepatnya saat kami semakin men
 
 Baunya seperti permen gula yang sesekali Aku lihat di toko-toko, menyebabkan Aku berkata 'Baunya sangat enak!' Dengan semangat tinggi, tetapi tidak ada yang setuju denganku.
 
-ilda "Apakah Kamu benar-benar yakin tentang itu?"
+teren "Apakah Kamu benar-benar yakin tentang itu?"
 
 perla "Bukankah baunya seperti permen?"
 
@@ -75,35 +75,35 @@ ilda "Tapi Aku benar-benar tidak mencium apa pun."
 
 perla "Guru, ini ......"
 
-Aku berpikir untuk bertanya kepada Guru karena yang terbaik adalah bertanya tentang hal-hal yang tidak Aku ketahui, tetapi dia sudah pindah dari tempat dia sebelumnya dan mengambil botol kaca berbentuk aneh yang hampir tidak berada di dalam hutan.
+Aku berpikir untuk bertanya kepada Guru karena yang terbaik adalah bertanya tentang hal-hal yang tidak Aku ketahui, tetapi dia sudah pindah dari tempatnya sebelumnya dan mengambil botol kaca berbentuk aneh.
 
 Ilda-chan segera pergi kepadanya dan bertanya apa itu.
 
-"Obat ini? Aku seharusnya. Apakah ini terlihat familiar?"
+ain "Obat ini?. Apakah ini terlihat familiar?"
 
-"Tidak juga, tapi apa itu?"
+ilda "Tidak juga, tapi apa itu?"
 
-"Kemungkinan sumber dari aroma itu. Aku punya firasat buruk tentang ini tapi untuk saat ini, maukah kamu kembali ke kota dan menunjukkan ini kepada orang-orang guild? Kamu dapat memberi tahu mereka bahwa Aku mengambilnya."
+ain "ini Kemungkinan sumber dari aroma itu. Aku punya firasat buruk tentang ini tapi untuk saat ini, maukah kamu kembali ke kota dan menunjukkan ini kepada orang-orang guild? Kamu dapat memberi tahu mereka kalau Aku mengambilnya."
 
 Merasa tidak nyaman dengan kata-kata Guru, kami bertiga saling memandang dan mengangguk.
 
-Aku yakin ada sesuatu yang tidak kita ketahui sedang terjadi saat ini.
+Aku yakin ada sesuatu yang tidak kami ketahui sedang terjadi saat ini.
 
 Mengambil botol kaca, kami hendak kembali ke kota, tetapi menyadari bahwa Guru tidak berniat untuk kembali, Aku tidak bisa menahan diri untuk tidak bertanya.
 
-"Guru, apa yang Kamu rencanakan?"
+perla "Guru, apa yang Kamu rencanakan?"
 
-"Aku ingin tahu apa sebenarnya. Jika tidak ada pilihan lain, Aku akan lari."
+ain "Aku ingin tahu ada apa sebenarnya. Jika tidak ada pilihan lain, Aku akan lari."
 
-"Itu janji, oke?"
+perla "Itu janji, oke?"
 
-Untuk beberapa alasan, Aku merasa seperti tidak dapat melihat Guru lagi, menyebabkan air mata mengalir di mata Aku.
+Untuk beberapa alasan, Aku merasa seperti tidak dapat melihat Guru lagi, menyebabkan air mata mengalir di mataku.
 
-Aku hanya merasa cemas. Ada yang aneh dengan hutan. Bagaimanapun, kita harus cepat kembali.
+Aku hanya merasa cemas. Ada yang aneh dengan hutan. tapi, kita harus cepat kembali.
 
 ◇
 
-Dalam perjalanan pulang, kami melewati Hunter peringkat-B, Carol-san .
+Dalam perjalanan pulang, kami melewati Hunter peringkat-B, Carol-san.
 
 Dia juga terburu-buru, hanya memberi tahu kami"Kembalilah ke kota, cepat."Tetapi mendengarnya membuatku semakin cemas.
 
