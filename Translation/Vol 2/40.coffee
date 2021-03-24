@@ -54,43 +54,43 @@ Ketika Aku bertanya apakah itu benar-benar mungkin terjadi, Aku diberitahu bahwa
 
 tapi kali ini, tampaknya semuanya tidak berjalan sesuai rencana karena aku tidak kembali ke kota, tetapi karena penduduk kota memihak Alejo setelah dia berteriak bahwa aku adalah song princess, mereka sekarang merasa canggung ketika berada di sekitarku.
 
-Meskipun Aku benar-benar seorang Putri Lagu, Aku yakin bahwa Aku tidak melakukan apa pun yang akan mengekspos Aku. Seperti yang diharapkan, Aku menjadi korban fitnah yang tidak dapat dibenarkan karena tidak ada bukti tentang masalah tersebut.
+Meskipun Aku benar-benar seorang song princess, Aku yakin kalau Aku tidak melakukan apa pun yang akan mengekspos jobku. Seperti yang diharapkan, Aku menjadi korban fitnah yang tidak dapat dibenarkan karena tidak ada bukti tentang masalah tersebut.
 
 Sepertinya Alejo dan gengnya kemungkinan besar akan dikirim ke tambang sebagai budak kriminal.
 
-"Jadi, ini tentang topik berikutnya tapi ......"
+celia "Jadi, untuk topik berikutnya tapi ......"
 
-"Sekarang Aku bisa menjadi peringkat-C, kan?"
+ain "Sekarang Aku bisa menjadi rank-C, kan?"
 
-"Tentu saja. Karena Kamu menyelamatkan seluruh kota, itu tidak akan menjadi masalah. Namun, karena ada prosedur yang perlu dilakukan, kami ingin Kamu menunggu sepanjang hari."
+celia "Tentu saja. Karena Kamu menyelamatkan seluruh kota, itu tidak akan menjadi masalah. tapi, karena ada prosedur yang perlu dilakukan, kami ingin Kamu menunggu sepanjang hari."
 
-"Dalam hal ini, silakan lakukan."
+ain "tidak masalah."
 
-"Mengenai hadiah resolusi penyerbuan, ini akan memakan waktu sekitar beberapa hari tetapi akan itu baik-baik saja denganmu?"
+celia "Mengenai hadiah mengatasi penyerbuan, ini akan memakan waktu sekitar beberapa hari tetapi apakah tidak masalah denganmu?"
 
-"Itu tidak akan baik-baik saja."
+ain "itu akan menjadi masalah."
 
-Lagipula, aku tahu bahwa meskipun kita tinggal di kota ini, kita hanya akan diperlakukan dengan hati-hati.
+Lagipula, aku tahu bahwa meskipun kami tinggal di kota ini, kami hanya akan diperlakukan dengan hati-hati.
 
 Aku lebih suka kenyamanan daripada uang.
 
-"Tidak akan baik-baik saja, jadi Aku hanya akan mengambil apa yang bisa disiapkan sampai besok."
+ain "itu tidak akan berjalan baik, jadi Aku hanya akan mengambil apa yang bisa disiapkan sampai besok."
 
-"Jadi, Kamu akan meninggalkan kota besok?"
+celia "Jadi, Kamu akan meninggalkan kota besok?"
 
-"Tentu. Bagaimanapun, Aku sudah peringkat C dan mungkin akan merasa tidak nyaman untuk tinggal di kota ini."
+ain "Tentu. Aku sudah rank C dan mungkin akan merasa tidak nyaman untuk tinggal di kota ini."
 
-"Dimengerti. Kalau begitu tolong datang ke Hunter Guild besok pagi. Terima kasih atas kerja sama Kamu untuk menyelesaikan penyerbuan ini."
+celia "baiklah. Kalau begitu tolong datang ke guild Hunter besok pagi. Terima kasih atas kerja samamu untuk menyelesaikan penyerbuan ini."
 
-Setelah menerima busur tertib Celia-san , aku meninggalkan gedung guild dengan hati-hati.
+Setelah Celia-san membungkuk, aku meninggalkan gedung guild dengan hati-hati.
 
-Awalnya kami tidak punya rencana, tapi sekarang kami tidak bisa berbuat apa-apa di sore hari.
+bukannya kami punya rencana apa-apa, tapi sekarang kami tidak bisa berbuat apa-apa di sore hari.
 
 Karena berjalan-jalan di sekitar kota mungkin tidak akan menjadi pertanda baik, Aku memutuskan untuk bersembunyi di kamar kami.
 
 ◇
 
-Ketika Aku kembali ke kamar kami, Aku memberikan tubuh itu kembali ke Ciel dan, setelah melihat beberapa keraguan di wajahnya, dia melompat ke tempat tidur.
+Ketika Aku kembali ke kamar kami, Aku memberikan tubuh kembali ke Ciel dan, setelah melihat beberapa keraguan di wajahnya, dia melompat ke tempat tidur.
 
 Kasurnya menyenangkan seperti biasa.
 
