@@ -178,56 +178,56 @@ Ciel tersenyum, tetapi Aku benar-benar tidak yakin bagaimana Aku harus bereaksi 
 
 Keesokan harinya, tepat saat matahari akan terbit, Aku meninggalkan penginapan.
 
-Tercerahkan dengan kenyamanan mutlak dari tempat tidur, Ciel masih mengantuk tetapi karena dia berkedip saat dalam keadaan linglung hanya menggemaskan dalam dan dari dirinya sendiri, semuanya baik-baik saja.
+bangun dengan kenyamanan mutlak dari tempat tidur, Ciel masih mengantuk tetapi karena dia berkedip saat dalam keadaan linglung hanya membuatnya menjadi menggemaskan, itu tidakmasalah.
 
 Meskipun mungkin tidak ada yang baik tentang itu dari sudut pandang Ciel.
 
-Tidak ada diskusi apa pun tentang ini, tetapi saat ini masih sangat awal, ketika para Hunter belum datang, Guild Hunter sudah terbuka dan Celia-san sedang menunggu di sana bersama dengan Carol-san .
+Tidak ada diskusi apa pun tentang ini, tetapi sekarang masih sangat pagi, ketika para Hunter belum datang, Guild Hunter sudah terbuka dan Celia-san sedang menunggu di sana bersama dengan Carol-san.
 
-"Maaf membuatmu menunggu."
+celia "Maaf membuatmu menunggu."
 
-"Aku juga, maaf telah merepotkanmu sepagi ini."
+ain "Aku juga, maaf telah merepotkanmu sepagi ini."
 
-"Jangan khawatir tentang itu. Ini adalah masalah di pihak kota. Sekarang, tanpa penundaan lebih lanjut, ini akan menjadi kartu peringkat C."
+celia "Jangan khawatir tentang itu. Ini adalah masalah di pihak kota. Sekarang, tanpa penundaan lebih lanjut, ini akan menjadi kartu rank C."
 
-"Terima kasih banyak."
+ain "Terima kasih banyak."
 
 Kartu yang Aku terima memiliki huruf C tertulis di atasnya. Lingkaran sihir di belakang sepertinya tidak memiliki perbedaan besar.
 
 Kemudian setelah melihat lebih dekat, keduanya tampak berbeda dari biasanya. Mereka terlihat seperti akan pergi.
 
-"Celia-san , Carol-san , apakah kamu akan kembali ke markas?"
+ain "Celia-san, Carol-san , apakah kalian akan kembali ke guild utama?"
 
-"Itu benar. Kami sudah menyelesaikan apa yang perlu kami lakukan di kota ini. Dengan itu, Cielmer-san , lain kali kita akan bertemu satu sama lain adalah setelah Kamu dipromosikan ke peringkat B."
+celia "benar. Kami sudah menyelesaikan apa yang perlu kami lakukan di kota ini. Dengan itu, Cielmer-san, berikutnya kita akan bertemu ketika setelah Kamu dipromosikan ke rank B."
 
-"Dan berkat seseorang tertentu, kami punya banyak hal untuk dilaporkan, Kamu tahu ?"
+carol "Dan berkat seseorang tertentu, kami punya banyak hal untuk dilaporkan, Kamu tahu ?"
 
-"Meskipun sama sekali tidak ada yang bisa Aku lakukan tentang itu, tolong lakukan yang terbaik."
+ain "Meskipun sama sekali tidak ada yang bisa Aku lakukan tentang itu, tolong lakukan yang terbaik."
 
-Pekerjaan mereka sama sekali bukan urusan kita dan akan sangat membantu jika mereka berdua kembali ke markas.
+Pekerjaan mereka sama sekali bukan urusan kami dan akan sangat membantu jika mereka berdua kembali ke guild utama.
 
-"Juga, ini akan menjadi hadiah untuk menangani penyerbuan."
+celia "dan Juga, ini hadiah untuk menangani penyerbuan."
 
-Kantong yang diberikan kepada Aku sepertinya penuh tetapi Aku mengabaikannya dan memasukkannya ke dalam dompet kami.
+Kantong yang diberikan kepadaku sepertinya penuh tetapi Aku mengabaikannya dan memasukkannya ke dalam dompet kami.
 
-Memeriksa konten tidak akan benar-benar meningkatkan jumlahnya, dan kami juga tidak memiliki masalah uang.
+Memeriksa isinya tidak akan benar-benar meningkatkan jumlahnya, dan kami juga tidak memiliki masalah uang.
 
-"Benar, terima kasih. Kalau begitu, Aku harus pergi sekarang."
+ain "baiklah, terima kasih. Kalau begitu, Aku harus pergi sekarang."
 
-Aku ingin pergi sebelum Hunter lain tiba, jadi setelah perpisahan singkat, Aku meninggalkan Hunter Guild.
+Aku ingin pergi sebelum Hunter lain tiba, jadi setelah perpisahan singkat, Aku meninggalkan guild Hunter.
 
-Ini hanya akan merepotkan jika kita mendapatkan pesta pengiriman dan sebagainya, tapi yang terpenting, begitulah cara Hunter.
+Ini hanya akan merepotkan jika kami mendapatkan pesta perpisahan atau semacamnya, tapi yang terpenting, begitulah Hunter.
 
 Sangat umum mendengar orang pergi dari kota ke kota untuk mencari pekerjaan. Kamu tidak akan bertahan lama sebagai Hunter jika Kamu terus mengkhawatirkan setiap ucapan selamat tinggal.
 
-[Sudah lama sejak terakhir kita berdua saja, Ain.]
+ciel [Sudah lama sejak terakhir kita berdua saja, Ain.]
 
-[Itu benar. Jadi, apa yang harus kita lakukan?]
+ain [iya. Jadi, apa yang harus kita lakukan?]
 
-[Hanya dengan Ain tanpa ada yang menyela sudah membuatku bahagia? Aku dapat berbicara dengan Ain sebanyak yang Aku inginkan, bukan?]
+ciel [Hanya dengan Ain tanpa ada yang menyela sudah membuatku bahagia? Aku dapat berbicara dengan Ain sebanyak yang Aku inginkan, kan?]
 
-[Kita juga bisa bernyanyi dan menari sebanyak yang kita bisa.]
+ain [Kita juga bisa bernyanyi dan menari sebanyak yang kita bisa.]
 
-[Itu sangat indah.]
+ciel [Itu sangat menyenangkan.]
 
-Meskipun Aku senang melihat Ciel tampak senang tanpa ada pikiran berlama-lama tentang meninggalkan kota, mungkin Aku tidak bertanggung jawab, tetapi Aku tidak bisa menahan diri untuk berpikir: Ini juga masalah, bukan?
+Meskipun Aku senang melihat Ciel tampak senang tanpa ada pikiran berlama-lama untuk meninggalkan kota, mungkin Aku tidak bertanggung jawab, tetapi Aku tidak bisa menahan diri untuk berpikir: Ini juga masalah, kan?
