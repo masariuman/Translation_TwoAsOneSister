@@ -96,82 +96,82 @@ Kasurnya menyenangkan seperti biasa.
 
 Aku merasakan tubuh Ciel berangsur-angsur mengendur dan, berpikir bahwa dia mungkin merasakan hal yang sama sepertiku, itu membuatku geli.
 
-[Jadi kita akan meninggalkan kota besok, kan?]
+ciel [Jadi kita akan meninggalkan kota besok, kan?]
 
-[Akan lebih baik jika kita pergi. Kami sama sekali tidak punya alasan untuk tinggal.]
+ain [Akan lebih baik jika kita pergi. kita sama sekali tidak punya alasan untuk tinggal.]
 
-[Rasanya sedikit ... tidak ramah. Pertama-tama, kami memutuskan untuk tinggal di sini hanya untuk mencapai peringkat-C, jadi mau bagaimana lagi.]
+ciel [Rasanya sedikit ... tidak ramah. yaaah, pada dasarnya, kita memutuskan untuk tinggal di sini hanya untuk mencapai rank-C, jadi mau bagaimana lagi.]
 
-[Apakah kamu ingin tinggal lebih lama lagi?]
+ain [Apakah kamu ingin tinggal lebih lama lagi?]
 
-[Bukan itu maksudku. Aku akan menjadi orang yang paling banyak bergerak di kota berikutnya dan sekitarnya, kan Ain?]
+ciel [Bukan itu maksudku. Aku akan menjadi orang yang paling banyak bergerak di kota berikutnya dan seterusnya, kan Ain?]
 
-[Kamu merasa gugup kalau begitu.]
+ain [Kamu hanya merasa gugup kalau begitu.]
 
-[Bisakah aku melakukannya sebaik Ain?]
+ciel [Bisakah aku melakukannya sebaik Ain?]
 
-[Mengabaikan masalah apakah aku benar-benar melakukannya dengan baik atau tidak untuk saat ini, Kamu tidak perlu meniru Aku, oke Ciel? Meskipun Kamu tidak boleh membunuh orang tanpa pandang bulu, menghancurkan sesuatu, atau membatalkan permintaan, jika Kamu tidak ingin berbicara dengan orang Ciel, Kamu dapat memilih untuk tidak melakukannya. Selain itu, Aku akan mendukung Kamu jika diperlukan. Dan, mari kita lihat... aku akan bertanggung jawab untuk berbicara dengan laki-laki, oke?]
+ain [Mengabaikan masalah apakah aku benar-benar melakukannya dengan baik atau tidak untuk saat ini, Kamu tidak perlu meniruku, oke Ciel? Meskipun Kamu tidak boleh membunuh orang tanpa pandang bulu, menghancurkan sesuatu, atau membatalkan permintaan, jika Kamu tidak ingin berbicara dengan orang Ciel, Kamu dapat memilih untuk tidak melakukannya. Selain itu, Aku akan mendukungmu jika diperlukan. Dan... aku akan bertanggung jawab untuk berbicara dengan laki-laki, oke?]
 
 Dengan keengganan Ciel pada laki-laki, menyerahkan segalanya padanya akan menjadi rumit.
 
-Meskipun dia masih terlihat agak gugup, dia sepertinya setuju dengan itu dan percakapan kami berakhir di sana.
+Meskipun dia masih terlihat agak gugup, dia sepertinya setuju dengan itu dan percakapan kami berakhir.
 
 Setelah itu, Ciel dan Aku bebas melakukan apa yang kami inginkan.
 
-Meskipun kami selalu bersama satu sama lain, tidak seperti kami berbicara sepanjang hari dan selalu melakukan hal yang sama. Karena semua yang Aku lakukan adalah penelitian tentang sihir, dan Aku tidak bisa berhenti bernyanyi sambil melakukannya, sangat umum bagi Ciel untuk secara alami menggerakkan tubuhnya ke lagu.
+Meskipun kami selalu bersama-sama, kami tidak selalu berbicara sepanjang hari dan selalu melakukan hal yang sama. Karena semua yang Aku lakukan adalah penelitian tentang sihir, dan Aku tidak bisa berhenti bernyanyi sambil melakukannya, dan Ciel secara alami menggerakkan tubuhnya mengikuti lagu.
 
 ◇
 
-"Entah bagaimana, sudah lama sejak kita melewatkan waktu seperti ini bahkan hanya setengah hari."
+ciel [Entah bagaimana, rasanya sudah lama sekali kita melewatkan waktu seperti ini bahkan hanya setengah hari.]
 
-[Meskipun seharusnya baru beberapa waktu yang lalu ketika kita menghabiskan setiap hari seperti ini.]
+ain [padahal baru beberapa waktu yang lalu ketika kita menghabiskan setiap hari seperti ini.]
 
-Ciel memulai percakapan dengan Aku dan Aku kira dia terkejut bahwa itu berubah menjadi malam dalam waktu singkat.
+Ciel memulai percakapan denganku dan Aku kira dia terkejut semuanya itu berubah menjadi malam dalam waktu singkat.
 
 Kami menghabiskan hari itu tidak jauh berbeda dari yang kami lakukan di mansion, tapi aku belum pernah melihat Ciel terlihat sedamai dia sekarang dan itu membuatku sedikit emosional.
 
-Bagaimanapun, kami terus-menerus harus mempersiapkan diri kembali di mansion. Bahkan dengan itu, Aku tidak terlalu jauh berbeda dari apa yang Aku lakukan saat itu.
+Bagaimanapun juga, kami terus-menerus harus mempersiapkan diri waktu di mansion. Aku tidak terlalu jauh berbeda dari apa yang Aku lakukan saat itu.
 
 Sambil bermalas-malasan di tempat tidur, Ciel terus mengobrol denganku.
 
-"Ini akan memakan waktu lama sebelum kita menjadi peringkat-B, kan?"
+ciel [Ini akan memakan waktu lama sebelum kita menjadi rank-B, kan?]
 
-[Mungkin akan lebih baik berpikir bahwa itu tidak akan terjadi sampai kita berusia 15 tahun.]
+ain [Mungkin akan lebih baik berpikir kalau itu tidak akan terjadi sampai kita berusia 15 tahun.]
 
-"Selama waktu itu, apakah pria itu akan berperilaku sendiri?"
+ciel [Selama waktu itu, apakah pria itu akan bergerak sendiri?]
 
-[Kemungkinan besar tidak. Aku tidak tahu apa tujuannya, tetapi bagi Aku tampaknya kami hanyalah salah satu caranya untuk mencapainya.]
+ain [Kemungkinan besar tidak. Aku tidak tahu apa tujuannya, tetapi bagiku tampaknya kita hanyalah salah satu caranya untuk mencapainya.]
 
-"Aku tidak begitu yakin dengan cara kerja negara, tetapi apakah negara ini baik-baik saja?
-Pria itu berada pada posisi yang sangat tinggi, kan?"
+ciel [Aku tidak begitu yakin dengan cara kerja negara, tetapi apakah negara ini baik-baik saja? Pria itu berada pada posisi yang sangat tinggi, kan?]
 
-[Menilai dari rumor yang beredar, seharusnya tidak apa-apa karena dia sepertinya tidak melakukan hal buruk akhir-akhir ini, setidaknya di permukaan. Ini hanya berdasarkan gambaranku tentang mereka, tapi menurutku para bangsawan biasa melakukan sesuatu di balik layar. Apa yang orang itu rencanakan mungkin belum tentu menghancurkan negara. Dan bahkan jika itu adalah sesuatu yang buruk, negara ini kemungkinan tidak akan runtuh sebelum kita bisa melarikan diri.]
+ain [Menilai dari rumor yang beredar, seharusnya tidak apa-apa karena dia sepertinya tidak melakukan hal buruk akhir-akhir ini, setidaknya di luarnya saja. Ini hanya berdasarkan gambaranku tentang mereka, tapi menurutku para bangsawan biasa melakukan sesuatu di balik layar. Apa yang orang itu rencanakan mungkin belum tentu menghancurkan negara. Dan bahkan jika itu adalah sesuatu yang buruk, negara ini kemungkinan tidak akan runtuh sebelum kita bisa melarikan diri.]
 
-"Sebaliknya, bukankah negara ini akan runtuh membuatnya lebih mudah untuk melarikan diri?"
+ciel [bukankah kalau negara ini runtuh membuat kita lebih mudah melarikan diri?]
 
-[Itu juga sangat mungkin.]
+ain [itu juga kemungkinan lainnya.]
 
-Dalam kasus terburuk, kami mungkin ditangkap dari percakapan ini tetapi Aku sudah memastikan bahwa tidak ada orang di sekitar kami.
+Dalam kasus terburuk, kami mungkin ditangkap karena percakapan ini tetapi Aku sudah memastikan bahwa tidak ada orang di sekitar kami.
 
-Aku ingin menjadi cukup kuat untuk menang melawan suatu negara suatu hari nanti, tapi seperti kita sekarang, ini akan menjadi Game Over jika kita bertemu dengan beberapa orang sekelas Carol-san .
+Aku ingin menjadi cukup kuat untuk menang melawan suatu negara suatu hari nanti, tapi untuk kami sekarang, ini akan menjadi Game Over jika kami bertemu dengan beberapa orang sekelas Carol-san.
 
-Aku pikir menjadi seperti naga atau sesuatu akan ideal sampai batas tertentu. Karena, meskipun mereka memiliki kekuatan untuk menghancurkan suatu negara, mereka ditinggalkan sendirian karena tidak menyerang orang.
+Aku pikir menjadi seperti naga atau sejenisnya akan ideal sampai batas tertentu. Karena, meskipun mereka memiliki kekuatan untuk menghancurkan suatu negara, mereka ditinggalkan sendirian karena tidak menyerang orang.
 
-Terlepas dari hal naga, selama kita menjadi cukup kuat sehingga kita tidak bisa ditangkap dan dibunuh bahkan setelah melakukan lèse-majesté, itu sudah cukup.
+Terlepas dari hal naga, selama kita menjadi cukup kuat sehingga kita tidak bisa ditangkap dan dibunuh bahkan setelah melakukan +lèse-majesté, itu sudah cukup.
 
 Jika Aku bisa membuat penghalang yang begitu kuat sehingga tidak ada makhluk yang bisa menyentuhnya, Ciel seharusnya aman di mana pun dia berada atau apa pun yang dia lakukan.
 
-Aku tahu itu benar-benar berlebihan, tapi tidak ada ruginya memiliki gol.
+Aku tahu itu benar-benar berlebihan, tapi tidak ada ruginya memiliki tujuan.
 
-"Kalau dipikir-pikir, Ain. Kamu bukan dewa, kan?"
+ciel [Kalau dipikir-pikir, Ain. Kamu bukan dewa, kan?]
 
-[Aku bukan, tapi kenapa pertanyaannya tiba-tiba?]
+ain [bukan, kenapa tiba-tiba bertanya seperti itu?]
 
-"Aku hanya sedikit penasaran."
+ciel [Aku hanya sedikit penasaran.]
 
-[Begitu. Tetap saja, jika aku adalah dewa, aku akan bisa menyelamatkan Ciel dengan cara yang jauh lebih keren, kurasa.]
+ain [Begitu ya. Tetap saja, jika aku adalah dewa, aku akan bisa menyelamatkan Ciel dengan cara yang jauh lebih keren, kurasa.]
 
-"Kalau begitu, aku senang Ain bukan dewa."
+ciel [Kalau begitu, aku senang kalau Ain bukan dewa.]
+
 Ciel tersenyum, tetapi Aku benar-benar tidak yakin bagaimana Aku harus bereaksi terhadap itu.
 
 ◇
