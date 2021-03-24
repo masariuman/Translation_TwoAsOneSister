@@ -2,57 +2,57 @@ CHAPTER 40: C-RANK, SHUTTING IN, AND DEPARTURE
 
 Setelah penyerbuan selesai, kami dengan santai kembali ke Sannois.
 
-Menurut Carol- san , fakta bahwa penyerbuan terjadi dan sudah berakhir harus sudah diketahui. Karenanya, seharusnya tidak terlalu kacau di kota.
+Menurut Carol-san, fakta kalau penyerbuan terjadi dan sudah berakhir harusnya sudah diketahui. jadi, seharusnya tidak terlalu kacau di kota.
 
-Aku ragu tentang itu karena itu masih belum berakhir ketika Carol- san tiba, tapi kemudian dia menjawab dengan"Kamu benar-benar berpikir begitu setelah melakukan itu?"Karena dia terkejut.
+Aku ragu karena itu masih belum berakhir ketika Carol-san tiba, tapi kemudian dia menjawab dengan "Kamu benar-benar berpikir begitu setelah melakukan semua itu?" dengan terkejut.
 
-Untuk melawan penyerbuan, harus ada persiapan yang dilakukan di luar kota, di mana mereka akan menangkisnya. Karena tidak ada tanda-tanda itu terjadi, Aku kira ini berarti ada instruksi untuk berhenti.
+Untuk melawan penyerbuan, harus ada persiapan yang dilakukan di luar kota, di mana mereka akan menahannya. Karena tidak ada tanda-tanda itu terjadi, Aku kira ini berarti ada instruksi untuk berhenti.
 
 Kami melewati gerbang dan memasuki kota tetapi untuk beberapa alasan, segalanya terasa berbeda dari biasanya.
 
-Orang-orang tampak canggung, menatap Aku tetapi kemudian dengan cepat membuang muka.
+Orang-orang tampak canggung, menatapku tetapi kemudian dengan cepat membuang muka.
 
 Apakah Aku telah melakukan sesuatu? Yah, tentu saja, menyelesaikan penyerbuan memang dihitung sebagai melakukan sesuatu, tapi reaksi itu bukanlah yang kuharapkan.
 
-Tepat ketika aku tidak tahan lagi, Carol- san sepertinya telah memperhatikan sesuatu, mengatakan"Kita akan ke Celia."Dan kemudian menuntun tanganku.
+Tepat ketika aku tidak tahan lagi, Carol-san sepertinya telah menyadari sesuatu, mengatakan "Kita langsung ke Celia." Dan kemudian menuntun tanganku.
 
 ◇
 
 Di Hunter Guild, sebagian besar tatapan terasa lebih bersahabat tetapi masih tidak nyaman.
 
-Tetap saja, selama kita menjadi peringkat-C setelah ini, kita tidak harus tinggal di kota ini, jadi itu bukan masalah.
+Tetap saja, selama kami menjadi rank-C setelah ini, kami tidak harus tinggal di kota ini, jadi itu bukan masalah.
 
-Menemukan Celia- san , kami melalui jalan setapak yang sudah biasa menuju ke gerai.
+Menemukan Celia-san, kami menuju ke ruangan kami biasanya.
 
-"Apa yang terjadi di sini?"
+carol "Apa yang terjadi di sini?"
 
-"Meskipun Aku tidak bisa mengatakan hal yang sama untuk Kamu, Carol, Kamu harus diberi tahu tentang ini, Cielmer- san ."
+celia "Meskipun Aku tidak bisa mengatakan hal yang sama untukmu, Carol, Kamu harus diberi tahu tentang ini, Cielmer-san."
 
-"Jika itu adalah sesuatu yang mengkhawatirkan Aku, Aku sangat ingin tahu."
+ain "Jika itu adalah sesuatu yang berhubungan denganku, Aku sangat ingin tahu."
 
-Dengan kata pengantar itu, Celia- san mulai menjelaskan.
+Dengan kata pengantar itu, Celia-san mulai menjelaskan.
 
-Singkatnya, tampaknya orang-orang yang memiliki dendam terhadap Aku — dengan Alejo sebagai pusatnya — bekerja sama untuk mencoba menjebak Aku atas penyerbuan hari ini.
+Singkatnya, tampaknya orang-orang yang memiliki dendam terhadapku — dengan Alejo sebagai pusatnya — bekerja sama untuk mencoba menjebakku atas penyerbuan hari ini.
 
-Aku mengharapkan bagian itu, tapi sepertinya mereka mencoba menjebakku dengan mengatakan bahwa aku adalah Putri Lagu atau semacamnya. Motif mereka untuk itu adalah karena mereka kehilangan muka dan diturunkan pangkatnya karena Aku.
+Aku sudah memprediksi bagian itu, tapi sepertinya mereka mencoba menjebakku dengan mengatakan bahwa aku adalah song princess atau semacamnya. Motif mereka untuk itu adalah karena repurtasi mereka kacau dan ranknya diturunkan karena Aku.
 
-Namun, karena mereka mencoba merusak reputasi Aku tanpa bukti atau alasan yang sah, diputuskan bahwa mereka akan dihukum oleh guild.
+tapi, karena mereka mencoba merusak reputasiku tanpa bukti atau alasan yang sah, hasil diputuskan mereka akan dihukum oleh guild.
 
-Selain itu, karena memproduksi dan menggunakan umpan monster secara ilegal — obat yang menarik monster — mereka ditangkap oleh para ksatria wilayah.
+Selain itu, karena memproduksi dan menggunakan umpan monster secara ilegal — obat yang menarik monster — mereka ditangkap oleh para knight.
 
-Sepertinya Hunter Guild juga memperhatikan gerakan mencurigakan Alejo, tetapi dia secara mengejutkan menggunakan kepalanya dan meminta komplotannya mengumpulkan bahan-bahan yang dibutuhkan untuk membuat monster itu memikat hanya satu per satu.
+Sepertinya guild Hunter juga memperhatikan gerakan mencurigakan Alejo, tetapi dia secara mengejutkan menggunakan kepalanya dan meminta komplotannya mengumpulkan bahan-bahan yang dibutuhkan untuk membuat obat itu.
 
-Karena sebagian besar material adalah herbal atau digunakan untuk item sihir, tidak ada masalah jika hanya memiliki satu dari material ini dengan sendirinya. Jadi, karena kurangnya bukti yang kuat, guild tidak dapat mengambil tindakan. Kali ini, sepertinya mereka bisa menangkap mereka berkat termos yang Aku kirimkan.
+Karena sebagian besar material adalah herb atau digunakan untuk item sihir, tidak ada masalah jika hanya memiliki satu dari material ini dengan sendirinya. Jadi, karena kurangnya bukti yang kuat, guild tidak dapat mengambil tindakan. Kali ini, sepertinya mereka bisa menangkap mereka berkat termos yang Aku kirimkan.
 
-Kebetulan, jika seorang pedagang akan membawa semua bahan ini, mereka memerlukan izin khusus untuk melakukannya.
+jika seorang pedagang akan membawa semua bahan ini, mereka memerlukan izin khusus untuk melakukannya.
 
 Sementara mereka mampu menghasilkan umpan monster secara rahasia dengan mempertimbangkan semua itu, rencana mereka secara keseluruhan benar-benar ceroboh.
 
-Mereka masih di tengah-tengah interogasi tetapi tampaknya rencananya adalah untuk mengelilingi Aku ketika Aku kembali setelah melarikan diri dari penyerbuan, mengancam Aku dengan menyalahkan Aku, dan kemudian mengambil uang Aku atau sesuatu.
+Mereka masih di tengah-tengah interogasi tetapi tampaknya rencananya adalah untuk mengelilingiku ketika Aku kembali setelah melarikan diri dari penyerbuan, mengancamku dengan menyalahkanku, dan kemudian mengambil uangku atau semacamnya.
 
-Ketika Aku bertanya apakah itu benar-benar mungkin, Aku diberitahu bahwa jika mereka bisa menjadikan Aku sebagai Putri Song, kemungkinan penduduk kota akan berpihak pada geng Alejo dan mereka mungkin bisa berhasil.
+Ketika Aku bertanya apakah itu benar-benar mungkin terjadi, Aku diberitahu bahwa jika mereka bisa membuktikanku sebagai song princess, kemungkinan penduduk kota akan berpihak pada Alejo dan mereka mungkin bisa berhasil.
 
-Namun kali ini, tampaknya semuanya tidak berjalan sesuai rencana karena aku tidak kembali ke kota, tetapi karena penduduk kota memihak Alejo setelah dia berteriak bahwa aku adalah Putri Song, mereka sekarang merasa canggung ketika berada di sekitarku.
+tapi kali ini, tampaknya semuanya tidak berjalan sesuai rencana karena aku tidak kembali ke kota, tetapi karena penduduk kota memihak Alejo setelah dia berteriak bahwa aku adalah song princess, mereka sekarang merasa canggung ketika berada di sekitarku.
 
 Meskipun Aku benar-benar seorang Putri Lagu, Aku yakin bahwa Aku tidak melakukan apa pun yang akan mengekspos Aku. Seperti yang diharapkan, Aku menjadi korban fitnah yang tidak dapat dibenarkan karena tidak ada bukti tentang masalah tersebut.
 
@@ -82,7 +82,7 @@ Aku lebih suka kenyamanan daripada uang.
 
 "Dimengerti. Kalau begitu tolong datang ke Hunter Guild besok pagi. Terima kasih atas kerja sama Kamu untuk menyelesaikan penyerbuan ini."
 
-Setelah menerima busur tertib Celia- san , aku meninggalkan gedung guild dengan hati-hati.
+Setelah menerima busur tertib Celia-san , aku meninggalkan gedung guild dengan hati-hati.
 
 Awalnya kami tidak punya rencana, tapi sekarang kami tidak bisa berbuat apa-apa di sore hari.
 
@@ -153,7 +153,7 @@ Pria itu berada pada posisi yang sangat tinggi, kan?"
 
 Dalam kasus terburuk, kami mungkin ditangkap dari percakapan ini tetapi Aku sudah memastikan bahwa tidak ada orang di sekitar kami.
 
-Aku ingin menjadi cukup kuat untuk menang melawan suatu negara suatu hari nanti, tapi seperti kita sekarang, ini akan menjadi Game Over jika kita bertemu dengan beberapa orang sekelas Carol- san .
+Aku ingin menjadi cukup kuat untuk menang melawan suatu negara suatu hari nanti, tapi seperti kita sekarang, ini akan menjadi Game Over jika kita bertemu dengan beberapa orang sekelas Carol-san .
 
 Aku pikir menjadi seperti naga atau sesuatu akan ideal sampai batas tertentu. Karena, meskipun mereka memiliki kekuatan untuk menghancurkan suatu negara, mereka ditinggalkan sendirian karena tidak menyerang orang.
 
@@ -182,7 +182,7 @@ Tercerahkan dengan kenyamanan mutlak dari tempat tidur, Ciel masih mengantuk tet
 
 Meskipun mungkin tidak ada yang baik tentang itu dari sudut pandang Ciel.
 
-Tidak ada diskusi apa pun tentang ini, tetapi saat ini masih sangat awal, ketika para Hunter belum datang, Guild Hunter sudah terbuka dan Celia- san sedang menunggu di sana bersama dengan Carol- san .
+Tidak ada diskusi apa pun tentang ini, tetapi saat ini masih sangat awal, ketika para Hunter belum datang, Guild Hunter sudah terbuka dan Celia-san sedang menunggu di sana bersama dengan Carol-san .
 
 "Maaf membuatmu menunggu."
 
@@ -196,9 +196,9 @@ Kartu yang Aku terima memiliki huruf C tertulis di atasnya. Lingkaran sihir di b
 
 Kemudian setelah melihat lebih dekat, keduanya tampak berbeda dari biasanya. Mereka terlihat seperti akan pergi.
 
-"Celia- san , Carol- san , apakah kamu akan kembali ke markas?"
+"Celia-san , Carol-san , apakah kamu akan kembali ke markas?"
 
-"Itu benar. Kami sudah menyelesaikan apa yang perlu kami lakukan di kota ini. Dengan itu, Cielmer- san , lain kali kita akan bertemu satu sama lain adalah setelah Kamu dipromosikan ke peringkat B."
+"Itu benar. Kami sudah menyelesaikan apa yang perlu kami lakukan di kota ini. Dengan itu, Cielmer-san , lain kali kita akan bertemu satu sama lain adalah setelah Kamu dipromosikan ke peringkat B."
 
 "Dan berkat seseorang tertentu, kami punya banyak hal untuk dilaporkan, Kamu tahu ?"
 
