@@ -186,23 +186,34 @@ Dan seperti yang dia lakukan, Aku akhirnya tertawa juga.
 
 ◇
 
-Keesokan paginya, Ciel berangkat ke guild. Karena kami meninggalkan kota, kami berencana menerima permintaan pendamping jika ada yang tersedia saat kami melakukannya.
-Bagi Hunter, waktu yang dihabiskan untuk bepergian setara dengan waktu tidak bekerja. Karena itu, Hunter biasanya akan menerima permintaan pengawalan saat bepergian dari kota.
-Sebelum sampai di sini, kami sudah mengantar beberapa pedagang juga, tapi karena sering kali tidak sesuai dengan kenyamanan kami, praktis tergantung keberuntungan.
-Daripada menunggu permintaan pendamping, prioritas kami adalah tetap pada jadwal.
+Keesokan paginya, Ciel berangkat ke guild. Karena kami meninggalkan kota, kami berencana menerima permintaan pengawalan jika masih ada yang tersedia.
 
-"Cielmer- san , kamu akan pergi hari ini kan?"
-"Mn . Benar. "
-" Sayangnya, semua permintaan pendamping menuju ibukota kerajaan semuanya sudah dipesan. "
-" Kalau begitu, mau bagaimana lagi. "
-" Jadi, maukah kamu menunda- ...... "
-" Tidak. Sampai jumpa. "
+Bagi Hunter, waktu yang dihabiskan untuk bepergian setara dengan waktu tidak bekerja. Karena itu, Hunter biasanya akan menerima permintaan pengawalan saat bepergian dari kota.
+
+Sebelum sampai di sini, kami sudah mengantar beberapa pedagang juga, tapi karena sering kali tidak sesuai dengan kenyamanan kami, yaaah itu tergantung keberuntungan.
+
+Daripada menunggu permintaan pengawalan, prioritas kami tetap yang utama.
+
+"Cielmer-san , kamu akan pergi hari ini kan?"
+
+ciel "Mn. Benar."
+
+"Sayangnya, semua permintaan pengawalan menuju ibukota kerajaan semuanya sudah dipesan."
+
+ciel "kalau begitu, tidak masalah."
+
+"Jadi, maukah kamu menunda- ......"
+
+ciel "Tidak. Sampai jumpa."
 
 Melihat Ciel memasuki guild, wanita resepsionis itu berbicara dengannya.
-Meskipun senang dia memberi tahu kami bahwa permintaan yang kami inginkan tidak tersedia, sayangnya untuknya, bahkan jika dia ingin kami tetap tinggal, kami tidak akan berhenti. Karena pertukaran semacam ini tidak biasa, Ciel keluar dari gedung yang tampaknya sudah terbiasa.
 
-Meskipun tentang cara berbicara Ciel, dia mulai berbicara seperti karakter pendiam yang menyendiri itu sebelum aku menyadarinya.
-Yah, itu salahku karena mengatakan 『Jika kamu kesulitan berbicara, bagaimana kalau mencoba untuk menjaga kata-katamu seminimal mungkin?』 Beberapa waktu sebelumnya.
-Jika ini menyebabkan masalah maka Aku hanya perlu melindungi dia. Paling buruk, kami juga memiliki opsi untuk melarikan diri dengan penghalang dengan kecepatan penuh.
+Meskipun itu bagus dia memberi tahu kami bahwa permintaan yang kami inginkan tidak tersedia, sayangnya untuknya, bahkan jika dia ingin kami tetap tinggal, kami tidak akan berhenti. Karena hal semacam ini sudah biasa, Ciel keluar dari gedung tampaknya sudah terbiasa.
 
-Bagaimanapun, kami berjalan dengan ibukota kerajaan dalam pandangan kami.
+tentang cara berbicara Ciel, dia mulai berbicara seperti karakter pendiam yang menyendiri itu tanpa kusadari.
+
+Yah, itu salahku karena mengatakan "Jika kamu kesulitan berbicara, bagaimana kalau mencoba untuk menjaga kata-katamu seminimal mungkin?" Beberapa waktu sebelumnya.
+
+Jika ini menyebabkan masalah maka Aku hanya perlu melindunginya. keaadaan terburuknya, kami juga memiliki opsi untuk melarikan diri dengan +BARRIER dengan kecepatan penuh.
+
+Bagaimanapun juga, kami berjalan dengan ibukota kerajaan dalam kemauan kami sendiri.
