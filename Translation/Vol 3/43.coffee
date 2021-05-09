@@ -50,15 +50,15 @@ Mengingat Ciel sudah bertekad, seharusnya tidak masalah untuk mencobanya.
 
 Ciel tampaknya memiliki alasannya sendiri dan sangat tidak biasa baginya untuk mengatakan hal-hal seperti itu juga.
 
-Saat Aku terus mengobrol dengan Ciel sambil membiarkan cerita Anicet keluar dari telinga Aku yang lain, kami berhenti di depan sebuah bangunan yang memiliki keindahan porselen putih.
+Saat Aku terus mengobrol dengan Ciel sambil membiarkan cerita Anicet keluar dari telingaku yang lain, kami berhenti di depan sebuah bangunan yang memiliki keindahan porselen putih.
 
 Meskipun terlihat seperti penginapan yang mahal, sepertinya tidak ditujukan untuk para bangsawan. Tampaknya menargetkan rakyat jelata yang ingin berbelanja secara mewah.
 
-"Benar, benar, ini penginapannya. Aku berteman dengan pemilik di sini. Biasanya akan mahal untuk tinggal di sini, tetapi jika hanya satu malam, mereka bisa membiarkan Kamu tinggal secara gratis."
+anicet "Benar, benar, ini penginapannya. Aku berteman dengan pemilik di sini. Biasanya akan mahal untuk tinggal di sini, tetapi jika hanya satu malam, mereka bisa membiarkan Kamu tinggal secara gratis."
 
-a"Itu luar biasa. Meskipun itu penginapan yang luar biasa. "
+ain "Itu luar biasa. Meskipun itu penginapan yang luar biasa."
 
-"Hahaha. seperti itulah. yaah, masuklah ke dalam sekarang."
+anicet "Hahaha. seperti itulah. yaah, masuklah ke dalam sekarang."
 
 Didorong dari belakang, kami didorong ke penginapan. Dengan interior kelas atas, sebagian besar berwarna putih, sulit untuk menyebut tempat ini untuk masyarakat umum.
 
@@ -71,9 +71,9 @@ Terutama dalam kasus Ciel, karena penampilannya, sudah umum bagi Ciel untuk disa
 Meskipun kami bukan tipe yang akan diculik tanpa perlawanan; jika keadaan menjadi serius, akan ada kemungkinan kami akan menonjol, jadi Aku ingin menghindarinya sebisa mungkin.
 
 Juga, Ciel tidak suka kalau beban kerjaku meningkat.
-Meskipun sudah terlambat menurut pendapatku, mengingat Aku memakai pelindung(barier) sepanjang waktu untuk melindungi Ciel, sepertinya Ciel ingin Aku beristirahat sedikit.
+Meskipun sudah terlambat menurut pendapatku, mengingat Aku memakai +BARRIER sepanjang waktu untuk melindungi Ciel, sepertinya Ciel ingin Aku beristirahat sedikit.
 
-"Hei, sudah lama ya. Gadis ini adalah seorang VIP. Jika memungkinkan, bisakah Kamu memberinya beberapa layanan?"
+anicet "Hei, sudah lama ya. Gadis ini seorang VIP. Jika memungkinkan, bisakah Kamu memberinya beberapa layanan?"
 
 Sesampainya di meja resepsionis, Anicet berbicara dengan seorang wanita yang duduk dengan mata tertutup yang terlihat hampir seusianya.
 
