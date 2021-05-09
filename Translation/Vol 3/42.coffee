@@ -147,30 +147,42 @@ anicet "benar, Kamu tidak akan kehilangan apa pun dengan mengunjungi sekali, tet
 
 Bahkan ada pembicaraan tentang kemungkinan besar dicopet.
 
-Namun, mengingat fakta bahwa Aku sudah berpengalaman dengan kereta modern Jepang yang padat, Aku mungkin tidak akan terlalu terkejut setelah hanya melihat sejumlah besar orang.
-Tetapi jika Aku harus mengatakan, pemandangan gedung dan jalan mungkin mengejutkan Aku. Karena Aku belum melihat terlalu banyak kastil bergaya Eropa dari dekat, mungkin itu juga menarik perhatian Aku.
-Namun, tidak seperti kastil Jepang yang berfungsi sebagai tempat wisata, kastil ini benar-benar memiliki keluarga kerajaan yang tinggal di sana, jadi kami mungkin tidak akan bisa mendekatinya dengan mudah dan, yang terpenting, kami tidak punya urusan dengan orang-orang peringkat teratas negara itu.
+tapi, mengingat fakta bahwa Aku sudah berpengalaman dengan kereta modern Jepang yang padat, Aku mungkin tidak akan terlalu terkejut setelah hanya melihat sejumlah besar orang.
 
-"Karena ini akan menjadi pertama kalinya Kamu, Aku menganggap Kamu belum memutuskan penginapan, benar?"
-"Itu benar."
-"Kalau begitu, Aku tahu tempat yang bagus. Aku akan mengantarmu ke sana setelah kita mencapai ibu kota. Itu benar."
-"Wah, itu ide yang bagus. Sebagai seorang gadis, bagaimanapun juga akan sangat sulit untuk memilih penginapan."
+tapi, pemandangan gedung dan jalan mungkin mengejutkanku. Karena Aku belum melihat terlalu banyak istana bergaya Eropa dari dekat, mungkin itu juga menarik perhatianku.
 
-Tanpa menunggu jawaban Aku, Milea- san suara ‘s tiba-tiba menggema dari belakang.
+tidak seperti istana Jepang yang berfungsi sebagai tempat wisata, istana ini benar-benar memiliki keluarga kerajaan yang tinggal di sana, jadi kami mungkin tidak akan bisa mendekatinya dengan mudah dan, yang terpenting, kami tidak punya urusan dengan orang-orang peringkat teratas negara itu.
+
+anicet "Karena ini akan menjadi pertama kalinya untukmu, Aku menganggap Kamu belum memutuskan mau menginap dimana, benar?"
+
+ain "Itu benar."
+
+anicet "Kalau begitu, Aku tahu tempat yang bagus. Aku akan mengantarmu ke sana setelah kita mencapai ibu kota."
+
+milea "itu ide yang bagus. Sebagai seorang gadis, akan sangat sulit untuk memilih penginapan."
+
+Tanpa menunggu jawabanku, suara Milea-san tiba-tiba menggema dari belakang.
+
 Ini pertama kalinya kami pergi ke ibu kota, jadi kami tentu saja tidak tahu penginapan apa pun tapi ...
+
 Yah, daripada berpikir sendiri, aku akan mencoba menyerahkan keputusan kepada Ciel.
 
-"Apa yang harus kita lakukan?"
-"Ain tidak tahu tentang penginapan apa pun, bukan? Kalau begitu, kupikir membuat mereka menuntun kita ke salah satu akan lebih mudah tapi…"
-"Lalu aku akan meminta mereka untuk melakukannya."
+ain [Apa yang harus kita lakukan?]
 
-Jika itu tempat yang jelas-jelas mencurigakan, maka kita harus bisa menghindarinya. Juga, Aku ingin berpikir bahwa tidak ada yang seburuk itu di antara penginapan ibu kota.
+ciel [Ain tidak tahu tentang penginapan apa pun, kan? Kalau begitu, kupikir membuat mereka menuntun kita ke salah satu penginapan akan lebih mudah tapi...]
+
+ain [kalau begitu aku akan meminta mereka untuk melakukannya.]
+
+Jika itu tempat yang jelas-jelas mencurigakan, kami bisa menghindarinya. Aku Juga ingin berpikir bahwa tidak ada yang seburuk itu di antara penginapan ibu kota.
+
 Padahal tentunya, menemukan penginapan di tempat yang asing cukup merepotkan.
 
-"Jika memungkinkan, penginapan dengan bak mandi akan bagus, tetapi apakah ada yang seperti itu?"
+ain "Jika memungkinkan, penginapan dengan bak mandi akan bagus, tapi apakah ada yang seperti itu?"
 
 Karena Aku memiliki kesempatan, Aku mencoba bertanya kepada mereka tentang hal itu dan pasangan itu menegaskan, memberikan stempel persetujuan mereka kepada penginapan.
-Mereka bahkan membimbing kita ke penginapan dengan bak mandi, mereka benar-benar orang yang baik ~. Meskipun Aku benar-benar meragukannya, alangkah baiknya jika kita dapat memperlakukan ini sebagai salah satu hadiah kita.
+
+Mereka bahkan membimbing kami ke penginapan dengan bak mandi, mereka benar-benar orang yang baik ~. Meskipun Aku benar-benar meragukannya, alangkah baiknya jika kami dapat memperlakukan ini sebagai salah satu hadiah kami.
+
 Nah, semenjak ada mandi, kita harus tetap bisa mandi meski dalam keadaan terparah. Sudah lama sekali sejak kita tidak mandi dengan benar, jadi aku benar-benar menantikannya.
 
 ◇
