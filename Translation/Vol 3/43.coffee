@@ -6,47 +6,45 @@ Meski begitu, jalannya cukup lebar untuk dilalui Kereta Kuda dan toko-toko yang 
 
 ini hampir malam, jadi aku tidak bisa melihatnya dengan baik.
 
-di ibu kota, kami melihat Milea-san pergi setelah dia memarkir kereta kudanya di toko mereka, sebelum Anicet memandu kami ke penginapan.
+kami melihat Milea-san pergi setelah dia memarkir kereta kudanya di toko mereka, sebelum Anicet memandu kami ke penginapan.
 
-a"Jadi Kamu punya toko sendiri?"
+ain "Jadi Kamu punya toko sendiri?"
 
-"ada Tapi kecil. anak perempuan kami sedang menunggu kami di sana."
+anicet "ada Tapi kecil. anak perempuan kami sedang menunggu kami di sana."
 
-a"He ~ eh , kamu punya anak ya."
+ain "He ~ eh , kamu punya anak ya."
 
-"yaaaah, dia bukan pada umur untuk kamu sebut bocah. Dia berusia 18 tahun ini. Dia juga cukup cerdas dan populer di distrik orang biasa, kamu tahu... "
+anicet "yaaaah, dia bukan pada umur untuk kamu sebut bocah. Dia berusia 18 tahun sekarang. Dia juga cukup cerdas dan populer di distrik orang biasa, lho... "
 
 Saat kami mengobrol sambil berjalan, sepertinya Aku akhirnya mengaktifkan tombol tertentu yang seharusnya tidak Aku sentuh.
 
-Sejak saat itu, kami mendengarkan ocehan Anicet tentang anaknya.
+dan karena itu, kami mendengarkan ocehan Anicet tentang anaknya.
 
 ocehan seperti senyuman yang dia miliki di usia 3 tahun atau hadiahnya ketika dia berusia 5 tahun. sejujurnya itu tidak menarik tetapi karena Aku tidak berniat memberikan informasi dari pihak kami, Aku hanya diam dan mendengarkan.
 
-c"Jadi anak-anak normal tumbuh seperti itu."
+ciel [Jadi anak-anak normal tumbuh seperti itu.]
 
-a"Dilihat dari ceritanya, mereka memang terdengar hidup mewah."
+ain [Dilihat dari ceritanya, mereka memang terdengar hidup mewah.]
 
-c"Jika kita berbicara tentang kekayaan, Aku lebih kaya daripada mereka, bukan? Lagipula, aku harus minum pil mahal setiap hari."
+ciel [Jika kita berbicara tentang kekayaan, Aku lebih kaya daripada mereka, bukan? Lagipula, aku harus minum pil mahal setiap hari.]
 
-a"Ciel ......"
+ain [Ciel ......]
 
-c"Aku tidak bermaksud begitu, aku tidak bermaksud seperti itu. Aku hanya sedikit terkesan setelah mendengar tentang hal-hal normal, itu saja."
+ciel [Aku tidak bermaksud begitu, aku tidak bermaksud seperti itu. Aku hanya sedikit terkesan setelah mendengar tentang hal-hal normal, itu saja.]
 
 Aku pikir Ciel menjadi melankolis karena mendengarkan cerita dari keluarga lain, tetapi setelah mendengar nadanya yang tajam, sepertinya dia tidak keberatan sama sekali.
 
-Kemudian dalam kasus ini, Aku juga perlu terlalu khawatir tentang ini.
+ain [Yah terima kasih untuk itu, kekuatan sihir kita meningkat cukup banyak.]
 
-a"Yah terima kasih untuk itu, kekuatan sihir kita meningkat cukup banyak."
+ciel [iya.]
 
-c"iya."
+ain [Ngomong-ngomong, haruskah kita pergi ke depan dan menginap ditempat yang dia kenalkan untuk kita?]
 
-a"Ngomong-ngomong, haruskah kita pergi ke depan dan menginap ditempat yang kenalkan untuk kita?"
+ciel [Ummm ...... jika aku bilang aku mau karena Aku penasaran, apakah Kamu akan marah?]
 
-c"Ummm ...... jika aku bilang aku mau karena Aku penasaran, apakah Kamu akan marah?"
+ain [tidak akan. Tapi itu hanya ... mungkin agak berbahaya.]
 
-a"tidak akan. Tapi itu hanya ... mungkin agak berbahaya."
-
-c"Kalau begitu, aku akan siap kabur kapan saja."
+ciel [Kalau begitu, aku akan siap kabur kapan saja.]
 
 Mengingat Ciel sudah bertekad, seharusnya tidak masalah untuk mencobanya.
 
