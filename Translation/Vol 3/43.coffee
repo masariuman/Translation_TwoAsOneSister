@@ -201,13 +201,13 @@ Jika itu membuatnya bahagia, maka dengan senang hati aku akan melakukannya. Mesk
 
 Pada saat rambutnya kering, ada ketukan dari pintu kami, dan nona tanpa nama dari meja resepsionis membawakan kami makan malam.
 
-Menu makan malam mirip dengan beberapa makanan yang terlihat di Jepang; roti putih, rusa berkaki besar — aku diberitahu bahwa itu benar-benar rusa berkaki besar — ​​serta sup berisi sayuran dan, juga, salad. Dihadapkan pada makanan yang jarang terlihat di tempat lain, mata Ciel mulai berbinar.
+Menu makan malam mirip dengan beberapa makanan yang terlihat di Jepang; roti putih, rusa berkaki besar — aku diberitahu bahwa itu benar-benar rusa berkaki besar — ​​serta sup berisi sayuran dan juga, salad. Dihadapkan pada makanan yang jarang terlihat di tempat lain, mata Ciel mulai berbinar.
 
 Kami diberitahu untuk meninggalkan piring di luar pintu setelah makan tetapi untuk memulainya, Aku ragu apakah ini benar-benar baik untuk dimakan. Aku merasa kasihan pada Ciel, tapi aku harus membuatnya menahan diri untuk tidak makan untuk saat ini.
 
-a"Maaf merepotkan saat kamu akan makan tapi jika memungkinkan, maukah kamu tidak memakannya?"
+ain [Maaf merepotkan saat kamu akan makan tapi jika memungkinkan, maukah kamu tidak memakannya?]
 
-c"...... Mengapa?"
+ciel [...... Mengapa?]
 
 Tidak seperti biasanya, Ciel menjawab dengan nada tidak senang. Karena dia berharap untuk makan karena dia menemukan makanan yang layak, ini sama sekali tidak mengherankan.
 
@@ -217,23 +217,23 @@ Kembali ke topik.
 
 Setelah menjawab "Mungkin ada semacam obat yang dicampur didalamnya." Ke Ciel yang kesal, dia dengan enggan memelototi roti putih.
 
-Pil tidur dan obat mati rasa mungkin bisa saja ada didalamnya dan Aku tidak bisa mengatakan kedua obat itu sama sama karena Aku mungkin tidak dapat melakukan apa pun jika itu obat mati rasa. karena kami harus meninggalkan peralatan makan di luar, aku harus melakukan sesuatu tentang makan malam kami.
+Pil tidur dan obat mati rasa mungkin bisa saja ada didalamnya dan Aku tidak bisa mengatakan kedua obat itu sama saja karena Aku mungkin tidak dapat melakukan apa pun jika itu obat mati rasa. karena kami harus meninggalkan peralatan makan di luar, aku harus melakukan sesuatu tentang makan malam kami.
 
-a"Aku ingin mencobanya agar bisa dimakan, jadi maukah Kamu berganti denganku, Ciel?"
+ain [Aku ingin mengetestnya agar bisa dimakan, jadi maukah Kamu berganti denganku, Ciel?]
 
-c"baiklah."
+ciel [baiklah.]
 
 Aku tidak ingin makan makanan portabel ketika kami sudah memiliki makanan yang layak tepat di depan kami juga, jadi Aku harus mencoba yang terbaik.
 
-Meski begitu, yang paling bisa kulakukan adalah membuat penghalang(pelindung/barier) yang berfungsi seperti filter.
+Meski begitu, yang paling bisa kulakukan adalah membuat +BARRIER yang berfungsi seperti filter.
 
-Seperti yang kukatakan sebelumnya, Aku dapat membatasi apa yang melewati penghalangku. Memanfaatkan itu, ini akan menjadi percobaan apakah mungkin dapat memisahkan zat beracun atau tidak.
+Seperti yang kukatakan sebelumnya, Aku dapat membatasi apa yang melewati +BARRIERku. Memanfaatkan itu, ini akan menjadi percobaan apakah mungkin dapat memisahkan zat beracun atau tidak.
 
-Untuk mengujinya, Aku membuat penghalang yang tidak bisa dilewati "Narkoba", lalu mencoba memasukkan roti putih ke dalamnya, tetapi tidak ada perubahan yang terjadi.
+Untuk mengujinya, Aku membuat +BARRIER yang tidak bisa dilewati "Narkoba", lalu mencoba memasukkan roti putih ke dalamnya, tetapi tidak ada perubahan yang terjadi.
 
-Demikian juga, "Racun" juga tidak berpengaruh.
+"Racun" juga tidak berpengaruh.
 
-Selanjutnya, Aku mencoba "Niat jahat" dan "Niat Membunuh" dan kemudian roti tidak bisa melewati penghalangnya.
+Selanjutnya, Aku mencoba "Niat jahat" dan "Niat Membunuh" dan kemudian roti tidak bisa melewati +BARRIERnya.
 
 Aku kemudian mencoba menjatuhkannya di atas penghalang berbentuk meja dan itu dengan sempurna berada di atasnya, jadi tidak salah lagi.
 
@@ -243,7 +243,7 @@ Aku juga mencoba hal-hal lain yang terlintas di pikiranku, tetapi tidak ada hasi
 
 ini juga menggunakan cukup banyak kekuatan sihir, jadi sepertinya aku tidak bisa terus bereksperimen tanpa henti.
 
-Di sisi lain, ketika Aku mencoba membuat penghalang yang hanya memungkinkan roti untuk lewat, itu menembus tanpa ada tanda-tanda perlawanan.
+Di sisi lain, ketika Aku mencoba membuat +BARRIER yang hanya memungkinkan roti untuk lewat, itu menembus tanpa ada tanda-tanda perlawanan.
 
 Meskipun Aku yakin ada sesuatu yang tercampur di dalam roti ini, karena masih lewat tanpa meninggalkan apa pun, Aku rasa obat tersebut sudah menjadi komponen yang tidak dapat dipisahkan dari roti.
 
@@ -251,21 +251,21 @@ Dengan demikian, pilihan terakhirku adalah penghalang yang hanya memungkinkan ba
 
 aku tidak pernah membuat roti sebelumnya dan pada dasarnya, aku tidak yakin apakah itu dibuat dengan bahan yang sama di sini.
 
-Bagaimanapun juga, karena tidak apa-apa selama aku mengecualikan obatnya, aku menyebutkan setiap bahan yang dapat aku pikirkan, dan saat roti putih habis, beberapa bubuk putih tetap ada di penghalang.
+Bagaimanapun juga, karena tidak apa-apa selama aku mengecualikan obatnya, aku menyebutkan setiap bahan yang dapat aku pikirkan, dan saat roti putih habis, beberapa bubuk putih tetap ada di +BARRIER.
 
-Ini pasti bubuk tidur atau semacamnya. aku tidak ingin menghirupnya secara tidak sengaja, jadi aku membuat kotak dengan penghalang dan menyegelnya di dalam stoples.
+Ini pasti bubuk tidur atau semacamnya. aku tidak ingin menghirupnya secara tidak sengaja, jadi aku membuat kotak dengan +BARRIER dan menyegelnya di dalam stoples.
 
-Setelah melangkah sejauh ini, Aku mulai mempertanyakan apa sebenarnya penghalang itu, tetapi semua yang Aku lakukan pasti berada dalam batas yang diketahui.
+Setelah melangkah sejauh ini, Aku mulai mempertanyakan apa sebenarnya +BARRIER itu, tetapi semua yang Aku lakukan pasti berada dalam batas yang diketahui.
 
 karena itu berjalan dengan baik, Aku harus memberi tahu Ciel.
 
-a"Dengan ini, roti putih seharusnya aman untuk dimakan, kurasa."
+ain [Dengan ini, roti putih seharusnya aman untuk dimakan, kurasa.]
 
-c"Ain, kamu bisa memakannya lho..."
+ciel [Ain, kamu bisa memakannya lho...]
 
-a"Aku akan membiarkanmu untuk makan, Ciel. Tetap saja, penghalang ini membutuhkan cukup banyak usaha, jadi mohon tahanlah dengan ini dan steaknya."
+ain [Aku akan membiarkanmu untuk makan, Ciel. Tetap saja, +BARRIER ini membutuhkan cukup banyak usaha, jadi mohon tahanlah dengan ini dan steaknya.]
 
-c"Aku sudah senang makan bahkan dengan ini saja. Selain itu, akan agak sulit bagiku untuk menghabiskan semua ini."
+ciel [Aku sudah senang makan bahkan dengan ini saja. Selain itu, akan agak sulit bagiku untuk menghabiskan semua ini.]
 
 benar juga. Bagaimanapun juga, Ciel suka makan tapi dia tidak bisa makan sebanyak itu.
 
@@ -282,3 +282,7 @@ Hampir tidak ada lemak, hampir semua daging tanpa lemak. steak ini memiliki rasa
 Singkatnya, enak.
 
 Tampak puas juga, Ciel terlihat sangat bahagia.
+
+----------------
+
+HAH dasar pedagang, udah dibantu malah mau berbuat jahat... maan walau penampilan mereka orang baik, degan kasus ini jadi kurang percaya... untung saja ain selalu waspada.... kalau gak kasian kan dedek ciel makan obat ga jelas :(
