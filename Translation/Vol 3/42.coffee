@@ -188,12 +188,21 @@ Nah, karena ada bak mandi, kami tetap bisa mandi meski dalam keadaan terparah. S
 ※※※※※※※※※※
 
 Hari sudah senja ketika kami tiba di pintu masuk ibu kota.
-Gerbangnya adalah yang terbesar di antara yang pernah kita lihat sebelumnya dan dinding yang dibangun di sekitar kota kastil jauh lebih tinggi dari apa pun dan sepertinya memanjang tanpa henti.
+
+Gerbangnya lebih besar dari yang pernah kami lihat sebelumnya dan dinding yang dibangun di sekitar kota istana jauh lebih tinggi dari apa pun dan sepertinya memanjang tanpa henti.
+
 Ukurannya begitu besar bahkan membuatku terkesan, dan Ciel, yang tidak terbiasa dengan pemandangan semacam ini, sepertinya benar-benar terpesona dan tidak bisa berkata-kata.
-Itu agak menggemaskan, aku tidak bisa menahan tawa. Aku memastikan untuk memberitahunya"Kami di sini."Setelah itu.
 
-Ada antrean panjang di depan gerbang, jadi Aku membayangkan akan butuh waktu lama untuk masuk. Namun, kami mencapai pos pemeriksaan gerbang dengan sangat cepat.
-Aku kira karena ada lebih banyak orang yang lewat, pengetahuan untuk menangani orang-orang ini secara efisien juga bertambah dengan cepat.
-Pasangan pedagang itu secara alami memiliki identitas mereka sendiri, jadi jika Aku diam saja, Aku mungkin diizinkan lewat bersama mereka. Tetapi demi menghindari masalah di masa depan juga, Aku mengeluarkan Kartu Hunter Aku.
+Itu agak menggemaskan, aku tidak bisa menahan tawa. Aku memastikan untuk memberitahunya "Kita sudah sampai." Setelah itu.
 
-Sementara penjaga gerbang terkejut pada awalnya, Aku tidak benar-benar melakukan kesalahan dan kartunya adalah yang sebenarnya, jadi kami berhasil memasuki ibukota dengan aman.
+Ada antrian panjang di depan gerbang, jadi Aku membayangkan akan butuh waktu lama untuk masuk. tapi, kami mencapai pos pemeriksaan gerbang dengan sangat cepat.
+
+mungkin karena ada lebih banyak orang yang lewat, pengetahuan untuk menangani orang-orang ini secara efisien juga cepat.
+
+Pasangan pedagang itu secara alami memiliki identitas mereka sendiri, jadi jika Aku diam saja, Aku mungkin diizinkan lewat bersama mereka. Tetapi demi menghindari masalah di masa depan juga, Aku mengeluarkan Kartu Hunterku.
+
+penjaga gerbang terkejut pada awalnya, Aku tidak benar-benar melakukan kesalahan dan kartunya asli, jadi kami berhasil memasuki ibukota dengan aman.
+
+----------------
+
+yay akhirnya sudah sampai ke tujuan, SAATNYA PANTAI ARC !!!! UMI DA !!! YAAAH, waspada terhadap orahg baru dikenal memang hal yang benar mengingat pengalaman mereka selama ini seperti itu, tapi mungkin saja pedagang itu orang yang baik ??? mungkin ~~
