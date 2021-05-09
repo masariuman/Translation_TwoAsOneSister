@@ -85,13 +85,13 @@ Memiliki perasaan yang agak dingin padanya, wanita itu menatapku dengan tatapan 
 
 "Nona muda, apakah Kamu baik-baik saja?"
 
-a"Selama Aku bisa tinggal gratis ......"
+ain "Selama Aku bisa tinggal gratis ......"
 
-Bukannya Aku benar-benar memikirkan itu bahkan sedikit pun. Kami sama sekali tidak punya masalah dengan uang.
+aku sebenarnya tidak peduli. Kami sama sekali tidak punya masalah dengan uang.
 
-Sebaliknya, tas ajaib yang kami dapat dari Carol-san mulai penuh, jadi Aku ingin menggunakan uang kami.
+Sebaliknya, tas magic yang kami dapat dari Carol-san mulai penuh, jadi Aku ingin menggunakan uang kami.
 
-Sebenarnya, mungkin kami harus mendapatkan dompet yang berbeda untuk digunakan untuk koin senilai perak ke bawah.
+mungkin kami harus memiliki dompet yang berbeda untuk digunakan untuk koin senilai perak ke bawah.
 
 "Nah, Aku akan pergi sekarang. aku berhutang padamu, nona kecil."
 
