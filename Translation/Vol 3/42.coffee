@@ -27,22 +27,28 @@ ain [secara garis besar, kita dapat mengabaikan mereka, membantu mereka, atau me
 ciel [Jadi, Ain, hal apa yang membuatmu penasaran?]
 
 Ciel mengatakan itu bangga. Seolah-olah dia baru saja menyatakan bahwa dia mengenalku sepenuhnya tetapi karena dia benar, aku pasrah pada penampilannya yang menggemaskan.
--------------
-"Untuk beberapa alasan, mereka sepertinya tidak memiliki pendamping yang disewa. Aku tidak yakin apakah mereka kuat atau hanya memilih untuk tidak mempekerjakan siapa pun tetapi, terutama dalam kasus yang terakhir, Aku merasa mereka bukan orang yang sangat baik."
-"Begitu. Kalau begitu, kenapa tidak kita amati dulu?
-Jika mereka tidak kuat, kami akan membantu mereka setelahnya."
-"Jadi kita akan menyelamatkan mereka."
-"Aku ingin tahu tentang orang macam apa mereka sebenarnya. Aku bertanya-tanya mengapa mereka tidak menyewa pendamping?"
-"Dimengerti. Aku akan bertanggung jawab setelah menyelamatkan mereka, oke?"
+
+ain [Untuk beberapa alasan, mereka sepertinya tidak menyewa penjaga. Aku tidak yakin apakah mereka kuat atau hanya memilih untuk tidak mempekerjakan siapa pun tapi, Aku merasa mereka bukan orang yang sangat baik.]
+
+ciel [Begitu. Kalau begitu, kenapa tidak kita amati dulu?
+Jika mereka tidak kuat, kita akan membantu mereka kalau mau.]
+
+ain [Jadi kita akan menyelamatkan mereka.]
+
+ciel [Aku penasaran orang macam apa mereka sebenarnya. Mengapa mereka tidak menyewa penjaga?]
+
+ain [Baiklah. Aku akan bertanggung jawab setelah kita menyelamatkan mereka, oke?]
 
 Dengan pedagang yang kemungkinan besar adalah laki-laki, akan sulit bagi Ciel.
-Terlepas dari itu, karena Ciel tertarik tentang itu, maka aku akan menemaninya. Ini sebenarnya adalah panggilan Aku.
 
-"Untuk saat ini, kita harus bergegas dan mengejar mereka, bukan?
-Bisakah Kamu membantu Aku, Ain?"
-"Jika itu masalahnya, teruslah berlari sampai Aku selesai bernyanyi."
+Terlepas dari itu, karena Ciel tertarik tentang masalah ini, maka aku akan menemaninya.
 
-Ini adalah mode pergerakan tercepat kami. Aku bernyanyi yang memperkuat Ciel, sementara Ciel menggunakan kekuatan sihirnya yang berlebihan untuk melakukan penguatan fisik.
+ciel [Untuk saat ini, kita harus bergegas dan mengejar mereka, bukan? Bisakah Kamu membantuku, Ain?]
+
+ain [Teruslah berlari sampai Aku selesai bernyanyi.]
+
+Ini adalah mode pergerakan tercepat kami. Aku bernyanyi untuk memperkuat Ciel, sementara Ciel menggunakan kekuatan sihirnya yang berlebihan untuk melakukan penguatan fisik.
+
 Efektivitas penguatan fisik bervariasi tergantung pada kekuatan tubuh asli. Yah, itu mungkin untuk meningkatkan penguatan dengan menggunakan banyak kekuatan sihir tapi tubuhmu tidak akan mampu menahan serangan balik.
 Dan sementara Ciel sama sekali tidak lemah, dia cukup mungil dan tidak memiliki kekuatan sebanyak orang-orang dengan pekerjaan garis depan, jadi itu tidak menyimpulkan terlalu banyak.
 Karena itu, kami tidak dapat melakukan gerakan instan seperti teleportasi. Meskipun dengan itu, kita harus secepat kuda, jadi kita segera menyusul ke kereta.
