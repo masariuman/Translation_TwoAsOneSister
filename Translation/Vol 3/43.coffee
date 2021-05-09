@@ -93,9 +93,9 @@ Sebaliknya, tas magic yang kami dapat dari Carol-san mulai penuh, jadi Aku ingin
 
 mungkin kami harus memiliki dompet yang berbeda untuk digunakan untuk koin senilai perak ke bawah.
 
-"Nah, Aku akan pergi sekarang. aku berhutang padamu, nona kecil."
+anicet "Nah, Aku akan pergi sekarang. aku berhutang padamu, nona kecil."
 
-a"Jangan berkata seperti itu, aku juga merasakan hal yang sama."
+ain "Jangan berkata seperti itu, aku juga merasakan hal yang sama."
 
 "Sekarang, izinkan aku untuk membawamu ke kamarmu."
 
@@ -103,7 +103,7 @@ Selesai check-in, Anicet meninggalkan penginapan. Sepertinya dia tidak tinggal d
 
 Dia mungkin tidak punya cukup uang untuk tinggal di sini dan karena dia punya toko, Aku kira dia menuju ke sana.
 
-a"Namamu, Aku harus memanggilmu apa?"
+ain "Namamu, Aku harus memanggilmu apa?"
 
 "Aku tidak punya nama untuk diberikan kepada tamu kami."
 
@@ -111,21 +111,21 @@ Aku mencoba menanyakan itu, tetapi dia hanya membalas jawaban singkat itu.
 
 yaah dia tidak memiliki label nama seperti yang dilakukan  karyawan di Jepang modern, meskipun mungkin ada beberapa orang yang tidak ingin memberikan nama mereka juga.
 
-a"Aku tidak bisa menahan perasaan curiga tapi Aku bingung apakah Aku terlalu skeptis?"
+ain [Aku tidak bisa menahan perasaan curiga tapi Aku bingung apakah Aku terlalu skeptis?]
 
-c"Tapi Ain, Kamu tidak waspada, kan?"
+ciel [Tapi Ain, Kamu tidak waspada, kan?]
 
-a"Itu karena tidak ada gunanya waspada. Selain itu, jika dia memperhatikan bahwa kita sangat tegang, kita mungkin tidak punya waktu untuk istirahat. alangkah baiknya jika Aku hanya terlalu khawatir."
+ain [Itu karena tidak ada gunanya waspada. Selain itu, jika dia memperhatikan kalau kita sangat tegang, kita mungkin tidak punya waktu untuk istirahat. alangkah baiknya jika Aku hanya terlalu khawatir.]
 
-c"Jadi masalahnya apakah kita bisa istirahat atau tidak?"
+ciel [Jadi masalahnya apakah kita bisa istirahat atau tidak?]
 
-a"Itu karena Aku ingin mandi."
+ain [Itu karena Aku ingin mandi.]
 
-c"Ain benar-benar suka mandi.."
+ciel [Ain benar-benar suka mandi..]
 
-"Ini akan menjadi kamar Kamu."
+"Ini akan menjadi kamarmu."
 
-a"Terima kasih banyak."
+ain [Terima kasih banyak.]
 
 "Kami akan mengantarkan makanan ke kamarmu, jadi silakan bersantai dan melepas lelah."
 
@@ -135,21 +135,21 @@ Tempat tidurnya juga lebih besar, dengan seprai putih bersihnya tidak memiliki s
 
 Kamar mandi dan bak mandi juga luas, jadi jika bukan karena kekhawatiranku, ini akan menjadi kamar yang sempurna.
 
-a"Karena kita berada di kamar kita sekarang, Aku akan mengembalikan tubuhmu, oke?"
+ain [Karena kita berada di kamar kita sekarang, Aku akan mengembalikan tubuhmu, oke?]
 
-c"Ain, tidak apa-apa menggunakannya lebih lama lho?"
+ciel [Ain, tidak apa-apa menggunakannya lebih lama lho?]
 
-a"Aku sudah banyak menggunakannya untuk hari ini ...... bisa kukatakan, Aku mungkin akan memiliki kesempatan untuk meminjamnya lagi segera, jadi Aku akan menggunakannya nanti."
+ain [Aku sudah banyak menggunakannya untuk hari ini ...... bisa kukatakan, Aku mungkin akan memiliki kesempatan untuk meminjamnya lagi segera, jadi Aku akan menggunakannya nanti.]
 
-c"Baiklah. Lalu bagaimana kalau kita mandi sekarang?"
+ciel [Baiklah. Lalu bagaimana kalau kita mandi sekarang?]
 
-a"Serius!"
+ain [Serius?!]
 
-c"Tentu saja, itu membuat Ain sangat bahagia."
+ciel [Tentu saja, itu membuat Ain sangat bahagia.]
 
 Ciel terkikik ketika dia mendengarku senang, tetapi Aku harap dia tidak akan keberatan Aku merasa seperti ini.
 
-Lagipula, sebagai mantan orang Jepang, hanya ketika Aku bisa mandi setelah sepuluh tahun tidak bisa melakukannya, kali ini, Aku bahkan tidak yakin apakah Aku bisa mandi atau tidak karena gaya hidup kita saat ini.
+Lagipula, sebagai mantan orang Jepang, hanya ketika Aku bisa mandi setelah sepuluh tahun tidak bisa melakukannya, kali ini, Aku bahkan tidak yakin apakah Aku bisa mandi atau tidak karena gaya hidup kami saat ini.
 
 Aku bisa menahannya. Aku bisa menahannya, tapi aku tetap ingin mandi.
 
@@ -163,35 +163,35 @@ Memasuki kamar mandi, Ciel membasuh kepala dan tubuhnya, lalu merendam dirinya d
 
 Meskipun merendam rambut dalam air biasanya tidak baik, rambut putih bersih Ciel yang terurai di air panas sangat indah untuk dilihat.
 
-satu-satunya alasan Aku mengizinkan ini adalah karena Aku menggunakan pelindungku(barier).
+satu-satunya alasan Aku mengizinkan ini adalah karena Aku menggunakan +BARRIERku.
 
 Tetap saja, pemandangan rambutnya yang menempel di lengannya saat dia mengangkatnya dari bak mandi tampak hampir seperti sebuah karya seni.
 
-◇
+※
 
 Saat keluar dari kamar mandi, aku meminta Ciel berganti tubuh denganku dan mengeringkan rambutnya.
 
 Itu sihir yang bisa dilakukan Ciel tetapi mengingat keselamatannya, akan lebih baik aku melakukannya.
 
-c"Kita harus siap berganti tubuh secara tak terduga segera."
+ciel [Kita harus siap berganti tubuh secara tak terduga segera.]
 
-a"Aku lupa fakta bahwa kita berganti saat mengeringkan rambut."
+ain [Aku lupa fakta bahwa kita berganti saat mengeringkan rambut.]
 
-c"Haruskah kita tetap seperti ini untuk hari ini?"
+ciel [Haruskah kita tetap seperti ini untuk hari ini?]
 
-a"Sejujurnya, itu bukan ide yang buruk tetapi Kamu harus mengistirahatkan tubuh, Ciel. Karena jika terjadi sesuatu, mengingat Aku tidak memiliki kemampuan menyerang, Aku akhirnya harus berganti denganmu."
+ain [Sejujurnya, itu bukan ide yang buruk tetapi Kamu harus mengistirahatkan tubuh, Ciel. Karena jika terjadi sesuatu, mengingat Aku tidak memiliki kemampuan menyerang, Aku akhirnya harus berganti denganmu.]
 
-c"Kalau begitu, maukah Kamu setidaknya meluangkan waktu untuk ini, Ain? Saat ini ketika Ain mengeringkan rambutku untukku, jujur Aku sangat menyukainya jujur."
+ciel [Kalau begitu, maukah Kamu setidaknya meluangkan waktu untuk ini, Ain? Saat ini ketika Ain mengeringkan rambutku untukku, jujur Aku sangat menyukainya.]
 
-a"Baiklah. Namun, melakukan ini terlalu lama juga tidak baik, jadi Aku akan berhenti setelah kering, oke?"
+ain [Baiklah. tapi, melakukan ini terlalu lama juga tidak baik, jadi Aku akan berhenti setelah kering, oke?]
 
-c"Tentu saja, Aku tidak ingin Ain membenciku."
+ciel [Tentu saja, Aku tidak ingin Ain membenciku.]
 
-a"Aku tidak akan membencimu hanya karena itu kok."
+ain [Aku tidak akan membencimu hanya karena itu kok.]
 
-c"Fufu... Ain, Terima kasih."
+ciel [Fufu... Ain, Terima kasih.]
 
-a"Jangan khawatir, dengan senang hati."
+ain [Jangan khawatir, dengan senang hati.]
 
 Saat Aku mengeringkan rambutnya, Ciel memang tampak lebih santai, atau lebih tepatnya, mengantuk.
 
