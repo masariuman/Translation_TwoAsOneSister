@@ -183,9 +183,9 @@ Karena Aku memiliki kesempatan, Aku mencoba bertanya kepada mereka tentang hal i
 
 Mereka bahkan membimbing kami ke penginapan dengan bak mandi, mereka benar-benar orang yang baik ~. Meskipun Aku benar-benar meragukannya, alangkah baiknya jika kami dapat memperlakukan ini sebagai salah satu hadiah kami.
 
-Nah, semenjak ada mandi, kita harus tetap bisa mandi meski dalam keadaan terparah. Sudah lama sekali sejak kita tidak mandi dengan benar, jadi aku benar-benar menantikannya.
+Nah, karena ada bak mandi, kami tetap bisa mandi meski dalam keadaan terparah. Sudah lama sekali sejak kami tidak mandi dengan benar, jadi aku benar-benar menantikannya.
 
-◇
+※※※※※※※※※※
 
 Hari sudah senja ketika kami tiba di pintu masuk ibu kota.
 Gerbangnya adalah yang terbesar di antara yang pernah kita lihat sebelumnya dan dinding yang dibangun di sekitar kota kastil jauh lebih tinggi dari apa pun dan sepertinya memanjang tanpa henti.
