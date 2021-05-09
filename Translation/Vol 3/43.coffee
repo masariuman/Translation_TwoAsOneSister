@@ -1,5 +1,4 @@
-Ch 3 : Ibukota Kerajaan, Penginapan, dan Narkoba
-
+Ch 43 : Ibukota Kerajaan, Penginapan, dan Narkoba
 
 didunia ini, Ibukota kerajaan Memiliki jumlah orang yang luar biasa.
 
