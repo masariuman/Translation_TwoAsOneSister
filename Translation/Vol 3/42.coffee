@@ -49,82 +49,103 @@ ain [Teruslah berlari sampai Aku selesai bernyanyi.]
 
 Ini adalah mode pergerakan tercepat kami. Aku bernyanyi untuk memperkuat Ciel, sementara Ciel menggunakan kekuatan sihirnya yang berlebihan untuk melakukan penguatan fisik.
 
-Efektivitas penguatan fisik bervariasi tergantung pada kekuatan tubuh asli. Yah, itu mungkin untuk meningkatkan penguatan dengan menggunakan banyak kekuatan sihir tapi tubuhmu tidak akan mampu menahan serangan balik.
-Dan sementara Ciel sama sekali tidak lemah, dia cukup mungil dan tidak memiliki kekuatan sebanyak orang-orang dengan pekerjaan garis depan, jadi itu tidak menyimpulkan terlalu banyak.
-Karena itu, kami tidak dapat melakukan gerakan instan seperti teleportasi. Meskipun dengan itu, kita harus secepat kuda, jadi kita segera menyusul ke kereta.
+Efektivitas penguatan fisik bervariasi tergantung pada kekuatan tubuh. kamu bisa meningkatkan penguatan dengan menggunakan banyak kekuatan sihir tapi tubuhmu tidak akan mampu menahan efek sampingnya.
+
+sementara Ciel sama sekali tidak lemah, dia cukup mungil dan tidak memiliki kekuatan seperti orang-orang dengan job pertahanan, jadi itu tidak cocok untuk tubuhnya.
+
+Karena itu, kami tidak dapat melakukan gerakan instan seperti teleportasi.tapi dengan ini, kami masih bisa secepat kuda, jadi kami segera menyusul ke kereta kuda tersebut.
 
 Ketika kami tiba, kami diam-diam memeriksa situasinya dan melihat pasangan suami istri yang tampaknya baik hati, setengah baya, putus asa saat mereka dihadapkan dengan serigala.
-Tipe orang seperti ini, ya . Ini bisa sangat mengganggu. Namun, Aku menelepon Ciel, mengatakan"Mungkin yang terbaik untuk membantu mereka."Dan setelah mengangguk sebagai jawaban, dia segera menggunakan sihir.
 
-Iklan
+Tipe orang seperti ini, ya. Ini bisa sangat mengganggu. tapi, Aku memanggil Ciel, mengatakan "Mungkin lebih baik kita membantu mereka." Dan setelah mengangguk sebagai jawaban, dia segera menggunakan sihir.
+
 Hembusan angin tiba-tiba bertiup dan segera setelah melewati serigala, kepala mereka jatuh ke tanah.
-Aku beralih dengan Ciel dan bertanya"Apakah kamu baik-baik saja?"Kepada pasangan yang dengan mulut ternganga, tampaknya tidak dapat memproses apa yang baru saja terjadi.
-Meneliti lebih dekat, keduanya tampak agak terlalu kurus. Kemudian dalam kasus itu, mereka mungkin kekurangan uang untuk menyewa pendamping.
-Tetap saja, menurut Aku itu tidak layak mempertaruhkan nyawa mereka.
 
-"Y-ya. Kamu menyelamatkan kami."
-"Meskipun ada hal-hal yang perlu dibicarakan, Aku akan membongkar monster untuk saat ini, jadi tolong bersiaplah untuk pergi sementara itu."
+Aku bertukar dengan Ciel dan bertanya " Apakah kamu baik-baik saja?" Kepada pasangan yang dengan mulut ternganga, yang tampaknya tidak dapat memproses apa yang baru saja terjadi.
 
-Hanya menyisakan itu, Aku menuju ke serigala yang kalah.
+Melihat lebih dekat, keduanya tampak agak terlalu kurus. Mereka mungkin kekurangan uang untuk menyewa penjaga.
+
+Tetap saja, menurutku itu tidak layak untuk mempertaruhkan nyawa mereka.
+
+pedagang "Y-ya. Kamu menyelamatkan kami."
+
+ain "Meskipun ada hal-hal yang perlu dibicarakan, Aku akan membongkar monster untuk saat ini, jadi tolong bersiaplah untuk melanjutkan perjalanan untuk saat ini."
+
+Aku menuju ke serigala yang kalah.
+
 Tetap saja, meski mereka mengatakan itu, kenapa raut wajah mereka tampak seperti mereka sama sekali tidak terselamatkan? ....... Kurasa tak ada gunanya memikirkannya untuk saat ini.
-Aku beralih dengan Ciel dan dia berurusan dengan tubuh. Kami pernah membahas tentang meminta Aku belajar cara membongkar monster sebelumnya, tetapi dengan kemungkinan pakaian kami menjadi kotor dan masalah berapa banyak waktu yang dibutuhkan, kami telah memutuskan untuk meminta Ciel menyelesaikannya dengan cepat dengan sihir.
 
-Seperti biasa, Ciel mengambil batu ajaib dengan sihir angin, mencucinya dengan sihir air, mengubah tubuh menjadi abu dengan sihir api, dan menguburnya dengan sihir tanah.
-Sementara Ciel melakukan semua ini dengan acuh tak acuh, dengan semua atribut yang dia gunakan, orang yang bisa melakukan hal ini mungkin sangat langka.
-Ketika Aku meminjam tubuh Ciel lagi, Aku memberi tahu dia"Saya akan melakukan apa yang Kamu minta, oke?"Sebelum kembali ke pasangan itu.
+Aku beralih dengan Ciel. Kami pernah membahas tentang Aku belajar cara membongkar monster sebelumnya, tetapi dengan kemungkinan pakaian kami menjadi kotor dan masalah berapa banyak waktu yang dibutuhkan, kami telah memutuskan untuk meminta Ciel menyelesaikannya dengan cepat dengan sihir.
+
+Seperti biasa, Ciel mengambil batu magic dengan sihir angin, mencucinya dengan sihir air, mengubah tubuh menjadi abu dengan sihir api, dan menguburnya dengan sihir tanah.
+
+Ciel melakukan semua ini dengan acuh tak acuh, dengan semua atribut yang dia gunakan, orang yang bisa melakukan hal ini mungkin sangat langka.
+
+Ketika Aku meminjam tubuh Ciel lagi, Aku memberi tahu dia "Aku akan melakukan apa yang Kamu minta, oke?"Sebelum kembali ke pasangan itu.
+
 Pasangan itu menenangkan kuda-kuda yang ketakutan itu. Wanita itu kemudian duduk di gerbong belakang, sementara pria itu melihat ke arah kami.
 
-"Terima kasih telah menunggu. Sekarang, tentang hadiahnya."
-"Tentu saja, Aku mengerti. Tetapi alih-alih membayar hadiah, kami ingin mempekerjakan Kamu untuk mengantar kami ke ibu kota."
+ain "Terima kasih telah menunggu. Sekarang, tentang hadiahnya."
 
-"Kalau begitu, diskusi kita tentang hadiah untuk menyelamatkan mereka entah bagaimana berubah menjadi diskusi tentang mengawal mereka, tapi apa yang ingin kamu lakukan Ciel?"
-"Sedangkan Aku, Aku ingin mengamati orang-orang ini selama mungkin tapi ..."
-"Dimengerti."
+pedagang "Tentu saja, Aku mengerti. Tetapi daripada hadiah, kami ingin mempekerjakanmu untuk mengantar kami ke ibu kota."
+
+ain [Diskusi kita tentang hadiah untuk menyelamatkan mereka entah bagaimana berubah menjadi diskusi tentang mengawal mereka, tapi apa yang ingin kamu lakukan Ciel?]
+
+ciel [Aku ingin mengamati orang-orang ini selama mungkin tapi ...]
+
+ain [Baiklah.]
 
 Aku benar-benar memiliki firasat buruk tentang ini, atau lebih tepatnya Aku merasa hal-hal akan menjadi merepotkan, tetapi Aku berasumsi bahwa Ciel masih mengatakan itu sambil menyadari hal ini.
-Mereka hanya tampak seperti pasangan yang baik pada pandangan pertama, jadi ini bagus untuk dialami Ciel. Bagaimanapun, meminta orang untuk mengawal mereka tanpa memberi tahu berapa banyak mereka akan membayar, apa yang mereka pikirkan.
-Iklan
 
-"Tentu."
-"Maka ini akan menjadi pembayaran kami. Hanya ini yang bisa kami bayar untuk saat ini, tetapi itu sudah cukup."
+Mereka hanya tampak seperti pasangan yang baik, jadi ini bagus untuk dialami Ciel. Tapi, meminta orang untuk mengawal mereka tanpa memberi tahu berapa banyak mereka akan membayar... apa yang mereka pikirkan.
 
-Saat menerimanya, Aku menyimpannya tanpa mengkonfirmasi isinya. Mengamati pria itu dengan pandangan sekilas, aku melihatnya dengan tangan di dada saat dia menghela nafas lega.
+ain "Baiklah."
 
-◇
+pedagang "Kami akan membayar dengan ini. Hanya ini yang bisa kami bayar untuk saat ini, tetapi seharusnya sudah cukup."
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+Saat menerimanya, Aku menyimpannya tanpa mengkonfirmasi isinya. aku melihat pria itu dengan sekilas, aku melihatnya dengan tangan di dada dan dia menghela nafas lega.
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+※※※※※※※※※※
 
-"Saya tidak pernah membayangkan bahwa kami akan bertemu serigala hutan di tempat ini, Kamu mengerti?
-Kami benar-benar akan mati jika kamu tidak ada di sana."
-"Karena mereka disebut serigala hutan, itu berarti mereka awalnya hidup di hutan, bukan? Apakah mereka biasanya muncul di sini?"
-"Meskipun Aku tidak bisa mengatakan bahwa mereka tidak, jarang melihat mereka."
+pedagang "Aku tidak pernah membayangkan bahwa kami akan bertemu serigala hutan di tempat ini, Kami benar-benar akan mati jika kamu tidak ada di sana."
 
-Nama pria itu sepertinya Anicet. Orang dengan dia adalah istrinya Milea- san .
-Sepertinya alasan mereka tidak menyewa pendamping adalah karena jalan menuju ibu kota kerajaan dikatakan relatif aman.
-Bukannya aku meragukan mereka, tapi sementara itu mungkin benar… Aku akan berhenti membalas untuk saat ini.
-Masalahnya saat ini mungkin adalah serigala hutan. Aku hanya menganggap serigala hanya sebagai serigala di mana pun tetapi Aku kira mereka agak berbeda berdasarkan habitatnya.
+ain "Karena mereka disebut serigala hutan, itu berarti mereka awalnya hidup di hutan, bukan? Apakah mereka biasanya muncul di sini?"
 
-"Meskipun demikian, mengalahkan serigala hutan di usia itu, Aku kira itu berkat Pekerjaan Kamu, kan?"
-"Berbicara tentang Pekerjaan agak ……」
-"Ahh , benar. Itu pelanggaran etiket, bukan?"
+pedagang "Meskipun Aku tidak bisa mengatakan bahwa mereka tidak biasanya muncul, tapi itu adalah hal yang sangat jarang sekali."
+
+Nama pria itu sepertinya Anicet. Orang yang pergi bersamanya adalah istrinya Milea-san .
+
+Sepertinya alasan mereka tidak menyewa penjaga adalah karena jalan menuju ibu kota kerajaan dikatakan relatif aman.
+
+Bukannya aku meragukan mereka, itu mungkin benar... Aku akan berhenti membahas ini untuk saat ini.
+
+Masalahnya disini ini mungkin adalah serigala hutan. Aku hanya menganggap serigala semuanya sama saja tetapi sepertinya mereka agak berbeda berdasarkan habitatnya.
+
+anicet "Mengalahkan serigala hutan di usia muda, mungkin karena Jobmu, kan?"
+
+ain "Berbicara tentang Job agak ......"
+
+anicet "Ahh, benar. Itu tidak sopan, bukan?"
 
 Dengan ekspresi 'Aku tidak bermaksud melakukan itu' di wajahnya, Anicet mengangkat telapak tangannya ke kepalanya dan meminta maaf.
-Meskipun itu adalah pelanggaran etiket, bagi seorang pedagang yang menaruh kepercayaan di atas segalanya, untuk menanyakan pertanyaan semacam itu… Tapi bukan berarti aku meragukannya.
-Dalam situasi ini, sulit untuk menilai apakah pihak lain hanya memperlakukan Ciel seperti anak kecil atau jika mereka menyelidikinya karena suatu alasan karena penampilannya. Meskipun ini bukan salah Ciel, jadi bisa dikatakan, sama sekali tidak ada yang bisa kita lakukan tentang ini.
 
-"Kalau dipikir-pikir, apa yang membawamu ke ibu kota?"
+Meskipun itu tidak sopan, bagi seorang pedagang yang menaruh kepercayaan di atas segalanya, untuk menanyakan pertanyaan semacam itu... Tapi bukan berarti aku meragukannya.
 
-Aku kira dia ingin mengubah topik, jadi Aku menjawab"Mampir saja."Untuk pertanyaannya.
-Bagaimanapun, kita sebenarnya hanya mampir untuk melihat lautan. Jadi, tidak masalah meskipun tidak ada pekerjaan untuk kami di ibu kota, kami akan pergi begitu saja.
+Dalam situasi ini, sulit untuk menilai apakah mereka hanya memperlakukan Ciel seperti anak kecil atau mereka hanya menyelidikinya karena suatu alasan karena penampilannya. Meskipun ini bukan salah Ciel, jadi bisa dikatakan, sama sekali tidak ada yang bisa kita lakukan tentang ini.
 
-"Baru saja mampir?"
-"Ya. Meskipun sebagai Hunter, Aku ingin berkunjung ke sana setidaknya sekali juga."
-"Baiklah, Kamu tidak akan kehilangan apa pun dengan mengunjungi sekali, tetapi Kamu mungkin akan terkejut jika ini pertama kalinya bagi Kamu."
+anicet "Kalau dipikir-pikir, apa yang membawamu ke ibu kota?"
 
-Bahkan ada pembicaraan tentang kemungkinan besar untuk dikantongi.
-Iklan
+dia mungkin ingin mengubah topik, jadi Aku menjawab "Mampir saja." Untuk pertanyaannya.
+
+yaah, kami sebenarnya hanya mampir untuk melihat lautan. Jadi, tidak masalah meskipun tidak ada pekerjaan untuk kami di ibu kota, kami akan pergi begitu saja.
+
+anicet "hanya mampir?"
+
+ain "Ya. Meskipun sebagai Hunter, Aku ingin berkunjung ke sana setidaknya sekali saja."
+
+anicet "benar, Kamu tidak akan kehilangan apa pun dengan mengunjungi sekali, tetapi Kamu mungkin akan terkejut jika ini pertama kalinya bagimu."
+
+Bahkan ada pembicaraan tentang kemungkinan besar dicopet.
 
 Namun, mengingat fakta bahwa Aku sudah berpengalaman dengan kereta modern Jepang yang padat, Aku mungkin tidak akan terlalu terkejut setelah hanya melihat sejumlah besar orang.
 Tetapi jika Aku harus mengatakan, pemandangan gedung dan jalan mungkin mengejutkan Aku. Karena Aku belum melihat terlalu banyak kastil bergaya Eropa dari dekat, mungkin itu juga menarik perhatian Aku.
