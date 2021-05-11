@@ -106,19 +106,19 @@ Setelah Aku berkata demikian, kami mendengar "UuooH!" Dari jarak yang agak jauh.
 
 Dan setelah itu, kami mulai mendengar suara melengking dari benturan logam.
 
-a"bolehkan kita melihat pertempurannya sebentar?"
+[bolehkan kita melihat pertempurannya sebentar?] (ain)
 
-c"Tidak apa-apa, tetapi apakah akan baik-baik saja? kita sedang diawasi, kan?"
+[Tidak apa-apa, tetapi apakah akan baik-baik saja? kita sedang diawasi, kan?] (ciel)
 
 hanya melihat saja tidak masalah, tetapi apakah tidak apa-apa untuk melihat sebagai pemburu? Mungkin itulah yang ingin dikatakan Ciel.
 
 Bagiku, Aku hanya ingin melihat bagaimana sebuah party bertarung meski hanya sebentar, jadi itu seharusnya tidak menjadi masalah.
 
-a"Jika tidak diizinkan maka orang yang mengawasi kita mungkin akan memanggil kita."
+[Jika tidak diizinkan maka orang yang mengawasi kita mungkin akan memanggil kita.] (ain)
 
-c"Begitu ya. Jadi Aku hanya perlu diam-diam mengawasi mereka, kan?"
+[Begitu ya. Jadi Aku hanya perlu diam-diam mengawasi mereka, kan?] (ciel)
 
-a"iya."
+[iya.] (ain)
 
 Dan saat Ciel diam-diam mengintip dari balik pohon, kami melihat sekelompok anak muda yang Aku lihat sebelumnya sedang melawan segerombolan goblin. Kelompok berempat masing-masing menggunakan pedang panjang, pedang dan perisai satu tangan, sihir, dan busur. Aku sebenarnya tidak tahu apakah party mereka seimbang atau tidak.
 
@@ -130,7 +130,7 @@ Di sisi lain, para goblin tidak hanya menyerang secara membabi buta, mereka memi
 
 mungkin itu yang disebut Pemimpin Goblin. Meskipun tidak pada level rank-D, itu dikatakan monster terkuat rank-E. Untuk pemburu rank-E, mungkin agak terlalu sulit hanya untuk mereka berempat.
 
-a"Sepertinya ini bukan pertarungan yang bisa kita amati kerjasama partynya, kan?"
+[Sepertinya ini bukan pertarungan yang bisa kita amati kerjasama partynya, kan?] (ain)
 
 c"Anggap saja ini pertarungan 3 vs 9. Orang dengan pedang panjang tidak bekerja sebagai tim."
 
