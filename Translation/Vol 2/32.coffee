@@ -12,21 +12,21 @@ Apakah dia benci mendapatkan arahan dari seseorang yang lebih muda darinya? Atau
 
 Ini jauh lebih baik daripada dia menanyakan hal-hal tentangku, jadi aku biarkan saja dia.
 
-ciel"Kamu benar-benar sabar, Ain."
+[Kamu benar-benar sabar, Ain.] (ciel)
 
-ain"Aku hanya berpikir, mengingat usia Brass-kun, reaksinya sepertinya tidak bisa dihindari. Aku sudah memperkirakan bahwa dia akan menyebalkan."
+[Aku hanya berpikir, mengingat usia Brass-kun, reaksinya sepertinya tidak bisa dihindari. Aku sudah memperkirakan bahwa dia akan menyebalkan.] (ain)
 
-ciel"Tapi meskipun itu masalahnya, Ain tidak benar-benar perlu mentolerirnya, kan?"
+[Tapi meskipun itu masalahnya, Ain tidak benar-benar perlu mentolerirnya, kan?] (ciel)
 
 Benar. Tetap saja, bereaksi terhadap setiap hal kecil yang dia lakukan hanya akan membuang-buang waktu.
 
 Secara rasional, kecuali tentang sesuatu yang benar-benar akan menyebabkan masalah, Aku berencana untuk mengabaikan semua yang dia katakan.
 
-ain"yaah, ini adalah bagian dari ujian untuk menjadi Rank-C."
+[yaah, ini adalah bagian dari ujian untuk menjadi Rank-C.] (ain)
 
-ciel"Kamu sangat dewasa, Ain."
+[Kamu sangat dewasa, Ain.] (ciel)
 
-ain"Aku sebenarnya tidak terlalu dewasa. Aku masih jauh dari dewasa."
+[Aku sebenarnya tidak terlalu dewasa. Aku masih jauh dari dewasa.] (ain)
 
 Bahkan jika aku mengabaikan Brass-kun , aku masih memiliki Ciel untuk diajak bicara. Jadi, Aku masih akan memiliki waktu yang menyenangkan.
 
@@ -92,9 +92,9 @@ Ada banyak hal yang ingin kukatakan tetapi Aku hanya menelan kata-kataku, dengan
 
 Brass-kun mengambil taring kobold dan batu sihir dan hendak melemparkannya padaku, tapi aku menghentikannya.
 
-ain"Hadiah permintaan tidak akan benar-benar berubah, jadi mari kita simpan itu untuk diri kita sendiri."
+"Hadiah permintaan tidak akan benar-benar berubah, jadi mari kita simpan itu untuk diri kita sendiri." (ain)
 
-brass"Tsk , itu benar."
+"Tsk , itu benar." (brass)
 
 Dia mendecakkan lidahnya tapi mungkin karena dia tahu bahwa batu sihir yang dimilikinya agak lebih besar dari batu sihir Rank-E biasanya, dia masih setuju.
 
@@ -108,13 +108,13 @@ Dengan batu sihir yang sedikit lebih besar, Brass-kun dengan bangga membusungkan
 
 Seorang Hunter seharusnya mengerti apa artinya ini, tapi sayangnya Brass-kun sepertinya tidak mengerti.
 
-brass"Apakah tidak apa-apa untuk menganggap monster ini dikalahkan masing-masing?"
+"Apakah tidak apa-apa untuk menganggap monster ini dikalahkan masing-masing?" (brass)
 
-celia"Ya."
+"Ya." (celia)
 
-brass"Silakan beli batu sihir di dalamnya juga."
+"Silakan beli batu sihir di dalamnya juga." (ain)
 
-celia"Baiklah."
+"Baiklah." (celia)
 
 Sejak Brass-kun melanjutkan percakapannya sendiri, Aku mengklarifikasi bahwa setengah dari batu sihir akan dijual.
 
@@ -122,7 +122,7 @@ Aku menyuruh Celia-san membeli batu sihir yang tidak berhubungan dengan perminta
 
 Celia-san memeriksa taring kobold dan batu sihir, lalu mengumpulkan sejumlah koin yang sesuai dengan nilainya.
 
-celia"Kami telah mengonfirmasi penyelesaian permintaan. Ini akan menjadi hadiah untuk permintaan hari ini. Seperti yang dinyatakan sebelumnya, hadiah akan dibagi rata jadi harap konfirmasikan jumlahnya."
+"Kami telah mengonfirmasi penyelesaian permintaan. Ini akan menjadi hadiah untuk permintaan hari ini. Seperti yang dinyatakan sebelumnya, hadiah akan dibagi rata jadi harap konfirmasikan jumlahnya." (celia)
 
 Selagi aku memikirkan tentang betapa relatif kecilnya hadiah Rank-E bagi kami, aku memerhatikan bahwa Brass-kun sedang menatap menara koinku seolah-olah dia ingin mengatakan sesuatu.
 
@@ -132,7 +132,7 @@ Kantong ini juga semakin berat. karena mata uang semuanya dalam koin dan masing-
 
 Aku sangat menginginkan tas sihir yang bisa digunakan sebagai dompet walaupun ukurannya kecil.
 
-celia"Dan kemudian, ini akan menjadi jumlah dari pembelian batu sihir."
+"Dan kemudian, ini akan menjadi jumlah dari pembelian batu sihir." (celia)
 
 Kali ini Celia-san memberiku kantong kecil berisi uang.
 
@@ -140,13 +140,13 @@ Uang tambahan. Ini adalah kesalahanku sendiri tetapi lebih mudah membawa batu si
 
 Sekali lagi, seperti yang diharapkan, Brass-kun memelototi uangku. Kemudian dia sekarang berdebat "Bukankah Aku mendapatkan setengah dari itu juga?" Dengan rasa percaya diri yang misterius. Ya, Aku berharap dia mengatakan itu jadi Aku bersiap sebelumnya tetapi sepertinya Aku membujuknya ke dalam jebakan.
 
-ain"Kenapa?"
+"Kenapa?" (ain)
 
-brass"kita mendapat setengah dari uang dari permintaan, kan?"
+"kita mendapat setengah dari uang dari permintaan, kan?" (brass)
 
-ain"kita hanya membagi setengah hadiah. Ini hanya uang yang Aku dapat dari perdagangan batu sihir."
+"kita hanya membagi setengah hadiah. Ini hanya uang yang Aku dapat dari perdagangan batu sihir." (ain)
 
-brass"...... Ck , ya. Benar, ya. Tidak ada pilihan lain."
+"...... Ck , ya. Benar, ya. Tidak ada pilihan lain." (brass)
 
 Menanggapi dia, Aku berpura-pura tidak bersalah dan dia hanya menjawab dengan itu saat dia pergi. Sekarang apa yang dia maksud dengan tidak ada pilihan lain, Aku tidak tahu.
 
@@ -180,11 +180,11 @@ Mereka semua terlihat berusia sekitar 20 tahun, mereka tampaknya lebih tua dari 
 
 "Berhenti mengabaikanku. Aku hanya mengatakan bahwa alangkah baiknya jika kamu memperlakukan kami sedikit lebih baik."
 
-ain"Ini semakin membosankan, mari kita bertarung. Jika Aku kalah, Aku akan menyerahkan semua uang yang Aku dapatkan hari ini. Sebagai gantinya, jika Aku menang, beri Aku jumlah uang yang sama dengan yang Aku miliki saat ini."
+"Ini semakin membosankan, mari kita bertarung. Jika Aku kalah, Aku akan menyerahkan semua uang yang Aku dapatkan hari ini. Sebagai gantinya, jika Aku menang, beri Aku jumlah uang yang sama dengan yang Aku miliki saat ini." (ain)
 
 "kamu tidak masalah dengan aturan itu?"
 
-ain"Selama staf guild setuju."
+"Selama staf guild setuju." (ain)
 
 "Kalau begitu ayo kita bertarung."
 
@@ -200,15 +200,15 @@ Kami dibawa ke tempat seperti arena dari sebelumnya, dengan Carol-san bertindak 
 
 Aturannya sederhana. Ini empat lawan satu, menyerah atau menjadi tidak berdaya artinya kalah. dilarang Membunuh. Untuk beberapa alasan, dia benar-benar menekankannya.
 
-ain"Karena kita memiliki kesempatan, mengapa kita tidak menggunakan penguatan fisik dan bertarung sambil berlarian dan menghindari serangan mereka hari ini?"
+[Karena kita memiliki kesempatan, mengapa kita tidak menggunakan penguatan fisik dan bertarung sambil berlarian dan menghindari serangan mereka hari ini?] (ain)
 
-ciel"Jadi itu sebabnya Ain menerima ini, kan?"
+[Jadi itu sebabnya Ain menerima ini, kan?] (ciel)
 
-ain"Sambil mengamati Brass-kun , Aku pikir itu mungkin menjadi lebih baik jika kita bergerak sampai batas tertentu. Juga, coba kalahkan mereka menggunakan tebasan +WHIRLWIND SLASH seperti waktu mengalahkan Alejo. Sebagai latihan untuk mengontrol kekuatan sihir."
+[Sambil mengamati Brass-kun , Aku pikir itu mungkin menjadi lebih baik jika kita bergerak sampai batas tertentu. Juga, coba kalahkan mereka menggunakan tebasan +WHIRLWIND SLASH seperti waktu mengalahkan Alejo. Sebagai latihan untuk mengontrol kekuatan sihir.] (ain)
 
-cuel"Ugh ...... kedengarannya cukup sulit. Jika Aku membuat sedikit kesalahan, Aku mungkin akan memotong lengan mereka."
+[Ugh ...... kedengarannya cukup sulit. Jika Aku membuat sedikit kesalahan, Aku mungkin akan memotong lengan mereka.] (ciel)
 
-ain"Kalau begitu, cobalah yang terbaik agar itu tidak terjadi."
+[Kalau begitu, cobalah yang terbaik agar itu tidak terjadi.] (ain)
 
 Bahkan ketika dia khawatir tentang itu, Ciel masih menjawab dengan "baiklah." Jadi aku memutuskan untuk diam-diam mengawasinya.
 
@@ -224,29 +224,29 @@ Adapun hasil dari pertandingan tersebut, para pria itu akhirnya berlumuran luka,
 
 Bahkan Ciel terengah-engah dan mendekati akhir, kontrolnya untuk sihir semakin buruk. Sudah kuduga, kelemahan Ciel sepertinya adalah staminanya. Aku juga tidak memiliki banyak stamina, tetapi terlepas dari seberapa lelahnya Aku, Aku yakin bahwa Aku masih dapat menciptakan +BARRIER dengan presisi yang sama seperti yang biasa Aku lakukan.
 
-ciel"Ngomong-ngomong, aku terus berlari sepanjang waktu, tapi apakah itu baik-baik saja? Lagipula, mereka terus berteriak 'Jangan lari, itu tidak adil!' terus menerus selama pertarungan."
+[Ngomong-ngomong, aku terus berlari sepanjang waktu, tapi apakah itu baik-baik saja? Lagipula, mereka terus berteriak 'Jangan lari, itu tidak adil!' terus menerus selama pertarungan.] (ciel)
 
-ain"Karena kamu seorang penyihir, Ciel, menjaga jarak itu normal. itu kesalahan mereka karena membiarkan penyihir mengambil jarak dari mereka. Bahkan untuk latihan, Aku pikir itu bagus."
+[Karena kamu seorang penyihir, Ciel, menjaga jarak itu normal. itu kesalahan mereka karena membiarkan penyihir mengambil jarak dari mereka. Bahkan untuk latihan, Aku pikir itu bagus.] (ain)
 
-ciel"Benarkah?"
+[Benarkah?] (ciel)
 
-ain"Aku tidak terlalu tahu banyak tentang pertarungan, jadi Aku sebenarnya tidak terlalu yakin tentang itu. Tapi untuk saat ini, mari kita memikirkan cara bergerak dan bertarung dengan benar sebagai penyihir."
+[Aku tidak terlalu tahu banyak tentang pertarungan, jadi Aku sebenarnya tidak terlalu yakin tentang itu. Tapi untuk saat ini, mari kita memikirkan cara bergerak dan bertarung dengan benar sebagai penyihir.] (ain)
 
-carol"Apakah Kamu puas sekarang?"
+"Apakah Kamu puas sekarang?" (carol)
 
-ain"Mengapa Kamu mengatakannya seperti Aku menginginkan pertarungan ini? Itu karena Kamu menatapku seperti Kamu ingin Aku pergi jadi hal ini terjadi."
+"Mengapa Kamu mengatakannya seperti Aku menginginkan pertarungan ini? Itu karena Kamu menatapku seperti Kamu ingin Aku pergi jadi hal ini terjadi." (ain)
 
 Carol-san mengatakannya dengan nada terkejut, jadi Aku membalasnya dengan jujur.
 
 Carol-san mengalihkan pandangannya dan berkata "yaaah, yah sudahlah." Seolah ingin melarikan diri.
 
-carol"Jika Aku benar, Kamu meminta mereka membayar Kamu dengan jumlah yang sama dengan yang Kamu miliki, kan? Orang-orang ini, bukankah mereka akan kehilangan semuanya?"
+"Jika Aku benar, Kamu meminta mereka membayar Kamu dengan jumlah yang sama dengan yang Kamu miliki, kan? Orang-orang ini, bukankah mereka akan kehilangan semuanya?" (carol)
 
-ain"Aku mungkin memiliki sekitar 10 koin emas. Kamu bisa membayar sebanyak itu dengan mudah, kan?"
+"Aku mungkin memiliki sekitar 10 koin emas. Kamu bisa membayar sebanyak itu dengan mudah, kan?" (ain)
 
-carol"yaah aku adalah hunter rank B. Orang-orang ini Rank E dan D. Selain itu, mereka tampaknya bukan tipe yang menabung dalam kehidupan sehari-hari mereka."
+"yaah aku adalah hunter rank B. Orang-orang ini Rank E dan D. Selain itu, mereka tampaknya bukan tipe yang menabung dalam kehidupan sehari-hari mereka." (carol)
 
-ain"Baiklah, Aku akan berkompromi dengan meminta mereka membayar masing-masing tiga koin emas."
+"Baiklah, Aku akan berkompromi dengan meminta mereka membayar masing-masing tiga koin emas." (ain)
 
 Aku sebenarnya memiliki lebih dari itu. Itu sebabnya Aku mengatakan itu lebih awal tetapi tidak ada gunanya.
 
@@ -255,3 +255,7 @@ Untuk memastikannya, Aku membangunkan mereka, menunjukkan 10 koin emas, dan memi
 Karena kami tidak punya pilihan lain, kami setuju dengan meminta mereka membayar dengan semua yang mereka miliki saat ini.
 
 tapi, karena mereka bahkan tidak dapat mengikuti aturan dalam pertarungan yang mereka mulai, mereka semua diturunkan ranknya.
+
+-------------
+
+Heh brasskun tidak ada tobatnya, semoga aja gak berakhir dengan tobat, harus ada karma !! kesal sama cerita dimana orang yg kacau kalau udah setim sama mc lalu tobat, ga kesel si, namanya juga perkembangan karakter, cuma ya bosan aja rasanya... dan wtf meeen bodoh sekali mereka mau taruhan sebanyak itu, ain mengalahkan alejo dan bisa meanngkis tombak es carol tidak tersebarkah ?? kalau jadi isu tersebar kan harusnya ga berani menantang.. ckckck..
