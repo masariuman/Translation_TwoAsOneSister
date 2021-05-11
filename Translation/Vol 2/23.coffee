@@ -1,6 +1,6 @@
 ch 23 : Mandi, Pertama Kali, dan Sebuah Lagu Pengantar Tidur
 
-c"Jadi ini kamar mandi yang sering Aku baca, Aku mengerti."
+[Jadi ini kamar mandi yang sering Aku baca, Aku mengerti.] (ciel)
 
 Meskipun Aku akan mencoba menjelaskannya kepadanya, Aku tidak memiliki kosakata untuk melakukannya. Karena itu, Aku mengakhiri penjelasanku dengan mengarahkannya ke kamar mandi.
 
@@ -14,7 +14,7 @@ Bak mandi ini tidak seperti bak mandi kayu tradisional yang ditemukan di Jepang 
 
 Selain itu, ada pipa yang terpasang dan jika Kamu mengikuti kemana arahnya, ada benda seperti sakelar dan semacam benda yang dapat menahan benda bulat.
 
-a"Alas itu, kemungkinan tempat kita meletakkan batu magic."
+[Alas itu, kemungkinan tempat kita meletakkan batu magic.] (ain)
 
 c"Seperti ini?"
 

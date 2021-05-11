@@ -22,34 +22,34 @@ Aku bisa saja melepas pakaiannya ...... ​​tapi ini tubuh Ciel, jadi aku tida
 
 Aku akan serahkan hal itu dan hal mandi pada Ciel. Meskipun Aku mengatakan bahwa Aku ingin mandi, Aku merasa canggung melakukannya dengan tubuhnya.
 
-a"Ciel, haruskah aku mengembalikan tubuhmu sekarang?"
+[Ciel, haruskah aku mengembalikan tubuhmu sekarang?] (ain)
 
-c"Mereka akan membawa makan malam, kan? Kalau begitu, bagaimana kalau kita melakukannya setelah itu?"
+[Mereka akan membawa makan malam, kan? Kalau begitu, bagaimana kalau kita melakukannya setelah itu?] (ciel)
 
-a"Tapi tetap saja, tidak benar-benar ada yang harus aku dilakukan sekarang."
+[Tapi tetap saja, tidak benar-benar ada yang harus aku dilakukan sekarang.] (ain)
 
-c"Jika itu masalahnya, Aku ingin mengajukan beberapa pertanyaan..."
+[Jika itu masalahnya, Aku ingin mengajukan beberapa pertanyaan...] (ciel)
 
-a"Jika Aku dapat menjawabnya, silakan."
+[Jika Aku dapat menjawabnya, silakan.] (ain)
 
 Aku mengangguk pada kata-kata Ciel tanpa ragu-ragu. Karena Aku telah melakukan apa yang Aku suka sepanjang hari, mungkin ada banyak hal yang dia pikirkan.
 
 Tak lama kemudian, pertanyaan Ciel mencapai telingaku.
 
-c"Pertama, apakah tidak apa-apa membicarakan tentang kita sebanyak itu? Ini mungkin tidak memberikan petunjuk apapun tentang keberadaan Ain tapi bukankah buruk jika ini sampai ke Duke Rispelgia?"
+[Pertama, apakah tidak apa-apa membicarakan tentang kita sebanyak itu? Ini mungkin tidak memberikan petunjuk apapun tentang keberadaan Ain tapi bukankah buruk jika ini sampai ke Duke Rispelgia?] (ciel)
 
-a"Aku tidak yakin tentang ini, tapi "mungkin" baik-baik saja."
+[Aku tidak yakin tentang ini, tapi "mungkin" baik-baik saja.] (ain)
 
-c"Kenapa begitu?"
+[Kenapa begitu?] (ciel)
 
-a"Itu karena Celia-san bukanlah seseorang dari negara ini."
+[Itu karena Celia-san bukanlah seseorang dari negara ini] (ain)
 
-c"oh Begitu. Tapi aku penasaran mengapa kamu tahu tentang itu, Ain?"
+[oh Begitu. Tapi aku penasaran mengapa kamu tahu tentang itu, Ain?] (ciel)
 
-a"Itu karena dia tidak menentang kita ketika aku bertanya padanya tentang kita akan meninggalkan negara ini. Aneh bagiku untuk mengatakan ini tetapi, karena kita agak kuat, orang-orang di kota ini pasti ingin kita tinggal di sini. Dengan begitu, kota akan menjadi lebih aman dan karena kita terlihat seperti ini, mereka mungkin berpikir bahwa seharusnya cukup mudah untuk membujuk kita agar menerima permintaan yang tidak populer."
+[Itu karena dia tidak menentang kita ketika aku bertanya padanya tentang kita akan meninggalkan negara ini. Aneh bagiku untuk mengatakan ini tetapi, karena kita agak kuat, orang-orang di kota ini pasti ingin kita tinggal di sini. Dengan begitu, kota akan menjadi lebih aman dan karena kita terlihat seperti ini, mereka mungkin berpikir bahwa seharusnya cukup mudah untuk membujuk kita agar menerima permintaan yang tidak populer.] (ain)
 
-c"Tapi Ain tahu tentang itu bahkan sebelum itu, kan?
-Jika tidak, Kamu tidak akan pernah menanyakannya tentang meninggalkan negara sejak awal."
+[Tapi Ain tahu tentang itu bahkan sebelum itu, kan?
+Jika tidak, Kamu tidak akan pernah menanyakannya tentang meninggalkan negara sejak awal.] (ciel)
 
 Aku sangat kagum melihat bahwa Ciel cukup tanggap untuk mengatakannya dengan percaya diri. Jika itu adalah Aku yang berusia 10 tahun, Aku mungkin akan bereaksi seperti "Hue ~ , luar biasa!" Atau sesuatu seperti itu.
 
@@ -57,33 +57,33 @@ Seperti yang dia katakan, Aku bertanya kepada Celia-san tentang hal itu karena A
 
 Tetap saja, Aku tidak bisa tidak membicarakannya, jadi aku mempersiapkan diri untuk rasa malu karena mengatakannya.
 
-a"Alasan Aku berpikir begitu, adalah karena bagaimana dia memperlakukanku."
+[Alasan Aku berpikir begitu, adalah karena bagaimana dia memperlakukanku.] (ain)
 
-c"Jadi dengan kata lain, Ain menyadarinya sejak awal!"
+[Jadi dengan kata lain, Ain menyadarinya sejak awal!] (ciel)
 
-a"Aku senang itu mengejutkanmu, tetapi itu tidak seperti Aku segera menyadarinya atau benar-benar yakin bahwa Celia-san bukan dari negara ini. Hanya saja, dia selalu sopan bahkan ketika berinteraksi dengan seorang anak dan dia tidak langsung menganggap surat pengantar kita palsu juga. Ini hanya asumsiku, tetapi Sannois mungkin bukan kota besar. Di tempat-tempat seperti ini, kebanyakan orang saling mengenal sehingga kebanyakan dari mereka biasa-biasa saja. Ini mungkin terdengar agak kasar tetapi, orang-orang di tempat ini umumnya kasar dan keras kepala. Karena itu, bahkan jika kita memiliki surat pengantar, ada kemungkinan itu akan dianggap palsu dan mereka tidak akan menganggap kita serius."
+[Aku senang itu mengejutkanmu, tetapi itu tidak seperti Aku segera menyadarinya atau benar-benar yakin bahwa Celia-san bukan dari negara ini. Hanya saja, dia selalu sopan bahkan ketika berinteraksi dengan seorang anak dan dia tidak langsung menganggap surat pengantar kita palsu juga. Ini hanya asumsiku, tetapi Sannois mungkin bukan kota besar. Di tempat-tempat seperti ini, kebanyakan orang saling mengenal sehingga kebanyakan dari mereka biasa-biasa saja. Ini mungkin terdengar agak kasar tetapi, orang-orang di tempat ini umumnya kasar dan keras kepala. Karena itu, bahkan jika kita memiliki surat pengantar, ada kemungkinan itu akan dianggap palsu dan mereka tidak akan menganggap kita serius.] (ain)
 
-c"Tapi, karena dia sopan dengan kita, kamu menyimpulkan mungkin dia bukan dari kota ini, kan?"
+[Tapi, karena dia sopan dengan kita, kamu menyimpulkan mungkin dia bukan dari kota ini, kan?] (ciel)
 
-a"Itu benar. Alasan lainnya adalah karena bahkan ketika Alejo mulai menuduh kita, dia sepertinya tidak berniat memihak siapa pun. Aku hanya berpikir, jika dia adalah orang dari kota ini, dia mungkin mencoba menyingkirkan orang luar seperti kita atau memihak kita untuk mengkritik Alejo, yang mungkin adalah penjahat kota. Tapi, dia tidak melakukan semua itu. Aku percaya itu karena, daripada mengutamakan emosinya, dia memprioritaskan ideologi Guild Hunter dan semacamnya. Karena itu, aku hanya berpikir kalau begitu, dia pasti orang dari Kantor Utama, dengan kata lain seseorang dari luar negeri."
+[Itu benar. Alasan lainnya adalah karena bahkan ketika Alejo mulai menuduh kita, dia sepertinya tidak berniat memihak siapa pun. Aku hanya berpikir, jika dia adalah orang dari kota ini, dia mungkin mencoba menyingkirkan orang luar seperti kita atau memihak kita untuk mengkritik Alejo, yang mungkin adalah penjahat kota. Tapi, dia tidak melakukan semua itu. Aku percaya itu karena, daripada mengutamakan emosinya, dia memprioritaskan ideologi Guild Hunter dan semacamnya. Karena itu, aku hanya berpikir kalau begitu, dia pasti orang dari Kantor Utama, dengan kata lain seseorang dari luar negeri.] (ain)
 
 Aku mencoba mengatakan banyak hal tetapi, singkatnya, Aku hanya berpikir bahwa cara dia berinteraksi denganku entah bagaimana mengingatkanku pada seseorang yang dikirim oleh kantor utama. Sejujurnya Aku tidak yakin mengapa Aku menganggapnya seperti itu. Mungkin intuisi Aku atau mungkin berdasarkan pengalaman Aku di masa lalu. karena itulah Aku malu Mengatakannya.
 
-c"Bahkan setelah mendengar penjelasan Ain, Aku masih belum sepenuhnya mengerti. Tapi bukannya aku meragukanmu ya, Ain?"
+[Bahkan setelah mendengar penjelasan Ain, Aku masih belum sepenuhnya mengerti. Tapi bukannya aku meragukanmu ya, Ain? ](ciel)
 
-a"Bahkan untukku, itu hanya firasat. Selain itu, Aku yakin Kamu akan memahaminya di masa depan, Ciel. Bagaimanapun juga, Kamu tahu bahwa Aku menyadarinya sejak awal. Ini mirip dengan seperti itu, Kamu paham?"
+[Bahkan untukku, itu hanya firasat. Selain itu, Aku yakin Kamu akan memahaminya di masa depan, Ciel. Bagaimanapun juga, Kamu tahu bahwa Aku menyadarinya sejak awal. Ini mirip dengan seperti itu, Kamu paham?] (ain)
 
-c"oh Begitu, begitu ya! Itu karena aku tahu segalanya ...... tidak segalanya, tentang Ain tapi aku ingin berpikir bahwa aku tahu banyak tentangmu. Ngomong-ngomong Ain, bolehkah aku bertanya kenapa kamu memberitahunya tentang kita?"
+[oh Begitu, begitu ya! Itu karena aku tahu segalanya ...... tidak segalanya, tentang Ain tapi aku ingin berpikir bahwa aku tahu banyak tentangmu. Ngomong-ngomong Ain, bolehkah aku bertanya kenapa kamu memberitahunya tentang kita?] (ciel)
 
-a"Jika dia bukan orang dari negara ini, aku ingin dia menjadi sekutu kita."
+[Jika dia bukan orang dari negara ini, aku ingin dia menjadi sekutu kita.] (ain)
 
-c"Tapi kamu hanya menceritakan sedikit tentang kita, kan? Kamu tidak memintanya untuk membantu kita, kan?"
+[Tapi kamu hanya menceritakan sedikit tentang kita, kan? Kamu tidak memintanya untuk membantu kita, kan?] (ciel)
 
-a"Aku tidak menanyakannya secara langsung tetapi, mengingat kita tidak makan apa pun sampai Kamu berusia 5 tahun atau rambutmu menjadi putih dalam 10 tahun, itu seharusnya memberi tahu dia bahwa kita mengalami banyak masalah. Dengan melakukan itu, seperti Aku secara tidak langsung bertanya kepadanya, 'Aku punya banyak masalah tetapi maukah Kamu membantuku?'. Tapi aku tidak yakin apakah dia memahaminya."
+[Aku tidak menanyakannya secara langsung tetapi, mengingat kita tidak makan apa pun sampai Kamu berusia 5 tahun atau rambutmu menjadi putih dalam 10 tahun, itu seharusnya memberi tahu dia bahwa kita mengalami banyak masalah. Dengan melakukan itu, seperti Aku secara tidak langsung bertanya kepadanya, 'Aku punya banyak masalah tetapi maukah Kamu membantuku?'. Tapi aku tidak yakin apakah dia memahaminya.] (ain)
 
-c"Bergaul dengan orang-orang itu sulit, kan?"
+[Bergaul dengan orang-orang itu sulit, kan?] (ciel)
 
-a"Aku tidak akan pernah melakukan ini lagi. Bagaimanapun juga, Aku tidak memiliki pengalaman dalam mengirim sinyal atau menjadi isyarat. Kali ini, kitalah yang memulainya jadi entah bagaimana aku berhasil. Jika pihak lain adalah orang yang memulainya, Aku tidak tahu apakah Aku bisa membaca dengan benar maksud dari isyaratnya."
+[Aku tidak akan pernah melakukan ini lagi. Bagaimanapun juga, Aku tidak memiliki pengalaman dalam mengirim sinyal atau menjadi isyarat. Kali ini, kitalah yang memulainya jadi entah bagaimana aku berhasil. Jika pihak lain adalah orang yang memulainya, Aku tidak tahu apakah Aku bisa membaca dengan benar maksud dari isyaratnya.] (ain)
 
 yaah, Aku hanyalah warga negara biasa di masa lalu. Sama sekali tidak ada alasan bagiku untuk memiliki kesempatan mencoba mengakali siapa pun.
 
@@ -99,21 +99,21 @@ Saat kami selesai dengan topik ini, Aku mendengar ketukan ringan di pintu.
 
 Di tangannya ada nampan dan di atasnya ada sepotong roti dan semangkuk sup.
 
-"Apakah Kamu ingin makan sekarang?"
+"Apakah Kamu ingin makan sekarang?" (nilda)
 
-a"iya. Terima kasih banyak."
+"iya. Terima kasih banyak." (ain)
 
-"Setelah selesai makan, tinggalkan nampan dengan mangkuk di depan pintumu, oke? Ini adalah batu magic untuk mandi, oke?"
+"Setelah selesai makan, tinggalkan nampan dengan mangkuk di depan pintumu, oke? Ini adalah batu magic untuk mandi, oke?" (nilda)
 
-a"ok. Umm , bisakah aku bertanya berapa harga kamar ini ......?"
+"ok. Umm , bisakah aku bertanya berapa harga kamar ini ......?" (ain)
 
 Setelah menanyakan begitu, Nilda-san tersenyum seolah-olah dia tertawa setiap saat sekarang dan menggeleng.
 
-"Ini sudah dibayar, jadi jangan khawatir tentang itu."
+"Ini sudah dibayar, jadi jangan khawatir tentang itu." (nilda)
 
-a"Kalau begitu aku akan berterima kasih padanya besok."
+"Kalau begitu aku akan berterima kasih padanya besok." (ain)
 
-"Dia akan senang mendengarnya. Sekarang, aku akan pergi sekarang. Kamu bisa anggap ini rumahmu."
+"Dia akan senang mendengarnya. Sekarang, aku akan pergi sekarang. Kamu bisa anggap ini rumahmu." (nilda)
 
 Setelah melihat Nilda-san keluar setelah ia meninggalkan nampan dan batu magic di atas meja, Aku sekali lagi melihat apa yang dibawanya.
 
@@ -121,11 +121,11 @@ Di atas nampan ada roti putih yang tampak lembut dan semangkuk sup yang lezat. D
 
 makanan yang kami ambil dari Kereta kuda lebih baik daripada yang kami miliki di mansion tetapi pada akhirnya, itu hanya makanan yang diawetkan.
 
-a"Apakah kamu ingin memakannya, Ciel?"
+[Apakah kamu ingin memakannya, Ciel?] (ain)
 
-c"Kamu bisa memakannya Ain. Kamu ingin makan, kan?"
+[Kamu bisa memakannya Ain. Kamu ingin makan, kan?] (ciel)
 
-a"Ya. Terimakasih untuk makanannya."
+[Ya. Terimakasih untuk makanannya.] (ain)
 
 Karena Ciel memberiku kesempatan, hari ini Aku akan berterima kasih.
 
@@ -145,11 +145,11 @@ Aku tidak pernah berpikir bahwa Aku akan menangis karena makan tetapi, sepertiny
 
 Mengingat bahwa Aku memiliki ingatan tentang makanan di kehidupanku sebelumnya sementara Aku tidak memiliki makanan yang layak selama sepuluh tahun, Aku rasa itu wajar saja.
 
-c"Ain, apakah ini enak?"
+[Ain, apakah ini enak?] (ciel)
 
-a"Ya, sangat. Bagaimana denganmu Ciel?"
+[Ya, sangat. Bagaimana denganmu Ciel?] (ain)
 
-c"Rasanya sangat rumit, aku tidak begitu tahu harus berkata apa. Ain, mungkin sulit untuk menjawabnya tapi, apa itu enak?"
+[Rasanya sangat rumit, aku tidak begitu tahu harus berkata apa. Ain, mungkin sulit untuk menjawabnya tapi, apa itu enak?] (ciel)
 
 Apa artinya enak, agak sulit dijawab.
 
@@ -157,11 +157,11 @@ tapi, Aku sudah mempertimbangkan kemungkinan Ciel mengajukan pertanyaan semacam 
 
 Itu sebabnya Ciel tidak memiliki konsep enak atau bahkan gagasan menikmati makanan.
 
-a"pengertian enak itu berbeda tergantung orangnya. tapi, jika setelah makan dan Kamu ingin memakannya lagi dari lubuk hatimu, maka Aku pikir makanan itu adalah sesuatu yang lezat untukmu."
+[pengertian enak itu berbeda tergantung orangnya. tapi, jika setelah makan dan Kamu ingin memakannya lagi dari lubuk hatimu, maka Aku pikir makanan itu adalah sesuatu yang lezat untukmu.] (ain)
 
-c"Kalau begitu, Aku ingin makan ini lagi."
+[Kalau begitu, Aku ingin makan ini lagi.] (ciel)
 
-a"Begitu ya,,, kalau begitu mari kita makan lagi kapan-kapan."
+[Begitu ya,,, kalau begitu mari kita makan lagi kapan-kapan.] (ain)
 
 Menjanjikan itu, Aku kembali makan.
 
@@ -173,27 +173,27 @@ Sama seperti Aku telah melakukan ini sepanjang waktu, Ciel dengan santai duduk d
 
 Dan saat aku berpikir, "Ain" dia memanggil namaku.
 
-a"ada apa?"
+[ada apa?] (ain)
 
-c"Kamu sedang memikirkan tentang +BARRIERmu dihancurkan hari ini, kan? Lagipula, kau bertingkah agak aneh."
+[Kamu sedang memikirkan tentang +BARRIERmu dihancurkan hari ini, kan? Lagipula, kau bertingkah agak aneh.] (ciel)
 
 Mendengar dia mengatakan itu dengan penuh keyakinan, "Ugh ......" Aku secara refleks mengerang.
 
 Bukannya aku terlalu percaya diri dengan +BARRIERku tapi aku yakin karena +BARRIER itu menahan serangan dari raksasa bermata satu. itu bohong jika aku mengatakan bahwa pertandingan formal hari ini dengan Carol-san tidak membuatku terkejut.
 
-c"Jangan terlalu khawatir tentang itu, oke? Memang benar kalau +BARRIERmu telah dihancurkan tetapi bahkan kalau tombak mengenaiku, Kamu akan melakukan sesuatu tentang itu, kan Ain?"
+[Jangan terlalu khawatir tentang itu, oke? Memang benar kalau +BARRIERmu telah dihancurkan tetapi bahkan kalau tombak mengenaiku, Kamu akan melakukan sesuatu tentang itu, kan Ain?] (ciel)
 
-a"Itu hal yang berbeda. Karena Carol-san sepertinya rank B, ini berarti karena dia tidak bisa menahan serangannya, itulah batas dari +BARRIERku."
+[Itu hal yang berbeda. Karena Carol-san sepertinya rank B, ini berarti karena dia tidak bisa menahan serangannya, itulah batas dari +BARRIERku.] (ain)
 
-c"Tetap saja, raksasa bermata satu itu adalah monster rank B juga, kan? Meskipun Aku tidak tahu apakah tidak apa-apa untuk membandingkan rank Hunter dengan rank monster."
+[Tetap saja, raksasa bermata satu itu adalah monster rank B juga, kan? Meskipun Aku tidak tahu apakah tidak apa-apa untuk membandingkan rank Hunter dengan rank monster.] (ciel)
 
-a"Meskipun benar bahwa kekuatan tombak es mungkin berada di sisi yang lebih kuat dari rank B, tujuanku adalah untuk 'menahan serangan bahkan monster terkuat'..."
+[Meskipun benar bahwa kekuatan tombak es mungkin berada di sisi yang lebih kuat dari rank B, tujuanku adalah untuk 'menahan serangan bahkan monster terkuat'...] (ain)
 
-c"Tidak masalah untuk memiliki tujuan yang tinggi, tapi kamu tidak perlu terburu-buru, oke? kalau tidak, Aku akan tertinggal. Selain itu, mengenai pertandingan hari ini, itu tidak akan menjadi masalah jika saja Aku menangkis 10 tombak es itu, kan?"
+[Tidak masalah untuk memiliki tujuan yang tinggi, tapi kamu tidak perlu terburu-buru, oke? kalau tidak, Aku akan tertinggal. Selain itu, mengenai pertandingan hari ini, itu tidak akan menjadi masalah jika saja Aku menangkis 10 tombak es itu, kan?] (ciel)
 
-a"Tetap saja, Kamu dapat menangkis 9 tombak itu, jadi ..."
+[Tetap saja, Kamu dapat menangkis 9 tombak itu, jadi ...] (ain)
 
-c"Aku bisa melakukannya karena bantuanmu, Ain. Karena kita memiliki satu sama lain, jika kita bisa mengatasi banyak hal bersama, bukankah itu cukup baik?"
+[Aku bisa melakukannya karena bantuanmu, Ain. Karena kita memiliki satu sama lain, jika kita bisa mengatasi banyak hal bersama, bukankah itu cukup baik?] (ciel)
 
 Itu benar, jika Ciel bisa mengatasinya sendiri, maka tidak masalah. Dan pada saat dia tidak bisa melakukannya, Aku hanya harus mendukungnya.
 
@@ -201,11 +201,11 @@ Di sisi lain, jika ada sesuatu yang tidak bisa Aku tangani sendiri, maka Aku bis
 
 Aku selalu berusaha untuk menciptakan +BARRIER yang tidak bisa dipecahkan, tidak terdeteksi, dan tidak ada habisnya tetapi, itu tidak berarti Aku harus bekerja keras sendiri.
 
-a"benar. Mungkin aku terlalu terburu-buru."
+[benar. Mungkin aku terlalu terburu-buru.] (ain)
 
-c"Aku juga akan melakukan yang terbaik agar bisa terus bersamamu, Ain."
+[Aku juga akan melakukan yang terbaik agar bisa terus bersamamu, Ain.] (ciel)
 
-a"Baiklah, ayo lakukan yang terbaik bersama-sama."
+[Baiklah, ayo lakukan yang terbaik bersama-sama.] (ain)
 
 Entah bagaimana, Aku merasa dadaku sedikit lebih ringan tapi, Aku senang melihat Ciel senang.
 
@@ -213,10 +213,10 @@ Fakta bahwa ada seseorang yang memahamiku seperti ini terasa agak geli.
 
 Tepat ketika Aku berpikir bahwa kami telah menyelesaikan topik ini, Ciel tiba-tiba bertepuk tangan seolah-olah dia ingat sesuatu.
 
-c"Kalau dipikir-pikir, Ain lebih suka payudara besar, bukan?
-Ukuranku kurang memuaskan ya? "
+[Kalau dipikir-pikir, Ain lebih suka payudara besar, bukan?
+Ukuranku kurang memuaskan ya?] (ciel)
 
-a"Ummmm , apa maksudmu? Apakah Aku mengatakan sesuatu tentang ini?"
+[Ummmm , apa maksudmu? Apakah Aku mengatakan sesuatu tentang ini?] (ain)
 
 Mendengar kata-kata yang tiba-tiba itu, aku secara refleks menanyakannya.
 
@@ -226,7 +226,7 @@ Tidak peduli apapun itu, Aku benar-benar akan malu tentang itu dan hanya memikir
 
 Lalu mengapa? Saat aku mempertanyakan diriku sendiri, Ciel menjatuhkan bom lagi.
 
-c"Maksudku, ketika Kamu melihat seseorang dengan dada besar, itu selalu menarik perhatianmu, Ain. Kamu iri tentang itu, kan?"
+[Maksudku, ketika Kamu melihat seseorang dengan dada besar, itu selalu menarik perhatianmu, Ain. Kamu iri tentang itu, kan?] (ciel)
 
 Dia menjatuhkan bom tapi untungnya meleset dari sasaran.
 
@@ -234,15 +234,15 @@ Jika ditanya apakah Aku suka yang besar, Aku akan mengatakan bahwa Aku cukup men
 
 Juga, jika Aku diizinkan untuk membuat lebih banyak alasan, Aku mungkin memiliki perasaan yang tidak murni tentang mereka di masa lalu tetapi itu tidak berlaku untuk kehidupanku sekarang sama sekali.
 
-a"Aku hanya berpikir itu tampak sangat berat. Bukannya aku tertarik dengan mereka, aku hanya punya kebiasaan melihat hal-hal yang tidak biasa."
+[Aku hanya berpikir itu tampak sangat berat. Bukannya aku tertarik dengan mereka, aku hanya punya kebiasaan melihat hal-hal yang tidak biasa.] (ain)
 
-c"Sekarang setelah kupikir-pikir, kamu juga melihat orang-orang yang tinggi."
+[Sekarang setelah kupikir-pikir, kamu juga melihat orang-orang yang tinggi.] (ciel)
 
-a"Menatap orang terlalu banyak bukan benar-benar hal yang baik untuk dilakukan tetapi dengan tinggi Ciel, orang-orang yang besar benar-benar menarik perhatian."
+[Menatap orang terlalu banyak bukan benar-benar hal yang baik untuk dilakukan tetapi dengan tinggi Ciel, orang-orang yang besar benar-benar menarik perhatian.] (ain)
 
-c"Terlepas dari itu, apakah Kamu ingin payudara yang lebih besar, Ain?"
+[Terlepas dari itu, apakah Kamu ingin payudara yang lebih besar, Ain?] (ciel)
 
-a"Karena Kamu seorang perempuan, Aku pikir memilikinya baik untuk kepercayaan dirimu. Bagaimanapun, dalam beberapa hal, itu adalah simbol wanita dewasa."
+[Karena Kamu seorang perempuan, Aku pikir memilikinya baik untuk kepercayaan dirimu. Bagaimanapun, dalam beberapa hal, itu adalah simbol wanita dewasa.] (ain)
 
 Meskipun Aku tidak memberinya jawaban yang tepat dan hanya menjawab dengan sesuatu yang terdengar benar, sepertinya Ciel yakin.
 
@@ -250,23 +250,23 @@ Dan setelah mengerang sambil tenggelam dalam pikirannya, dia bergumam "Aku ingin
 
 Aku seharusnya tidak menjawab pertanyaan itu. Tapi, setelah hampir tidak bisa lepas percakapan sebelumnya, Aku secara refleks mengucapkan kata-kata umum dalam kehidupanku sebelumnya.
 
-a"katanya memijatnya membuatnya lebih besar."
+[katanya memijatnya membuatnya lebih besar.] (ain)
 
-c"Sesuatu yang begitu sederhana benar-benar berhasil?"
+[Sesuatu yang begitu sederhana benar-benar berhasil?] (ciel)
 
 Aku menyadari kesalahanku adalah ketika Ciel hendak meletakkan tangannya ke dadanya.
 
 "Berhenti." Aku berhasil menghentikan Ciel untuk bergerak lebih jauh.
 
-a"Itu hanya rumor jadi sebaiknya jangan percaya."
+[Itu hanya rumor jadi sebaiknya jangan percaya.] (ain)
 
-c"Apakah kamu pernah mencobanya sebelumnya, Ain?"
+[Apakah kamu pernah mencobanya sebelumnya, Ain?] (ciel)
 
-a"T-tidak."
+[T-tidak.] (ain)
 
-c"Bagaimana dengan orang-orang di sekitarmu?"
+[Bagaimana dengan orang-orang di sekitarmu?] (ciel)
 
-a"Mereka belum mencobanya juga . Dan bahkan jika mereka mencobanya, Aku belum pernah mendengar mereka mengatakan mereka melakukannya."
+[Mereka belum mencobanya juga . Dan bahkan jika mereka mencobanya, Aku belum pernah mendengar mereka mengatakan mereka melakukannya.] (ain)
 
 Tentu saja belum. Tidak mungkin aku melakukannya.
 
@@ -275,3 +275,7 @@ Lagipula, orang-orang di sekitarku umumnya laki-laki. Dan meskipun Aku punya tem
 Setelah mengangguk pada dirinya sendiri, Ciel bertanya kepadaku "Kalau dipikir-pikir, bagaimana caranya mandi?"
 
 Aku agak khawatir tentang bagaimana percakapan ini membuatnya berpikir untuk mandi tetapi karena itu mengubah topik saat ini, Aku Aku akan menganggap ini hal yang baik. Dengan itu, Aku mulai menjelaskan mandi kepada Ciel.
+
+------------------
+
+yaaaaayyy dedek ciel akhirnya mengerti apa itu rasa enak.... perlahan-lahan dedek ciel mengerti 1 per 1 common sense di dunia ini... ganbatte babang ain jadi guardiannya dan jadi gurunya !!! semangaat !!!
