@@ -163,13 +163,13 @@ Jika nyawa Ciel bisa terancam, Aku pasti akan memilih untuk lari. Tetapi bahkan 
 
 Dan selain itu, masalah lainnya adalah Ciel tidak peduli apakah kami membantu mereka atau tidak.
 
-a"Aku akan merasa tidak enak jika mereka mati tepat di depan kita, jadi apakah kamu ok jika kita membantu mereka?"
+[Aku akan merasa tidak enak jika mereka mati tepat di depan kita, jadi apakah kamu ok jika kita membantu mereka?] (ain)
 
-c"Tentu, aku tidak akan keberatan."
+[Tentu, aku tidak akan keberatan.] (ciel)
 
-a"Tapi, tolong buat sihir seperti digunakan dari pohon di sebelah kanan secara diagonal di belakang kita."
+[Tapi, tolong buat sihir seperti digunakan dari pohon di sebelah kanan secara diagonal di belakang kita.] (ain)
 
-c"Fufu , Ain adalah orang yang sangat jahat, kau tahu itu?"
+[Fufu , Ain adalah orang yang sangat jahat, kau tahu itu?] (ciel)
 
 Sambil terkikik gembira, Ciel mulai menuangkan energi sihir ke salah satu lingkaran sihir tersembunyi kami.
 
@@ -179,11 +179,11 @@ Dari tempat aku memberitahunya, +ICE ARROW ditembakkan dan menembus kepala lima 
 
 Para Hunter sudah mengalahkan tiga goblin lainnya, jadi mereka harus bisa melawan hanya dengan Pemimpin Goblin yang tersisa.
 
-a"Ayo lari."
+[Ayo lari.] (ain)
 
-c"Kemana kita akan pergi?"
+[Kemana kita akan pergi?] (ciel)
 
-a"menuju ke gerbang yang kita tinggalkan."
+[menuju ke gerbang yang kita tinggalkan.] (ain)
 
 Setelah pertukaran singkat itu, Ciel lari.
 
@@ -199,10 +199,15 @@ Saat dia melihatku, dia tampak lega dan melambaikan tangannya.
 
 "Hei nona kecil. Sepertinya kamu kembali tanpa cedera."
 
-a"yaaah aku hanya pergi untuk mendapatkan herb. Jika itu hanya goblin, mereka ada atau tidak tidak pun tidak membuat perbedaan."
+[yaaah aku hanya pergi untuk mendapatkan herb. Jika itu hanya goblin, mereka ada atau tidak tidak pun tidak membuat perbedaan.] (ain)
 
 "Biasanya bertemu goblin sudah cukup bermasalah. Bagaimanapun juga, kerja bagus karena sudah kembali."
 
 Tidak seperti hari pertama kami, kami diizinkan masuk tanpa masalah, jadi Aku mengucapkan terima kasih saat memasuki kota.
 
 Setelah berjalan melalui jalan lurus dan memasuki Guild Hunter, di sana aku melihat Carol-san menatapku seolah dia ingin berbicara denganku.
+
+
+-----------
+
+Wkwkwkwkw mampus carol jadi repot kan ~~~ makanya jgn stalking orang...

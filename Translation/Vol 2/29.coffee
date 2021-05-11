@@ -1,36 +1,36 @@
 Ch 29 : Herb, Alasan Menguntit, dan Pub
 
-"Agak terlambat, ya?"
+"Agak terlambat, ya?" (carol)
 
-a"Benarkah? Masih ada waktu sebelum malam dan matahari terbenam, jadi Aku pikir Aku di sini lebih awal."
+"Benarkah? Masih ada waktu sebelum malam dan matahari terbenam, jadi Aku pikir Aku di sini lebih awal." (ain)
 
 Aku dengan acuh tak acuh menjawab pada Carol-san yang tampaknya tidak senang menatapku.
 
 Tetap saja, Aku pikir dengan menjadi begitu ekspresif tentang hal itu, dia dengan gampang mengungkapkan bahwa dia sendiri yang mengintai kami.
 
-a"jadi, akan Kamu keberatan memberu tahu alasannya ?"
+"jadi, apakah Kamu keberatan memberi tahu alasannya ?" (ain)
 
-"Apa yang Kamu bicarakan?"
+"Apa yang Kamu bicarakan?" (carol)
 
-a"begitu ya... jadi tidak apa-apa kalau Aku berteriak karena aku diikuti. baiklah...."
+"begitu ya... jadi tidak apa-apa kalau Aku berteriak karena aku diikuti. baiklah...." (ain)
 
-"Itu bukan sesuatu yang bisa kita bicarakan di sini, jadi bisakah Kamu mengikuti Aku ke belakang?"
+"Itu bukan sesuatu yang bisa kita bicarakan di sini, jadi bisakah Kamu mengikuti Aku ke belakang?" (carol)
 
-a"Tapi Aku ingin melaporkan permintaanku terlebih dahulu."
+"Tapi Aku ingin melaporkan permintaanku terlebih dahulu." (ain)
 
-Dalam benak Aku, perlakuanku terhadap Carol-san berangsur-angsur semakin buruk.
+Dalam benakku, perlakuanku terhadap Carol-san berangsur-angsur semakin buruk.
 
-Aku tahu dia mungkin bukan orang jahat, tapi sepertinya aku masih menyimpan dendam padanya karena hampir membunuh kita.
+Aku tahu dia mungkin bukan orang jahat, tapi sepertinya aku masih menyimpan dendam padanya karena hampir membunuh kami.
 
 Juga, ketika aku memikirkan betapa merepotkannya dia dalam hal sihir, aku hanya merasa tidak ingin berbicara serius dengannya. Selain itu, kurasa penguntitan kali ini lebih buruk.
 
 Selain itu, mengenai party tadi, seharusnya tidak ada alasan untuk kecewa dengan apa yang terjadi karena aku benar-benar menyelamatkan mereka.
 
-"Kalau begitu, aku akan membawa Celia juga. Bagaimana?"
+"Kalau begitu, aku akan membawa Celia juga. Bagaimana?" (carol)
 
-a"Selama permintaan diproses, baiklah."
+"Selama permintaan diproses, baiklah." (ain)
 
-"kalau begitu ikuti aku."
+"kalau begitu ikuti aku." (carol)
 
 ◇
 
