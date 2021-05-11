@@ -46,35 +46,35 @@ Mungkin hanya karena aku menyembunyikan rambut Ciel sampai sekarang, tapi rasany
 
 Saat kami melewati aula dan menuruni tangga ke lantai bawah, Nilda-san sedang berdiri di meja resepsionis.
 
-a"Selamat pagi."
+"Selamat pagi." (ain)
 
-"Ya ampun, halo tukang tidur."
+"Ya ampun, halo tukang tidur." (nilda)
 
 Ketika Aku menyapanya, Aku dihadapkan dengan tatapan yang agak lembut.
 
 Dan meskipun Aku benar-benar berharap bahwa mungkin tidak ada sarapan yang disiapkan, Nilda-san berkata "Ini makananmu!" Sambil memberiku keranjang kecil.
 
-a"Apakah tidak apa-apa?"
+"Apakah tidak apa-apa?" (ain)
 
-"Yah, Aku sudah dibayar oleh guild. Jadi jika Aku tidak memberikannya kepadamu, itu akan menjadi pelanggaran kontrak dari pihakku, oke?"
+"Yah, Aku sudah dibayar oleh guild. Jadi jika Aku tidak memberikannya kepadamu, itu akan menjadi pelanggaran kontrak dari pihakku, oke?" (nilda)
 
-a"kalau begitu, terima kasih banyak."
+"kalau begitu, terima kasih banyak." (ain)
 
-"Juga, jika Kamu pergi keluar, tinggalkan kunci di sini sebelum Kamu pergi oke?"
+"Juga, jika Kamu pergi keluar, tinggalkan kunci di sini sebelum Kamu pergi oke?" (nilda)
 
-a"...... Umm , bisakah Aku bertanya berapa lama Aku bisa tinggal di sini?"
+"...... Umm , bisakah Aku bertanya berapa lama Aku bisa tinggal di sini?" (ain)
 
-"Untuk saat ini, seharusnya sekitar 10 hari?"
+"Untuk saat ini, seharusnya sekitar 10 hari?" (nilda)
 
-a"Begitu. Terima kasih banyak."
+"Begitu. Terima kasih banyak." (ain)
 
-c"Sepertinya kita tidak perlu membawa semua barang kita."
+[Sepertinya kita tidak perlu membawa semua barang kita.] (ciel)
 
-a"Benar. Tetap saja, aku sangat senang kita tidak perlu khawatir tentang biaya penginapan selama 10 hari."
+[Benar. Tetap saja, aku sangat senang kita tidak perlu khawatir tentang biaya penginapan selama 10 hari.] (ain)
 
-c"Lagipula, ini jauh lebih baik daripada tidur di tanah."
+[Lagipula, ini jauh lebih baik daripada tidur di tanah.] (ciel)
 
-a"Juga, karena kita punya kamar sendiri, kita bisa berbicara tanpa mengkhawatirkan mata orang lain, kan Ciel? "
+[Juga, karena kita punya kamar sendiri, kita bisa berbicara tanpa mengkhawatirkan mata orang lain, kan Ciel?] (ain)
 
 Saat kami menuju ke guild, Aku melakukan percakapan ini dengan Ciel. "Fufu , itu benar." Ciel menjawab dengan riang. Apakah ini karena dia sangat senang dengan percakapan pribadi kami?
 
@@ -100,11 +100,11 @@ Aku terlalu paranoid. Dia hanya bertanya kepadaku "Apakah Kamu di sini untuk mem
 
 Ya. Nah, jika seorang anak dengan warna rambut yang tidak biasa, dan bahkan tidak terlihat berusia hampir 10 tahun, tiba-tiba memasuki guild; tentu, itu mungkin reaksi alami. Sebaliknya, karena dia tidak salah mengira aku tersesat, dia sebenarnya menangani ini dengan cukup baik.
 
-a"Aku punya janji dengan Celia-san jadi, bisakah Kamu memanggilnya untukku?"
+"Aku punya janji dengan Celia-san jadi, bisakah Kamu memanggilnya untukku?" (ain)
 
 "Uhh , Celia-san , ya? Apakah Kamu putrinya ...... mungkin tidak tetapi, apakah Kamu ada hubungan dengannya?"
 
-a"Apakah Celia-san mengatakan sesuatu tentang memanggilnya jika ada gadis berambut putih?"
+"Apakah Celia-san mengatakan sesuatu tentang memanggilnya jika ada gadis berambut putih?" (ain)
 
 Setelah mendengar kata-kataku, resepsionis wanita itu mungkin teringat sesuatu, karena bahunya tiba-tiba melonjak.
 
@@ -124,11 +124,11 @@ Beberapa saat setelah resepsionis pergi ke ruang belakang, Celia-san keluar deng
 
 Tapi karena wajah Celia-san langsung kembali normal, mungkin itu hanya imajinasiku.
 
-"Aku ingin membawamu ke ruang yang kita gunakan kemarin tetapi apakah itu tidak masalah?"
+"Aku ingin membawamu ke ruang yang kita gunakan kemarin tetapi apakah itu tidak masalah?" (celia)
 
-a"kita akan berbicara, kan? kalau begitu tidak masalah."
+"kita akan berbicara, kan? kalau begitu tidak masalah." (ain)
 
-"Terima kasih banyak."
+"Terima kasih banyak." (celia)
 
 Sambil melakukan percakapan yang kaku dan obyektif, kami dipandu ke ruang belakang.
 
@@ -138,25 +138,25 @@ Dengan kata lain, Carol-san duduk di sampingku. Aku tahu dia tidak berhubungan d
 
 Untuk saat ini, saat kami akan berdiskusi, Celia-san meminta maaf lagi.
 
-"Aku ingin meminta maaf atas perilaku staf kami sebelumnya."
+"Aku ingin meminta maaf atas perilaku staf kami sebelumnya." (celia)
 
-a"Aku tidak terlalu mempermasalahkannya. yaah, Aku memang terlihat lebih muda dari usia 10 tahun. Sekarang Aku memikirkannya, Aku masih belum memiliki Kartu Hunter, jadi Aku sebenarnya tidak memiliki apa pun yang dapat membuktikan bahwa Aku adalah seorang Hunter."
+"Aku tidak terlalu mempermasalahkannya. yaah, Aku memang terlihat lebih muda dari usia 10 tahun. Sekarang Aku memikirkannya, Aku masih belum memiliki Kartu Hunter, jadi Aku sebenarnya tidak memiliki apa pun yang dapat membuktikan bahwa Aku adalah seorang Hunter." (ain)
 
-"Mengenai itu, sekali lagi, Maafkan Aku. Aku akan menyerahkannya sekarang. Ini akan menjadi Kartu Huntermu, Cielmer-san."
+"Mengenai itu, sekali lagi, Maafkan Aku. Aku akan menyerahkannya sekarang. Ini akan menjadi Kartu Huntermu, Cielmer-san." (celia)
 
 Setelah mengatakan itu, dia memberiku kartu logam. Mungkin sekitar satu ukuran lebih besar dari kartu kredit. Dengan tangan Ciel, ini akan sedikit sulit untuk dipegang.
 
 Di depan, ada nama Cielmer dan rank - rank E - tertulis di atasnya. Di belakang, ada beberapa pola rumit yang tergambar di atasnya tapi, ini mungkin semacam lingkaran sihir. Karena itu, Aku bahkan tidak dapat memahami apa yang tertulis di dalamnya.
 
-a"Jadi kartunya diatur dengan sihir, kan?"
+"Jadi kartunya diatur dengan sihir ya?" (ain)
 
-"Benar. Ini kompatibel dengan item sihir di setiap guild dan menggunakannya, tingkat penyelesaian permintaan Hunter atau hasil tes peringkat mereka dapat dibaca secara detail. Itu juga dapat menulis ulang kartu. alat serupa dapat ditemukan di pintu masuk kota dan pos pemeriksaan dan perangkat ini dapat membedakan apakah Kartu Hunter itu asli atau tidak. Tapi, sepertinya tidak ada yang bisa membuat ulang teknologi ini dari awal. Satu teori bahkan mengatakan bahwa ini mungkin adalah sesuatu yang diberikan kepada kami oleh dewa."
+"Benar. Ini kompatibel dengan item sihir di setiap guild dan menggunakannya, tingkat penyelesaian permintaan Hunter atau hasil tes peringkat mereka dapat dibaca secara detail. Itu juga dapat menulis ulang kartu. alat serupa dapat ditemukan di pintu masuk kota dan pos pemeriksaan dan perangkat ini dapat membedakan apakah Kartu Hunter itu asli atau tidak. Tapi, sepertinya tidak ada yang bisa membuat ulang teknologi ini dari awal. Satu teori bahkan mengatakan bahwa ini mungkin adalah sesuatu yang diberikan kepada kami oleh dewa." (celia)
 
-a"Seorang dewa ...... Apakah itu Alsharohs-sama ?"
+"Seorang dewa ...... Apakah itu Alsharohs-sama ?" (ain)
 
-"Aku tidak begitu paham dengan detailnya tetapi Aku pikir itu adalah Mehtestos-sama."
+"Aku tidak begitu paham dengan detailnya tetapi Aku pikir itu adalah Mehtestos-sama." (celia)
 
-a"Begitu ya, itu masuk akal."
+"Begitu ya, itu masuk akal." (ain)
 
 Di dunia ini, tidak hanya ada satu dewa. Ada sejumlah dewa dan masing-masing dari mereka memiliki sesuatu yang mereka kuasai tetapi, Aku akan mengakhiri bagian ini di sini.
 
@@ -170,17 +170,17 @@ Aku ingin memperjelaskannya, bahwa gereja sebenarnya tidak bermaksud untuk menol
 
 Sekarang mari kembali ke topik utama.
 
-Celia-san mengarahkan kita kembali ke masalah utama.
+Celia-san mengarahkan kami kembali ke masalah utama.
 
-"Kemudian sekali lagi, izinkan Aku untuk mendiskusikan afiliasi kita. Carol dan aku, masing-masing sebagai Hunter dan resepsionis, adalah anggota guild yang dikirim ke sini dari guild pusat. Adapun alasan untuk ini, ini sangat rahasia jadi Aku tidak diizinkan untuk menjawab itu."
+"Kemudian sekali lagi, izinkan Aku untuk mendiskusikan afiliasi kami. Carol dan aku, masing-masing sebagai Hunter dan resepsionis, adalah anggota guild yang dikirim ke sini dari guild pusat. Adapun alasan untuk ini, ini sangat rahasia jadi Aku tidak diizinkan untuk menjawab itu." (celia)
 
-a"Karena Kamu memberi tahuku ini, apakah ini berarti Kamu akan mendukungku?"
+"Karena Kamu memberi tahuku ini, apakah ini berarti Kamu akan mendukungku?" (ain)
 
-"Ini masih belum beres tetapi karena kami sudah mengungkapkan bahwa kami setidaknya tidak berafiliasi dengan kota ini atau negara ini, kita bisa memiliki lebih banyak hal yang dapat kita diskusikan."
+"Ini masih belum jelas tetapi karena kami sudah mengungkapkan bahwa kami setidaknya tidak berafiliasi dengan kota ini atau negara ini, kita bisa memiliki lebih banyak hal yang dapat kita diskusikan." (celia)
 
-a"Jadi meskipun apa yang akan Aku katakan dapat merugikan negara ini, Kamu akan membiarkanku?"
+"Jadi meskipun apa yang akan Aku katakan dapat merugikan negara ini, Kamu akan membiarkanku?" (ain)
 
-"Sebaliknya, karena itu memberi Guild Hunter lebih banyak kartu untuk digunakan untuk hubungan diplomatik, guild akan mendengarkan. Tidak peduli informasi apa yang Kamu miliki, guild akan menjaga kerahasiaan informasi yang berasal darimu. Tapi, jika seseorang adalah anggota Guild Hunter, jika mereka bukan dari guild pusat, mungkin saja mereka setia pada wilayah atau negara mereka, jadi mohon diingat."
+"Sebaliknya, karena itu memberi Guild Hunter lebih banyak kartu untuk digunakan untuk hubungan diplomatik, guild akan mendengarkan. Tidak peduli informasi apa yang Kamu miliki, guild akan menjaga kerahasiaan informasi yang berasal darimu. Tapi, jika seseorang adalah anggota Guild Hunter, jika mereka bukan dari guild pusat, mungkin saja mereka setia pada wilayah atau negara mereka, jadi mohon diingat." (celia)
 
 Aku sudah punya firasat tentang itu tetapi tampaknya bahkan Guild Hunter memiliki masalah internal mereka sendiri.
 
@@ -190,63 +190,63 @@ Dalam kasus tersebut, mereka bahkan mungkin memprioritaskan kepentingan negara d
 
 Tetap saja, itu tidak mengubah niat kami untuk hanya membicarakan diri kami sendiri kepada orang yang menurut kami bisa kami percayai. Jika kami mau, ini bahkan bisa menjadi yang pertama dan terakhir kali kami akan berbicara tentang diri kami sendiri, jadi membahas ini bukanlah sesuatu yang perlu kami terlalu khawatirkan.
 
-"Tetap saja, bahkan jika informasimu adalah sesuatu yang tidak dapat diterima oleh guild, kami tidak akan meninggalkanmu, jadi tolong jangan khawatir tentang itu. Setidaknya, apa yang kami putuskan kemarin sudah dijamin."
+"Tetap saja, bahkan jika informasimu adalah sesuatu yang tidak dapat diterima oleh guild, kami tidak akan meninggalkanmu, jadi tolong jangan khawatir tentang itu. Setidaknya, apa yang kami putuskan kemarin sudah dijamin." (celia)
 
-a"Ngomong-ngomong soal dijamin, apa yang terjadi dengan hukuman Carol-san ?"
+"Ngomong-ngomong soal dijamin, apa yang terjadi dengan hukuman Carol-san ?" (ain)
 
 Aku sebenarnya tidak peduli apa itu selama dia mendapat hukuman yang tepat. Lagipula, mengetahui tentang itu tidak akan mengubah apa pun. Tetap saja, Aku ingin mendengar apa hukumannya hanya untuk memastikan.
 
 Jadi sementara aku melakukannya, aku mencuri pandang ke wajah Carol-san dan, untuk beberapa alasan, dia terlihat seperti kehilangan semua harapan di dunia.
 
-"The Guild Hunter telah menghukum Carol dengan pembatasan penggunaan di ruang penelitian dan pembayaran biaya penginapanmu selama Kamu tinggal di kota ini. Secara khusus, guild akan membantumu dalam hidupmu di sini, jadi telah diputuskan bahwa guild akan menanggung biaya penginapanmu."
+"The Guild Hunter telah menghukum Carol dengan pembatasan penggunaan di ruang penelitian dan pembayaran biaya penginapanmu selama Kamu tinggal di kota ini. Secara khusus, guild akan membantumu dalam hidupmu di sini, jadi telah diputuskan bahwa guild akan menanggung biaya penginapanmu." (celia)
 
-a"Ah, terima kasih telah membayar kamarku."
+"Ah, terima kasih telah membayar kamarku." (ain)
 
-"Seperti yang dikatakan sebelumnya, ini adalah tanggung jawab guild, jadi jangan khawatir tentang itu Cielmer-san. Sebagai gantinya, jika Kamu tidak naik rank bahkan setelah satu tahun dibantu dan tidak dapat menghasilkan cukup uang untuk menopang mata pencaharian Kamu saat itu, kami tidak akan lagi membantumu mencapai rank-C, jadi harap perhatikan ini ya."
+"Seperti yang dikatakan sebelumnya, ini adalah tanggung jawab guild, jadi jangan khawatir tentang itu Cielmer-san. Sebagai gantinya, jika Kamu tidak naik rank bahkan setelah satu tahun dibantu dan tidak dapat menghasilkan cukup uang untuk menopang mata pencaharian Kamu saat itu, kami tidak akan lagi membantumu mencapai rank-C, jadi harap perhatikan ini ya." (celia)
 
-a"Aku mengerti."
+"Aku mengerti." (ain)
 
 Terus terang, Aku benar-benar ingin melakukan sesuatu tentang masalah uang kami saat ini, jadi jaminan penginapan kami sangat membantu.
 
 Paling tidak, kami harus bisa mengelola dengan uang yang kami miliki. Dan jika batu magic yang kami miliki dapat dijual dengan harga yang bagus, itu seharusnya menyelesaikan masalah kami kehabisan uang.
 
-"Ini bukan bagian dari hukumannya tetapi selama tahun itu atau sampai Kamu mencapai Rank C, Carol akan menjadi instrukturmu."
+"Ini bukan bagian dari hukumannya tetapi selama tahun itu atau sampai Kamu mencapai Rank C, Carol akan menjadi instrukturmu." (celia)
 
-a"A-Begitu ya......."
+"A-Begitu ya......." (ain)
 
-"Kamu tidak perlu terlihat gelisah tentang itu lho..."
+"Kamu tidak perlu terlihat gelisah tentang itu lho..." (carol)
 
 Kurasa itu benar-benar terlihat di wajahku, karena Carol-san sedikit merajuk dari reaksiku. Tetap saja, aku bereaksi seperti ini adalah kesalahannya sendiri, jadi aku sama sekali tidak bermaksud untuk bersimpati atau memaafkannya.
 
 Tetap saja, dia berjanji untuk mengawasi kami sampai kami mencapai rank C, jadi sudah terlambat bagiku untuk bereaksi seperti ini.
 
-a"Kamu hampir membunuhku, jadi sulit untuk menerimanya. Mungkin ada kemungkinan besar Kamu bahkan akan lupa tentang mengajariku dan mulai mendiskusikan sihir. Aku tidak keberatan untuk itu, tetapi Aku bahkan tidak ingin membayangkan hal sebelumnya terjadi lagi."
+"Kamu hampir membunuhku, jadi sulit untuk menerimanya. Mungkin ada kemungkinan besar Kamu bahkan akan lupa tentang mengajariku dan mulai mendiskusikan sihir. Aku tidak keberatan untuk itu, tetapi Aku bahkan tidak ingin membayangkan hal sebelumnya terjadi lagi." (ain)
 
-"Aku benar-benar mengerti apa yang Kamu bicarakan tetapi dengan situasi kami, menjadikan Carol sebagai instrukturmu adalah pilihan terbaik kami."
+"Aku benar-benar mengerti apa yang Kamu bicarakan tetapi dengan situasi kami, menjadikan Carol sebagai instrukturmu adalah pilihan terbaik kami." (celia)
 
-a"Nah jika ada orang lain yang memenuhi syarat untuk itu, mereka mungkin akan ada di sini sekarang. Jadi, lain kali jika Aku merasakan bahaya, izinkan Aku untuk melawan tanpa menahan diri."
+"Nah jika ada orang lain yang memenuhi syarat untuk itu, mereka mungkin akan ada di sini sekarang. Jadi, lain kali jika Aku merasakan bahaya, izinkan Aku untuk melawan tanpa menahan diri." (ain)
 
-"SUDAH KUDUGA, Kamu tidak serius waktu itu, kan?"
+"SUDAH KUDUGA, Kamu tidak serius waktu itu, kan?" (carol)
 
 Dan saat kami membicarakan masalahnya, mata Carol-san tiba-tiba berbinar karena tertarik.
 
 Di sisi lain, Celia-san langsung mengernyit seolah baru saja pusing.
 
-"Carol. Tidakkahmu mengerti bahwa itulah mengapa dia berhati-hati padamu?"
+"Carol. Tidakkahmu mengerti bahwa itulah mengapa dia berhati-hati padamu?" (celia)
 
-"Ti-Tidak apa-apa. Aku tidak akan membuatnya menjadi sedikit serius atau apapun. Benar, hanya berdiskusi tentang sihir sudah cukup."
+"Ti-Tidak apa-apa. Aku tidak akan membuatnya menjadi sedikit serius atau apapun. Benar, hanya berdiskusi tentang sihir sudah cukup." (carol)
 
-"Itu masih di zona abu-abu lho..."
+"Itu masih di zona abu-abu lho..." (celia)
 
 Celia-san menghela nafas panjang tapi Carol-san sepertinya tidak terlalu peduli.
 
 Kalau Carol-san terlalu malas mengajar, Aku akan melaporkannya ke Celia-san .
 
-"Untuk saat ini, mari kembali ke topik. Adapun alasan mengapa kami ingin mendengar tentang apa yang ingin Kamu katakan, itu karena memiliki informasi akan memudahkan guild untuk merumuskan tindakan selanjutnya. Secara khusus, dalam kasus di mana mungkin ada pengejar yang sudah mencari Kamu, guild dapat bergerak untuk mencari sekelilingmu juga."
+"Untuk saat ini, mari kembali ke topik. Adapun alasan mengapa kami ingin mendengar tentang apa yang ingin Kamu katakan, itu karena memiliki informasi akan memudahkan guild untuk merumuskan tindakan selanjutnya. Secara khusus, dalam kasus di mana mungkin ada pengejar yang sudah mencari Kamu, guild dapat bergerak untuk mencari sekelilingmu juga." (celia)
 
-a"Masih ada kemungkinan kalau akulah yang salah lho..."
+"Masih ada kemungkinan kalau akulah yang salah lho..." (ain)
 
-"Meskipun itu mungkin saja benar, peluang untuk itu seharusnya cukup rendah, jadi kami akan mengabaikannya untuk saat ini. Dan bahkan jika Kamu dikejar karena pembunuhan, Aku menilai bahwa ada cukup alasan bagimu untuk melakukannya."
+"Meskipun itu mungkin saja benar, peluang untuk itu seharusnya cukup rendah, jadi kami akan mengabaikannya untuk saat ini. Dan bahkan jika Kamu dikejar karena pembunuhan, Aku menilai bahwa ada cukup alasan bagimu untuk melakukannya." (celia)
 
 Pada titik ini, Aku benar-benar merasa diberi pengecualian khusus karena Aku berusia 10 tahun.
 
@@ -255,3 +255,7 @@ Biasanya anak berusia 10 tahun tidak akan pernah membunuh seseorang, jadi mereka
 Betapa nyamannya tubuh gadis kecil ini!
 
 Sekarang, mengabaikan omong kosong itu, aku harus memikirkan tentang seberapa banyak yang bisa aku katakan.
+
+-------------
+
+Kaaaan mereka berdua bukan resepsionis / hunter biasa, bukan lokal malahan, dari pusat utama / guild utama, pantas wawasan mereka luas banget.. dan bisa berfikir layaknya detektif... sudah kuduga.....
