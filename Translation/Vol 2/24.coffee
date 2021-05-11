@@ -36,9 +36,9 @@ Pagi hari ini sangat menyegarkan, jadi Aku mulai bernyanyi dengan la ~ la ~ la ~
 
 Karena Ciel bangun terlambat, bagiku rasanya seperti liburan sekarang, jadi aku agak bersemangat untuk hari ini. Meski aku selalu berjaga-jaga, tubuh Ciel menjadi segar jadi mood-ku terpengaruh oleh itu.
 
-c"Aku akan serahkan semuanya kepadamu hari ini jugam ain."
+[Aku akan serahkan semuanya kepadamu hari ini juga ain.] (ciel)
 
-a"Aku akan bertukar jika sesuatu terjadi, jadi ketika saatnya tiba, Aku akan menyerahkannya kepadamu juga."
+[Aku akan bertukar jika sesuatu terjadi, jadi ketika saatnya tiba, Aku akan menyerahkannya kepadamu juga.] (ain)
 
 Selagi kita tinggal di kota ini, akulah yang paling banyak bergerak. Karena itu, Aku beralih dengan Ciel, memakai jubah kami, dan meninggalkan ruangan.
 
