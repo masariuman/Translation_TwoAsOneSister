@@ -126,13 +126,13 @@ Nah, apakah kebencian ini hanya terbatas pada kota ini, terbatas pada negara ini
 
 Tetap saja, mungkin saja kebencian ini ada di banyak negara, dan Aku hampir yakin kebencian itu juga mengakar kuat di seluruh negeri ini. Lagipula, Song princess telah mengacaukan ibu kota di masa lalu. Aku tidak akan terkejut jika ada beberapa hiasan untuk job itu atau orang menyebutmu dikutuk karena memilikinya.
 
-a"Kalau begitu, mari kita buat agar aku menjadi anak yatim piatu dari seorang ibu dari negara jauh di timur, dan aku mewarisi job yang berhubungan dengan lagu, apakah itu terdengar bagus"
+"Kalau begitu, mari kita buat agar aku menjadi anak yatim piatu dari seorang ibu dari negara jauh di timur, dan aku mewarisi job yang berhubungan dengan lagu, apakah itu terdengar bagus" (ain)
 
-"Dalam arti tertentu, negara ini adalah negara jauh di timur, tahukah kamu?"
+"Dalam arti tertentu, negara ini adalah negara jauh di timur, tahukah kamu?" (carol)
 
-a"kalau begitu dari barat."
+"kalau begitu dari barat." (ain)
 
-"kamu sungguh acak, ya?"
+"kamu sungguh acak, ya?" (carol)
 
 Carol-san mengatakannya dengan nada kaget tetapi sepertinya dia tidak melihat ada masalah denganku mengatakan bahwa Aku memiliki job yang berhubungan dengan menyanyi.
 
@@ -140,25 +140,25 @@ Dia mungkin tahu bahwa lebih baik mencampurkan beberapa kebenaran daripada denga
 
 Faktanya, karena Aku hanya melakukan ini dengan informasi yang tidak jelas - Aku benar-benar melakukan ini agar Aku bisa bernyanyi jika Aku punya kesempatan - dia mungkin tahu betapa efektifnya itu lebih dariku.
 
-a"Sekadar untuk mengonfirmasi, jika Aku menghadap utara, kananku adalah timur, kiriku adalah barat, dan di belakangku adalah selatan, kan?"
+"Sekadar untuk mengonfirmasi, jika Aku menghadap utara, kananku adalah timur, kiriku adalah barat, dan di belakangku adalah selatan, kan?" (ain)
 
-"Benar, itu benar. begitu ya... Itu sangat masuk akal. Kamu seharusnya tidak memiliki pengetahuan tentang apa yang biasanya masuk akal. Apakah ini berarti, Aku harus mengajarimu tentang ini juga?"
+"Benar, itu benar. begitu ya... Itu sangat masuk akal. Kamu seharusnya tidak memiliki pengetahuan tentang apa yang biasanya masuk akal. Apakah ini berarti, Aku harus mengajarimu tentang ini juga?" (carol)
 
-a"+BARRIERku. Selain melindungi dan bersembunyi, tahukah Kamu apa efek lain yang dimilikinya?"
+"+BARRIERku. Selain melindungi dan bersembunyi, tahukah Kamu apa efek lain yang dimilikinya?" (ain)
 
-"Tentu saja. Lagipula kau adalah junior kecilku yang manis. Wajar saja untuk mengajari mu semua yang tidak Kamu ketahui."
+"Tentu saja. Lagipula kau adalah junior kecilku yang manis. Wajar saja untuk mengajari mu semua yang tidak Kamu ketahui." (carol)
 
 dasar monocle-senpai , dia cukup merepotkan tapi dalam beberapa hal, mudah untuk berurusan dengannya juga.
 
 tetapu, selain melindungi dan bersembunyi, yang bisa dilakukan +BARRIERku hanyalah hal-hal seperti membuang kotoran dan hal-hal lain. Yah, aku tidak terlalu peduli apakah ini akan sepadan dengan Carol-san, tapi karena aku berhasil memenangkan hatinya, semuanya baik-baik saja.
 
-a"Ngomong-ngomong, apakah Aku benar tentang arahnya?"
+"Ngomong-ngomong, apakah Aku benar tentang arahnya?" (ain)
 
-"Apa yang Kamu katakan itu benar. Kebetulan, kenapa kamu tidak memilih untuk berasal dari negara ini?"
+"Apa yang Kamu katakan itu benar. Kebetulan, kenapa kamu tidak memilih untuk berasal dari negara ini?" (celia)
 
-a"Itu karena lagu yang aku tahu bukan dari negara ini."
+"Itu karena lagu yang aku tahu bukan dari negara ini." (ain)
 
-"Maukah kamu bernyanyi sebentar?"
+"Maukah kamu bernyanyi sebentar?" (carol)
 
 Karena Carol-san bertanya padaku, aku akan melakukannya, tapi apa yang harus aku nyanyikan? Juga, haruskah aku menggunakan kekuatan song princess atau tidak?
 
@@ -168,64 +168,66 @@ Jadi setelah mengatakan "baiklah", Aku menyanyikan lagu sederhana. Dan karena Ak
 
 Sudah kuduga, bernyanyi dengan tenggorokan juga cukup bagus. Ini sedikit berbeda dari saat aku hanya bernyanyi untuk didengar Ciel.
 
-"Aku belum pernah mendengar kata-kata itu sebelumnya. Ini pertama kalinya aku juga mendengar melodi seperti itu."
+"Aku belum pernah mendengar kata-kata itu sebelumnya. Ini pertama kalinya aku juga mendengar melodi seperti itu." (carol)
 
-"Tetap saja, itu adalah lagu yang bagus yang didengar telingamu."
+"Tetap saja, itu adalah lagu yang bagus yang didengar telingamu." (celia)
 
 Setelah mereka berdua menyatakan pendapat mereka tentang hal itu, Carol-san bertanya kepadaku "Di mana Kamu mempelajarinya?", Sebuah pertanyaan yang mungkin mereka berdua tanyakan.
 
-a"Aku mendengarkan ibuku bernyanyi, jadi Aku mempelajarinya secara alami. Itu dari masa laluku."
+"Aku mendengarkan ibuku bernyanyi, jadi Aku mempelajarinya secara alami. Itu dari masa laluku." (ain)
 
-"Aku tidak bertanya tentang masa lalu."
+"Aku tidak bertanya tentang masa lalu." (carol)
 
-a"itu saat Aku dikurung, itulah satu-satunya hal yang bisa Aku katakan."
+"itu saat Aku dikurung, itulah satu-satunya hal yang bisa Aku katakan." (ain)
 
-"Haah ...... Yah itu masuk akal."
+"Haah ...... Yah itu masuk akal." (carol)
 
 Bagi Cielmer, ini sebenarnya agak mendekati kebenaran. Dan karena mungkin sulit untuk memikirkan hal lain dari sudut pandang Carol-san , sepertinya dia yakin dengan hal itu.
 
-"Mari kita cukup sampai di sini untuk hari ini, oke? Lagipula, kami sudah membahas tentang hal minimum yang perlu kami ketahui dan kami tidak bisa menahanmu di sini terlalu lama."
+"Mari kita cukup sampai di sini untuk hari ini, oke? Lagipula, kami sudah membahas tentang hal minimum yang perlu kami ketahui dan kami tidak bisa menahanmu di sini terlalu lama." (celia)
 
-"Yah, itu benar. Adapun diskusi tentang sihir, kami bisa melakukannya kapan saja nanti, mungkin."
+"Yah, itu benar. Adapun diskusi tentang sihir, kita bisa melakukannya kapan saja nanti, mungkin." (carol)
 
 Mungkin karena suasananya yang santai, sepertinya kami sudah selesai berdiskusi.
 
 tapi, Carol-san benar-benar tidak tergoyahkan. Saat aku memikirkan hal itu, Celia-san tiba-tiba bertanya padaku "Apakah kamu punya rencana hari ini?", Jangan-jangan, dia akan memintaku untuk melakukan pekerjaan hunter sekarang jika aku memberitahunya? karena Aku sedikit khawatir, dan karena akan lebih nyaman bagi kami dengan cara ini, Aku dengan jujur ​​memberi tahu dia tentang rencana kami.
 
-a"Setelah ini, Aku berencana untuk berbelanja, apakah Kamu tahu toko yang bagus?"
+"Setelah ini, Aku berencana untuk berbelanja, apakah Kamu tahu toko yang bagus?" (ain)
 
-"Apa yang ingin Kamu beli?"
+"Apa yang ingin Kamu beli?" (celia)
 
-a"Untuk saat ini, pakaian dalam."
+"Untuk saat ini, pakaian dalam." (ain)
 
-"...... Tunggu. Apakah Kamu tidak memiliki pakaian dalam di balik gaunmu saat ini?"
+"...... Tunggu. Apakah Kamu tidak memiliki pakaian dalam di balik gaunmu saat ini?" (celia)
 
-a"Ketika Aku melarikan diri, kain ini adalah satu-satunya pakaian yang Aku kenakan. Ah, Aku mendapatkan jubah ini dari kereta kuda saat itu, tetapi apakah ini akan menjadi masalah?"
+"Ketika Aku melarikan diri, kain ini adalah satu-satunya pakaian yang Aku kenakan. Ah, Aku mendapatkan jubah ini dari kereta kuda saat itu, tetapi apakah ini akan menjadi masalah?" (ain)
 
-"Errr, jubah itu seharusnya tidak menimbulkan masalah. Lagipula, ada aturan yang mengatakan bahwa apa pun yang tersisa di kereta kuda yang ditinggalkan setelah serangan akan jatuh ke dalam kepemilikan orang yang menemukannya."
+"Errr, jubah itu seharusnya tidak menimbulkan masalah. Lagipula, ada aturan yang mengatakan bahwa apa pun yang tersisa di kereta kuda yang ditinggalkan setelah serangan akan jatuh ke dalam kepemilikan orang yang menemukannya." (celia)
 
 Karena tidak ada gunanya berbohong tentang itu, aku dengan jujur ​​mengatakan yang sebenarnya tapi... butuh keberanian untuk menyatakan bahwa aku tidak memakai apapun di dalam jubah ini.
 
 Itulah mengapa Aku berbicara tentang jubah untuk mengalihkan topik tetapi Celia-san tidak membiarkannya lewat begitu saja. Lagipula, dia sulit untuk digambarkan dari raut wajahnya sekarang dan aku bahkan merasa tinjunya seperti gemetar karena cengkeramannya yang ketat.
 
-"Ya, aku pasti mulai semakin membenci bangsawan yang mengunci Cielmer-san."
+"Ya, aku pasti mulai semakin membenci bangsawan yang mengunci Cielmer-san." (celia)
 
 Ah, nadanya baru saja berubah. Dia bisa santai dengan Carol-san karena mereka adalah kenalan, tapi dia selalu sopan dan baik denganku, mungkin karena hubungan kami juga berdasarkan pekerjaan.
 
 Tapi, yah, karena dia tidak benar-benar mengatakan itu padaku, aku seharusnya aman.
 
-"Biarkan Aku membantumu berbelanja. Aku tidak bisa mengatakan dengan pasti, tetapi Cielmer-san , Kamu tidak yakin tentang apa yang harus dibeli, kan?"
+"Biarkan Aku membantumu berbelanja. Aku tidak bisa mengatakan dengan pasti, tetapi Cielmer-san , Kamu tidak yakin tentang apa yang harus dibeli, kan?" (celia)
 
-a"Y-ya. Jika memungkinkan, Aku ingin membeli kebutuhan lain juga dan bukan hanya pakaian ......"
+"Y-ya. Jika memungkinkan, Aku ingin membeli kebutuhan lain juga dan bukan hanya pakaian ......" (ain)
 
-"Baiklah, jangan khawatir tentang itu. Aku percaya bahwa alat rias masih terlalu dini untukmu, jadi Aku akan mengajarimu tentang perawatan kulit dan beberapa hal lainnya."
+"Baiklah, jangan khawatir tentang itu. Aku percaya bahwa alat rias masih terlalu dini untukmu, jadi Aku akan mengajarimu tentang perawatan kulit dan beberapa hal lainnya." (celia)
 
-"Celia, bukankah Kamu bereaksi berlebihan? Biasanya, staf guild tidak berbuat sejauh itu untuk membantu."
+"Celia, bukankah Kamu bereaksi berlebihan? Biasanya, staf guild tidak berbuat sejauh itu untuk  membantu." (carol)
 
-"Itu jelas. Tapi ini hanya aku, bukan staf guild tapi wanita dewasa, membantu seorang gadis yang mengalami kemalangan. Untungnya, Aku tidak memiliki urusan penting hari ini, jadi sebaiknya Aku mengambil cuti setengah hari."
+"Itu jelas. Tapi ini hanya aku, bukan staf guild tapi wanita dewasa, membantu seorang gadis yang mengalami kemalangan. Untungnya, Aku tidak memiliki urusan penting hari ini, jadi sebaiknya Aku mengambil cuti setengah hari." (celia)
 
-"oh, baiklah."
+"oh, baiklah." (carol)
 
 Entah bagaimana, tiba-tiba telah diputuskan bahwa Celia-san akan ikut menemaniku tetapi karena itu nyaman bagi kami, sebagai orang yang diurus, Aku dengan senang hati mengikuti situasinya.
 
 Tapi tetap saja, aku benar-benar berpikir bahwa perlakuan ini semua karena penampilan Ciel, jadi aku bersyukur tentang itu ...... Itulah yang kupikirkan kali ini.
+
+-----------------
