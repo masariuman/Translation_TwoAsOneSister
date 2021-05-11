@@ -333,3 +333,9 @@ Dia manis, sangat manis, aku hampir ingin terus menganggunya. Tetap saja, Aku me
 tapi, Aku puas dengan penemuan ini untuk hari ini. Aku tidak ingin Ain membenciku.
 
 Aku ingin mengakhirinya di sini, jadi Aku mengatakan kepadanya "kalau begitu, tidak masalah." Dengan nada yang sangat ceria, mungkin karena Aku tidak bisa menahan kegembiraanku, bahkan Aku sendiri menyadarinya.
+
+----------------------
+
+TERIMA KASIH AIN TELAH MENYELAMATKAN DEDEK CIEL, WAHAAI ABANG AIN !!! PANUTAN !!!
+
+heee ?? dedek ciel udah mulai nakal ya ~~~~ Tapi gpp selama hanya nakal sama ain, karena ain layak mendapatkan kenakalan dari dedek ciel :3 :3 :3 !!!

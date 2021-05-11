@@ -4,9 +4,9 @@ Keesokan paginya, Ciel bangun cukup telat. Matahari sudah tinggi di langit, jadi
 
 Aku sangat senang dia bisa tidur nyenyak tapi kami memiliki banyak hal yang harus kami lakukan hari ini, jadi kami tidak bisa tinggal di tempat tidur terlalu lama.
 
-a"Ciel, selamat pagi."
+[Ciel, selamat pagi.] (ain)
 
-c"Ain ~? Pagi ~"
+[Ain ~? Pagi ~] (ciel)
 
 Dia benar-benar masih setengah tertidur tetapi agak tidak biasa baginya untuk menjadi mengantuk saat bangun.
 
@@ -14,18 +14,19 @@ Mungkin karena dia tidur di tempat tidur. Tentu saja, akan lebih mudah untuk ter
 
 Setelah linglung selama beberapa menit, Ciel tiba-tiba meregangkan lengannya dan sekarang benar-benar bangun.
 
-a"Apakah kamu sudah bangun sekarang?"
-c"Tempat tidur luar biasa. Sangat lembut. Entah bagaimana, itu membuatku merasa bahagia."
+[Apakah kamu sudah bangun sekarang?] (ain)
 
-a"Kalau begitu, aku sangat senang mendengarnya."
+[Tempat tidur luar biasa. Sangat lembut. Entah bagaimana, itu membuatku merasa bahagia.] (ciel)
 
-c"Jadi, jam berapa sekarang?"
+[Kalau begitu, aku sangat senang mendengarnya.] (ain)
 
-a"Seharusnya tepat sudah siang sekarang."
+[Jadi, jam berapa sekarang?] (ciel)
 
-c"sudah kuduga, Aku ketiduran. Kamu bisa membangunkanku lho..."
+[Seharusnya tepat sudah siang sekarang.] (ain)
 
-a"Aku juga berpikir untuk melakukannya karena kita memiliki rencana untuk hari ini juga, tapi sepertinya Kamu benar-benar menikmatinya, jadi..."
+[sudah kuduga, Aku ketiduran. Kamu bisa membangunkanku lho...] (ciel)
+
+[Aku juga berpikir untuk melakukannya karena kita memiliki rencana untuk hari ini juga, tapi sepertinya Kamu benar-benar menikmatinya, jadi...] (ain)
 
 Ciel menyelip dari tempat tidur putih bersih dengan rambut putihnya, mengintip seperti boneka yang ingin Kamu hias di suatu tempat. tapi, Ciel yang terkena sinar matahari memberinya tampilan yang agak ilahi.
 
