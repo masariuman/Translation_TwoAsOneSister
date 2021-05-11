@@ -1,12 +1,12 @@
 ch 26: Pembicaraan sebenarnya dan 
 
-"Sejujurnya Cielmer-san , menyakitkan bagiku membiarkanmu berjalan keluar dengan pakaian itu tapi ......"
+"Sejujurnya Cielmer-san , menyakitkan bagiku membiarkanmu berjalan keluar dengan pakaian itu tapi ......" (celia)
 
 Celia-san segera mengambil cuti sore dan tanpa kusadari, kami sudah meninggalkan Carol-san dan keluar dari guild.
 
 Sepanjang jalan, Celia-san menatapku dengan ekspresi yang sangat bertentangan di wajahnya sementara aku terkesima dengan area baru yang aku lihat.
 
-a"Ini adalah satu-satunya pakaian yang Aku kenakan sejak Aku lahir. Tapi itu tidak normal, kan?"
+"Ini adalah satu-satunya pakaian yang Aku kenakan sejak Aku lahir. Tapi itu tidak normal, kan?" (ain)
 
 aku sudah tahu itu. Tapi latar belakangku bahwa Aku dikurung selama 10 tahun dan baru saja melarikan diri, jadi akan aneh jika Aku tidak memerankannya sedikit pun.
 
@@ -14,29 +14,29 @@ Dalam hal ini, meminta Ciel bertukar denganku mungkin membuat reaksi kami tampak
 
 Berbicara tentang Ciel, "Celana Dalam? Apa itu?" Dia sepertinya sangat ingin tahu tentang topik itu.
 
-"Mungkin sulit dipercaya, tetapi pakaian dalam tidak ada sampai beberapa dekade yang lalu. Kecuali untuk individu yang sangat aneh. kebanyakan orang menggunakannya saat ini. Terutama wanita, karena sangat terkait dengan keselamatan mereka. Sepertinya wanita hanya diperbolehkan memakai rok pada masa itu, jadi kemungkinan hanya ada segelintir Hunter wanita juga. Meskipun sekarang, masih sulit untuk mengatakan bahwa ada banyak wanita yang menjadi hunter."
+"Mungkin sulit dipercaya, tetapi pakaian dalam tidak ada sampai beberapa dekade yang lalu. Kecuali untuk individu yang sangat aneh. kebanyakan orang menggunakannya saat ini. Terutama wanita, karena sangat terkait dengan keselamatan mereka. Sepertinya wanita hanya diperbolehkan memakai rok pada masa itu, jadi kemungkinan hanya ada segelintir Hunter wanita juga. Meskipun sekarang, masih sulit untuk mengatakan bahwa ada banyak wanita yang menjadi hunter." (celia)
 
 Setelah mengatakan semua itu, Celia-san berkata "Ngomong-ngomong," dan mengganti topik.
 
 Itu masuk akal, karena ini bukan sesuatu untuk dibicarakan saat berjalan di jalanan, tetapi tanggapan yang Aku pikirkan untuk topik ini tidak akan pernah terlihat terang hari ini.
 
-"Aku tidak berpikir bahwa Aku benar-benar perlu memberi tahu Kamu ini, tetapi tidak semua orang bersedia membantumu hanya karena Kamu seorang gadis muda, oke?"
+"Aku tidak berpikir bahwa Aku benar-benar perlu memberi tahu Kamu ini, tetapi tidak semua orang bersedia membantumu hanya karena Kamu seorang gadis muda, oke?" (celia)
 
-a"Tentu saja. Bagaimanapun juga, Aku pikir tingkat kemalangan yang Aku katakan sebelumnya tidak terlalu jarang."
+"Tentu saja. Bagaimanapun juga, Aku pikir tingkat kemalangan yang Aku katakan sebelumnya tidak terlalu jarang." (ain)
 
-"Yah, Aku percaya bahwa lingkungannya masih cukup unik."
+"Yah, Aku percaya bahwa lingkungannya masih cukup unik." (celia)
 
-a"Tapi meskipun itu masalahnya dengan lingkunganku, mungkin ada orang yang dipukul oleh orang tuanya setiap hari dan orang lain yang tidak memiliki makanan untuk dimakan. Dibandingkan itu, apa yang Aku katakan sebelumnya sama sekali tidak mengancam kehidupanku, jadi mungkin ada orang yang menganggapku masih diberkati."
+"Tapi meskipun itu masalahnya dengan lingkunganku, mungkin ada orang yang dipukul oleh orang tuanya setiap hari dan orang lain yang tidak memiliki makanan untuk dimakan. Dibandingkan itu, apa yang Aku katakan sebelumnya sama sekali tidak mengancam kehidupanku, jadi mungkin ada orang yang menganggapku masih diberkati." (ain)
 
-"Jadi Kamu sudah tahu banyak, begitu."
+"Jadi Kamu sudah tahu banyak, begitu." (celia)
 
 Jika Aku memasukkan proses pembunuhan yang gagal setiap hari ketika ciel masih bayi, yah, itu seharusnya membuat tingkat kemalangan kami sangat tinggi tetapi tidak ada artinya memasukkan sesuatu yang bahkan belum Aku ceritakan kepada mereka.
 
 Celia-san dengan penuh perhatian menjawab kata-kataku dan setelah memikirkan tentang sesuatu, dia menanyakanku sebuah pertanyaan.
 
-"Cielmer-san, apa pendapatmu tentang penampilanmu?"
+"Cielmer-san, apa pendapatmu tentang penampilanmu?" (celia)
 
-a"Aku belum pernah melihat diriku sebelumnya, jadi Aku tidak yakin."
+"Aku belum pernah melihat diriku sebelumnya, jadi Aku tidak yakin." (ain)
 
 Ainsel terus-menerus melihatnya, tetapi Cielmer belum pernah melihat wajahnya sendiri sebelumnya.
 
@@ -50,11 +50,11 @@ Melihatku segera menjawab, Celia-san meletakkan telapak tangannya ke wajahnya.
 
 Dan setelah tampaknya mempersiapkan diri, dia memulai percakapan.
 
-"Sejujurnya, Cielmer-san, kamu sangat menarik, jadi kamu mungkin menarik penculik. Dan bahkan di Guild Hunter, mungkin ada beberapa orang yang akan mencoba menarikmu dengan paksa ke dalam PARTY+ mereka. Aku percaya Kamu dapat menangani kedua situasi ini tetapi itu pasti masih tetap merepotkan."
+"Sejujurnya, Cielmer-san, kamu sangat menarik, jadi kamu mungkin menarik penculik. Dan bahkan di Guild Hunter, mungkin ada beberapa orang yang akan mencoba menarikmu dengan paksa ke dalam PARTY+ mereka. Aku percaya Kamu dapat menangani kedua situasi ini tetapi itu pasti masih tetap merepotkan." (celia)
 
-a"Itu salah satu sekian banyak hal buruk."
+"Itu salah satu sekian banyak hal buruk." (ain)
 
-"Bergantung pada tindakan dan perilakumu, menjadi menarik memiliki lebih banyak manfaat secara keseluruhan tetapi tolong sadar akan bahayanya. Terutama ada kasus di mana Hunter wanita muda dipaksa untuk bergabung dengan sebuah party dan kemudian diserang di luar kota."
+"Bergantung pada tindakan dan perilakumu, menjadi menarik memiliki lebih banyak manfaat secara keseluruhan tetapi tolong sadar akan bahayanya. Terutama ada kasus di mana Hunter wanita muda dipaksa untuk bergabung dengan sebuah party dan kemudian diserang di luar kota." (celia)
 
 Seperti yang dikatakan Celia-san , aku, atau lebih tepatnya Ciel, mungkin bisa menangani mereka dengan mudah. Bahkan ketika menghadapi seseorang yang setingkat dengan Carol-san dan bahkan mungkin melawan Carol-san , melarikan diri dengan sendirinya mungkin saja bisa terjadi meskipun aku tidak bisa sepenuhnya yakin.
 
@@ -64,9 +64,9 @@ Tetap saja, seperti yang dikatakan Celia-san, ini bukannya tidak ada gunanya jug
 
 Aku sudah mengetahui fakta ini tetapi Aku pikir membuat Ciel mendengar penilaian objektif tentang dirinya sendiri juga penting, jadi Aku hanya bertindak terkejut dan mengangguk pada diriku sendiri.
 
-"Hal lain, Cielmer-san , Aku tidak tahu apakah Kamu berencana untuk tetap menjadi Hunter selamanya tetapi jika Kamu mempertimbangkan untuk memilih jalan lain di masa depan, memoles pesonamu sebagai seorang wanita untuk sementara tidak akan merugikan juga. Faktanya, resepsionis yang lebih populer di guild adalah yang menarik. Untuk alasan itu, Aku juga akan mengajarimu tentang apa yang Kamu perlukan untuk menjadi seorang wanita untuk masa depan, jadi Aku harap Kamu menikmatinya."
+"Hal lain, Cielmer-san , Aku tidak tahu apakah Kamu berencana untuk tetap menjadi Hunter selamanya tetapi jika Kamu mempertimbangkan untuk memilih jalan lain di masa depan, memoles pesonamu sebagai seorang wanita untuk sementara tidak akan merugikan juga. Faktanya, resepsionis yang lebih populer di guild adalah yang menarik. Untuk alasan itu, Aku juga akan mengajarimu tentang apa yang Kamu perlukan untuk menjadi seorang wanita untuk masa depan, jadi Aku harap Kamu menikmatinya." (celia)
 
-a" Terima kasih banyak. "
+" Terima kasih banyak." (ain)
 
 ◇
 
@@ -96,37 +96,37 @@ Meski begitu, Ciel sudah berusia 10 tahun. Ada kemungkinan bahwa ini akan terjad
 
 Jika Aku tidak mengetahui hal ini pada saat itu, Aku tidak akan dapat menjawab pertanyaan Ciel sama sekali, dan lebih buruk lagi, Aku pasti akan panik saat itu.
 
-c"Ain, terima kasih untuk hari ini juga."
+[Ain, terima kasih untuk hari ini juga.] (ciel)
 
-a"jangan dipikirkan, itu bukan apa-apa."
+[jangan dipikirkan, itu bukan apa-apa.] (ain)
 
-c"Itu bohong, kan? Setidaknya, Aku tahu bahwa Ain secara fisik kelelahan. Karena kamu tidak berbaring di tempat tidur kemarin tetapi kamu melakukannya sekarang, itu berarti kamu kelelahan, kan Ain?"
+[Itu bohong, kan? Setidaknya, Aku tahu bahwa Ain secara fisik kelelahan. Karena kamu tidak berbaring di tempat tidur kemarin tetapi kamu melakukannya sekarang, itu berarti kamu kelelahan, kan Ain?] (ciel)
 
-a"Sepertinya tidak ada gunanya menyembunyikannya. Tetap saja, itu juga karena aku tidak punya apa-apa lagi yang ingin kulakukan. Ciel, bagaimana harimu hari ini?"
+[Sepertinya tidak ada gunanya menyembunyikannya. Tetap saja, itu juga karena aku tidak punya apa-apa lagi yang ingin kulakukan. Ciel, bagaimana harimu hari ini?] (ain)
 
-c"Aku merasa sangat kasihan pada Ain, tapi itu menyenangkan. Hari ini penuh dengan hal-hal yang tidak Aku ketahui dan mempelajarinya benar-benar menyenangkan. Karena kita membeli alat yang kita butuhkan untuk menulis lingkaran sihir, kita dapat mempersiapkannya terlebih dahulu sekarang. Aku tidak yakin lingkaran sihir macam apa yang harus ditulis, jadi bantu aku, oke Ain? Jika Aku melakukannya sendiri, itu mungkin akan kacau."
+[Aku merasa sangat kasihan pada Ain, tapi itu menyenangkan. Hari ini penuh dengan hal-hal yang tidak Aku ketahui dan mempelajarinya benar-benar menyenangkan. Karena kita membeli alat yang kita butuhkan untuk menulis lingkaran sihir, kita dapat mempersiapkannya terlebih dahulu sekarang. Aku tidak yakin lingkaran sihir macam apa yang harus ditulis, jadi bantu aku, oke Ain? Jika Aku melakukannya sendiri, itu mungkin akan kacau.] (ciel)
 
-a"Baiklah."
+[Baiklah.] (ain)
 
-c"Dan kemudian berdandan juga menyenangkan. Aku hanya samar-samar mengerti apa itu cantik dan imut, tapi kamu bisa mengekspresikan dirimu dengan apa yang kamu pakai. Tetap saja, tidak membutuhkan pakaian bustier sedikit mengecewakan. Aku belum cukup besar. Jadi ini berarti Aku benar-benar perlu bekerja keras untuk membuatnya lebih besar, iya kan?!"
+[Dan kemudian berdandan juga menyenangkan. Aku hanya samar-samar mengerti apa itu cantik dan imut, tapi kamu bisa mengekspresikan dirimu dengan apa yang kamu pakai. Tetap saja, tidak membutuhkan pakaian bustier sedikit mengecewakan. Aku belum cukup besar. Jadi ini berarti Aku benar-benar perlu bekerja keras untuk membuatnya lebih besar, iya kan?!] (ciel)
 
-a"Jangan khawatir tentang itu. Mereka pada akhirnya akan membesar, jadi Kamu tidak perlu terburu-buru. Mereka mengatakan bahwa orang yang tumbuh cepat mulai memakainya pada usia 10 tahun, jadi karena Kamu hanya tumbuh terlambat karena alasan nutrisi, Kamu tidak perlu terburu-buru."
+[Jangan khawatir tentang itu. Mereka pada akhirnya akan membesar, jadi Kamu tidak perlu terburu-buru. Mereka mengatakan bahwa orang yang tumbuh cepat mulai memakainya pada usia 10 tahun, jadi karena Kamu hanya tumbuh terlambat karena alasan nutrisi, Kamu tidak perlu terburu-buru.] (ain)
 
 Tidak ada makna yang dalam untuk penekananku pada alasan nutrisi, tetapi Ciel hanya terkikik dan membiarkanku lolos untuk hari ini. Ungkapan membiarkanku lolos mungkin aneh di sini, tapi itu sangat sulit untuk ditahan.
 
-c"Kemudian setelah itu, Aku melihat wajahku untuk pertama kalinya, tapi Aku tidak yakin apakah itu karena Ain menggunakan tubuhku, tapi rasanya sangat aneh."
+[Kemudian setelah itu, Aku melihat wajahku untuk pertama kalinya, tapi Aku tidak yakin apakah itu karena Ain menggunakan tubuhku, tapi rasanya sangat aneh.] (ciel)
 
-a"Yah, menilai diri sendiri itu sulit."
+[Yah, menilai diri sendiri itu sulit.] (ain)
 
-c"Tapi Ain benar, warnanya biru. Benar-benar seperti warna langit. Jadi warna lautannya juga seperti ini kan?"
+[Tapi Ain benar, warnanya biru. Benar-benar seperti warna langit. Jadi warna lautannya juga seperti ini kan?] (ciel)
 
-a"Hanya jika itu sama dengan lautan yang aku tahu."
+[Hanya jika itu sama dengan lautan yang aku tahu.] (ain)
 
-c"Kalau dipikir-pikir, apakah "Ainsel" juga punya arti?"
+[Kalau dipikir-pikir, apakah "Ainsel" juga punya arti?] (ciel)
 
-a"ada, tapi itu rahasia."
+[ada, tapi itu rahasia.] (ain)
 
-c"Ya ampun, itu curang."
+[Ya ampun, itu curang.] (ciel)
 
 Meskipun Ciel mengatakan itu, sepertinya dia tidak bersungguh-sungguh ingin mengetahuinya. Dan meskipun Aku menyebutnya rahasia, satu alasan untuk ini adalah karena sulit untuk dijelaskan.
 
@@ -134,11 +134,11 @@ Lagipula, aku tidak terlalu tahu apakah ada peri atau sesuatu yang mirip dengan 
 
 Dan karena Aku tidak yakin tentang itu, itu juga berarti Aku tidak tahu kata untuk mereka juga, artinya Aku tidak dapat mengkomunikasikannya dengan benar. Selain itu, seperti halnya asuransi, Aku tidak ingin Ciel tahu apa artinya.
 
-a"Mereka mengatakan bahwa wanita lebih mempesona ketika mereka memiliki rahasia."
+[Mereka mengatakan bahwa wanita lebih mempesona ketika mereka memiliki rahasia.] (ain)
 
-c"Jadi, mungkin Aku tidak menjadi menarik bagimu, Ain?"
+[Jadi, mungkin Aku tidak menjadi menarik bagimu, Ain?] (ciel)
 
-a"Tidak, Kamu sudah sangat mempesona Ciel."
+[Tidak, Kamu sudah sangat mempesona Ciel.] (ain)
 
 Dari sudut pandang orang luar, sepertinya kami, seperti, menggoda atau semacamnya? Ngomong-ngomong, tidak ada artinya berbohong dan membuat Ciel kehilangan kepercayaan diri. Melakukan itu hanya membuatku terdengar sombong. Jadi jika secara impulsif memujinya seperti yang Aku lakukan sekarang hanya akan menyebabkan rasa maluku saja, Aku baik-baik saja dengan itu.
 
@@ -176,25 +176,25 @@ Ketika berbicara tentang karya Fantasy, guild dan hunter - petualang - adalah ha
 
 Ciel, menatapku seolah-olah dia sedang melihat sesuatu yang lucu, dan memanggilku.
 
-c"Ain, kamu tampak agak bersemangat hari ini, kau tahu?"
+[Ain, kamu tampak agak bersemangat hari ini, kau tahu?] (ciel)
 
-a"Bekerja sebagai Hunter adalah sebagian dari mimpiku, jadi sekarang itu terjadi dan menjadi kenyataan, aku ...... Aku sedikit terlalu bersemangat."
+[Bekerja sebagai Hunter adalah sebagian dari mimpiku, jadi sekarang itu terjadi dan menjadi kenyataan, aku ...... Aku sedikit terlalu bersemangat.] (ain)
 
-c"Jangan khawatir tentang itu, melihat Ain yang terlihat bersemangat membuatku bahagia. Bagaimana Aku bisa menjelaskannya? imut? Benar, jadi beginilah rasanya melihat sesuatu yang menggemaskan!"
+[Jangan khawatir tentang itu, melihat Ain yang terlihat bersemangat membuatku bahagia. Bagaimana Aku bisa menjelaskannya? imut? Benar, jadi beginilah rasanya melihat sesuatu yang menggemaskan!] (ciel)
 
-a"Ummm ...... Uhh ...... Terima kasih banyak. Sekarang, apakah kita sudah selesai mempersiapkan lingkaran sihir?"
+[Ummm ...... Uhh ...... Terima kasih banyak. Sekarang, apakah kita sudah selesai mempersiapkan lingkaran sihir?] (ain)
 
 Karena rasa malu yang Aku rasakan karena terlalu bersemangat, sensasi geli yang tak terlukiskan yang Aku rasakan dari mendengar Ciel menilai penampilanku yang bersemangat sebagai menggemaskan, kejutan yang Aku rasakan karena secara alami menerima Ciel menggemaskan sebagai penilaian yang valid, dan karena wajahku secara fisik semakin panas dan tersipu; Aku mulai merasa agak pusing di kepala, jadi Aku segera mengganti topik.
 
 Mendengar Ciel terkikik di dalam kepalaku semakin menstimulasi rasa maluku, tapi untungnya, "mari kita lihat...," dia melangkah ke topik berikutnya.
 
-c"Untuk Ain, itu sudah cukup, kan?"
+[Untuk Ain, itu sudah cukup, kan?] (ciel)
 
-a"Selama kita memiliki lingkaran sihir yang kamu gunakan untuk melawan Carol-san , tidak akan ada bahaya untuk kita di kota ini."
+[Selama kita memiliki lingkaran sihir yang kamu gunakan untuk melawan Carol-san , tidak akan ada bahaya untuk kita di kota ini.] (ain)
 
-c"Tetap saja, bahkan melalui lingkaran sihir, Ain masih tidak bisa menggunakan sihir tempur, kan?"
+[Tetap saja, bahkan melalui lingkaran sihir, Ain masih tidak bisa menggunakan sihir tempur, kan?] (ciel)
 
-a"Itu hanya menunjukkan seberapa kuat efek sihir itu. Siapa juga yang akan berpikir bahwa yang lingkaran sihir akan berubah menjadi blower angin."
+[Itu hanya menunjukkan seberapa kuat efek sihir itu. Siapa juga yang akan berpikir bahwa yang lingkaran sihir akan berubah menjadi blower angin.] (ain)
 
 Sebelum Ciel tidur kemarin, kami menyiapkan lingkaran sihir Ciel.
 
@@ -207,3 +207,7 @@ Jika kami bisa menyulamnya, itu akan lebih tahan lama dan lebih mudah disembunyi
 Sekarang kami siap untuk pergi, saatnya untuk pergi ke guild untuk mendapatkan permintaan kami.
 
 Jadi kami keluar seperti biasa. Seperti biasanya!
+
+-----------------
+
+YES !!! AIN BENAR !!! CIEL MEMPESONA !!! AAHH WANGY WANGY... ups maaf hampir kebablasan lagi... tehe ~~

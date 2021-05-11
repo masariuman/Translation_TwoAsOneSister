@@ -1,6 +1,6 @@
 ch 27 : Guild, Observasi, dan Memilih Permintaan
 
-Karena ini sudah ketiga kalinya kami pergi ke Guild Pemburu, Aku sudah menganggap diriku terbiasa. Tetap saja, Aku tidak sepenuhnya menyadari betapa sulitnya bekerja sebagai pemburu.
+Karena ini sudah ketiga kalinya kami pergi ke Guild Hunter, Aku sudah menganggap diriku terbiasa. Tetap saja, Aku tidak sepenuhnya menyadari betapa sulitnya bekerja sebagai Hunter.
 
 Kami tiba di guild di pagi hari tapi di dalam, ada pertempuran yang terus berlanjut. Pertarungan untuk siapa yang mendapatkan permintaan paling menguntungkan terlebih dahulu.
 
@@ -12,7 +12,7 @@ Untuk menerima permintaan, pihak tersebut perlu mengambil formulir permintaan da
 
 Dengan tinggi badanku, bahkan jika Aku melompat ke kerumunan yang padat ini, Aku mungkin tidak akan bisa melihat papan tersebut; dan karena Aku tidak memiliki anggota party lain untuk menunggu, Aku memutuskan untuk mengamati guild di samping pintu masuk.
 
-Ada berbagai jenis orang yang bekerja di sini sebagai pemburu tetapi para pemburu yang saat ini berkerumun di depan papan pengumuman kebanyakan adalah anak muda. Tetap saja, meski Aku menyebut mereka muda, itu dari sudut pandang obyektif. Sepertinya tidak ada orang yang terlihat lebih muda dari Ciel.
+Ada berbagai jenis orang yang bekerja di sini sebagai Hunter tetapi para Hunter yang saat ini berkerumun di depan papan pengumuman kebanyakan adalah anak muda. Tetap saja, meski Aku menyebut mereka muda, itu dari sudut pandang obyektif. Sepertinya tidak ada orang yang terlihat lebih muda dari Ciel.
 
 Ada beberapa orang dengan aura veteran pada mereka dan mereka juga hanya melihat kerumunan dengan santai.
 
@@ -55,7 +55,7 @@ Meskipun Aku memegang kendali di kota ini, Aku biasanya hanya akan berada dalam 
 
 Sambil menunggu Ciel memikirkan jawabannya, Aku terus mengamati.
 
-Kalau dipikir-pikir, aku tidak melihat Alejo di mana pun. Kenapa? Yah, dia seharusnya pemburu rank-D, jadi mungkin dia tidak perlu bekerja dengan rajin setiap hari. Meski begitu, bisa juga karena dia tidak tahan terlihat di depan umum setelah dikalahkan oleh Ciel.
+Kalau dipikir-pikir, aku tidak melihat Alejo di mana pun. Kenapa? Yah, dia seharusnya Hunter rank-D, jadi mungkin dia tidak perlu bekerja dengan rajin setiap hari. Meski begitu, bisa juga karena dia tidak tahan terlihat di depan umum setelah dikalahkan oleh Ciel.
 
 Juga, party anak laki-laki yang Aku lihat sebelumnya sepertinya sedang berdebat tentang sesuatu.
 
@@ -89,7 +89,7 @@ Tidak masalah apa yang akan dikatakan Ciel, selama dia memberikan pendapatnya se
 
 Entah bagaimana, akhir-akhir ini aku merasa lebih menyayangi.
 
-tanpa kami sadari, sebagian besar pemburu telah meninggalkan guild, jadi kami menuju ke meja resepsionis untuk menyambut Celia-san ...... kami melakukannya, tapi sekarang ada dua loket penerimaan.
+tanpa kami sadari, sebagian besar Hunter telah meninggalkan guild, jadi kami menuju ke meja resepsionis untuk menyambut Celia-san ...... kami melakukannya, tapi sekarang ada dua loket penerimaan.
 
 Itu sendiri mungkin tidak aneh sama sekali. Guild mungkin memiliki dua counter yang terbuka jika ada banyak orang. Alasan mengapa Aku hanya melihat satu ketika Aku datang ke sini seharusnya karena hanya ada beberapa orang saat itu.
 
@@ -130,7 +130,7 @@ a"Aku mengerti. Kalau begitu, bisakah Aku mencari permintaan sekarang?"
 
 Maka dengan itu, Aku menuju ke depan papan. Karena Aku sudah memiliki izin Ciel, Aku mencari permintaan yang ingin Aku lakukan.
 
-Namun, karena sebagian besar permintaan sekarang hilang, jadi satu-satunya yang tersisa adalah permintaan pengumpulan herb dan berburu rank F, dan juga permintaan tetap untuk pemburu rank-E dan di atasnya, tampaknya.
+Namun, karena sebagian besar permintaan sekarang hilang, jadi satu-satunya yang tersisa adalah permintaan pengumpulan herb dan berburu rank F, dan juga permintaan tetap untuk Hunter rank-E dan di atasnya, tampaknya.
 
 Untuk rank-D ke atas, ada beberapa permintaan pendamping dan semacamnya, tetapi Aku tidak melihat permintaan apa pun yang rank-B ke atas. Karena rank-C juga memiliki permintaan berkumpul, mungkin hanya ada beberapa monster kuat di dekat kota.
 
@@ -168,19 +168,19 @@ Anehnya, hanya ada beberapa game di mana salep dan potion sama-sama ada, jika Ak
 
 Perbedaan di antara mereka berdua mungkin sudah menjadi rahasia umum di sini, tetapi karena Celia-san mengerti bahwa Aku mungkin tidak tahu tentang itu, sepertinya karena itu dia sengaja memberi tahuku tentang keduanya.
 
-"fungsi utama mereka berdua sama-sama menyembuhkan luka. potion jauh lebih efektif dibandingkan dengan salep tetapi harganya sangat mahal. sementara itu, salep harganya murah tetapi sebagai gantinya, mereka tidak menyembuhkan sebanyak potion dan satu-satunya hal yang dapat segera dilakukan adalah menghentikan pendarahan seseorang. Itu juga akan tergantung pada tingkat keparahan lukanya tetapi salep kemungkinan akan membutuhkan istirahat sepanjang malam untuk menyembuhkan lukanya. Aku percaya bahwa itu adalah konsensus umum bahwa pemburu peringkat tinggi menggunakan potion sementara pemburu peringkat rendah akan menggunakan salep."
+"fungsi utama mereka berdua sama-sama menyembuhkan luka. potion jauh lebih efektif dibandingkan dengan salep tetapi harganya sangat mahal. sementara itu, salep harganya murah tetapi sebagai gantinya, mereka tidak menyembuhkan sebanyak potion dan satu-satunya hal yang dapat segera dilakukan adalah menghentikan pendarahan seseorang. Itu juga akan tergantung pada tingkat keparahan lukanya tetapi salep kemungkinan akan membutuhkan istirahat sepanjang malam untuk menyembuhkan lukanya. Aku percaya bahwa itu adalah konsensus umum bahwa Hunter peringkat tinggi menggunakan potion sementara Hunter peringkat rendah akan menggunakan salep."
 
 Karena sihir dapat segera menyembuhkan luka yang cukup dalam untuk mencapai organ, Aku sudah membayangkan bahwa potion mungkin memiliki efek yang sama, tetapi salep tampak sangat menakjubkan juga. Lagipula, di bumi, bahkan goresan yang disembuhkan hanya dengan salep tidak sembuh dalam satu malam, kan?
 
 Ini, sesuai harapanku, jadi Aku senang tentang ini.
 
-Bagaimanapun juga, keduanya tidak diragukan lagi penting bagi para pemburu.
+Bagaimanapun juga, keduanya tidak diragukan lagi penting bagi para Hunter.
 
 a"Salep tampaknya sangat penting, tetapi mengapa permintaan ini masih ada di sini?"
 
 "Aku pikir Kamu akan mengerti setelah menyelesaikannya tetapi hadiahnya agak sedikit mengingat seberapa lama menyelesaikannya. Apalagi karena salep yang bisa dibuat dari herb ini hanya yang kualitasnya paling rendah, bisa dikatakan tidak terlalu menguntungkan bagi pembuat juga. Bagaimanapun juga, membuat salep yang lebih efektif jauh lebih menguntungkan bagi mereka juga."
 
-begitu ya. Kalau dipikir-pikir, 3 koin tembaga setara dengan menyelesaikan 3 permintaan rank-G. Selain itu, seorang pemburu rank-G biasanya dapat menyelesaikan 2 permintaan dalam sehari, bahkan mungkin 3 jika mereka berusaha cukup keras, jadi mereka mungkin tidak akan mengambil risiko keluar hanya untuk mendapatkan 3 koin tembaga.
+begitu ya. Kalau dipikir-pikir, 3 koin tembaga setara dengan menyelesaikan 3 permintaan rank-G. Selain itu, seorang Hunter rank-G biasanya dapat menyelesaikan 2 permintaan dalam sehari, bahkan mungkin 3 jika mereka berusaha cukup keras, jadi mereka mungkin tidak akan mengambil risiko keluar hanya untuk mendapatkan 3 koin tembaga.
 
 Dan untuk para ahli obat, mereka mungkin akan menggunakan herb ini jika mereka memiliki beberapa, tetapi itu tidak akan menjadi masalah bagi mereka bahkan jika tidak ada stok. Aku tidak memiliki bukti yang jelas tentang ini tetapi herb ini mungkin untuk berlatih membuat salep atau sesuatu.
 
@@ -189,7 +189,7 @@ a"begitu ya. Untuk saat ini, Aku ingin menerima permintaan ini."
 "Terima kasih banyak. Tetap saja, apakah Kamu benar-benar yakin tentang ini? untuk guild, kami akan senang untuk memproses ini tetapi Aku tidak benar-benar berpikir bahwa ini akan cukup bermanfaat bagimu, Cielmer-san."
 
 a"Kalau begitu, maukah Kamu berbicara dengan Aku lebih lama?"
-"Itu akan tergantung pada apa yang kita bicarakan. Selama itu adalah sesuatu yang berkaitan dengan bekerja sebagai pemburu atau sesuatu yang terkait dengan permintaan, itu seharusnya baik-baik saja."
+"Itu akan tergantung pada apa yang kita bicarakan. Selama itu adalah sesuatu yang berkaitan dengan bekerja sebagai Hunter atau sesuatu yang terkait dengan permintaan, itu seharusnya baik-baik saja."
 
 a"Pertama, maukah Kamu menunjukkan kepadaku sampel herb ini? Aku ingin membawanya jika memungkinkan, tapi..."
 
@@ -204,9 +204,9 @@ Jika Aku secara tidak sengaja terluka, itu mungkin berguna untuk pertolongan per
 
 "hanya dengan membasahkannya secara menyeluruh dan menekannya ke luka dapat menghentikan pendarahan sampai batas tertentu. Tapi, luka parah akan susah disembuhkan untuk herb khusus ini."
 
-a"Ketika pemburu terluka parah, apa yang biasanya mereka lakukan?"
+a"Ketika Hunter terluka parah, apa yang biasanya mereka lakukan?"
 
-"mereka Seharusnya mengobati luka dengan obat apa yang mereka miliki atau, jika mereka Jika ada ahli obat bersama mereka, ahli obat itu mungkin bisa menyembuhkan lukanya. Tapi, ahli obat adalah sedikit yang berharga dalam bisnis ini dan ahli obat yang dapat menggunakan sihir penyembuh juga bahkan lebih jarang ditemukan. Karena itu, pemburu kemungkinan besar akan pergi ke gereja untuk menyembuhkan luka mereka. Ini jauh lebih murah daripada membeli potion, dan gereja juga mengobati penyakit juga."
+"mereka Seharusnya mengobati luka dengan obat apa yang mereka miliki atau, jika mereka Jika ada ahli obat bersama mereka, ahli obat itu mungkin bisa menyembuhkan lukanya. Tapi, ahli obat adalah sedikit yang berharga dalam bisnis ini dan ahli obat yang dapat menggunakan sihir penyembuh juga bahkan lebih jarang ditemukan. Karena itu, Hunter kemungkinan besar akan pergi ke gereja untuk menyembuhkan luka mereka. Ini jauh lebih murah daripada membeli potion, dan gereja juga mengobati penyakit juga."
 
 Di sini Aku menjawab "Aku mengerti" dan mengangguk setuju. Aku hanya tahu bahwa gereja itu ada dari informasi yang Aku miliki, jadi Aku senang mendengar bahwa itu benar-benar ada.
 
