@@ -40,7 +40,7 @@ carol"Intinya adalah, setiap kali dia mampu menyelesaikan masalah apa pun hanya 
 
 celia"Bisakah Kamu benar-benar terus menggunakan sihir saat tidur?"
 
-carol"Tidak mungkin. Bahkan +BARRIER yang umumnya digunakan saat berkemah hanyalah sebuah item sihir yang menyuplai energi sihir, yang berasal dari batu magic, ke lingkaran sihir. Menurutnya, dia mengatakan alasan sihir +BARRIERnya masih menyala adalah karena dia secara alami memulihkan lebih banyak energi sihir daripada jumlah yang dibutuhkan untuk mempertahankan +BARRIER, yang biasanya tidak terjadi sama sekali. Contoh, jika Aku bersikeras bahwa Aku dapat berjalan terus menerus saat Aku tidur karena Aku memulihkan staminaku lebih cepat daripada yang Aku gunakan saat berjalan, apakah Kamu mengerti betapa gilanya itu?"
+carol"Tidak mungkin. Bahkan +BARRIER yang umumnya digunakan saat berkemah hanyalah sebuah item sihir yang menyuplai energi sihir, yang berasal dari batu sihir, ke lingkaran sihir. Menurutnya, dia mengatakan alasan sihir +BARRIERnya masih menyala adalah karena dia secara alami memulihkan lebih banyak energi sihir daripada jumlah yang dibutuhkan untuk mempertahankan +BARRIER, yang biasanya tidak terjadi sama sekali. Contoh, jika Aku bersikeras bahwa Aku dapat berjalan terus menerus saat Aku tidur karena Aku memulihkan staminaku lebih cepat daripada yang Aku gunakan saat berjalan, apakah Kamu mengerti betapa gilanya itu?"
 
 celia"setelah kamu mengatakannya seperti itu, itu memang tidak normal."
 

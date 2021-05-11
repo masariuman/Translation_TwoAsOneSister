@@ -42,7 +42,7 @@ Aku sudah mengkonfirmasinya setelah mendapatkan sampel tetapi Aku sangat yakin b
 
 Awalnya, Aku hanya berpikir bahwa orang-orang di dunia ini sembuh secara alami dengan cepat, tetapi ketika Ciel terluka, masih perlu waktu cukup lama untuk menyembuhkannya. Adapun waktu pastinya, Aku tidak benar-benar tahu. Aku tidak punya jam tangan sama sekali.
 
-Jadi mengingat itu, aku mencoba meminta sampel dan, meski tidak banyak, sebenarnya ada energi sihir. energi sihirnya berbeda dengan milik kami dan batu magic.
+Jadi mengingat itu, aku mencoba meminta sampel dan, meski tidak banyak, sebenarnya ada energi sihir. energi sihirnya berbeda dengan milik kami dan batu sihir.
 
 Berkonsentrasi, Aku mencoba mencari reaksi magic yang biasanya Aku abaikan dan Aku menemukan banyak reaksi di mana-mana.
 
@@ -71,7 +71,7 @@ Aku menemukan herb yang diperlukan saat Aku mengikuti reaksi tetapi karena jumla
 
 Sama seperti matahari tepat di atas kami, dan karena tas yang dibawa sekarang sudah penuh, Aku memutuskan untuk mengakhirinya untuk hari ini.
 
-a"Karena kita masih punya waktu, mengapa kita tidak mengumpulkan beberapa batu magic?"
+a"Karena kita masih punya waktu, mengapa kita tidak mengumpulkan beberapa batu sihir?"
 
 c"Tapi kita sedang diawasi, apakah itu benar-benar tidak masalah?"
 
@@ -89,7 +89,7 @@ Meskipun kami pasti akan langsung membunuh laba-laba di jalur kami, karena kami 
 
 Menggunakan lingkaran sihir WHIRLWIND SLASH+, Ciel mengalahkan mereka dengan cukup cepat. Yah, meski aku menyebutnya begitu, itu hanya versi pisau angin yang direvisi. Jadi meskipun itu mungkin hanya dapat membuat luka kecil pada kulit cyclop, itu bisa mengalahkan monster rank-D dengan satu serangan.
 
-Kami berburu, mengumpulkan batu magic dan bagian-bagian yang diperlukan untuk verifikasi, lalu membakarnya. Ada juga benda yang bisa kami jual sebagai bahan tetapi karena ukurannya, kami tidak bisa membawanya. Jadi mengingat batu magic dan bagian bukti, paling banyak yang bisa kami bawa mungkin senilai sepuluh monster ini.
+Kami berburu, mengumpulkan batu sihir dan bagian-bagian yang diperlukan untuk verifikasi, lalu membakarnya. Ada juga benda yang bisa kami jual sebagai bahan tetapi karena ukurannya, kami tidak bisa membawanya. Jadi mengingat batu sihir dan bagian bukti, paling banyak yang bisa kami bawa mungkin senilai sepuluh monster ini.
 
 Sedikit sia-sia karena kami hanya menggunakan +WHIRLDWIND SLASH saja.
 

@@ -64,7 +64,7 @@ Aku bekerja keras untuk mencapai sejauh ini. Aku sangat senang kami mencapai ran
 
 Meskipun benar bahwa butuh waktu bertahun-tahun untuk naik rank dari sini; semakin kuat Kamu, semakin pendek waktu yang dibutuhkan.
 
-Jika kami bisa mendapatkan sekitar 2 koin perak sehari dari hadiah dan batu magic, Aku harus bisa menabung untuk obat adik perempuanku.
+Jika kami bisa mendapatkan sekitar 2 koin perak sehari dari hadiah dan batu sihir, Aku harus bisa menabung untuk obat adik perempuanku.
 
 Dalam hal ini, Aku bisa menghemat hingga 3 koin emas dalam setengah tahun.
 

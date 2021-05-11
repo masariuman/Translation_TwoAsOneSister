@@ -196,33 +196,33 @@ ain "gimana ya, Job yang Aku katakan itu benar. Hanya itu yang bisa Aku katakan 
 
 carol "Benar. Aku akan memikirkannya nanti."
 
-ain "Ngomong-ngomong, tentang monster ini, haruskah Aku membongkar semuanya? meskipun Mengambil bagian bukti, batu magic, dan sebagainya akan merepotkan."
+ain "Ngomong-ngomong, tentang monster ini, haruskah Aku membongkar semuanya? meskipun Mengambil bagian bukti, batu sihir, dan sebagainya akan merepotkan."
 
-carol "Itu tergantung padamu. Jika ada bahan dan batu magic yang kamu inginkan, ambillah. Jika kamu tidak menginginkan apa pun, mintalah guild untuk menangani ini. Setelah itu, kamu akan diberi hadiah untuk menyelesaikan ini semua sebesar 70% dari jumlah pembelian material."
+carol "Itu tergantung padamu. Jika ada bahan dan batu sihir yang kamu inginkan, ambillah. Jika kamu tidak menginginkan apa pun, mintalah guild untuk menangani ini. Setelah itu, kamu akan diberi hadiah untuk menyelesaikan ini semua sebesar 70% dari jumlah pembelian material."
 
 Aku penasaran mengapa hanya 70%, sepertinya 30% akan digunakan untuk biaya perantara guild dan hadiah untuk Hunter yang menerima permintaan tersebut. Ini pasti jauh lebih baik daripada melakukannya sendiri.
 
-Dengan mengatakan itu, seharusnya tidak masalah untuk mengambil batu magic monster kelas-C yang memiliki reaksi yang sangat kuat dari +DETECTION.
+Dengan mengatakan itu, seharusnya tidak masalah untuk mengambil batu sihir monster kelas-C yang memiliki reaksi yang sangat kuat dari +DETECTION.
 
 ain [Ciel, apakah kamu memiliki bahan yang kamu inginkan?]
 
 ciel [Bahan? Bahkan jika kamu bertanya kepadaku Ain, Aku tidak tahu bagaimana cara menggunakannya. bisakah tanduk dan semacamnya berubah menjadi senjata? Bulu menjadi baju besi? walau begitu, aku tidak membutuhkannya, kan?]
 
-ain [Benar, kamu tidak membutuhkannya. Ini tidak seperti kita bisa membuat pil, tapi batu magic mungkin berguna untuk sesuatu, jadi kupikir tidak apa-apa hanya mengambil itu saja.]
+ain [Benar, kamu tidak membutuhkannya. Ini tidak seperti kita bisa membuat pil, tapi batu sihir mungkin berguna untuk sesuatu, jadi kupikir tidak apa-apa hanya mengambil itu saja.]
 
 ciel [Begitu . Ain, bisakah kamu memilih mana yang bagus?]
 
-ain [Dalam hal ini, Aku akan mengambil hanya beberapa batu magic.]
+ain [Dalam hal ini, Aku akan mengambil hanya beberapa batu sihir.]
 
 ciel [baiklah, nikmati waktumu.]
 
-Aku beralih dengan Ciel, memilih 10 dari monster yang dibekukan di kaki mereka, dan meminta Ciel mendapatkan batu magic mereka.
+Aku beralih dengan Ciel, memilih 10 dari monster yang dibekukan di kaki mereka, dan meminta Ciel mendapatkan batu sihir mereka.
 
 Kalau dipikir-pikir, Carol-san menyebutnya "bencana" tapi bukankah itu mengerikan?
 
 Nah, orang yang tidak terbiasa melihat kepala monster yang hancur dan organ yang terbuka mungkin akan muntah.
 
-Ciel dengan cepat mengambil batu magic dengan sihir, dan setelah membersihkannya dengan air, dia menjejalkannya ke dalam tas magic yang bisa digunakan di dompet.
+Ciel dengan cepat mengambil batu sihir dengan sihir, dan setelah membersihkannya dengan air, dia menjejalkannya ke dalam tas magic yang bisa digunakan di dompet.
 
 Sangat nyaman. Jika kita memiliki kantong magic yang jauh lebih besar, apakah kita bisa membawa semua monster ini?
 
@@ -232,7 +232,7 @@ ain "Sama sekali tidak ada yang seperti itu."
 
 carol "Bisakah kamu menjawabku dengan serius? Itu akan mempengaruhi bagaimana kita harus menghadapi kedepannya."
 
-ain "setiap laba-laba yang menuju ke sini berubah menjadi abu. Batu magic mereka seharusnya berguling-guling di tanah di suatu tempat, kurasa."
+ain "setiap laba-laba yang menuju ke sini berubah menjadi abu. batu sihir mereka seharusnya berguling-guling di tanah di suatu tempat, kurasa."
 
 carol "baiklah. Dimengerti."
 
@@ -282,7 +282,7 @@ carol "...... Nah, itu sudah dipastikan."
 
 ain "Seperti yang Aku pikirkan, aromanya akan terasa berbeda tergantung pada jumlah energi sihir yang dimiliki, kan?"
 
-carol "Tepat. Dan karena monster memiliki batu magic secara alami, kamu dapat mengatakan bahwa mereka secara alami memiliki energi sihir. Tertarik oleh aromanya saja sudah cukup, tetapi yang menjengkelkan adalah semakin tinggi kelas monsternya, semakin kuat mereka tertarik pada benda itu."
+carol "Tepat. Dan karena monster memiliki batu sihir secara alami, kamu dapat mengatakan bahwa mereka secara alami memiliki energi sihir. Tertarik oleh aromanya saja sudah cukup, tetapi yang menjengkelkan adalah semakin tinggi kelas monsternya, semakin kuat mereka tertarik pada benda itu."
 
 Menghela nafas panjang, Carol-san kemudian bertanya padaku.
 

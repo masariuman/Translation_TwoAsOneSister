@@ -103,7 +103,7 @@ Di tangannya ada nampan dan di atasnya ada sepotong roti dan semangkuk sup.
 
 "iya. Terima kasih banyak." (ain)
 
-"Setelah selesai makan, tinggalkan nampan dengan mangkuk di depan pintumu, oke? Ini adalah batu magic untuk mandi, oke?" (nilda)
+"Setelah selesai makan, tinggalkan nampan dengan mangkuk di depan pintumu, oke? Ini adalah batu sihir untuk mandi, oke?" (nilda)
 
 "ok. Umm , bisakah aku bertanya berapa harga kamar ini ......?" (ain)
 
@@ -115,7 +115,7 @@ Setelah menanyakan begitu, Nilda-san tersenyum seolah-olah dia tertawa setiap sa
 
 "Dia akan senang mendengarnya. Sekarang, aku akan pergi sekarang. Kamu bisa anggap ini rumahmu." (nilda)
 
-Setelah melihat Nilda-san keluar setelah ia meninggalkan nampan dan batu magic di atas meja, Aku sekali lagi melihat apa yang dibawanya.
+Setelah melihat Nilda-san keluar setelah ia meninggalkan nampan dan batu sihir di atas meja, Aku sekali lagi melihat apa yang dibawanya.
 
 Di atas nampan ada roti putih yang tampak lembut dan semangkuk sup yang lezat. Dalam standar kehidupanku sebelumnya, itu seperti makanan sederhana yang akan dimasak sendiri oleh seseorang yang tinggal sendirian, tetapi ini adalah makanan pertama yang tepat sejak aku tiba di dunia ini.
 

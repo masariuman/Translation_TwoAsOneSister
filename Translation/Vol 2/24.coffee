@@ -208,7 +208,7 @@ Jadi sementara aku melakukannya, aku mencuri pandang ke wajah Carol-san dan, unt
 
 Terus terang, Aku benar-benar ingin melakukan sesuatu tentang masalah uang kami saat ini, jadi jaminan penginapan kami sangat membantu.
 
-Paling tidak, kami harus bisa mengelola dengan uang yang kami miliki. Dan jika batu magic yang kami miliki dapat dijual dengan harga yang bagus, itu seharusnya menyelesaikan masalah kami kehabisan uang.
+Paling tidak, kami harus bisa mengelola dengan uang yang kami miliki. Dan jika batu sihir yang kami miliki dapat dijual dengan harga yang bagus, itu seharusnya menyelesaikan masalah kami kehabisan uang.
 
 "Ini bukan bagian dari hukumannya tetapi selama tahun itu atau sampai Kamu mencapai Rank C, Carol akan menjadi instrukturmu." (celia)
 

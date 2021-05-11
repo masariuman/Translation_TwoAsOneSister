@@ -67,7 +67,7 @@ tapi, karena mereka sepertinya berasal dari kota ini, Aku rasa mereka tidak perl
 
 Meskipun jika Aku memperhitungkan peralatan mereka, mereka mungkin membutuhkan uang sebanyak yang mereka bisa.
 
-Berbicara tentang uang, kami menukar batu magic laba-laba rank-D dengan 8 koin perak. Sepertinya ini sudah lebih dari pendapatan harian orang biasa dan karena satu-satunya alat yang Aku gunakan adalah pisau, ini berarti kami memiliki banyak tabungan sekarang.
+Berbicara tentang uang, kami menukar batu sihir laba-laba rank-D dengan 8 koin perak. Sepertinya ini sudah lebih dari pendapatan harian orang biasa dan karena satu-satunya alat yang Aku gunakan adalah pisau, ini berarti kami memiliki banyak tabungan sekarang.
 
 Dan saat aku memikirkan hal acak, sepertinya Ciel selesai merenung, jadi dia mulai berbicara kepadaku.
 

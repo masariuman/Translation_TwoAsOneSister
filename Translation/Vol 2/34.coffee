@@ -205,7 +205,7 @@ Pada saat dia mengalahkan keempat goblin, tubuhnya compang-camping dan penuh luk
 
 Padahal, dibandingkan dengan Alejo saat itu, Alejo terlihat jauh lebih dekat dengan kematian.
 
-Sejujurnya, Aku ingin membuatnya melakukan pengambilan bukti goblin dan batu magic, tetapi karena Aku tidak punya rencana untuk tinggal di hutan selamanya, Aku - Ciel akan - membantunya.
+Sejujurnya, Aku ingin membuatnya melakukan pengambilan bukti goblin dan batu sihir, tetapi karena Aku tidak punya rencana untuk tinggal di hutan selamanya, Aku - Ciel akan - membantunya.
 
 Sementara kami mengurusnya, dia sepertinya sudah cukup pulih untuk bergerak, jadi kami kembali ke kota.
 

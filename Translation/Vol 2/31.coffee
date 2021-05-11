@@ -22,7 +22,7 @@ Meskipun demikian, karena kami masih melakukan siklus yang sama dalam berburu mo
 
 tapi, laba-laba raksasa tidak bisa dimaafkan. kenapa monster itu rank-D? kenapa kami diminta untuk memburu mereka?
 
-Bahkan jika kami setuju untuk memburu mereka dengan suatu keajaiban, itu benar-benar tidak masuk akal mengharapkan kami untuk membawa bagian tubuhnya bagian bukti. Lagipula, laba-laba raksasa akan dimusnahkan seketika kalau bertemu dengan kami. Memiliki bagian tubuh mereka atau bahkan batu magic tertinggal jarang terjadi.
+Bahkan jika kami setuju untuk memburu mereka dengan suatu keajaiban, itu benar-benar tidak masuk akal mengharapkan kami untuk membawa bagian tubuhnya bagian bukti. Lagipula, laba-laba raksasa akan dimusnahkan seketika kalau bertemu dengan kami. Memiliki bagian tubuh mereka atau bahkan batu sihir tertinggal jarang terjadi.
 
 Secara umum, kami tidak memiliki masalah untuk melanjutkan sebagai Hunter rank-D, tetapi seperti yang diharapkan, tampaknya ada beberapa teknik dan kemampuan yang dibutuhkan yang diperlukan untuk mencapai rank C.
 

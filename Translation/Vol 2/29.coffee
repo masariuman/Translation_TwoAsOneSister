@@ -57,7 +57,7 @@ Juga, Aku harus memberi tahu mereka tentang goblin yang kami kalahkan.
 
 a"Juga, maukah kamu memeriksanya juga?"
 
-"Ini ... bagian bukti goblin dan batu magic, bukan? Guild pasti menyambut baik barang-barang ini. Tapi seperti yang Aku pikirkan, mungkin yang terbaik bagimu untuk memiliki tas magic, Cielmer-san."
+"Ini ... bagian bukti goblin dan batu sihir, bukan? Guild pasti menyambut baik barang-barang ini. Tapi seperti yang Aku pikirkan, mungkin yang terbaik bagimu untuk memiliki tas magic, Cielmer-san."
 
 a"Tas magic?"
 

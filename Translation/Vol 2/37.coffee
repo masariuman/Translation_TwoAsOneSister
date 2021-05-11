@@ -52,11 +52,11 @@ ain"Itu karena aku benci laba-laba."
 
 "Kamu benci ......"
 
-ain"Bukannya aku membenci mereka sampai-sampai aku tidak bisa mengalahkan mereka, aku sangat membenci mereka sehingga aku langsung memusnahkan mereka ketika aku melihatnya. Sampai-sampai tidak ada jejak tubuh mereka yang tersisa. Akan sangat beruntung jika ada batu magic yang tersisa. Jadi, dengan pertimbangan itu, ini akan bertentangan dengan tujuan hari ini. Dan karena kita tidak dapat mengambil bukti, permintaan tersebut tidak akan dianggap berhasil."
+ain"Bukannya aku membenci mereka sampai-sampai aku tidak bisa mengalahkan mereka, aku sangat membenci mereka sehingga aku langsung memusnahkan mereka ketika aku melihatnya. Sampai-sampai tidak ada jejak tubuh mereka yang tersisa. Akan sangat beruntung jika ada batu sihir yang tersisa. Jadi, dengan pertimbangan itu, ini akan bertentangan dengan tujuan hari ini. Dan karena kita tidak dapat mengambil bukti, permintaan tersebut tidak akan dianggap berhasil."
 
 Itu tidak akan berfungsi sebagai pelatihan yang baik untuk mereka, apalagi kesempatan untuk berlatih membongkar monster.
 
-Aku sama sekali tidak akan pernah menerima permintaan terkait laba-laba atas keinginanku sendiri. Jika Aku pernah diminta untuk melakukannya, Aku pasti akan meminta guild menemukan cara lain untuk membuktikan bahwa Aku menaklukkan mereka selain bagian dan batu magic.
+Aku sama sekali tidak akan pernah menerima permintaan terkait laba-laba atas keinginanku sendiri. Jika Aku pernah diminta untuk melakukannya, Aku pasti akan meminta guild menemukan cara lain untuk membuktikan bahwa Aku menaklukkan mereka selain bagian dan batu sihir.
 
 Jika kebetulan kami menemukan laba-laba yang dapat menahan serangan Ciel, kami mungkin akan membakar seluruh tempat itu hingga rata dengan tanah.
 
@@ -222,4 +222,4 @@ ain"Itu sebenarnya bukan sesuatu yang bisa Kamu kuasai langsung, jadi tolong jan
 
 perla"Tentu saja!"
 
-Dengan itu, uji coba rank D mereka sekarang telah berakhir. Setelah ini, kami bertemu laba-laba dan segera mengubah segalanya kecuali batu magicnya menjadi debu. Rasanya sepertinya anggota party terdiam terkejut, tapi aku memutuskan untuk tidak terlalu memikirkannya.
+Dengan itu, uji coba rank D mereka sekarang telah berakhir. Setelah ini, kami bertemu laba-laba dan segera mengubah segalanya kecuali batu sihirnya menjadi debu. Rasanya sepertinya anggota party terdiam terkejut, tapi aku memutuskan untuk tidak terlalu memikirkannya.

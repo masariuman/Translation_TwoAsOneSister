@@ -28,15 +28,15 @@ Fakta bahwa aku berdoa untuk Duke sangat menyebalkan, tetapi jika guild menemuka
 
 "Jadi monster apa saat itu?" (carol)
 
-"Monster itu adalah pemilik batu magic ini. Itu adalah raksasa bermata satu yang memiliki senjata seperti klub besar." (ain)
+"Monster itu adalah pemilik batu sihir ini. Itu adalah raksasa bermata satu yang memiliki senjata seperti klub besar." (ain)
 
-Aku menunjukkan mereka batu magic. Berdasarkan jumlah energi sihir yang disimpan di dalamnya, Aku curiga ini mungkin jenis batu magic yang sama yang digunakan untuk membuat pil hitam itu, bahkan jika itu benar, Aku tidak dapat berbuat apa-apa sekarang. Akan sangat bagus jika Aku dapat menemukan cara untuk secara langsung menyerap energi sihir dari batu magic tapi karena Aku tidak dapat mengontrol energi sihir yang tidak Aku miliki di luar tubuh Ciel, Aku tidak dapat berbuat apa-apa. Sebaliknya, pil yang disuntikkan ke monster - milik orang lain? - energi sihir ke dalam tubuh mungkin sebenarnya tidak normal.
+Aku menunjukkan mereka batu sihir. Berdasarkan jumlah energi sihir yang disimpan di dalamnya, Aku curiga ini mungkin jenis batu sihir yang sama yang digunakan untuk membuat pil hitam itu, bahkan jika itu benar, Aku tidak dapat berbuat apa-apa sekarang. Akan sangat bagus jika Aku dapat menemukan cara untuk secara langsung menyerap energi sihir dari batu sihir tapi karena Aku tidak dapat mengontrol energi sihir yang tidak Aku miliki di luar tubuh Ciel, Aku tidak dapat berbuat apa-apa. Sebaliknya, pil yang disuntikkan ke monster - milik orang lain? - energi sihir ke dalam tubuh mungkin sebenarnya tidak normal.
 
-Menurut Carol-san , itu adalah monster rank B; dan karena aku sudah resmi menang melawan Carol-san , Celia-san tidak terkejut bahkan setelah melihat batu magic besar itu.
+Menurut Carol-san , itu adalah monster rank B; dan karena aku sudah resmi menang melawan Carol-san , Celia-san tidak terkejut bahkan setelah melihat batu sihir besar itu.
 
 Sebaliknya, dia bahkan mengangguk pada dirinya sendiri terlihat agak yakin tentang sesuatu. Aku berasumsi ini tentang apa yang dia katakan sebelumnya, tentang bagaimana ini secara langsung dapat mengarah ke-keselamatanku.
 
-"Menilai dari batu magic ini dan uraianmu tentang monster itu, yang menyerangmu pasti seekor cyclop. Itu adalah monster rank B raksasa bermata satu. Dengan asumsi bahwa mereka menyewa, misalnya, pengawal rank C, konfrontasi dengannya akan menyebabkan kehancuran tertentu. bisa dikatakan bahwa orang yang mengurungmu cukup siap." (celia)
+"Menilai dari batu sihir ini dan uraianmu tentang monster itu, yang menyerangmu pasti seekor cyclop. Itu adalah monster rank B raksasa bermata satu. Dengan asumsi bahwa mereka menyewa, misalnya, pengawal rank C, konfrontasi dengannya akan menyebabkan kehancuran tertentu. bisa dikatakan bahwa orang yang mengurungmu cukup siap." (celia)
 
 "Jadi menurutmu bangsawan yang mengurungku mengatur ini juga, kan? Atau lebih tepatnya, apakah sebenarnya ada cara untuk mengendalikan monster?" (ain)
 
@@ -48,7 +48,7 @@ Dan karena hasilnya akan sama, kurasa apa yang sebenarnya terjadi tidak terlalu 
 
 "apa yang terjadi dengan tubuh monster itu?" (carol)
 
-"Setelah mendapatkan batu magicnya, Aku membakarnya dan menguburnya." (ain)
+"Setelah mendapatkan batu sihirnya, Aku membakarnya dan menguburnya." (ain)
 
 "pengetahuanmu sungguh cukup luas untuk situasi seperti ini, Kamu tahu itu?" (carol)
 
@@ -231,3 +231,5 @@ Entah bagaimana, tiba-tiba telah diputuskan bahwa Celia-san akan ikut menemaniku
 Tapi tetap saja, aku benar-benar berpikir bahwa perlakuan ini semua karena penampilan Ciel, jadi aku bersyukur tentang itu ...... Itulah yang kupikirkan kali ini.
 
 -----------------
+
+WAAAYYY hampir semua terungkap, tinggal sedikit saja termasuk dari dunia lain... yaah baguslah dapat bantuan dari celia dan carol, nampaknya bantuan dari mereka pun tidak masalah, dan paling tidak celia perhatian.. ~~~ YAAAAYY DEDEK CIEL PAKAI KOLOR DI CHAPTER BERIKUTNYA !!! bahahahahahahaa

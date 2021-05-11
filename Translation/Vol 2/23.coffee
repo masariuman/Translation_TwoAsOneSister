@@ -14,7 +14,7 @@ Bak mandi ini tidak seperti bak mandi kayu tradisional yang ditemukan di Jepang 
 
 Selain itu, ada pipa yang terpasang dan jika Kamu mengikuti kemana arahnya, ada benda seperti sakelar dan semacam benda yang dapat menahan benda bulat.
 
-[Alas itu, kemungkinan tempat kita meletakkan batu magic.] (ain)
+[Alas itu, kemungkinan tempat kita meletakkan batu sihir.] (ain)
 
 [Seperti ini?] (ciel)
 
@@ -94,7 +94,7 @@ Aku menyuruhnya meninggalkan kamar mandi sejenak, melepas pakaiannya, dan membaw
 
 Kalau dipikir-pikir, kami bahkan tidak punya pakaian dalam. Kain itu hanyalah sesuatu yang dijahit kasar menjadi bentuk yang bisa kita pakai, jadi mungkin tidak bisa digunakan sebagai pakaian dalam wanita.
 
-Dan dengan itu, kami kembali ke kamar mandi tetapi karena mereka tidak memiliki shower, kami mengisi centong dengan air panas dari batu magic dan menyiramnya ke seluruh tubuh kami. Ketika Ciel menuangkan air ke kepalanya - pada akhirnya Aku memutuskan untuk menggunakan seluruh kekuatanku dan menjaga rambutnya dengan +BARRIER - air masuk ke hidung ciel, jadi Ciel langsung memberikan tubuhnya kepadaku.
+Dan dengan itu, kami kembali ke kamar mandi tetapi karena mereka tidak memiliki shower, kami mengisi centong dengan air panas dari batu sihir dan menyiramnya ke seluruh tubuh kami. Ketika Ciel menuangkan air ke kepalanya - pada akhirnya Aku memutuskan untuk menggunakan seluruh kekuatanku dan menjaga rambutnya dengan +BARRIER - air masuk ke hidung ciel, jadi Ciel langsung memberikan tubuhnya kepadaku.
 
 Aku juga melakukan kesalahan yang sama ketika Aku masih kecil tetapi Aku lupa memperingatkannya tentang hal itu.
 

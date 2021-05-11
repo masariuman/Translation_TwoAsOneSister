@@ -48,11 +48,11 @@ Mungkin lebih bagus aku sering memujinya mulai sekarang, agar dia tidak jatuh ci
 
 Aku juga tidak biasa memuji orang secara terus terang, perkataanku padanya itu bukanlah kebohongan.
 
-ain"Kalau dipikir-pikir, apakah Kamu tahu tentang obat yang menggunakan batu magic, Carol-san ?"
+ain"Kalau dipikir-pikir, apakah Kamu tahu tentang obat yang menggunakan batu sihir, Carol-san ?"
 
 carol"Dari mana Kamu belajar tentang itu?"
 
-Aku bertanya padanya tentang itu karena kupikir kami mungkin bisa meningkatkan energi sihir kami jika kami bisa membuat obat itu dari batu magic monster rank B itu, tapi dia menjawab dengan tatapan tajam.
+Aku bertanya padanya tentang itu karena kupikir kami mungkin bisa meningkatkan energi sihir kami jika kami bisa membuat obat itu dari batu sihir monster rank B itu, tapi dia menjawab dengan tatapan tajam.
 
 Aku sudah tahu kalu Aku harus memberi tahu mereka tentang mengapa rambut kami memutih suatu hari nanti, tetapi untuk berpikir bahwa itu akan terjadi hari ini.
 
@@ -88,7 +88,7 @@ ain"Setiap hari. Selama 5 tahun penuh sejak aku berusia lima tahun sampai aku me
 
 carol"Kamu berhasil dengan baik hidup melalui itu."
 
-ain"Aku hanya ingin memastikan, tetapi obat itu adalah sesuatu yang menekan energi sihir dari batu magic dan melepaskannya ke dalam tubuh seseorang , kan?"
+ain"Aku hanya ingin memastikan, tetapi obat itu adalah sesuatu yang menekan energi sihir dari batu sihir dan melepaskannya ke dalam tubuh seseorang , kan?"
 
 carol"Benar, Aku belum melihatnya secara langsung tetapi obat itu sangat dihargai di kalangan bangsawan sebagai racun. Lagipula, karena itu hanya energi sihir yang liar, itu tidak meninggalkan jejak tidak seperti racun asli. energi sihir liar akhirnya menyebar dengan sendirinya juga, jadi itu cukup ideal. Padahal akhir-akhir ini, analisis rangkaian juga bisa dilakukan, jadi penggunaannya akan cukup jelas dengan sekali lihat. Karena betapa merepotkannya, tidak hanya dilarang untuk digunakan, tetapi bahkan juga dilarang untuk memilikinya. tapi untungnya, membuatnya akan membutuhkan sejumlah besar uang, jadi seharusnya tidak muncul di mana pun tanpa alasan apa pun."
 
@@ -136,7 +136,7 @@ Selain itu, situasi kami, ritual untuk menarik dewa, atau fakta bahwa obat dapat
 
 ain"Sepertinya kita tidak bisa membuat obat itu."
 
-ciel"Memiliki lebih banyak energi sihir mungkin berguna, tetapi bahkan sekarang aku belum benar-benar kehabisan energi sihir. Bukankah lebih baik mempertimbangkan untuk menjual batu magic atau memikirkan cara lain untuk menggunakannya?"
+ciel"Memiliki lebih banyak energi sihir mungkin berguna, tetapi bahkan sekarang aku belum benar-benar kehabisan energi sihir. Bukankah lebih baik mempertimbangkan untuk menjual batu sihir atau memikirkan cara lain untuk menggunakannya?"
 
 ain"Itu benar. Aku bersyukur mereka menggunakan obat mahal itu pada kita selama 5 tahun berturut-turut."
 

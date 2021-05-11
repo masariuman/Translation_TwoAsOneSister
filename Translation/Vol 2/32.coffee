@@ -48,7 +48,7 @@ Apakah dia baik-baik saja walaupun kami sekarat? Atau apakah dia tidak berpikir 
 
 Aku sedikit marah sekarang. Dan saat aku memikirkan itu, Ciel mengalahkan kobold terakhir.
 
-Dengan sentuhan berpengalaman, dia mengeluarkan batu magic mereka dan mematahkan bagian bukti mereka, taring mereka.
+Dengan sentuhan berpengalaman, dia mengeluarkan batu sihir mereka dan mematahkan bagian bukti mereka, taring mereka.
 
 Butuh beberapa waktu karena mereka ada lima tapi melihat Brass-kun, sepertinya dia masih belum selesai dengan pertarungannya.
 
@@ -88,23 +88,23 @@ Setelah Ciel bertukar denganku, aku menuju Brass-kun dan untuk beberapa alasan, 
 
 Dan ketika dia melihatku tanpa cedera, dia berkata "He ~ eh , jadi kita sudah selesai, ya." Dengan nada puas.
 
-Ada banyak hal yang ingin kukatakan tetapi Aku hanya menelan kata-kataku, dengan menjawab "Ya." Dan menunjukkan kepadanya batu magic dan taring di dalam kantong kami. Dan seperti yang Aku perkirakan, dia bahkan tidak menyadari bahwa Ciel mengalahkan satu kelompok lagi.
+Ada banyak hal yang ingin kukatakan tetapi Aku hanya menelan kata-kataku, dengan menjawab "Ya." Dan menunjukkan kepadanya batu sihir dan taring di dalam kantong kami. Dan seperti yang Aku perkirakan, dia bahkan tidak menyadari bahwa Ciel mengalahkan satu kelompok lagi.
 
-Brass-kun mengambil taring kobold dan batu magic dan hendak melemparkannya padaku, tapi aku menghentikannya.
+Brass-kun mengambil taring kobold dan batu sihir dan hendak melemparkannya padaku, tapi aku menghentikannya.
 
 ain"Hadiah permintaan tidak akan benar-benar berubah, jadi mari kita simpan itu untuk diri kita sendiri."
 
 brass"Tsk , itu benar."
 
-Dia mendecakkan lidahnya tapi mungkin karena dia tahu bahwa batu magic yang dimilikinya agak lebih besar dari batu magic Rank-E biasanya, dia masih setuju.
+Dia mendecakkan lidahnya tapi mungkin karena dia tahu bahwa batu sihir yang dimilikinya agak lebih besar dari batu sihir Rank-E biasanya, dia masih setuju.
 
 Setelah itu, dalam perjalanan kembali ke kota, Brass-kun pergi ke arah yang sama sekali berbeda, jadi membimbingnya kembali sangat menjengkelkan.
 
 ◇
 
-Kami kembali ke guild, menuju ke meja resepsionis bersama, dan menyerahkan taring dan batu magic. Resepsionisnya tentu saja Celia-san. Itu karena Brass-kun awalnya tidak dapat menerima permintaan Rank-E dengan tingkat kesulitan tinggi, Celia-san adalah satu-satunya yang akan menghadapinya - tepatnya, meja lain juga bisa tetapi itu akan membutuhkan lebih banyak waktu bagi kami..
+Kami kembali ke guild, menuju ke meja resepsionis bersama, dan menyerahkan taring dan batu sihir. Resepsionisnya tentu saja Celia-san. Itu karena Brass-kun awalnya tidak dapat menerima permintaan Rank-E dengan tingkat kesulitan tinggi, Celia-san adalah satu-satunya yang akan menghadapinya - tepatnya, meja lain juga bisa tetapi itu akan membutuhkan lebih banyak waktu bagi kami..
 
-Dengan batu magic yang sedikit lebih besar, Brass-kun dengan bangga membusungkan dadanya tapi jelas aku memiliki lebih banyak di sisiku.
+Dengan batu sihir yang sedikit lebih besar, Brass-kun dengan bangga membusungkan dadanya tapi jelas aku memiliki lebih banyak di sisiku.
 
 Seorang Hunter seharusnya mengerti apa artinya ini, tapi sayangnya Brass-kun sepertinya tidak mengerti.
 
@@ -112,15 +112,15 @@ brass"Apakah tidak apa-apa untuk menganggap monster ini dikalahkan masing-masing
 
 celia"Ya."
 
-brass"Silakan beli batu magic di dalamnya juga."
+brass"Silakan beli batu sihir di dalamnya juga."
 
 celia"Baiklah."
 
-Sejak Brass-kun melanjutkan percakapannya sendiri, Aku mengklarifikasi bahwa setengah dari batu magic akan dijual.
+Sejak Brass-kun melanjutkan percakapannya sendiri, Aku mengklarifikasi bahwa setengah dari batu sihir akan dijual.
 
-Aku menyuruh Celia-san membeli batu magic yang tidak berhubungan dengan permintaan itu. Melihatku mengatakan itu, Brass-kun menatapku dengan curiga tapi aku tidak mengatakan sesuatu yang aneh.
+Aku menyuruh Celia-san membeli batu sihir yang tidak berhubungan dengan permintaan itu. Melihatku mengatakan itu, Brass-kun menatapku dengan curiga tapi aku tidak mengatakan sesuatu yang aneh.
 
-Celia-san memeriksa taring kobold dan batu magic, lalu mengumpulkan sejumlah koin yang sesuai dengan nilainya.
+Celia-san memeriksa taring kobold dan batu sihir, lalu mengumpulkan sejumlah koin yang sesuai dengan nilainya.
 
 celia"Kami telah mengonfirmasi penyelesaian permintaan. Ini akan menjadi hadiah untuk permintaan hari ini. Seperti yang dinyatakan sebelumnya, hadiah akan dibagi rata jadi harap konfirmasikan jumlahnya."
 
@@ -132,11 +132,11 @@ Kantong ini juga semakin berat. karena mata uang semuanya dalam koin dan masing-
 
 Aku sangat menginginkan tas magic yang bisa digunakan sebagai dompet walaupun ukurannya kecil.
 
-celia"Dan kemudian, ini akan menjadi jumlah dari pembelian batu magic."
+celia"Dan kemudian, ini akan menjadi jumlah dari pembelian batu sihir."
 
 Kali ini Celia-san memberiku kantong kecil berisi uang.
 
-Uang tambahan. Ini adalah kesalahanku sendiri tetapi lebih mudah membawa batu magic jika diubah menjadi uang, jadi aku tidak punya pilihan lain.
+Uang tambahan. Ini adalah kesalahanku sendiri tetapi lebih mudah membawa batu sihir jika diubah menjadi uang, jadi aku tidak punya pilihan lain.
 
 Sekali lagi, seperti yang diharapkan, Brass-kun memelototi uangku. Kemudian dia sekarang berdebat "Bukankah Aku mendapatkan setengah dari itu juga?" Dengan rasa percaya diri yang misterius. Ya, Aku berharap dia mengatakan itu jadi Aku bersiap sebelumnya tetapi sepertinya Aku membujuknya ke dalam jebakan.
 
@@ -144,7 +144,7 @@ ain"Kenapa?"
 
 brass"kita mendapat setengah dari uang dari permintaan, kan?"
 
-ain"kita hanya membagi setengah hadiah. Ini hanya uang yang Aku dapat dari perdagangan batu magic."
+ain"kita hanya membagi setengah hadiah. Ini hanya uang yang Aku dapat dari perdagangan batu sihir."
 
 brass"...... Ck , ya. Benar, ya. Tidak ada pilihan lain."
 
@@ -160,7 +160,7 @@ Untuk berpikir bahwa Kamu benar-benar menyerahkan orang seperti itu kepada kami.
 
 Sebaliknya, sungguh menakjubkan berapa lama party sebelumnya tinggal bersamanya. Dia pergi tanpa merencanakan apa yang harus kita lakukan selanjutnya tapi, apa yang dia pikirkan?
 
-Haruskah Aku pergi ke guild di pagi hari? Jika dia tidak datang ya tidak maslah, aku hanya perlu tetap menemani seseorang. Aku masih perlu memikirkan tentang apa yang harus dilakukan dengan batu magic Rank-B itu.
+Haruskah Aku pergi ke guild di pagi hari? Jika dia tidak datang ya tidak maslah, aku hanya perlu tetap menemani seseorang. Aku masih perlu memikirkan tentang apa yang harus dilakukan dengan batu sihir Rank-B itu.
 
 Aku tidak punya pekerjaan tersisa tetapi Aku ingin tinggal di guild untuk sementara waktu.
 

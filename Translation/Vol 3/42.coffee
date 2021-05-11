@@ -77,7 +77,7 @@ Tetap saja, meski mereka mengatakan itu, kenapa raut wajah mereka tampak seperti
 
 Aku beralih dengan Ciel. Kami pernah membahas tentang Aku belajar cara membongkar monster sebelumnya, tetapi dengan kemungkinan pakaian kami menjadi kotor dan masalah berapa banyak waktu yang dibutuhkan, kami telah memutuskan untuk meminta Ciel menyelesaikannya dengan cepat dengan sihir.
 
-Seperti biasa, Ciel mengambil batu magic dengan sihir angin, mencucinya dengan sihir air, mengubah tubuh menjadi abu dengan sihir api, dan menguburnya dengan sihir tanah.
+Seperti biasa, Ciel mengambil batu sihir dengan sihir angin, mencucinya dengan sihir air, mengubah tubuh menjadi abu dengan sihir api, dan menguburnya dengan sihir tanah.
 
 Ciel melakukan semua ini dengan acuh tak acuh, dengan semua atribut yang dia gunakan, orang yang bisa melakukan hal ini mungkin sangat langka.
 
@@ -104,7 +104,7 @@ ain "Baiklah."
 pedagang "Kami akan membayar dengan ini. Hanya ini yang bisa kami bayar untuk saat ini, tetapi seharusnya sudah cukup."
 
 Saat menerimanya, Aku menyimpannya tanpa mengkonfirmasi isinya. aku melihat pria itu dengan sekilas, aku melihatnya dengan tangan di dada dan dia menghela nafas lega.
-
+ß
 ※※※※※※※※※※
 
 pedagang "Aku tidak pernah membayangkan bahwa kami akan bertemu serigala hutan di tempat ini, Kami benar-benar akan mati jika kamu tidak ada di sana."
