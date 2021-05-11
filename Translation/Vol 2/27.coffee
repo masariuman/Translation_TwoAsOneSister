@@ -18,15 +18,15 @@ Ada beberapa orang dengan aura veteran pada mereka dan mereka juga hanya melihat
 
 Di antara kerumunan itu, ada juga beberapa orang yang kemungkinan besar berusia belasan tahun.
 
-c"Apakah ini mungkin karena orang-orang dengan peringkat yang lebih rendah ingin menemukan permintaan yang paling menguntungkan yang mereka bisa?"
+[Apakah ini mungkin karena orang-orang dengan peringkat yang lebih rendah ingin menemukan permintaan yang paling menguntungkan yang mereka bisa?] (ciel)
 
-a"Kurasa begitu. Bahkan, kita harus dalam kerumunan itu juga tapi ... "
+[Kurasa begitu. Bahkan, kita harus dalam kerumunan itu juga tapi ... ] (ain)
 
-c"Ain, apakah Kamu benar-benar berpikir bahwa kita dapat menemukan permintaan jika kita masuk kesitu ?"
+[Ain, apakah Kamu benar-benar berpikir bahwa kita dapat menemukan permintaan jika kita masuk kesitu ?] (ciel)
 
-a"mungkin tidak. Meskipun jika kita menggunakan sihir, kita seharusnya bisa membuat jalan dalam sekejap."
+[mungkin tidak. Meskipun jika kita menggunakan sihir, kita seharusnya bisa membuat jalan dalam sekejap.] (ain)
 
-c"Yah itu, cukup ekstrim, bukan?"
+[Yah itu, cukup ekstrim, bukan?] (ciel)
 
 Meskipun dia menepisnya dengan cekikikan, Ciel mungkin memikirkan hal yang sama juga.
 
@@ -38,14 +38,13 @@ Di sisi lain, di mana orang-orang mengawasi kerumunan, ada sekelompok tiga orang
 
 Dan ketika Aku mengamati beberapa hal acak lainnya, Aku terus berbicara dengan Ciel.
 
-a"Bagiku, itu akan tergantung pada permintaan yang tersisa tetapi Aku tidak masalah walaupun kita mengambil sisanya."
+[Bagiku, itu akan tergantung pada permintaan yang tersisa tetapi Aku tidak masalah walaupun kita mengambil sisanya.] (ain)
 
-c"kenapa?"
+[kenapa?] (ciel)
 
-a"Itu karena karena kita seharusnya tidak memiliki masalah dengan uang untuk sementara waktu, Aku Berpikir melakukan permintaan sisa yang membuat guild bermasalah bisa mendapatkan rasa terima kasih dari guild.
-Bagaimana denganmu Ciel?"
+[Itu karena karena kita seharusnya tidak memiliki masalah dengan uang untuk sementara waktu, Aku Berpikir melakukan permintaan sisa yang membuat guild bermasalah bisa mendapatkan rasa terima kasih dari guild. Bagaimana denganmu Ciel?] (ain)
 
-c"hmmmmm... jika Ain bilang begitu, yaaah... Tidak, tunggu, beri aku waktu."
+[hmmmmm... jika Ain bilang begitu, yaaah... Tidak, tunggu, beri aku waktu.] (ciel)
 
 Ketika Aku bertanya tentang pendapatnya, Ciel segera setuju denganku tetapi dia kemudian tiba-tiba menghentikan percakapan kami untuk memikirkan sesuatu.
 
@@ -71,19 +70,19 @@ Berbicara tentang uang, kami menukar batu sihir laba-laba rank-D dengan 8 koin p
 
 Dan saat aku memikirkan hal acak, sepertinya Ciel selesai merenung, jadi dia mulai berbicara kepadaku.
 
-c"Bagiku Ain, Aku ingin Kamu melakukan permintaan yang ingin Kamu lakukan."
+[Bagiku Ain, Aku ingin Kamu melakukan permintaan yang ingin Kamu lakukan.] (ciel)
 
-a"Apakah itu berarti, Kamu setuju denganku?"
+[Apakah itu berarti, Kamu setuju denganku?] (ain)
 
-c"Tidak Ain. Aku ingin Kamu memilih permintaan yang menurutmu menarik tanpa khawatir mendapatkan rasa terima kasih atau yang lainnya. Lagipula Ain, kamu sangat bersemangat sebelumnya, kan? kita akan melakukan banyak permintaan mulai sekarang, jadi Aku ingin Kamu setidaknya memilih apa yang Kamu inginkan untuk permintaan pertama kita."
+[Tidak Ain. Aku ingin Kamu memilih permintaan yang menurutmu menarik tanpa khawatir mendapatkan rasa terima kasih atau yang lainnya. Lagipula Ain, kamu sangat bersemangat sebelumnya, kan? kita akan melakukan banyak permintaan mulai sekarang, jadi Aku ingin Kamu setidaknya memilih apa yang Kamu inginkan untuk permintaan pertama kita.] (ciel)
 
 Mendengarnya mengingat apa yang terjadi pagi ini membuat pipiku terasa agak panas.
 
 Aku tidak tahu apakah Aku harus malu atau Aku hanya ...... ​​Sulit untuk mengatakan siapa yang dewasa dalam situasi ini.
 
-a"baiklah. Terima kasih banyak."
+[baiklah. Terima kasih banyak.] (ain)
 
-c"Tidak apa-apa. Sejujurnya, aku juga sama sekali tidak tahu apa yang harus kita lakukan."
+[Tidak apa-apa. Sejujurnya, aku juga sama sekali tidak tahu apa yang harus kita lakukan.] (ciel)
 
 Tidak masalah apa yang akan dikatakan Ciel, selama dia memberikan pendapatnya sendiri. Itulah yang awalnya Aku pikirkan tetapi Ciel telah memikirkannya lebih dari yang Aku harapkan, jadi Aku benar-benar tidak memiliki kata-kata untuk membalasnya. Sebenarnya, Aku ingin memujinya, "Jangan khawatir, kerja bagus Ciel." Jadi Aku mencoba memujinya tetapi dia tidak begitu mengerti alasannya.
 
@@ -103,30 +102,30 @@ Jadi karena mereka berusaha keras untuk mempersiapkannya, Aku bersyukur dan meng
 
 Kemungkinan besar mengharapkan kedatangan kami, Celia-san sedang menunggu di sisi lain konter itu.
 
-"Kami telah menunggumu."
+"Kami telah menunggumu." (celia)
 
-a"Apakah benar-benar tidak apa-apa untuk menginjak kotak ini?"
+"Apakah benar-benar tidak apa-apa untuk menginjak kotak ini?" (ain)
 
-"Tentu saja, kami menyiapkannya hanya untukmu."
+"Tentu saja, kami menyiapkannya hanya untukmu." (celia)
 
-a"Begitulah, bagaimana Aku harus menafsirkannya?"
+"Begitulah, bagaimana Aku harus menafsirkannya?" (ain)
 
 Ketika Aku mengatakannya dengan nada yang sedikit cemberut, Celia-san terkikik dan berkata "Maafkan Aku."
 
 Sebenarnya Aku tidak terlalu mempermasalahkannya , jadi Aku menenangkan diri dan mulai dengan apa yang terjadi kemarin.
 
-a"Terima kasih banyak tentang kemarin."
+"Terima kasih banyak tentang kemarin." (ain)
 
-"Tolong jangan khawatir tentang itu, Aku mungkin agak terlalu mengganggu."
+"Tolong jangan khawatir tentang itu, Aku mungkin agak terlalu mengganggu." (celia)
 
-a"Jadi, apa yang harus Aku lakukan untuk hari ini?
-Apakah tidak apa-apa jika Aku menerima permintaan biasa saja?"
+"Jadi, apa yang harus Aku lakukan untuk hari ini?
+Apakah tidak apa-apa jika Aku menerima permintaan biasa saja?" (ain)
 
-"Mari kita lihat. Cielmer-san , di masa mendatang, Kamu akan diminta untuk menyelesaikan beberapa permintaan dengan tingkat kesulitan tinggi. tapi, itu bukanlah sesuatu yang akan diminta untuk segera Kamu lakukan. Ini akan ditentukan berdasarkan kemajuanmu. Dalam kasusmu, karena Kamu sudah cukup mampu dalam pertempuran, Carol akan menilai apakah Kamu mampu menyelesaikan berbagai jenis permintaan atau tidak. Jadi untuk hari ini, silakan pilih permintaan yang ingin Kamu terima. tapi, Kamu hanya diperbolehkan menerima permintaan rank E dan di bawahnya. Harap pertimbangkan ini sebagai tinjauan dari prosedur standar dalam memanfaatkan layanan guild."
+"Mari kita lihat. Cielmer-san , di masa mendatang, Kamu akan diminta untuk menyelesaikan beberapa permintaan dengan tingkat kesulitan tinggi. tapi, itu bukanlah sesuatu yang akan diminta untuk segera Kamu lakukan. Ini akan ditentukan berdasarkan kemajuanmu. Dalam kasusmu, karena Kamu sudah cukup mampu dalam pertempuran, Carol akan menilai apakah Kamu mampu menyelesaikan berbagai jenis permintaan atau tidak. Jadi untuk hari ini, silakan pilih permintaan yang ingin Kamu terima. tapi, Kamu hanya diperbolehkan menerima permintaan rank E dan di bawahnya. Harap pertimbangkan ini sebagai tinjauan dari prosedur standar dalam memanfaatkan layanan guild." (celia)
 
-a"Aku mengerti. Kalau begitu, bisakah Aku mencari permintaan sekarang?"
+"Aku mengerti. Kalau begitu, bisakah Aku mencari permintaan sekarang?" (ain)
 
-"Tentu saja, tolong bawa apa pun yang menarik minatmu. Jika tidak, kami akan memintamu menyelesaikan permintaan tetap."
+"Tentu saja, tolong bawa apa pun yang menarik minatmu. Jika tidak, kami akan memintamu menyelesaikan permintaan tetap." (celia)
 
 Maka dengan itu, Aku menuju ke depan papan. Karena Aku sudah memiliki izin Ciel, Aku mencari permintaan yang ingin Aku lakukan.
 
@@ -150,17 +149,17 @@ Untuk saat ini, Aku membawa formulir itu kembali dan melangkah ke bangku. Guild 
 
 Yah, Aku tidak bisa menyalahkan mereka karena Aku satu-satunya yang perlu menggunakan bangku. Alangkah baiknya jika mereka hanya berpikir bahwa Aku ada di sini untuk permintaan rank-G.
 
-"Apa yang Kamu pilih?"
+"Apa yang Kamu pilih?" (celia)
 
-a"Aku sedang berpikir mengambil permintaan pengumpulan herb tetapi bisakah Aku bertanya tentang beberapa hal?"
+"Aku sedang berpikir mengambil permintaan pengumpulan herb tetapi bisakah Aku bertanya tentang beberapa hal?" (ain)
 
-"Jika itu adalah sesuatu yang bisa Aku jawab, silakan."
+"Jika itu adalah sesuatu yang bisa Aku jawab, silakan." (celia)
 
-a"Apa yang terjadi pada herb setelah permintaan?"
+"Apa yang terjadi pada herb setelah permintaan?" (ain)
 
-"Mereka akan diolah menjadi salep. Itu tidak dapat dibuat dari herb khusus ini tetapi herb yang berbeda dapat diproses dengan cara yang sama menjadi potion oleh alkemis."
+"Mereka akan diolah menjadi salep. Itu tidak dapat dibuat dari herb khusus ini tetapi herb yang berbeda dapat diproses dengan cara yang sama menjadi potion oleh alkemis." (celia)
 
-a"Lalu apa perbedaan di antara mereka?"
+"Lalu apa perbedaan di antara mereka?" (ain)
 
 Aku dapat membayangkan bahwa mereka akan terlihat sangat berbeda, tetapi Aku tidak dapat membayangkan apa yang membuat efek mereka sangat berbeda.
 
@@ -168,7 +167,7 @@ Anehnya, hanya ada beberapa game di mana salep dan potion sama-sama ada, jika Ak
 
 Perbedaan di antara mereka berdua mungkin sudah menjadi rahasia umum di sini, tetapi karena Celia-san mengerti bahwa Aku mungkin tidak tahu tentang itu, sepertinya karena itu dia sengaja memberi tahuku tentang keduanya.
 
-"fungsi utama mereka berdua sama-sama menyembuhkan luka. potion jauh lebih efektif dibandingkan dengan salep tetapi harganya sangat mahal. sementara itu, salep harganya murah tetapi sebagai gantinya, mereka tidak menyembuhkan sebanyak potion dan satu-satunya hal yang dapat segera dilakukan adalah menghentikan pendarahan seseorang. Itu juga akan tergantung pada tingkat keparahan lukanya tetapi salep kemungkinan akan membutuhkan istirahat sepanjang malam untuk menyembuhkan lukanya. Aku percaya bahwa itu adalah konsensus umum bahwa Hunter peringkat tinggi menggunakan potion sementara Hunter peringkat rendah akan menggunakan salep."
+"fungsi utama mereka berdua sama-sama menyembuhkan luka. potion jauh lebih efektif dibandingkan dengan salep tetapi harganya sangat mahal. sementara itu, salep harganya murah tetapi sebagai gantinya, mereka tidak menyembuhkan sebanyak potion dan satu-satunya hal yang dapat segera dilakukan adalah menghentikan pendarahan seseorang. Itu juga akan tergantung pada tingkat keparahan lukanya tetapi salep kemungkinan akan membutuhkan istirahat sepanjang malam untuk menyembuhkan lukanya. Aku percaya bahwa itu adalah konsensus umum bahwa Hunter peringkat tinggi menggunakan potion sementara Hunter peringkat rendah akan menggunakan salep." (celia)
 
 Karena sihir dapat segera menyembuhkan luka yang cukup dalam untuk mencapai organ, Aku sudah membayangkan bahwa potion mungkin memiliki efek yang sama, tetapi salep tampak sangat menakjubkan juga. Lagipula, di bumi, bahkan goresan yang disembuhkan hanya dengan salep tidak sembuh dalam satu malam, kan?
 
@@ -176,37 +175,38 @@ Ini, sesuai harapanku, jadi Aku senang tentang ini.
 
 Bagaimanapun juga, keduanya tidak diragukan lagi penting bagi para Hunter.
 
-a"Salep tampaknya sangat penting, tetapi mengapa permintaan ini masih ada di sini?"
+"Salep tampaknya sangat penting, tetapi mengapa permintaan ini masih ada di sini?" (ain)
 
-"Aku pikir Kamu akan mengerti setelah menyelesaikannya tetapi hadiahnya agak sedikit mengingat seberapa lama menyelesaikannya. Apalagi karena salep yang bisa dibuat dari herb ini hanya yang kualitasnya paling rendah, bisa dikatakan tidak terlalu menguntungkan bagi pembuat juga. Bagaimanapun juga, membuat salep yang lebih efektif jauh lebih menguntungkan bagi mereka juga."
+"Aku pikir Kamu akan mengerti setelah menyelesaikannya tetapi hadiahnya agak sedikit mengingat seberapa lama menyelesaikannya. Apalagi karena salep yang bisa dibuat dari herb ini hanya yang kualitasnya paling rendah, bisa dikatakan tidak terlalu menguntungkan bagi pembuat juga. Bagaimanapun juga, membuat salep yang lebih efektif jauh lebih menguntungkan bagi mereka juga." (celia)
 
 begitu ya. Kalau dipikir-pikir, 3 koin tembaga setara dengan menyelesaikan 3 permintaan rank-G. Selain itu, seorang Hunter rank-G biasanya dapat menyelesaikan 2 permintaan dalam sehari, bahkan mungkin 3 jika mereka berusaha cukup keras, jadi mereka mungkin tidak akan mengambil risiko keluar hanya untuk mendapatkan 3 koin tembaga.
 
 Dan untuk para ahli obat, mereka mungkin akan menggunakan herb ini jika mereka memiliki beberapa, tetapi itu tidak akan menjadi masalah bagi mereka bahkan jika tidak ada stok. Aku tidak memiliki bukti yang jelas tentang ini tetapi herb ini mungkin untuk berlatih membuat salep atau sesuatu.
 
-a"begitu ya. Untuk saat ini, Aku ingin menerima permintaan ini."
+"begitu ya. Untuk saat ini, Aku ingin menerima permintaan ini." (ain)
 
-"Terima kasih banyak. Tetap saja, apakah Kamu benar-benar yakin tentang ini? untuk guild, kami akan senang untuk memproses ini tetapi Aku tidak benar-benar berpikir bahwa ini akan cukup bermanfaat bagimu, Cielmer-san."
+"Terima kasih banyak. Tetap saja, apakah Kamu benar-benar yakin tentang ini? untuk guild, kami akan senang untuk memproses ini tetapi Aku tidak benar-benar berpikir bahwa ini akan cukup bermanfaat bagimu, Cielmer-san." (celia)
 
-a"Kalau begitu, maukah Kamu berbicara dengan Aku lebih lama?"
-"Itu akan tergantung pada apa yang kita bicarakan. Selama itu adalah sesuatu yang berkaitan dengan bekerja sebagai Hunter atau sesuatu yang terkait dengan permintaan, itu seharusnya baik-baik saja."
+"Kalau begitu, maukah Kamu berbicara dengan Aku lebih lama?"(ain)
 
-a"Pertama, maukah Kamu menunjukkan kepadaku sampel herb ini? Aku ingin membawanya jika memungkinkan, tapi..."
+"Itu akan tergantung pada apa yang kita bicarakan. Selama itu adalah sesuatu yang berkaitan dengan bekerja sebagai Hunter atau sesuatu yang terkait dengan permintaan, itu seharusnya baik-baik saja." (celia)
 
-"Jika itu masalahnya, baiklah."
+"Pertama, maukah Kamu menunjukkan kepadaku sampel herb ini? Aku ingin membawanya jika memungkinkan, tapi..." (ain)
 
-Setelah berkata demikian, Celia- san memanggil seorang anggota staf yang bekerja dan memintanya untuk mengambil sampel.
+"Jika itu masalahnya, baiklah." (celia)
+
+Setelah berkata demikian, Celia-san memanggil seorang anggota staf yang bekerja dan memintanya untuk mengambil sampel.
 
 Staf tersebut melihatku dan menunjukkan ekspresi terkejut tetapi kemudian meninggalkan kami setelah menunjukkan senyum geli.
 
-a"Untuk jenis tanaman obat ini, dapatkah digunakan untuk menyembuhkan luka meskipun tidak diproses oleh ahli herbal?
-Jika Aku secara tidak sengaja terluka, itu mungkin berguna untuk pertolongan pertama."
+"Untuk jenis tanaman obat ini, dapatkah digunakan untuk menyembuhkan luka meskipun tidak diproses oleh ahli herbal?
+Jika Aku secara tidak sengaja terluka, itu mungkin berguna untuk pertolongan pertama." (ain)
 
-"hanya dengan membasahkannya secara menyeluruh dan menekannya ke luka dapat menghentikan pendarahan sampai batas tertentu. Tapi, luka parah akan susah disembuhkan untuk herb khusus ini."
+"hanya dengan membasahkannya secara menyeluruh dan menekannya ke luka dapat menghentikan pendarahan sampai batas tertentu. Tapi, luka parah akan susah disembuhkan untuk herb khusus ini." (celia)
 
-a"Ketika Hunter terluka parah, apa yang biasanya mereka lakukan?"
+"Ketika Hunter terluka parah, apa yang biasanya mereka lakukan?" (ain)
 
-"mereka Seharusnya mengobati luka dengan obat apa yang mereka miliki atau, jika mereka Jika ada ahli obat bersama mereka, ahli obat itu mungkin bisa menyembuhkan lukanya. Tapi, ahli obat adalah sedikit yang berharga dalam bisnis ini dan ahli obat yang dapat menggunakan sihir penyembuh juga bahkan lebih jarang ditemukan. Karena itu, Hunter kemungkinan besar akan pergi ke gereja untuk menyembuhkan luka mereka. Ini jauh lebih murah daripada membeli potion, dan gereja juga mengobati penyakit juga."
+"mereka Seharusnya mengobati luka dengan obat apa yang mereka miliki atau, jika mereka Jika ada ahli obat bersama mereka, ahli obat itu mungkin bisa menyembuhkan lukanya. Tapi, ahli obat adalah sedikit yang berharga dalam bisnis ini dan ahli obat yang dapat menggunakan sihir penyembuh juga bahkan lebih jarang ditemukan. Karena itu, Hunter kemungkinan besar akan pergi ke gereja untuk menyembuhkan luka mereka. Ini jauh lebih murah daripada membeli potion, dan gereja juga mengobati penyakit juga." (celia)
 
 Di sini Aku menjawab "Aku mengerti" dan mengangguk setuju. Aku hanya tahu bahwa gereja itu ada dari informasi yang Aku miliki, jadi Aku senang mendengar bahwa itu benar-benar ada.
 
@@ -216,16 +216,22 @@ Di antara mereka, Orang Suci dianggap memiliki kemampuan penyembuhan paling kuat
 
 Sekarang Aku tahu hal-hal yang ingin Aku ketahui, jadi Aku mungkin harus mengakhiri pembicaraan tentang herb di sini.
 
-a"aku mengerti. Terima kasih banyak."
+"aku mengerti. Terima kasih banyak." (ain)
 
-"Sebanyak ini tidak masalah."
+"Sebanyak ini tidak masalah." (celia)
 
-a"Juga, bisakah Aku bertanya tentang sesuatu yang berhubungan dengan permintaan tetap?"
+"Juga, bisakah Aku bertanya tentang sesuatu yang berhubungan dengan permintaan tetap?" (ain)
 
-"Tentang apa?"
+"Tentang apa?" (celia)
 
-a"Aku ingin bertanya tentang bagian-bagian yang perlu Aku dapatkan ketika mengalahkan monster di sekitar sini."
+"Aku ingin bertanya tentang bagian-bagian yang perlu Aku dapatkan ketika mengalahkan monster di sekitar sini." (ain)
 
-"Yah, aku bisa membayangkan kamu menaklukkan monster yang kamu temui di jalan, Cielmer-san. Ini topik yang agak panjang, jadi Aku juga akan memberikanmu beberapa dokumen nanti."
+"Yah, aku bisa membayangkan kamu menaklukkan monster yang kamu temui di jalan, Cielmer-san. Ini topik yang agak panjang, jadi Aku juga akan memberikanmu beberapa dokumen nanti." (celia)
 
 Dan setelah memulai dengan itu, Celia-san mulai berbicara tentang monster yang dapat dilihat di sekitar bagian ini.
+
+-----------------------
+
+YA !!! seperti biasa, semuanya dimulai dari mengumpulkan herb.. haa ~~ tapi mungkin dengan kemampuan deteksi ain bisa mendapatkan herb yang rare kan ?? terus auto kaya ~~ MUAHAHAHHHAAHAHA 
+
+DAN YA !!!!! SAYA SETUJU AIN MENJADI PENYAyang !! Siapa sih yang gak sayang CIEL ?????
