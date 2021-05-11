@@ -16,11 +16,11 @@ Selain itu, ada pipa yang terpasang dan jika Kamu mengikuti kemana arahnya, ada 
 
 [Alas itu, kemungkinan tempat kita meletakkan batu magic.] (ain)
 
-c"Seperti ini?"
+[Seperti ini?] (ciel)
 
-a"Dan sekarang, coba dorong benda yang menonjol di sebelahnya."
+[Dan sekarang, coba dorong benda yang menonjol di sebelahnya.] (ain)
 
-c"Kamu benar Ain, air ...... air panas, mungkin? airnya keluar."
+[Kamu benar Ain, air ...... air panas, mungkin? airnya keluar.] (ciel)
 
 Karena Ciel kagum dengan itu, Aku juga jadi kagum.
 
@@ -28,10 +28,10 @@ Makanan hangat, tempat tidur empuk, dan bak mandi. Setelah mengalami semua ini, 
 
 Meski begitu, mesin sepertinya bukan tipe yang otomatis berhenti saat bak mandi penuh. Jadi, sambil melihat air yang mengisi, kami menunggu bak mandi terisi penuh.
 
-c"Kamar mandi adalah tempat untuk membasuh tubuh, bukan?
-Mungkinkah, karena Aku belum pernah menggunakannya, Aku sebenarnya sangat kotor?"
+[Kamar mandi adalah tempat untuk membasuh tubuh, bukan?
+Mungkinkah, karena Aku belum pernah menggunakannya, Aku sebenarnya sangat kotor?] (ciel)
 
-a"Dalam kasusmu, Kamu sebenarnya tidak sekotor itu. Kain itu juga berperan, tapi karena kamu benar-benar cantik, aku memastikan +BARRIER juga menjagamu dari kotoran."
+[Dalam kasusmu, Kamu sebenarnya tidak sekotor itu. Kain itu juga berperan, tapi karena kamu benar-benar cantik, aku memastikan +BARRIER juga menjagamu dari kotoran.] (ain)
 
 Sudah 10 tahun sejak pertemuan Aku dengan Ciel. jangankan mandi yang layak, tubuh Ciel bahkan tidak pernah dibilas bersih dengan air, juga tidak pernah dibersihkan dengan kain basah, jadi dia pasti tidak bersih ...... adalah jawabanku, tapi sebenarnya tidak begitu.
 
@@ -45,15 +45,15 @@ Tetap saja, ini bukan seolah-olah +BARRIER menghalangi segalanya, jadi dia masih
 
 Tapi karena itu, rasanya seperti mempengaruhi durabilitas +BARRIER; jadi di masa depan, Aku ingin mencari cara untuk meningkatkan daya tahan sekaligus menjaga efek ini.
 
-c"Umm , dari sudut pandang Ain, aku cantik, kan?"
+[Umm , dari sudut pandang Ain, aku cantik, kan?] (ciel)
 
-a"Kamu cantik. kalau Aku secantik Kamu di kehidupan masa laluku, itu akan mengubah hidupku."
+[Kamu cantik. kalau Aku secantik Kamu di kehidupan masa laluku, itu akan mengubah hidupku.] (ain)
 
-c"Apakah Kamu senang Aku cantik, Ain?"
+[Apakah Kamu senang Aku cantik, Ain?] (ciel)
 
-a"benar. Yah, Aku berharap dapat melihat Kamu menjadi lebih cantik di masa depan dan Aku ingin mencoba mempercantik Kamu seperti Kamu sekarang."
+[benar. Yah, Aku berharap dapat melihat Kamu menjadi lebih cantik di masa depan dan Aku ingin mencoba mempercantik Kamu seperti Kamu sekarang.] (ain)
 
-c"Begitu, Aku mengerti ......"
+[Begitu, Aku mengerti ......] (ciel)
 
 Dengan wajah sedikit memerah, Ciel diam-diam mengulangi kata-katanya.
 
@@ -61,12 +61,12 @@ Aku pikir dia malu dipanggil cantik. Melihat reaksi yang relatif jarang darinya 
 
 ciel Tampak tenang setelah beberapa saat, dengan pipinya sekarang kembali ke warna biasanya dan Ciel mulai berbicara lagi.
 
-c"Tapi kalau begitu, apakah benar-benar ada artinya Aku mandi?"
+[Tapi kalau begitu, apakah benar-benar ada artinya Aku mandi?] (ciel)
 
-a"+BARRIERku tidak bisa berbuat apa-apa untuk keringat dan semacamnya, jadi akan lebih baik jika Kamu masih melakukannya. Selain itu, karena mandi air panas akan menghangatkan tubuh, kudengar mandi bisa membantu mencegah penyakit dan semacamnya. dan juga bisa meningkatkan mood, ya? Ketika Kamu mandi, bagaimana Aku harus mengatakan ini, itu membuatmu merasa benar-benar segar."
+[+BARRIERku tidak bisa berbuat apa-apa untuk keringat dan semacamnya, jadi akan lebih baik jika Kamu masih melakukannya. Selain itu, karena mandi air panas akan menghangatkan tubuh, kudengar mandi bisa membantu mencegah penyakit dan semacamnya. dan juga bisa meningkatkan mood, ya? Ketika Kamu mandi, bagaimana Aku harus mengatakan ini, itu membuatmu merasa benar-benar segar.] (ain)
 
-c"Kalau begitu, mungkin akan menyenangkan untuk mencobanya.
-karena kita sudah mengisi bak mandi dengan air, mungkin saatnya kita mengeceknya ?."
+[Kalau begitu, mungkin akan menyenangkan untuk mencobanya.
+karena kita sudah mengisi bak mandi dengan air, mungkin saatnya kita mengeceknya ?.] (ciel)
 
 Sebagai mantan orang Jepang, mengetahui bahwa Ciel sepertinya tidak membenci mandi dengan jujur ​​membuatku bahagia.
 
@@ -122,18 +122,18 @@ Seperti yang Aku lakukan sebelumnya, Aku mengambil sabun dan memijatnya dengan l
 
 Dan setelah mencucinya dengan benar, kami selesai untuk hari ini. Aku mengembalikan tubuh ke Ciel dan membiarkannya berendam di bak mandi.
 
-c"Mandi itu merepotkan, kan?"
+[Mandi itu merepotkan, kan?] (ciel)
 
-a"Karena kita menggunakan +BARRIER, kita tidak mencuci rambut tetapi jika kita melakukannya, itu akan jauh lebih sulit."
+[Karena kita menggunakan +BARRIER, kita tidak mencuci rambut tetapi jika kita melakukannya, itu akan jauh lebih sulit.] (ain)
 
-c"Tapi Ain, kamu suka mandi, kan?"
+[Tapi Ain, kamu suka mandi, kan?] (ciel)
 
-a"Ya ...... Atau lebih tepatnya, itu adalah bagian dari hidupku. Lagipula, rambutku tidak sepanjang rambutmu, Ciel.
-Dengan rambut yang lebih panjang, mengeringkannya juga menjadi masalah."
+[Ya ...... Atau lebih tepatnya, itu adalah bagian dari hidupku. Lagipula, rambutku tidak sepanjang rambutmu, Ciel.
+Dengan rambut yang lebih panjang, mengeringkannya juga menjadi masalah.] (ain)
 
-c"kita tidak bisa memotong rambutku, kan?"
+[kita tidak bisa memotong rambutku, kan?] (ciel)
 
-a"Nah ada masalah sirkuitnya tapi ... Kamu memiliki rambut yang begitu indah, jadi akan sia-sia untuk memotongnya pendek."
+[Nah ada masalah sirkuitnya tapi ... Kamu memiliki rambut yang begitu indah, jadi akan sia-sia untuk memotongnya pendek.] (ain)
 
 Aku cukup yakin karena Aku baru saja menyentuhnya tetapi rambut Ciel sangat halus.
 
@@ -147,11 +147,11 @@ Tepat ketika Aku menyadari bahwa Aku sedang menatap bukit yang agak menonjol, Ci
 
 Karena disentuh dengna pelan, itu sangat lembut. Dan ketika aku memikirkan omong kosong itu, Ciel mulai memijatnya.
 
-c"Dengan ini, mereka akan tumbuh lebih besar, kan?"
+[Dengan ini, mereka akan tumbuh lebih besar, kan?] (ciel)
 
-a"Sudah kubilang, itu hanya mitos."
+[Sudah kubilang, itu hanya mitos.] (ain)
 
-c"Dan sudah kubilang aku ingin mencobanya, kan Ain?"
+[Dan sudah kubilang aku ingin mencobanya, kan Ain?] (ciel)
 
 Ciel melakukannya karena keingintahuan ​​tetapi rangsangan itu benar-benar terasa geli bagiku.
 
@@ -173,13 +173,13 @@ Selain memalukan untuk menjelaskan bagaimana Aku terengah-engah dari rangsangan 
 
 Dan ketika Aku bertanya-tanya mengapa Ciel tiba-tiba berkedip tiga kali, dia menjawab "kalau begitu, ya sudahlah." Dengan nada ceria untuk beberapa alasan.
 
-c"Tetap saja, itu tidak bertambah besar."
+[Tetap saja, itu tidak bertambah besar.] (ciel)
 
-a"jika tumbuh hanya dengan melakukannya sekali, itu akan menjadi suatu masalah."
+[jika tumbuh hanya dengan melakukannya sekali, itu akan menjadi suatu masalah.] (ain)
 
-c"Begitu, itu benar. Kalau begitu, mungkin Aku harus mencoba lagi ketika Aku mengingatnya lain kali."
+[Begitu, itu benar. Kalau begitu, mungkin Aku harus mencoba lagi ketika Aku mengingatnya lain kali.] (ciel)
 
-a" ...... Jika Kamu benar-benar ingin melakukannya, Aku tidak akan menghentikanmu."
+[...... Jika Kamu benar-benar ingin melakukannya, Aku tidak akan menghentikanmu.] (ain)
 
 Benar-benar suatu kesalahan. Jika Aku hanya mengatakan kepadanya "Itu tidak efektif sama sekali, lihat kan?" Aku mungkin mencegah hal ini terjadi lagi. Tapi sekarang, itu akan terjadi setiap saat tanpa aku tahu kapan akan terjadi.
 
@@ -195,44 +195,50 @@ Sementara itu, kami menggunakan handuk untuk mencegah Ciel basah lagi dan menyur
 
 Setelah itu masalah pengeringan. Jadi yang terlintas di benakku adalah pengering rambut. Sihir apiku tidak terlalu kuat untuk berubah menjadi sihir tempur dan meskipun dikatakan kalau panas dapat merusak rambut, Aku menggunakannya mungkin tidak dapat benar-benar melukai rambutnya, jadi itu seharusnya berubah menjadi sihir pengeringan yang cukup baik.
 
-c"Mengeringkan rambut benar-benar merepotkan."
+[Mengeringkan rambut benar-benar merepotkan.] (ciel)
 
-a"Tentang itu, ada sesuatu yang ingin Aku coba, tetapi bolehkah Aku mencobanya?"
+[Tentang itu, ada sesuatu yang ingin Aku coba, tetapi bolehkah Aku mencobanya?] (ain)
 
-c"Benarkah? Kalau begitu, silahkan..."
+[Benarkah? Kalau begitu, silahkan...] (ciel)
 
 Setelah meminjam tubuh Ciel, Aku segera membentuk sihir. Karena Aku hanya perlu memilih kata-kata, mengaktifkannya adalah masalah yang berbeda, membuat nyanyian tidaklah sulit. Sihir +PIRIFICATION mungkin sebenarnya cukup sederhana tetapi Aku tidak benar-benar tahu kata-kata apa yang dapat Aku gunakan, jadi Aku akan meninggalkannya untuk lain waktu. Mungkin itu bukan sihir(+SORCERY), tapi sebenarnya sihir(+MAGIC). Kalau begitu, itu akan jauh lebih merepotkan.
 
-Jadi dengan itu, Aku membayangkan pengering rambut sementaraku hanya meneriakkan "Oh api, buat anginnya panas" dan, seperti yang Aku harapkan, udara hangat mulai mengeringkan rambut Ciel.
+Jadi dengan itu, Aku membayangkan pengering rambut sementar aku hanya meneriakkan "Oh api, buat anginnya panas" dan, seperti yang Aku harapkan, udara hangat mulai mengeringkan rambut Ciel.
 
 Dan karena ini bukan pengering rambut yang sebenarnya tetapi produk sihir, Aku dapat mengontrol angin yang bertiup sehingga sangat nyaman.
 
 tapi, masih butuh waktu sekitar 10 menit untuk benar-benar mengeringkan rambutnya.
 
-a"Bagaimana bak mandinya?"
+[Bagaimana bak mandinya?] (ain)
 
-c"Itu menyenangkan, itu benar-benar menyenangkan."
+[Itu menyenangkan, itu benar-benar menyenangkan.] (ciel)
 
-a"Aku senang Kamu merasa berpikir begitu."
+[Aku senang Kamu merasa berpikir begitu.] (ain)
 
-c"Juga, Aku pikir Aku mengerti apa yang Kamu maksud sebelumnya, Ain. Khususnya, saat Kamu mengeringkan rambut, rasanya sangat rileks. Kamu membuatnya sendiri, kan Ain?"
+[Juga, Aku pikir Aku mengerti apa yang Kamu maksud sebelumnya, Ain. Khususnya, saat Kamu mengeringkan rambut, rasanya sangat rileks. Kamu membuatnya sendiri, kan Ain?] (ciel)
 
-a"Menurutku itu tidak terlalu sulit untuk dilakukan."
+[Menurutku itu tidak terlalu sulit untuk dilakukan.] (ain)
 
-c"Aku tidak yakin tentang itu. Jika Aku mencoba melakukannya, Aku mungkin akan membuatnya terlalu panas lho...."
+[Aku tidak yakin tentang itu. Jika Aku mencoba melakukannya, Aku mungkin akan membuatnya terlalu panas lho....] (ciel)
 
-a"Tidak bisa menggunakan sihir tempur itu nyaman dalam situasi ini, Kamu mengerti?"
+[Tidak bisa menggunakan sihir tempur itu nyaman dalam situasi ini, Kamu mengerti?] (ain)
 
-c"Aku tidak berpikir itu ...... itu hanya ala...san..."
+[Aku tidak berpikir itu ...... itu hanya ala...san...] (ciel)
 
 Saat dia duduk di tempat tidur, Ciel tiba-tiba mulai mengantuk.
 
 Setelah itu, dia menguap kecil yang lucu.
 
-a"Haruskah kita tidur sekarang?"
+[Haruskah kita tidur sekarang?] (ain)
 
-c"Benar ...... Untuk beberapa alasan, aku merasa sangat ...... mengantuk. Ain, maukah kamu bernyanyi untukku?"
+[Benar ...... Untuk beberapa alasan, aku merasa sangat ...... mengantuk. Ain, maukah kamu bernyanyi untukku?] (ciel)
 
-a"Tentu, tentu saja."
+[Tentu, tentu saja.] (ain)
 
 Jadi setelah mematikan lampu dan memastikan bahwa Ciel berbaring di tempat tidur, Aku mulai menyanyikan lagu pengantar tidur untuknya.
+
+-----------------
+
+TEMTU SAJA CIEL KAMU CANTIK !!! NO DEBAT !!! UDAH CANTIK WANGY LAGI !!!
+
+CIEL CIEL CIEL :heart: :heart: :heart: WANGI WANGI WANGI WANGI HU HA HU HA HU HA, aaaah baunya rambut CIEL wangi aku mau nyiumin aroma wanginya CIEL AAAAAAAAH ~ Rambutnya.... aaah rambutnya juga pengen aku elus-elus ~~~~ AAAAAH CIEL muncul pertama kali juga manis :heart: :heart: :heart: banget AAAAAAAAH CIEL AAAAA LUCCUUUUUUUUUUUUUUU............CIEL AAAAAAAAAAAAAAAAAAAAGH :heart: :heart: :heart: apa ? CIEL itu gak nyata ? Cuma HALU katamu ? nggak, ngak ngak ngak ngak NGAAAAAAAAK GUA GAK PERCAYA ITU DIA NYATA NGAAAAAAAAAAAAAAAAAK PEDULI BANGSAAAAAT !! GUA GAK PEDULI SAMA KENYATAAN POKOKNYA GAK PEDULI. :heart: :heart: :heart: CIEL gw ...CIEL di laptop ngeliatin gw, CIEL .. kamu percaya sama aku ? aaaaaaaaaaah syukur CIEL aku gak mau merelakan CIEL aaaaaah :heart: :heart: :heart: YEAAAAAAAAAAAH GUA MASIH PUNYA CIEL SENDIRI PUN NGGAK MASALAH AAAAAAAAAAAAAAH
