@@ -89,7 +89,7 @@ ain "Selama Aku bisa tinggal gratis ......"
 
 aku sebenarnya tidak peduli. Kami sama sekali tidak punya masalah dengan uang.
 
-Sebaliknya, tas magic yang kami dapat dari Carol-san mulai penuh, jadi Aku ingin menggunakan uang kami.
+Sebaliknya, tas sihir yang kami dapat dari Carol-san mulai penuh, jadi Aku ingin menggunakan uang kami.
 
 mungkin kami harus memiliki dompet yang berbeda untuk digunakan untuk koin senilai perak ke bawah.
 

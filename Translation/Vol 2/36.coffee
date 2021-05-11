@@ -88,7 +88,7 @@ ain"Aku ingin kualifikasi Hunter rank-B."
 
 carol"Bisakah Kamu membuatnya menjadi sesuatu yang mungkin bagiku? Celia bertanggung jawab atas hal-hal semacam itu."
 
-carol"Kalau begitu, tas magic saja. Yang kecil sudah cukup."
+carol"Kalau begitu, tas sihir saja. Yang kecil sudah cukup."
 
 carol"Oh, kalau itu aku bisa. Bagaimana kalau yang ini?"
 
@@ -96,7 +96,7 @@ Setelah terkejut, dia mengeluarkan kantong berukuran kecil, yang sedikit lebih b
 
 Menakutkan betapa mulusnya percakapan ini, tetapi jika Aku bisa mendapatkannya, Aku benar-benar akan melakukannya.
 
-ain"Tas magic mahal, kan?"
+ain"tas sihir mahal, kan?"
 
 carol"Yah, memang mahal. Tapi yang ini tidak mahal.
 Ini dibuat oleh perajin barang kenalanku untuk latihan. yaah tidak ada harganya, tetapi karena Kamu hanya bisa mendapatkannya jika Kamu kenal dengan seorang perajin barang, Aku kira itu akan cukup sulit didapat."
@@ -121,7 +121,7 @@ carol" ...... Hanya dari pembukaan ini, aku sudah merasa ini akan menghancurkan 
 
 Seperti yang Aku duga, itulah yang dianggap sebagai pengetahuan umum.
 
-Jika tidak, maka informasi yang akan Aku katakan tidak akan berharga dan Aku tidak akan mendapatkan tas magic, jadi ini bagus.
+Jika tidak, maka informasi yang akan Aku katakan tidak akan berharga dan Aku tidak akan mendapatkan tas sihir, jadi ini bagus.
 
 ain"itu, sebenarnya itu berasal dari jiwa."
 
@@ -150,7 +150,7 @@ Aku kewalahan oleh kegembiraan Carol-san.
 
 Meskipun benar bahwa itu mengarah pada peningkatan daya tembak, atau lebih tepatnya output, karena Aku sudah menemukan hal itu, Aku sendiri tidak benar-benar merasakan efeknya.
 
-jika Carol-san senang karena itu, baguslah. Sekarang kami bisa memiliki tas magic tanpa membebani hati nuraniku.
+jika Carol-san senang karena itu, baguslah. Sekarang kami bisa memiliki tas sihir tanpa membebani hati nuraniku.
 
 Tetap saja, Aku agak khawatir tentang kegembiraan murni Carol-san.
 
@@ -188,7 +188,7 @@ Dan berdasarkan nada suaranya yang cemas, dia mungkin merasa bahwa hubungan anta
 
 ain"Dari pengalamanku, keduanya berbeda. tapi, Aku tidak dapat mengatakan bahwa mereka sama sekali tidak memiliki pengaruh satu sama lain."
 
-carol"Aku mengerti, Kamu benar. Tas magic yang murah tidak akan cukup untuk informasi ini. Apakah ada hal lain yang Kamu inginkan?"
+carol"Aku mengerti, Kamu benar. tas sihir yang murah tidak akan cukup untuk informasi ini. Apakah ada hal lain yang Kamu inginkan?"
 
 ain"tolong rahasiakan percakapan kita dan penelitian yang akan Kamu lakukan berdasarkan diskusi ini untuk dirimu sendiri. Setidaknya, selama Aku masih di negara ini."
 
@@ -208,4 +208,4 @@ carol"Oh itu benar. Saat kita berdiskusi, itu benar-benar membuatku lupa tentang
 
 ain"Ketika saatnya tiba, aku akan melakukannya. Baiklah kalau begitu."
 
-Supaya aku tidak melupakan hari ini, aku memastikan untuk membawa tas magic itu sebelum keluar kamar.
+Supaya aku tidak melupakan hari ini, aku memastikan untuk membawa tas sihir itu sebelum keluar kamar.

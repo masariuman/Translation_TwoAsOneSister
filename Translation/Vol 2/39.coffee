@@ -222,7 +222,7 @@ Kalau dipikir-pikir, Carol-san menyebutnya "bencana" tapi bukankah itu mengerika
 
 Nah, orang yang tidak terbiasa melihat kepala monster yang hancur dan organ yang terbuka mungkin akan muntah.
 
-Ciel dengan cepat mengambil batu sihir dengan sihir, dan setelah membersihkannya dengan air, dia menjejalkannya ke dalam tas magic yang bisa digunakan di dompet.
+Ciel dengan cepat mengambil batu sihir dengan sihir, dan setelah membersihkannya dengan air, dia menjejalkannya ke dalam tas sihir yang bisa digunakan di dompet.
 
 Sangat nyaman. Jika kita memiliki kantong magic yang jauh lebih besar, apakah kita bisa membawa semua monster ini?
 
