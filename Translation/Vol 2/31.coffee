@@ -28,13 +28,13 @@ Secara umum, kami tidak memiliki masalah untuk melanjutkan sebagai Hunter rank-D
 
 Dengan mengatakan itu, Celia-san dan Carol-san membawaku ke stan di dalam guild.
 
-celia"Kami akan membuatmu membentuk party."
+"Kami akan membuatmu membentuk party." (celia)
 
-ain"Itu cukup mendadak."
+"Itu cukup mendadak." (ain)
 
-celia"Kamu bisa menolak jika Kamu mau. Lagipula itu bukan syaratnya kok."
+"Kamu bisa menolak jika Kamu mau. Lagipula itu bukan syaratnya kok." (celia)
 
-ain"Tapi kamu ingin aku menerimanya kalau bisa, kan? Karena itulah yang dikatakan wajah Celia-san."
+"Tapi kamu ingin aku menerimanya kalau bisa, kan? Karena itulah yang dikatakan wajah Celia-san." (ain)
 
 Aku mengerti party itu bagus, terutama dengan cara kerja Hunter.
 
@@ -60,25 +60,25 @@ Jika aku membentuk party, maka dengan Carol-san adalah yang terbaik, tapi karena
 
 Dengan kata lain, ada seseorang yang mereka ingin Aku ajak bekerja sama. Celia-san yang saat ini putus asa mungkin akan menjelaskan padaku detailnya. Tapi aku tidak punya perasaan yang baik tentang ini.
 
-celia"Cielmer-san , apakah Kamu masih ingat party berempat yang Kamu bantu sebelumnya?"
+"Cielmer-san , apakah Kamu masih ingat party berempat yang Kamu bantu sebelumnya?" (celia)
 
-ain"Yang Aku serahkan ke Carol-san, kan?"
+"Yang Aku serahkan ke Carol-san, kan?" (ain)
 
-carol"benar. Setelah kejadian itu, itu benar-benar merepotkan."
+"benar. Setelah kejadian itu, itu benar-benar merepotkan." (carol)
 
-ain"Kemungkinan hal itu terjadi adalah mengapa Aku menyerahkannya kepadamu."
+"Kemungkinan hal itu terjadi adalah mengapa Aku menyerahkannya kepadamu." (ain)
 
-carol"yaaah, kita sudah selesai dengan hal itu. tapi, apa yang terjadi sekarang itu terkait dengan hal ini."
+"yaaah, kita sudah selesai dengan hal itu. tapi, apa yang terjadi sekarang itu terkait dengan hal ini." (carol)
 
 Terus terang, mereka tidak meninggalkan banyak kesan padaku. Aku hanya melihat mereka dari jauh, meminta Ciel membantu mereka dengan tepat, dan kemudian kami kabur begitu saja.
 
 Dan berbicara tentang Ciel, "Siapa mereka? yang mana?" Sepertinya dia tidak memiliki ingatan tentang mereka.
 
-celia"Mengenai pihak tersebut, mereka berpisah seperti sekarang dan bertindak secara terpisah, dengan tiga dari mereka bekerja sebagai party dan yang satunya bekerja sendiri."
+"Mengenai pihak tersebut, mereka berpisah seperti sekarang dan bertindak secara terpisah, dengan tiga dari mereka bekerja sebagai party dan yang satunya bekerja sendiri." (celia)
 
-ain"Jadi mereka mengeluarkannya ya. Sekarang aku mengingatnya, mereka tampaknya bertindak seperti itu bahkan ketika mereka bertarung saat itu."
+"Jadi mereka mengeluarkannya ya. Sekarang aku mengingatnya, mereka tampaknya bertindak seperti itu bahkan ketika mereka bertarung saat itu." (ain)
 
-celia"Tepatnya, tampaknya tiga orang tersebutlah yang keliar tapi itu tidak terlalu penting. Cielmer-san, yang kami maksudkan padamu, adalah yang bertindak sendiri. Kami ingin Kamu membentuk party dengan Hunter rank-E yang berperan sebagai swordman, Brass-kun."
+"Tepatnya, tampaknya tiga orang tersebutlah yang keliar tapi itu tidak terlalu penting. Cielmer-san, yang kami maksudkan padamu, adalah yang bertindak sendiri. Kami ingin Kamu membentuk party dengan Hunter rank-E yang berperan sebagai swordman, Brass-kun." (celia)
 
 Mereka mungkin mendorong sesuatu yang menyusahkan kami lagi, tapi Aku tetap diam dan mendengarkan.
 
@@ -90,37 +90,37 @@ Peran menentukan apa yang dapat dilakukan seseorang dalam sebuah party, terlepas
 
 Peran mereka adalah keputsan mereka sendiri tapi umumnya mereka seperti swordman, spearman, Axman, sorcerer, dan sebagainya. Karena itu, bahkan jika seseorang menyebut dirinya swordman, sulit menebak apakah mereka mengacu pada job atau peran mereka.
 
-ain"Bisakah Aku punya waktu untuk memikirkannya?"
+"Bisakah Aku punya waktu untuk memikirkannya?" (ain)
 
-celia"Ya. Silakan."
+"Ya. Silakan." (celia)
 
-ciel"Ain, bagaimana pendapatmu? Aku tidak dapat mengingat apapun tentang dia, jadi aku tidak benar-benar tahu apa yang harus dilakukan."
+[Ain, bagaimana pendapatmu? Aku tidak dapat mengingat apapun tentang dia, jadi aku tidak benar-benar tahu apa yang harus dilakukan.] (ciel)
 
-ain"Apa pendapatmu tentang membuat party?"
+[Apa pendapatmu tentang membuat party?] (ain)
 
-ciel"Jika dengan Ain, maka aku benar-benar ingin melakukannya. Padahal kita selalu satu party sih. kalau untuk orang lain, entahlah. Aku tidak bisa membayangkannya, tapi mungkin lebih baik kita mencobanya sekali saja kan? Jadi Ain, bagaimana menurutmu?"
+[Jika dengan Ain, maka aku benar-benar ingin melakukannya. Padahal kita selalu satu party sih. kalau untuk orang lain, entahlah. Aku tidak bisa membayangkannya, tapi mungkin lebih baik kita mencobanya sekali saja kan? Jadi Ain, bagaimana menurutmu?] (ciel)
 
-ain"Aku pikir kita harus mencobanya. Tapi, membentuk party tanpa berpikir panjang mungkin akan membawa kita ke dalam masalah, jadi aku tidak terlalu menyukainya."
+[Aku pikir kita harus mencobanya. Tapi, membentuk party tanpa berpikir panjang mungkin akan membawa kita ke dalam masalah, jadi aku tidak terlalu menyukainya.] (ain)
 
 yah, orang itu adalah seseorang yang ditinggalkan oleh setiap anggota partynya.
 
 Dalam kasusku, Aku telah memikirkan beberapa kondisi yang Aku inginkan sebelum kami menyetujuinya, tetapi Aku ingin memberi Ciel kesempatan untuk merenungkan secara mendalam tentang hal itu, jadi Aku memutuskan untuk menunggu tanggapannya.
 
-cie"Dia Hunter rank E, kan? berarti dia setidaknya lebih lemah dari kita. Dengan asumsi bahwa kita akan menerima permintaan, Permintaan tersebut permintaan rank-E, jadi kalaupun dia hanyalah beban, kita kemungkinan besar tidak akan berada dalam bahaya apa pun. Jadi, yang perlu kita waspadai adalah hal-hal selain permintaan, kan? Bisakah kamu bertanya apakah yang terjadi waktu itu adalah satu-satunya alasan party mereka dibubarkan?"
+[Dia Hunter rank E, kan? berarti dia setidaknya lebih lemah dari kita. Dengan asumsi bahwa kita akan menerima permintaan, Permintaan tersebut permintaan rank-E, jadi kalaupun dia hanyalah beban, kita kemungkinan besar tidak akan berada dalam bahaya apa pun. Jadi, yang perlu kita waspadai adalah hal-hal selain permintaan, kan? Bisakah kamu bertanya apakah yang terjadi waktu itu adalah satu-satunya alasan party mereka dibubarkan?] (ciel)
 
-ain"baiklah."
+[baiklah.] (ain)
 
-ciel"Terima kasih. Aku sangat menghargai itu."
+[Terima kasih. Aku sangat menghargai itu.] (ciel)
 
-ain"Mengapa partynya berpisah?"
+"Mengapa partynya berpisah?" (ain)
 
-celia"Aku yakin Kamu telah melihatnya secara langsung tetapi tampaknya itu berasal dari cara bertempur sembrono Brass-kun dan karena mereka memiliki masalah dengan alokasi hadiah mereka."
+"Aku yakin Kamu telah melihatnya secara langsung tetapi tampaknya itu berasal dari cara bertempur sembrono Brass-kun dan karena mereka memiliki masalah dengan alokasi hadiah mereka." (celia)
 
-ain"begitu ya."
+"begitu ya." (ain)
 
-ciel"Jadi dalam hal ini, kita hanya membentuk pihak sementara yang hanya akan bekerja sama untuk menyelesaikan permintaan. Akan lebih baik jika, setelah permintaan, guild juga memastikan bahwa pihak lain tidak berhubungan dengan kita lebih dari yang diperlukan. Dan kemudian, kita harus meminta guild agar dia setuju dengan pembagian hadiah kita secara adil. bagaimana kalau mereka menyadari bahwa kita tidak akan membantunya menjadi lebih kuat atau mencoba untuk mereformasi dia?"
+[Jadi dalam hal ini, kita hanya membentuk pihak sementara yang hanya akan bekerja sama untuk menyelesaikan permintaan. Akan lebih baik jika, setelah permintaan, guild juga memastikan bahwa pihak lain tidak berhubungan dengan kita lebih dari yang diperlukan. Dan kemudian, kita harus meminta guild agar dia setuju dengan pembagian hadiah kita secara adil. bagaimana kalau mereka menyadari bahwa kita tidak akan membantunya menjadi lebih kuat atau mencoba untuk mereformasi dia?] (ciel)
 
-ain"Tentu, Aku pikir itu bagus."
+[Tentu, Aku pikir itu bagus.] (Ain)
 
 Aku tidak yakin tentang apa yang sebenarnya diinginkan guild dari kami, tetapi apa yang mereka minta dari kami hanya jika kami dapat bekerja sama di saat-saat darurat.
 
@@ -132,7 +132,7 @@ Carol-san bahkan bergumam "Aku ragu kalau kau benar-benar berusia 10 tahun." Saa
 
 Hehe ~ Ciel-ku sangat luar biasa, kan? Hanya bercanda.
 
-ain"Juga, Aku punya satu permintaan lagi, atau lebih tepatnya, satu pertanyaan lagi."
+"Juga, Aku punya satu permintaan lagi, atau lebih tepatnya, satu pertanyaan lagi." (ain)
 
 celia"ada lagi ya, baiklah."
 

@@ -8,7 +8,7 @@ Selain itu, mereka tidak terlalu merahasiakan hasil, jadi akan segera dibicaraka
 
 Karena itu, job kami segera diketahui semua orang juga.
 
-Aku dan Brass, adalah seorang +GREATER SWORDSMAN, Terencio adalah seorang +INTERMEDIATE WARRIOR, Ilda adalah seorang +INTERMEDIATE ARCHER, dan Perla adalah seorang +LESSER, tapi masih langka, +WATER SORCERER. Kami sangat seimbang, dengan masing-masing dua barisan depan dan penjaga belakang, dan karena Aku, dengan job Besarku, berada di sini juga, menjadi Hunter top bukan hanya mimpi yang jauh.
+Aku, Brass, adalah seorang +GREATER SWORDSMAN, Terencio adalah seorang +INTERMEDIATE WARRIOR, Ilda adalah seorang +INTERMEDIATE ARCHER, dan Perla adalah seorang +LESSER, tapi masih langka, +WATER SORCERER. Kami sangat seimbang, dengan masing-masing dua barisan depan dan penjaga belakang, dan karena Aku, dengan job Besarku, berada di sini juga, menjadi Hunter top bukan hanya mimpi yang jauh.
 
 Dengan desa yang memiliki harapan tinggi untuk kami juga, kami memutuskan untuk meninggalkan desa ketika kami mencapai usia 15 dan pergi ke Kota Sannois untuk menjadi Hunter.
 
@@ -175,23 +175,23 @@ Itu lebih dari yang pernah kami terima sebelumnya, tetapi setengah dari ini akan
 
 Terencio bertanya padanya berapa banyak yang harus kita berikan tetapi akan lebih bagus jika dia mengatakan bahwa dia tidak membutuhkannya.
 
-"Hadiah rank E tidak seberapa, jadi Aku tidak terlalu membutuhkannya ... Itulah yang ingin Aku katakan, tetapi tidak mengambil apa pun dalam situasi ini akan menjadi masalah juga. Jadi, 10 persen sudah cukup."
+"Hadiah rank E tidak seberapa, jadi Aku tidak terlalu membutuhkannya ... Itulah yang ingin Aku katakan, tetapi tidak mengambil apa pun dalam situasi ini akan menjadi masalah juga. Jadi, 10 persen sudah cukup." (carol)
 
-"Baiklah jika Kamu berkata begitu ...."
+"Baiklah jika Kamu berkata begitu ...." (brass)
 
-"Karena itu aturannya, silakan ambil setengah dari uangnya."
+"Karena itu aturannya, silakan ambil setengah dari uangnya." (terencio)
 
 Ketika Aku akan memberikan 10 persen dari hadiah, Terencio mengatakan sesuatu yang tidak pantas.
 
-"Karena dia mengatakan bahwa 10 persen sudah cukup, itu sudah cukup. kita membutuhkan uang ini. Mengapa keluar dari caramu untuk membuat kita kehilangan lebih banyak uang?"
+"Karena dia mengatakan bahwa 10 persen sudah cukup, itu sudah cukup. kita membutuhkan uang ini. Mengapa keluar dari caramu untuk membuat kita kehilangan lebih banyak uang?" (brass)
 
-"Carol-san menyelamatkan kita. Jika dia tidak ada di sana saat itu, kita mungkin sudah mati. Jika kita lepas kendali karena itu, kita tidak akan belajar pelajaran apa pun dari ini."
+"Carol-san menyelamatkan kita. Jika dia tidak ada di sana saat itu, kita mungkin sudah mati. Jika kita lepas kendali karena itu, kita tidak akan belajar pelajaran apa pun dari ini." (terencio)
 
-"Pelajaran tidak bisa membeli obat."
+"Pelajaran tidak bisa membeli obat." (brass)
 
-"Begitu... dalam hal itu, Aku akan membayarnya sendiri."
+"Begitu... dalam hal itu, Aku akan membayarnya sendiri." (terencio)
 
-"kalau begitu lakukanlah itu."
+"kalau begitu lakukanlah itu." (brass)
 
 Jika dia memiliki uang sebanyak itu, dia seharusnya memberikannya untuk membayar obat.
 
@@ -211,46 +211,50 @@ Alasan kami selalu melakukan ini adalah untuk membagikan hadiah kami. Sampai sek
 
 Tapi kali ini, Aku pasti tidak akan menerima distribusi yang setara.
 
-"Aku mengambil setengah dari hadiah yang tersisa kali ini, oke?"
+"Aku mengambil setengah dari hadiah yang tersisa kali ini, oke?" (brass)
 
-"Apa sih yang kamu bicarakan?"
+"Apa sih yang kamu bicarakan?" (Ilda)
 
 Setelah mendengar apa yang Aku katakan, Ilda berbicara kembali kepadaku. Meskipun itu adalah kesalahan mereka karena kesusahan melawan hanya goblin sehingga kami tidak dapat menyelesaikan permintaan, apa sih yang kamu bicarakan? Itu perkataanku.
 
 Terencio mengatakan sesuatu padanya untuk menenangkannya dan Perla kebingungan. sepertinya Ilda yakin dengan apa yang dikatakan Terencio karena dia hanya mengangguk dengan diam.
 
-"Jadi tidak ada yang keberatan kalau Aku mengambil setengah, ya?"
+"Jadi tidak ada yang keberatan kalau Aku mengambil setengah, ya?" (brass)
 
-"Tidak, Aku dan Ilda tidak akan membutuhkan bagian kami juga."
+"Tidak, Aku dan Ilda tidak akan membutuhkan bagian kami juga." (terencio)
 
-"Kamu yakin tentang itu?"
+"Kamu yakin tentang itu?" (brass)
 
-"Ya, tapi kami akan meninggalkan party ini sebagai gantinya."
+"Ya, tapi kami akan meninggalkan party ini sebagai gantinya." (terencio)
 
-"Haa? Apa yang kamu bicarakan? "
+"Haa? Apa yang kamu bicarakan?" (brass)
 
-"Aku sudah muak bekerjasama denganmu. Apalagi dengan bagaimana kita hampir mati hari ini. Semua berkatmu memilih permintaan yang melampaui level kami."
+"Aku sudah muak bekerjasama denganmu. Apalagi dengan bagaimana kita hampir mati hari ini. Semua berkatmu memilih permintaan yang melampaui level kami." (Ilda)
 
-"Ini salahmu karena tidak bisa mengalahkan goblin saja"
+"Ini salahmu karena tidak bisa mengalahkan goblin saja" (brass)
 
 Ilda memancingku. Merasa kesal dengan itu, aku balas memprovokasi dia. Kemudian Terencio meletakkan tangannya di bahunya dan menggelengkan kepalanya.
 
-"Jika Kamu tidak mengerti itu, Aku tidak punya apa-apa lagi untuk dikatakan. Dan satu hal lagi, berapa banyak yang telah Kamu tabung untuk obatnya?"
+"Jika Kamu tidak mengerti itu, Aku tidak punya apa-apa lagi untuk dikatakan. Dan satu hal lagi, berapa banyak yang telah Kamu tabung untuk obatnya?" (terencio)
 
-"Masih belum cukup bahkan satu koin emas. Menurutmu berapa biaya Aku untuk mengirim surat?"
+"Masih belum cukup bahkan satu koin emas. Menurutmu berapa biaya Aku untuk mengirim surat?" (brass)
 
-"Begitu ya... kalau begitu sampai jumpa."
+"Begitu ya... kalau begitu sampai jumpa." (terencio)
 
 Terencio membawa barang-barangnya dan meninggalkan ruangan bersama Ilda.
 
 Sekarang hanya tinggal aku dan Perla yang tersisa jadi aku mengalihkan pandanganku padanya dan untuk beberapa alasan dia memelototiku.
 
-"Brass-kun. Benarkah Kamu mengirim surat ke adik perempuanmu?"
+"Brass-kun. Benarkah Kamu mengirim surat ke adik perempuanmu?" (perla)
 
-"Ya. Aku perlu tahu apakah dia masih baik-baik saja."
+"Ya. Aku perlu tahu apakah dia masih baik-baik saja." (brass)
 
-"Begitu ...... meskipun kita sudah sepakat kalau kita harus mengirim surat bersamaan karena pengiriman itu mahal, kan? Yah. Kurasa aku juga tidak bisa tinggal bersamamu lagi, Brass-kun. bye."
+"Begitu ...... meskipun kita sudah sepakat kalau kita harus mengirim surat bersamaan karena pengiriman itu mahal, kan? Yah. Kurasa aku juga tidak bisa tinggal bersamamu lagi, Brass-kun. bye." (perla)
 
 Tunggu! Sebelum aku bisa menghentikannya, Perla meninggalkan ruangan.
 
 Hanya kantong hadiah yang tersisa di kamar, bahkan ketika aku berteriak "Bukankah kita semua berjanji untuk bekerja sama untuk membeli obat adik perempuanku!?" Tidak ada yang menanggapi kata-kataku.
+
+-------------------
+
+Boi, janji sih janji boi, tapi mikir juga la orang lain gimana, jangan seenaknya sendiri, pengen rasanya nampol ni anak.. DAMN....

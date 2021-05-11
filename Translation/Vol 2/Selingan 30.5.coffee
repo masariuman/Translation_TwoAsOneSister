@@ -79,9 +79,9 @@ Dan sementara Aku membahas topik ini, Aku sudah mengajarinya penguatan fisik, ja
 "Yah, mereka sudah melibatkanku. Jika mereka tidak melakukannya dengan cukup baik, Aku akan bermasalah. tapi, salah satu dari mereka tampaknya tidak cukup baik." (carol)
 
 "Bukan karena dia tidak bagus, tetapi karena ada banyak harapan untuknya, banyak staf guild yang kecewa juga.
-Mereka mengatakan bahwa dia adalah +GREAT SWORDMAN[1], jadi orang-orang mengharapkan dia untuk mencapai rank C." (celia)
+Mereka mengatakan bahwa dia adalah +GREATER SWORDMAN[1], jadi orang-orang mengharapkan dia untuk mencapai rank C." (celia)
 
-"great swordman? Mengingat jobnya sudah diketahui semua orang, Kamu tidak bisa berharap banyak darinya, kan? Bahkan menilai dari bagaimana dia bertarung, dia adalah tipe yang bergantung pada job. Selama tidak ada perubahan dalam hal itu, dia bahkan tidak akan mencapai rank-D... Seorang Song Princess tertentu mungkin memecahkan rekor untuk kenaikan tercepat ke rank-B. Ironis, bukan?" (carol)
+"greater swordman? Mengingat jobnya sudah diketahui semua orang, Kamu tidak bisa berharap banyak darinya, kan? Bahkan menilai dari bagaimana dia bertarung, dia adalah tipe yang bergantung pada job. Selama tidak ada perubahan dalam hal itu, dia bahkan tidak akan mencapai rank-D... Seorang Song Princess tertentu mungkin memecahkan rekor untuk kenaikan tercepat ke rank-B. Ironis, bukan?" (carol)
 
 "Aku punya masalah denganmu menggunakan Cielmer-san sebagai perbandingan." (celia)
 
