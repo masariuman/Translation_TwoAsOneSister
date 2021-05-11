@@ -36,13 +36,13 @@ Meskipun, Aku kira itu wajar jika dia tidak bisa melakukannya karena dia kemungk
 
 Tetap saja, sangat mengejutkan melihatnya, mengetahui betapa tak tertembusnya dia dan kemahirannya dalam sihir, kelelahan hanya karena mencoba membangun tenda.
 
-carol"Intinya adalah, setiap kali dia mampu menyelesaikan masalah apa pun hanya dengan kekuatan sihirnya, dia melakukannya dengan tepat. Selain itu, dia juga cukup pintar. Meskipun, terkadang dia ceroboh. Ketika Aku mengajarinya beberapa penguatan fisik sederhana, dia segera menguasainya, dan dia juga segera menghafal cara mendirikan tenda juga."
+"Intinya adalah, setiap kali dia mampu menyelesaikan masalah apa pun hanya dengan kekuatan sihirnya, dia melakukannya dengan tepat. Selain itu, dia juga cukup pintar. Meskipun, terkadang dia ceroboh. Ketika Aku mengajarinya beberapa penguatan fißsik sederhana, dia segera menguasainya, dan dia juga segera menghafal cara mendirikan tenda juga." (carol)
 
-celia"Bisakah Kamu benar-benar terus menggunakan sihir saat tidur?"
+"Bisakah Kamu benar-benar terus menggunakan sihir saat tidur?" (celia)
 
-carol"Tidak mungkin. Bahkan +BARRIER yang umumnya digunakan saat berkemah hanyalah sebuah item sihir yang menyuplai energi sihir, yang berasal dari batu sihir, ke lingkaran sihir. Menurutnya, dia mengatakan alasan sihir +BARRIERnya masih menyala adalah karena dia secara alami memulihkan lebih banyak energi sihir daripada jumlah yang dibutuhkan untuk mempertahankan +BARRIER, yang biasanya tidak terjadi sama sekali. Contoh, jika Aku bersikeras bahwa Aku dapat berjalan terus menerus saat Aku tidur karena Aku memulihkan staminaku lebih cepat daripada yang Aku gunakan saat berjalan, apakah Kamu mengerti betapa gilanya itu?"
+"Tidak mungkin. Bahkan +BARRIER yang umumnya digunakan saat berkemah hanyalah sebuah item sihir yang menyuplai energi sihir, yang berasal dari batu sihir, ke lingkaran sihir. Menurutnya, dia mengatakan alasan sihir +BARRIERnya masih menyala adalah karena dia secara alami memulihkan lebih banyak energi sihir daripada jumlah yang dibutuhkan untuk mempertahankan +BARRIER, yang biasanya tidak terjadi sama sekali. Contoh, jika Aku bersikeras bahwa Aku dapat berjalan terus menerus saat Aku tidur karena Aku memulihkan staminaku lebih cepat daripada yang Aku gunakan saat berjalan, apakah Kamu mengerti betapa gilanya itu?" (carol)
 
-celia"setelah kamu mengatakannya seperti itu, itu memang tidak normal."
+"setelah kamu mengatakannya seperti itu, itu memang tidak normal." (celia)
 
 Celia dengan jujur ​​menyebutnya gila.
 
@@ -52,17 +52,17 @@ Tapi meski begitu, jika aku hanya mempertimbangkan kemampuan bertahannya, dia su
 
 Dan meskipun kau bisa mengatakan bahwa kemampuan serangannya jauh lebih rendah sebagai gantinya, dia masih cukup kuat untuk mengalahkan seorang dengan rank C dan, bahkan sekarang, aku belum melihatnya menghabiskan energi sihirnya.
 
-carol"Pada tingkat ini, mencapai rank-C seharusnya mudah baginya juga."
+"Pada tingkat ini, mencapai rank-C seharusnya mudah baginya juga." (carol)
 
-celia"rank-C dengan mudah benar-benar luar biasa. Tetap saja, ada bakat sebagai party sebagai rekomendasi, tapi Cielmer-san ... akankah dia baik-baik saja dalam hal itu?"
+"rank-C dengan mudah benar-benar luar biasa. Tetap saja, ada bakat sebagai party sebagai rekomendasi, tapi Cielmer-san ... akankah dia baik-baik saja dalam hal itu?" (celia)
 
-carol"Itu agar Kamu dapat mempertahankan tingkat koordinasi yang tidak terduga dalam situasi darurat seperti sarang monster atau lainnya, kan?"
+"Itu agar Kamu dapat mempertahankan tingkat koordinasi yang tidak terduga dalam situasi darurat seperti sarang monster atau lainnya, kan?" (carol)
 
-celia"Ya."
+"Ya." (celia)
 
-carol"Apakah dia bahkan membutuhkan itu? Dia tidak akan mati bahkan jika kamu melemparkannya ke tengah kerumunan monster, itu sudah pasti. Dia bahkan mungkin memusnahkannya."
+"Apakah dia bahkan membutuhkan itu? Dia tidak akan mati bahkan jika kamu melemparkannya ke tengah kerumunan monster, itu sudah pasti. Dia bahkan mungkin memusnahkannya." (carol)
 
-celia"Tapi masalahnya adalah berapa banyak orang yang benar-benar percaya akan hal itu."
+"Tapi masalahnya adalah berapa banyak orang yang benar-benar percaya akan hal itu." (celia)
 
 Aku mengerti maksud Celia, tapi tidak ada orang lain yang menganggap bergabung dengan party itu tidak perlu seperti dia.
 
@@ -72,18 +72,18 @@ Dia juga bisa menghasilkan air sendiri dengan sihir. Jadi sejujurnya, daripada m
 
 Dan sementara Aku membahas topik ini, Aku sudah mengajarinya penguatan fisik, jadi dia tidak sama sekali tidak berdaya dalam hal kekuatan fisik.
 
-carol"Daripada dia, bukankah kamu, sebagai anggota staf guild, lebih peduli dengan pemula yang menjanjikan?"
+"Daripada dia, bukankah kamu, sebagai anggota staf guild, lebih peduli dengan pemula yang menjanjikan?" (carol)
 
-celia"Anak-anak itu ...... baik-baik saja, kurasa. party dengan seorang warrior, Penyihir, dan Pemanah. Mereka tidak seimbang tapi sepertinya Teren-kun melakukan yang terbaik dengan mereka."
+"Anak-anak itu ...... baik-baik saja, kurasa. party dengan seorang warrior, Penyihir, dan Pemanah. Mereka tidak seimbang tapi sepertinya Teren-kun melakukan yang terbaik dengan mereka." (celia)
 
-carol"Yah, mereka sudah melibatkanku. Jika mereka tidak melakukannya dengan cukup baik, Aku akan bermasalah. tapi, salah satu dari mereka tampaknya tidak cukup baik."
+"Yah, mereka sudah melibatkanku. Jika mereka tidak melakukannya dengan cukup baik, Aku akan bermasalah. tapi, salah satu dari mereka tampaknya tidak cukup baik." (carol)
 
-celia"Bukan karena dia tidak bagus, tetapi karena ada banyak harapan untuknya, banyak staf guild yang kecewa juga.
-Mereka mengatakan bahwa dia adalah +GREATER KNIGHT[1], jadi orang-orang mengharapkan dia untuk mencapai rank C."
+"Bukan karena dia tidak bagus, tetapi karena ada banyak harapan untuknya, banyak staf guild yang kecewa juga.
+Mereka mengatakan bahwa dia adalah +GREAT SWORDMAN[1], jadi orang-orang mengharapkan dia untuk mencapai rank C." (celia)
 
-carol"greater knight? Mengingat jobnya sudah diketahui semua orang, Kamu tidak bisa berharap banyak darinya, kan? Bahkan menilai dari bagaimana dia bertarung, dia adalah tipe yang bergantung pada job. Selama tidak ada perubahan dalam hal itu, dia bahkan tidak akan mencapai rank-D... Seorang Putri Lagu tertentu mungkin memecahkan rekor untuk kenaikan tercepat ke rank-B. Ironis, bukan?"
+"great swordman? Mengingat jobnya sudah diketahui semua orang, Kamu tidak bisa berharap banyak darinya, kan? Bahkan menilai dari bagaimana dia bertarung, dia adalah tipe yang bergantung pada job. Selama tidak ada perubahan dalam hal itu, dia bahkan tidak akan mencapai rank-D... Seorang Song Princess tertentu mungkin memecahkan rekor untuk kenaikan tercepat ke rank-B. Ironis, bukan?" (carol)
 
-celia"Aku punya masalah denganmu menggunakan Cielmer-san sebagai perbandingan."
+"Aku punya masalah denganmu menggunakan Cielmer-san sebagai perbandingan." (celia)
 
 Kamu sangat menyukai gadis itu, kan, Celia? Aku tidak akan pernah mengatakannya di depanmu.
 
@@ -91,13 +91,13 @@ Yah, aku tidak pernah bosan melihat gadis itu sendiri, jadi aku juga tidak membe
 
 khususnya +BARRIER itu, Aku tidak mengerti itu. Berapa banyak sihir yang dia masukkan ke dalam +BARRIER itu? Aku bahkan tidak tahu. Dia memberi tahuku tentang beberapa efeknya tapi, orang biasanya tidak akan memikirkannya.
 
-carol"Ngomong-ngomong, ada sihir yang Kamu mungkin menyukainya ... Kamu ingin mendengarnya?"
+"Ngomong-ngomong, ada sihir yang Kamu mungkin menyukainya ... Kamu ingin mendengarnya?" (carol)
 
-celia"Mungkin akan memakan waktu lama, jadi tidak."
+"Mungkin akan memakan waktu lama, jadi tidak." (celia)
 
-carol"Apakah Kamu tahu mengapa kulit Cielmer sama sekali tidak kecokelatan meskipun dia menghabiskan banyak waktu di luar?"
+"Apakah Kamu tahu mengapa kulit Cielmer sama sekali tidak kecokelatan meskipun dia menghabiskan banyak waktu di luar?" (carol)
 
-celia"jadi, sihir apa itu?"
+"jadi, sihir apa itu?" (celia)
 
 Melihat reaksi yang cukup langka dari Celia, Aku menjadi sedikit bersemangat.
 
@@ -105,19 +105,19 @@ Celia di sini tertarik dengan sihir adalah suatu keajaiban dalam dirinya sendiri
 
 Meskipun Aku merasa agak frustasi tentang hal ini, Celia akhirnya tertarik pada sihir. Aku tidak punya rencana untuk menyia-nyiakan kesempatan ini.
 
-carol"Dia mengatakan bahwa salah satu efek +BARRIERnya adalah menghalangi sinar matahari. Berkat itu, dia tidak menjadi kecokelatan karena matahari, begitulah katanya."
+"Dia mengatakan bahwa salah satu efek +BARRIERnya adalah menghalangi sinar matahari. Berkat itu, dia tidak menjadi kecokelatan karena matahari, begitulah katanya." (carol)
 
-celia"Jadi kamu bisa menggunakan sihir +BARRIER dengan cara itu juga."
+"Jadi kamu bisa menggunakan sihir +BARRIER dengan cara itu juga." (celia)
 
-carol"Satu-satunya yang menggunakannya dengan cara itu adalah dia. Biasanya, itu digunakan untuk melindungi diri sendiri. Selain itu, tidak ada yang bisa menggunakan sihir itu selain dia."
+"Satu-satunya yang menggunakannya dengan cara itu adalah dia. Biasanya, itu digunakan untuk melindungi diri sendiri. Selain itu, tidak ada yang bisa menggunakan sihir itu selain dia." (carol)
 
-celia"Berarti kamu memberiku harapan hanya untuk menghancurkan harapanku juga."
+"Berarti kamu memberiku harapan hanya untuk menghancurkan harapanku juga." (celia)
 
 Celia putus asa tetapi Aku benar-benar tidak bisa berbuat apa-apa tentang hal itu.
 
 bahkan dalam kasusku, Aku tidak dapat menggunakan sihir lain saat Aku menggunakannya.
 
-carol"Aku memintanya untuk menuliskan lingkaran sihirnya, jadi jika itu hanya mengaktifkannya, maka kamu harusnya dapat melakukannya dengan latihan yang cukup."
+"Aku memintanya untuk menuliskan lingkaran sihirnya, jadi jika itu hanya mengaktifkannya, maka kamu harusnya dapat melakukannya dengan latihan yang cukup."
 
 celia"dengan kata lain bagian yang sulit adalah mempertahankannya?"
 
