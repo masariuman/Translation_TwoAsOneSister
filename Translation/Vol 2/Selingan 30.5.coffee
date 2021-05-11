@@ -1,8 +1,8 @@
 INTERLUDE: THE GIRL’S REPORT AND THE IDEAL SORCERY ※CAROL’S POV
 
-celia"Mencapai rank-D hanya dalam tiga bulan ... Siapa sebenarnya gadis itu...."
+"Mencapai rank-D hanya dalam tiga bulan ... Siapa sebenarnya gadis itu...." (celia)
 
-carol"Siapa pun dia, dia sudah berada di rank-B jika hanya dari kekuatannya... dia hanya belum mengisi hal lainnya."
+"Siapa pun dia, dia sudah berada di rank-B jika hanya dari kekuatannya... dia hanya belum mengisi hal lainnya." (carol)
 
 Sambil minum teh dengan Celia di penginapan, dia mulai membicarakan tentang gadis yang saat ini kami urus.
 
@@ -10,11 +10,11 @@ Karena dia sudah berada di level rank B untuk kekuatannya, sudah dipastikan dia 
 
 tapi, Aku berharap itu memakan waktu setengah tahun.
 
-celia"kalau kekuatannya, Aku sudah mengakuinya ketika dia menang melawanmu tapi Aku tidak berharap dia dapat memenuhi semua kriteria lain dengan mudah mengingat usianya."
+"kalau kekuatannya, Aku sudah mengakuinya ketika dia menang melawanmu tapi Aku tidak berharap dia dapat memenuhi semua kriteria lain dengan mudah mengingat usianya." (celia)
 
-carol"Yah, staminanya pas untuk usianya. Meskipun dia bisa berkemah dengan cukup mudah, aku bahkan tidak pernah menyangka dia akan mempersiapkan perkemahan seperti itu."
+"Yah, staminanya pas untuk usianya. Meskipun dia bisa berkemah dengan cukup mudah, aku bahkan tidak pernah menyangka dia akan mempersiapkan perkemahan seperti itu." (carol)
 
-celia"Ketika Kamu memberi tahu Aku itu, itu membuatku benar-benar menyadari kalau Cielmer-san sebenarnya baru berusia 10 tahun."
+"Ketika Kamu memberi tahu Aku itu, itu membuatku benar-benar menyadari kalau Cielmer-san sebenarnya baru berusia 10 tahun." (celia)
 
 Saat bekerja sebagai hunter, wajar jika menghadapi situasi yang mengharuskan Kamu menghabiskan malam di luar.
 

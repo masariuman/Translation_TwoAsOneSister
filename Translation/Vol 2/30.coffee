@@ -4,33 +4,33 @@ Sambil terlihat agak jengkel, Carol-san membawa kami ke pub yang sangat gaduh.
 
 Bahkan dari luar gedung, Aku dapat dengan jelas mendengar suara tawa riuh dan suara gelas bersulang.
 
-"Jadi, apakah kamu akan masuk? Atau lebih tepatnya, apa yang Kamu rencanakan di dalam? walaupun ini pub yang resmi, Aku tidak akan terkejut jika mereka menendang keluar seorang anak di bawah umur sepertimu, Kamu tahu?"
+"Jadi, apakah kamu akan masuk? Atau lebih tepatnya, apa yang Kamu rencanakan di dalam? walaupun ini pub yang resmi, Aku tidak akan terkejut jika mereka menendang keluar seorang anak di bawah umur sepertimu, Kamu tahu?" (carol)
 
-a"kenapa baru bilang sekarang?"
+"kenapa baru bilang sekarang?" (ain)
 
-"Aku baru kepikiran sekarang, yaaah tidak ada anak dibawah usia 15 tahun pernah ketempat ini. Anak biasa berusia 10 tahun pasti tidak akan datang ke sini. Karena itu, bahkan Aku tidak tahu bagaimana mereka akan bereaksi terhadap Kamu. Yah, paling tidak beberapa cemoohan kemungkinan besar akan terlibat."
+"Aku baru kepikiran sekarang, yaaah tidak ada anak dibawah usia 15 tahun pernah ketempat ini. Anak biasa berusia 10 tahun pasti tidak akan datang ke sini. Karena itu, bahkan Aku tidak tahu bagaimana mereka akan bereaksi terhadap Kamu. Yah, paling tidak beberapa cemoohan kemungkinan besar akan terlibat." (carol)
 
-a"Apakah sulit untuk meminta mereka mengizinkanku bernyanyi di pub?"
+"Apakah sulit untuk meminta mereka mengizinkanku bernyanyi di pub?" (ain)
 
-"Orang yang mendapatkan uang yang mereka butuhkan dengan menghibur orang di pub bukanlah hal baru. Terutama, karena Hunter memiliki terlalu banyak waktu luang, di sini lebih ramah dibandingkan dengan pub lain. Apakah master pub mengizinkannya atau tidak, itu adalah masalah lain. Jangan berharap Aku membantumu dalam hal itu juga, oke?"
+"Orang yang mendapatkan uang yang mereka butuhkan dengan menghibur orang di pub bukanlah hal baru. Terutama, karena Hunter memiliki terlalu banyak waktu luang, di sini lebih ramah dibandingkan dengan pub lain. Apakah master pub mengizinkannya atau tidak, itu adalah masalah lain. Jangan berharap Aku membantumu dalam hal itu juga, oke?" (carol)
 
-a"Selama Kamu bisa memperkenalkanku kepada master pub, Aku akan menangani sisanya."
+"Selama Kamu bisa memperkenalkanku kepada master pub, Aku akan menangani sisanya." (ain)
 
 meskipun Aku mengatakan itu, Aku masih belum mendapatkan izin Ciel.
 
 Ciel bahkan mungkin mengatakan tidak tetapi entah bagaimana Ciel hampir tidak pernah tidak setuju dengan apa pun yang ingin Aku lakukan, jadi Aku tidak bisa mengatakannya dengan pasti.
 
-a"Umm , Ciel?"
+[Umm , Ciel?] (ain)
 
-c"Jika Ain ingin melakukannya, Aku tidak keberatan, oke?"
+[Jika Ain ingin melakukannya, Aku tidak keberatan, oke?] (ciel)
 
-a"Tapi itu mungkin akan menyebabkan beberapa masalah bagi kita, jadi ......"
+[Tapi itu mungkin akan menyebabkan beberapa masalah bagi kita, jadi ......] (ain)
 
-c"Ketika itu terjadi, kita hanya perlu lari. Kita bisa melakukan itu, kan?"
+[Ketika itu terjadi, kita hanya perlu lari. Kita bisa melakukan itu, kan?] (ciel)
 
-a"Jika hanya lari, seharusnya tidak sesulit itu, tapi..."
+[Jika hanya lari, seharusnya tidak sesulit itu, tapi...] (ain)
 
-c"kalau begitu tidak apa-apa."
+[kalau begitu tidak apa-apa.] (ciel)
 
 Jadi Aku mendapat izinnya, tetapi apakah ini benar-benar tidak masalah?
 
@@ -54,33 +54,33 @@ Dan berdasarkan pengalamanku, orang paling berbahaya di gedung ini adalah orang 
 
 Master pub berjanggut di konter tampak seperti orang yang hangat dan meskipun dia menatapku dengan tatapan bingung, mungkin masih ada ruang untuk negosiasi karena aku tidak merasakan permusuhan darinya. Nah, hari ini aku bersama Carol-san, seorang dewasa, bersamaku, jadi mungkin saja dia tidak punya pilihan untuk segera mengeluarkanku.
 
-"Sudah lama ya."
+"Sudah lama ya." (carol)
 
 "Penyihir Es ke sini bersama anaknya, ini semacam lelucon?"
 
-"Maukah kamu berhenti memanggilku seperti itu? Ini bukan anakku. Lihatlah berapa umurnya."
+"Maukah kamu berhenti memanggilku seperti itu? Ini bukan anakku. Lihatlah berapa umurnya." (carol)
 
 "Ya, ya. tapi, ini bukan tempat untuk anak-anak, Meskipun dia tidak akan dalam bahaya."
 
-"Yah, dia bilang dia ada urusan di sini."
+"Yah, dia bilang dia ada urusan di sini." (carol)
 
 "Baiklah, Nona kecil. Untuk apa kamu datang ke sini?"
 
 Saat Aku terkejut dengan caranya berbicara yang agak unik, mereka tiba-tiba mengalihkan topiknya kepadaku.
 
-a"Senang bertemu denganmu, nama Aku Cielmer. Aku ingin tahu apakah Kamu bisa membiarkan Aku bernyanyi di pub ini hari ini."
+"Senang bertemu denganmu, nama Aku Cielmer. Aku ingin tahu apakah Kamu bisa membiarkan Aku bernyanyi di pub ini hari ini." (ain)
 
 "bernyani ...... ya? Jadi singkatnya, Kamu di sini untuk mendapatkan beberapa koin, ya? tapi, Aku tidak bisa membiarkanmu melakukan pertunjukanmu di sini secara gratis."
 
-a"Kalau begitu, Aku akan membayar untuk satu gelas, jadi maukah Kamu membiarkan Aku menyanyikan satu lagu saja?"
+"Kalau begitu, Aku akan membayar untuk satu gelas, jadi maukah Kamu membiarkan Aku menyanyikan satu lagu saja?" (ain)
 
 "Dengan semua kebisingan ini ?"
 
-a"kalau begitu, Aku akan membayar setengah dari biaya untuk menyewa panggung. Jika tidak ada yang terjadi setelah Aku menyanyikan satu lagu, Aku akan segera pulang. Ini tidak akan memakan banyak waktu, jadi tidak ada ruginya, kan?"
+"kalau begitu, Aku akan membayar setengah dari biaya untuk menyewa panggung. Jika tidak ada yang terjadi setelah Aku menyanyikan satu lagu, Aku akan segera pulang. Ini tidak akan memakan banyak waktu, jadi tidak ada ruginya, kan?" (ain)
 
 "Jika Kamu tidak masalah dengan itu yaah tidak masalah tapi Kamu tidak akan benar-benar mendapatkan untung banyak dari itu lho..."
 
-a"Di sini aman, dan ada orang."
+"Di sini aman, dan ada orang." (ain)
 
 Saat ini, Aku hanya ingin belajar bagaimana mengumpulkan informasi daripada benar-benar menghasilkan uang, jadi itu bukan masalah.
 
@@ -130,15 +130,15 @@ Dan tanpa aku sadari, Aku akhirnya menyanyikan sekitar lima lagu. Uang menumpuk 
 
 Carol-san sedang meminum cairan merah seperti anggur di kursi konter.
 
-"Seperti biasa, kamu sangat pandai bernyanyi."
+"Seperti biasa, kamu sangat pandai bernyanyi." (carol)
 
-a"Aku senang kamu menikmatinya."
+"Aku senang kamu menikmatinya." (ain)
 
-"Sepertinya kamu juga menikmatinya sendiri."
+"Sepertinya kamu juga menikmatinya sendiri." (carol)
 
-a"Itu benar. Itu sangat menyenangkan. "
+"Itu benar. Itu sangat menyenangkan." (ain)
 
-"Tetap saja, Kamu benar-benar bertingkah seperti usiamu saat bernyanyi."
+"Tetap saja, Kamu benar-benar bertingkah seperti usiamu saat bernyanyi." (carol)
 
 Mengatakan itu, Carol-san meneguk anggurnya. Jika yang dia maksud adalah bahwa Aku bertingkah seperti anak berusia 10 tahun, maka Aku sebenarnya tidak bertingkah seusiaku.
 
@@ -146,7 +146,7 @@ tapi, memang benar Aku menikmatinya dan Aku memang terlihat seperti anak berusia
 
 "begitu ya. nona kecil menjadi percaya diri ketika bernegosiasi menjadi masuk akal sekarang. Aku belum pernah mendengar lagu-lagu itu sebelumnya, tapi ini populer di kalangan penonton."
 
-a"Seperti yang Aku janjikan sebelumnya, silakan ambil setengahnya."
+"Seperti yang Aku janjikan sebelumnya, silakan ambil setengahnya." (ain)
 
 Sejak master pub berbicara denganku, Aku mendorong segunung kecil uang ke arahnya.
 
@@ -154,7 +154,7 @@ Dengan tatapan gelisah, dia menggelengkan kepalanya dan mendorong gunung itu kem
 
 "Kamu bermasalah dengan uang, kan? Aku tidak bisa mengambil ini. Minumannya laku karena nyanyianmu juga, jadi aku sudah mendapatkan cukup untung juga darimu."
 
-a"Aku tidak terlalu bermasalah dengan uang, jadi tolong ambillah. Lagipula itulah yang kita sepakati."
+"Aku tidak terlalu bermasalah dengan uang, jadi tolong ambillah. Lagipula itulah yang kita sepakati." (ain)
 
 Saat aku sekali lagi mendorong gunung kecil itu, master pub menoleh ke Carol-san untuk meminta bantuan.
 
@@ -162,15 +162,15 @@ Setelah melirikku, Carol-san menjadi jengkel. Bukan aku yang menyeretmu ke dalam
 
 Yah, tentu, ini tidak akan menjadi masalah jika Aku menerimanya saja, tapi, setidaknya selama Aku masih di negara ini, Aku tidak ingin menerima pemberian dari orang.
 
-"Nah, Kamu tidak perlu terlalu khawatir. Anak ini adalah seorang Hunter lho..."
+"Nah, Kamu tidak perlu terlalu khawatir. Anak ini adalah seorang Hunter lho..." (carol)
 
 "Bahkan jika dia seorang Hunter, dia di rank G, kan?"
 
-"Tidak, dia rank E. Selain itu, dia adalah rank E yang bisa bersolo karier."
+"Tidak, dia rank E. Selain itu, dia adalah rank E yang bisa bersolo karier." (carol)
 
 "Haah ? Gadis kecil ini ... rank E?"
 
-"aku juga memantaunya, jadi Kamu tidak perlu khawatir tentang itu. Aku hanya membawanya ke sini hari ini karena dia memang ingin datang kesini."
+"aku juga memantaunya, jadi Kamu tidak perlu khawatir tentang itu. Aku hanya membawanya ke sini hari ini karena dia memang ingin datang kesini." (carol)
 
 "O-Oke. Kalau begitu, aku akan menerimanya ......"
 
@@ -184,26 +184,30 @@ Saat kami pergi, para Hunter memberitahuku "Kembalilah lagi." Jadi tidak akan ad
 
 Dalam perjalanan ke penginapan, setelah kami berpisah dengan Carol-san, Ciel berbicara denganku dengan nada yang sedikit kesal.
 
-c"Aku senang Kamu menikmatinya, Ain."
+[Aku senang Kamu menikmatinya, Ain.] (ciel)
 
-a"kenapa ngambek?"
+[kenapa ngambek?] (ain)
 
-c"Aku tidak ngembek sama sekali."
+[Aku tidak ngembek sama sekali.] (ciel)
 
 Meskipun dia berkata begitu, Ciel terdengar agak tidak senang.
 
 Aku biasanya menyanyikan laguku demi Ciel, jadi dia mungkin merasa posesif karena itu.
 
-a"Betul sekali. Itu adalah hal yang paling menyenangkan yang pernah Aku alami selain saat Aku bernyanyi untukmu."
+[Betul sekali. Itu adalah hal yang paling menyenangkan yang pernah Aku alami selain saat Aku bernyanyi untukmu.] (ain)
 
-c"Benarkah?"
+[Benarkah?] (ciel)
 
-a"Ya. Yang paling membuatku bahagia adalah ketika kamu pertama kali mendengarkanku bernyanyi. aku menjadi seperti sekarang karena kamu menikmati nyanyianku ketika kamu masih bayi. bahkan sekarang, satu-satunya yang ingin aku nantikan adalah bernyanyi untuku, ciel. dan itu karena kamu adalah orang yang paling banyak mendengarkan nyanyianku."
+[Ya. Yang paling membuatku bahagia adalah ketika kamu pertama kali mendengarkanku bernyanyi. aku menjadi seperti sekarang karena kamu menikmati nyanyianku ketika kamu masih bayi. bahkan sekarang, satu-satunya yang ingin aku nantikan adalah bernyanyi untuku, ciel. dan itu karena kamu adalah orang yang paling banyak mendengarkan nyanyianku.] (ain)
 
 Ciel telah mendengarkanku bernyanyi terus menerus selama lebih dari sepuluh tahun tanpa merasa bosan.
 
 tidak diragukan lagi bahwa kesenangan terbesarku adalah membuat Ciel menikmati lagu-laguku.
 
-c"Aku juga paling senang dan menikmati Ain bernyanyi!"
+[Aku juga paling senang dan menikmati Ain bernyanyi!] (ciel)
 
 Dan meskipun dia kesal beberapa saat sebelumnya, Ciel sudah kembali dalam suasana hati yang baik sekarang. Jadi dengan itu, Aku memutuskan untuk menyanyikan sebuah lagu untuknya.
+
+-----------
+
+DEDEK CIEL NGAMBEK LUCUUKKK >_< ... damn ain smooth sekali ngeredam dedek ciel... tapi baguslah kalau bisa bersenang senang, karena sudah banyak hal tidak menyenangkan di kehidupan baru ain..
