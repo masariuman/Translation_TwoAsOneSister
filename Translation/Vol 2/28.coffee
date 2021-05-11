@@ -110,7 +110,7 @@ Dan setelah itu, kami mulai mendengar suara melengking dari benturan logam.
 
 [Tidak apa-apa, tetapi apakah akan baik-baik saja? kita sedang diawasi, kan?] (ciel)
 
-hanya melihat saja tidak masalah, tetapi apakah tidak apa-apa untuk melihat sebagai pemburu? Mungkin itulah yang ingin dikatakan Ciel.
+hanya melihat saja tidak masalah, tetapi apakah tidak apa-apa untuk melihat sebagai Hunter? Mungkin itulah yang ingin dikatakan Ciel.
 
 Bagiku, Aku hanya ingin melihat bagaimana sebuah party bertarung meski hanya sebentar, jadi itu seharusnya tidak menjadi masalah.
 
@@ -128,11 +128,11 @@ Ada dua barisan dalam party tapi mereka tidak bisa mengalahkan sepuluh goblin, j
 
 Di sisi lain, para goblin tidak hanya menyerang secara membabi buta, mereka memiliki beberapa tingkat koordinasi karena terlihat seperti goblin yang relatif besar sedang memberikan perintah. Sulit untuk menilai siapa manusia sebenarnya di sini.
 
-mungkin itu yang disebut Pemimpin Goblin. Meskipun tidak pada level rank-D, itu dikatakan monster terkuat rank-E. Untuk pemburu rank-E, mungkin agak terlalu sulit hanya untuk mereka berempat.
+mungkin itu yang disebut Pemimpin Goblin. Meskipun tidak pada level rank-D, itu dikatakan monster terkuat rank-E. Untuk Hunter rank-E, mungkin agak terlalu sulit hanya untuk mereka berempat.
 
 [Sepertinya ini bukan pertarungan yang bisa kita amati kerjasama partynya, kan?] (ain)
 
-c"Anggap saja ini pertarungan 3 vs 9. Orang dengan pedang panjang tidak bekerja sebagai tim."
+[Anggap saja ini pertarungan 3 vs 9. Orang dengan pedang panjang tidak bekerja sebagai tim.] (ciel)
 
 Seperti yang Ciel katakan, jika aku mengubah perspektifku, orang dengan pedang satu tangan menggunakan perisainya untuk menahan goblin sementara yang di belakang fokus menyerang, jadi aku bisa melihat bahwa mereka setidaknya bekerja sebagai kelompok.
 
@@ -142,14 +142,14 @@ Jika mereka hanya memiliki satu orang lagi, mereka mungkin bisa menangani pertar
 
 Jadi apa yang dilakukan oleh yang satunya? Dia menyerang Pemimpin Goblin. Pada pandangan pertama sepertinya mereka bertarung dari ujung ke ujung tetapi karena Pemimpin memberikan perintah saat bertarung, sepertinya goblin itu yang lebih kuat di sini.
 
-Jika Aku membiarkannya, para pemburu akan kalah.
+Jika Aku membiarkannya, para Hunter akan kalah.
 Hmm , Aku hanya ingin melihat apakah Aku dapat belajar sesuatu dari mereka tetapi ini akhirnya menjadi pilihan apakah kita membantu mereka atau membiarkan mereka mati.
 
-a"Sebagai seorang pemburu, pergi saja mungkin tidak salah tapi ......"
+[Sebagai seorang Hunter, pergi saja mungkin tidak salah tapi ......] (ain)
 
-c"Kamu ingin membantu mereka, kan Ain?"
+[Kamu ingin membantu mereka, kan Ain?] (ciel)
 
-a"Benarkah aku ingin membantu? Aku ingin membantu mereka tetapi Aku tidak ingin masalah yang datang setelah membantu mereka. Begitulah perasaanku sekarang. Membantu saja memang mudah dilakukan. Bagaimana perasaan orang yang memantau kita juga merupakan faktor juga."
+[Benarkah aku ingin membantu? Aku ingin membantu mereka tetapi Aku tidak ingin masalah yang datang setelah membantu mereka. Begitulah perasaanku sekarang. Membantu saja memang mudah dilakukan. Bagaimana perasaan orang yang memantau kita juga merupakan faktor juga.] (ciel)
 
 Yang membantu adalah Ciel.
 
@@ -177,7 +177,7 @@ Ini bukanlah +WHIRLWIND SLASH yang kami gunakan sampai sekarang, tapi lingkaran 
 
 Dari tempat aku memberitahunya, +ICE ARROW ditembakkan dan menembus kepala lima goblin.
 
-Para pemburu sudah mengalahkan tiga goblin lainnya, jadi mereka harus bisa melawan hanya dengan Pemimpin Goblin yang tersisa.
+Para Hunter sudah mengalahkan tiga goblin lainnya, jadi mereka harus bisa melawan hanya dengan Pemimpin Goblin yang tersisa.
 
 a"Ayo lari."
 
@@ -189,7 +189,7 @@ Setelah pertukaran singkat itu, Ciel lari.
 
 Dan sementara kita melakukannya, Aku mendukungnya menggunakan Song Princess.
 
-Para pemburu dikejutkan oleh panah es yang tiba-tiba muncul dan menoleh ke tempat asalnya. Aku tidak tahu bagaimana reaksi mereka, tetapi karena sepertinya mereka tidak mengikuti kami, kami seharusnya menipu mereka dengan baik.
+Para Hunter dikejutkan oleh panah es yang tiba-tiba muncul dan menoleh ke tempat asalnya. Aku tidak tahu bagaimana reaksi mereka, tetapi karena sepertinya mereka tidak mengikuti kami, kami seharusnya menipu mereka dengan baik.
 
 Setelah meninggalkan hutan dan berlari di tengah padang rumput, Aku berganti dengan Ciel.
 
