@@ -130,7 +130,7 @@ Aku sama sekali tidak berencana memberinya apapun, jadi Aku segera mengambil koi
 
 Kantong ini juga semakin berat. karena mata uang semuanya dalam koin dan masing-masing jauh lebih besar daripada koin 500 yen Jepang, ini menjadi sangat besar. Meskipun dengan ini, Aku masih menyimpan koin perak dan emas yang besar secara terpisah.
 
-Aku sangat menginginkan tas magic yang bisa digunakan sebagai dompet walaupun ukurannya kecil.
+Aku sangat menginginkan tas sihir yang bisa digunakan sebagai dompet walaupun ukurannya kecil.
 
 celia"Dan kemudian, ini akan menjadi jumlah dari pembelian batu sihir."
 

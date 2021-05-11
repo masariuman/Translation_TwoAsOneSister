@@ -165,7 +165,7 @@ Aku tidak tahu apa pendapat orang ini tentang pernyataan Alejo. Tetap saja, Aku 
 
 Dan berbeda dengan diriku yang sekarang, dengan penuh percaya diri, Alejo mulai berbicara.
 
-alejo "Ada bocah berambut putih yang menjadi pemburu baru-baru ini bernyanyi di pub. Dia juga berpenghasilan banyak, aku dengar. Tapi kamu sudah tahu itu, kan?"
+alejo "Ada bocah berambut putih yang menjadi hunter baru-baru ini bernyanyi di pub. Dia juga berpenghasilan banyak, aku dengar. Tapi kamu sudah tahu itu, kan?"
 
 "Ya, jadi?"
 

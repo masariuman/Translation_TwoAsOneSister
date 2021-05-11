@@ -84,7 +84,7 @@ a"Di sini aman, dan ada orang."
 
 Saat ini, Aku hanya ingin belajar bagaimana mengumpulkan informasi daripada benar-benar menghasilkan uang, jadi itu bukan masalah.
 
-Sebaliknya, jika uang adalah masalahnya, maka Aku hanya perlu melakukan lebih banyak permintaan. Bahkan hanya dengan permintaan tetap, Ciel mungkin bisa mendapatkan cukup uang untuk mencapai nilai koin emas dalam satu hari. Untuk alasan itu, tas magic itu mungkin akan menjadi keperluan mendatang.
+Sebaliknya, jika uang adalah masalahnya, maka Aku hanya perlu melakukan lebih banyak permintaan. Bahkan hanya dengan permintaan tetap, Ciel mungkin bisa mendapatkan cukup uang untuk mencapai nilai koin emas dalam satu hari. Untuk alasan itu, tas sihir itu mungkin akan menjadi keperluan mendatang.
 
 Juga, itu menggangguku karena aku terlalu mengandalkan Ciel.
 
@@ -176,7 +176,7 @@ Yah, tentu, ini tidak akan menjadi masalah jika Aku menerimanya saja, tapi, seti
 
 Dengan pertukaran itu, master pub akhirnya menerima uang itu.
 
-Aku memasukkan setengah sisanya ke dalam kantong, tapi itu cukup berat. Aku ingin tahu apakah manusia babi itu membawa tas magic. Jika dia memilikinya, maka Aku benar-benar menyia-nyiakan kesempatan untuk mengambilnya.
+Aku memasukkan setengah sisanya ke dalam kantong, tapi itu cukup berat. Aku ingin tahu apakah manusia babi itu membawa tas sihir. Jika dia memilikinya, maka Aku benar-benar menyia-nyiakan kesempatan untuk mengambilnya.
 
 Aku sebenarnya ingin mengumpulkan beberapa informasi dari para Hunter karena suasana hati mereka sedang baik sekarang, tapi Carol-san mengeluarkan aura "cepatlah dan selesaikan semua ini", jadi aku memutuskan untuk meninggalkan pub hari ini.
 

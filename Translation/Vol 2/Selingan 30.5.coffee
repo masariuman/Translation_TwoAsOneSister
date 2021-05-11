@@ -68,7 +68,7 @@ Aku mengerti maksud Celia, tapi tidak ada orang lain yang menganggap bergabung d
 
 Dalam pertempuran, dia hanya bisa mengandalkan +BARRIER dan menggunakan sihir yang kuat. Dan karena dia juga bisa menggunakan +DETECTION, dia selalu bisa tetap aman saat bergerak. Bahkan saat dia tidak menggunakan +DETECTION, indranya tampak tajam, jadi dia juga bisa bertindak seperti pengintai.
 
-Dia juga bisa menghasilkan air sendiri dengan sihir. Jadi sejujurnya, daripada mencarikannya sebuah party, akan jauh lebih praktis untuk mencarikannya tas magic sebagai gantinya.
+Dia juga bisa menghasilkan air sendiri dengan sihir. Jadi sejujurnya, daripada mencarikannya sebuah party, akan jauh lebih praktis untuk mencarikannya tas sihir sebagai gantinya.
 
 Dan sementara Aku membahas topik ini, Aku sudah mengajarinya penguatan fisik, jadi dia tidak sama sekali tidak berdaya dalam hal kekuatan fisik.
 

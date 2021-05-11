@@ -61,23 +61,23 @@ Juga, Aku harus memberi tahu mereka tentang goblin yang kami kalahkan.
 
 "Tas sihir?" (ain)
 
-"Ini adalah tas yang dapat menyimpan lebih banyak benda daripada yang seharusnya. Dapat dikatakan bahwa tas magic dapat mengabaikan berat objek dan sangat didambakan oleh solo dan Hunter peringkat yang lebih tinggi." (celia)
+"Ini adalah tas yang dapat menyimpan lebih banyak benda daripada yang seharusnya. Dapat dikatakan bahwa tas sihir dapat mengabaikan berat objek dan sangat didambakan oleh solo dan Hunter peringkat yang lebih tinggi." (celia)
 
 "Kalau dipikir-pikir, Carol-san juga menggunakannya." (ain)
 
-Jadi saat battleaxe dan hal lainnya tiba-tiba muncul, dia mungkin menggunakan tas magic.
+Jadi saat battleaxe dan hal lainnya tiba-tiba muncul, dia mungkin menggunakan tas sihir.
 
 Benar, jika kami punya satu, kami seharusnya bisa membuat kemajuan bagus dengan permintaan penaklukan dan sejenisnya.
 
 "Aku ingin satu tapi mahal, kan?" (ain)
 
-"Kecuali Kamu seorang Hunter tingkat tinggi, memiliki satu secara pribadi akan sulit. katanya bahwa hanya job tipe Alkemis yang dapat membuat ini dan karena kelangkaannya, bahkan yang kecil pun akan membutuhkan koin emas untuk membelinya. tapi, selama Kamu memiliki pencapaian yang cukup, dimungkinkan untuk meminjam tas magic dari guild." (celia)
+"Kecuali Kamu seorang Hunter tingkat tinggi, memiliki satu secara pribadi akan sulit. katanya bahwa hanya job tipe Alkemis yang dapat membuat ini dan karena kelangkaannya, bahkan yang kecil pun akan membutuhkan koin emas untuk membelinya. tapi, selama Kamu memiliki pencapaian yang cukup, dimungkinkan untuk meminjam tas sihir dari guild." (celia)
 
 Celia-san hanya mengatakan sebanyak itu tapi singkatnya, hanya mendapatkan beberapa prestasi, kurasa.
 
 Bagian di mana guild akan meminjamkannya mungkin karena itu perlu dilakukan saat mengalahkan monster besar atau mengirimkan benda besar untuk sebuah permintaan.
 
-Meskipun Aku tertarik dengan tas magic, sepertinya Aku tidak bisa melakukan sesuatu untuk itu sekarang, jadi Aku beralih ke masalah utama dan melihat ke Carol-san.
+Meskipun Aku tertarik dengan tas sihir, sepertinya Aku tidak bisa melakukan sesuatu untuk itu sekarang, jadi Aku beralih ke masalah utama dan melihat ke Carol-san.
 
 "Jadi, mengapa Carol-san mengikutiku?" (ain)
 
@@ -135,56 +135,56 @@ Jadi skill pendeteksian sulit, ya? Tapi sebenarnya tidak terasa seperti itu. tap
 
 Jadi, karena mengatakan sesuatu tentang hal itu mungkin menarik minat Carol-san dan sebagainya, Aku bertanya "Jadi, bagaimana Aku melakukannya dalam ujiannya?" Dan mengubah topik.
 
-"Aku hanya ingin mengonfirmasi tetapi Kamu telah menggunakan +BARRIERmu sepanjang waktu, kan?"
+"Aku hanya ingin mengonfirmasi tetapi Kamu telah menggunakan +BARRIERmu sepanjang waktu, kan?" (carol)
 
-a"iya."
+"iya." (ain)
 
-"Lalu Aku bahkan tidak tahu bagaimana Kamu bisa gagal dalam tes ini. Hanya dari penampilanmu, Kamu tampak benar-benar tidak berdaya tetapi Kamu melakukan itu dengan sengaja, bukan?"
+"Lalu Aku bahkan tidak tahu bagaimana Kamu bisa gagal dalam tes ini. Hanya dari penampilanmu, Kamu tampak benar-benar tidak berdaya tetapi Kamu melakukan itu dengan sengaja, bukan?" (carol)
 
 Aku sebenarnya tidak melakukannya dengan sengaja, jadi Aku hanya tersenyum samar sebagai balasannya.
 
 Aku tidak begitu mengerti banyak tentang terlihat tidak berdaya, atau lebih tepatnya bagaimana mempersiapkan diri dengan baik. Apakah ini tentang selalu waspada terhadap lingkungan sekitar dan dapat segera bertindak?
 
-a"Kalau dipikir-pikir, apa yang terjadi dengan para Hunter itu?"
+"Kalau dipikir-pikir, apa yang terjadi dengan para Hunter itu?" (ain)
 
-"Mereka kembali dengan selamat. Permintaan mereka diperlakukan sebagai kegagalan di pihak mereka, jadi mereka tampaknya memiliki perselisihan di dalam party tetapi Aku tidak akan mengurusnya juga."
+"Mereka kembali dengan selamat. Permintaan mereka diperlakukan sebagai kegagalan di pihak mereka, jadi mereka tampaknya memiliki perselisihan di dalam party tetapi Aku tidak akan mengurusnya juga." (carol)
 
-a"Yah, selama mereka masih hidup, akupun senang mendengarnya."
+"Yah, selama mereka masih hidup, akupun senang mendengarnya." (ain)
 
 Meskipun Aku berkata demikian, Aku tidak sungguh-sungguh dengan apa yang Aku katakan.
 
 Mungkin karena itu tidak terjadi di depanku tetapi Aku tidak terlalu khawatir tentang mereka karena suatu alasan. Aku yakin itu karena Aku tidak dalam situasi di mana Aku bisa peduli dengan orang asing.
 
-"Apakah Kamu yakin sekarang?"
+"Apakah Kamu yakin sekarang?" (carol)
 
-a"Aku mengerti mengapa Carol-san mengikutiku. Apa yang harus Aku lakukan mulai besok?"
+"Aku mengerti mengapa Carol-san mengikutiku. Apa yang harus Aku lakukan mulai besok?" (ain)
 
 "Di pagi hari, datang ke tempatku. Aku akan mengajarimu kompetensi yang Kamu butuhkan untuk menjadi seorang Hunter.
-Di sore hari, selesaikan permintaan yang diberikan Celia kepadamu dan Kamu bebas untuk melakukan apapun setelah itu. Jika Kamu memperoleh semua kompetensi dan menyelesaikan semua permintaan itu, Kamu akan menjadi rank-D."
+Di sore hari, selesaikan permintaan yang diberikan Celia kepadamu dan Kamu bebas untuk melakukan apapun setelah itu. Jika Kamu memperoleh semua kompetensi dan menyelesaikan semua permintaan itu, Kamu akan menjadi rank-D." (carol)
 
-a"Apakah tidak apa-apa untuk memberi tahuku hal itu?"
+"Apakah tidak apa-apa untuk memberi tahuku hal itu?" (ain)
 
 Jika tidak apa-apa untuk mengatakannya, maka mereka bisa saja memberitahuku tentang itu lebih awal, kan?
 
 Aku melirik Celia-san dan dia tampak agak bermasalah juga.
 
-"Awalnya, itu bukan sesuatu yang harus kami beri tahukan kepadamu. tapi, itu juga benar bahwa permintaan yang dibutuhkan untuk mencapai rank-D telah diketahui publik. Dalam kasus Cielmer-san , persyaratanmu untuk naik rank akan sedikit unik tetapi karena kami menilai bahwa Kamu tidak akan gegabah setelah mengetahuinya, Aku mengizinkan Carol untuk memberitahukan ini kepadamu."
+"Awalnya, itu bukan sesuatu yang harus kami beri tahukan kepadamu. tapi, itu juga benar bahwa permintaan yang dibutuhkan untuk mencapai rank-D telah diketahui publik. Dalam kasus Cielmer-san , persyaratanmu untuk naik rank akan sedikit unik tetapi karena kami menilai bahwa Kamu tidak akan gegabah setelah mengetahuinya, Aku mengizinkan Carol untuk memberitahukan ini kepadamu." (celia)
 
 Aku tidak benar-benar tahu apakah ada arti permintaan yang diperlukan ini jika semua orang tahu apa itu, tapi Aku rasa ini berarti penyelesaian permintaan lebih penting daripada informasi tentang apa ini.
 
 Aku tidak yakin tentang teknik apa yang harus kami miliki tetapi Aku dapat membayangkan itu mungkin seperti bagaimana mendirikan kemah atau mungkin, seperti dalam tes hari ini, tentang bagaimana mengamankan diri sendiri di luar kota dan semacamnya.
 
-a"Aku mengerti. Terima kasih banyak."
+"Aku mengerti. Terima kasih banyak." (ain)
 
-"Jadi diskusi ini berakhir di sini. Apakah Kamu punya rencana setelah ini?"
+"Jadi diskusi ini berakhir di sini. Apakah Kamu punya rencana setelah ini?" (celia)
 
-a"Tidak juga. Tetapi jika ada pub di sekitar sini, Aku ingin pergi ke sana."
+"Tidak juga. Tetapi jika ada pub di sekitar sini, Aku ingin pergi ke sana." (ain)
 
-"Kamu tidak akan bisa minum bahkan jika Kamu pergi ke sana, Kamu tahu?"
+"Kamu tidak akan bisa minum bahkan jika Kamu pergi ke sana, Kamu tahu?" (carol)
 
-a"Aku pernah mendengar bahwa pub adalah tempat untuk mengumpulkan informasi, jadi Aku pikir Aku perlu pergi ke sana kapan-kapan."
+"Aku pernah mendengar bahwa pub adalah tempat untuk mengumpulkan informasi, jadi Aku pikir Aku perlu pergi ke sana kapan-kapan." (ain)
 
-"Tentu, Kamu dapat mengumpulkan informasi di pub, tapi tetap saja ......"
+"Tentu, Kamu dapat mengumpulkan informasi di pub, tapi tetap saja ......" (celia)
 
 Pub sebagai tempat mengumpulkan informasi hanyalah alasanku yang agak kabur, tetapi Aku tahu bahwa mengumpulkan informasi akan membutuhkan keterampilan komunikasi yang cukup.
 
@@ -202,14 +202,18 @@ Meskipun dia mungkin hanya ingin menghentikan kami, seorang gadis berusia 10 tah
 
 Aku, atau lebih tepatnya Ciel, akan bisa melawan mereka jika mereka mencoba mengganggu kami, tapi itu dengan sendirinya akan membuat kami menonjol.
 
-"Kamu bisa membawa Cielmer-san ke pub resmi, kan?"
+"Kamu bisa membawa Cielmer-san ke pub resmi, kan?" (celia)
 
-"Benar, jika itu tempat itu maka seharusnya tidak ada masalah."
+"Benar, jika itu tempat itu maka seharusnya tidak ada masalah." (carol)
 
-a"Apa itu pub resmi?"
+"Apa itu pub resmi?" (ain)
 
-"Pub resmi, tepatnya, sebuah pub yang disahkan oleh guild Hunter. Untuk memastikan bahwa selalu ada hunter yang tersedia jika kota dan desa diserang oleh monster, sejumlah hunter diminta untuk siaga di kota dan desa ini. Tapi, karena ada banyak orang temperamental di antara para hunter, yang menjadi tuan rumah mereka adalah pub resmi ini. Itu tidak akan menjadi masalah tidak peduli berapa banyak keributan yang Kamu buat di sana. tapi, dilarang melakukan perselisihan antar hunter. Jika aturan ini dilanggar, lebih buruk lagi, Kamu akan kehilangan kualifikasi untuk menjadi seorang hunter. Jadi bahkan jika Kamu pergi ke sana, Cielmer-san , seharusnya tidak ada orang yang mencoba mengganggumu."
+"Pub resmi, tepatnya, sebuah pub yang disahkan oleh guild Hunter. Untuk memastikan bahwa selalu ada hunter yang tersedia jika kota dan desa diserang oleh monster, sejumlah hunter diminta untuk siaga di kota dan desa ini. Tapi, karena ada banyak orang temperamental di antara para hunter, yang menjadi tuan rumah mereka adalah pub resmi ini. Itu tidak akan menjadi masalah tidak peduli berapa banyak keributan yang Kamu buat di sana. tapi, dilarang melakukan perselisihan antar hunter. Jika aturan ini dilanggar, lebih buruk lagi, Kamu akan kehilangan kualifikasi untuk menjadi seorang hunter. Jadi bahkan jika Kamu pergi ke sana, Cielmer-san , seharusnya tidak ada orang yang mencoba mengganggumu." (celia)
 
-a"Lalu, bisakah Kamu membawaku ke tempat itu?"
+"Lalu, bisakah Kamu membawaku ke tempat itu?" (ain)
 
 Jadi setelah mendengar tentang apa itu pub resmi, Aku menoleh ke Carol-san dan berkata begitu. Dia kemudian menggumamkan "Baiklah." Dengan ekspresi enggan.
+
+----------------------
+
+daangg, rupanya utk jaga jaga dan test saja, kirain si carol nguntit karena penasaran sama sihirnyadedek ciel, walau pasti tetap penasaran sih, hmmmm, jadi penasaran apa yang akan terjadi di pub, seorang bocah 10 tahun pergi ke pub... interesting...
