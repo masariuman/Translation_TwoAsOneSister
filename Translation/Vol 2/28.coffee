@@ -34,9 +34,9 @@ Oleh karena itu, sepertinya kami perlu mencarinya melalui padang rumput yang lua
 
 Aku mengerti, masuk akal bahwa hanya sedikit orang yang mau mengambilnya. Lagipula, ada juga binatang dan monster kecil di sekitar dan, yang lebih penting, tumbuhan tidak dapat ditemukan segera setelah memasuki padang rumput. Paling buruk, mungkin juga pencarian sepanjang hari tidak dapat menghasilkan apapun.
 
-c"Jadi bagaimana kita mencarinya?"
+[Jadi bagaimana kita mencarinya?] (ciel)
 
-a"Aku berpikir untuk menggunakan +DETECTION. Karena sepertinya herb memiliki energi sihir, kita mungkin bisa menemukannya dengan cepat."
+[Aku berpikir untuk menggunakan +DETECTION. Karena sepertinya herb memiliki energi sihir, kita mungkin bisa menemukannya dengan cepat.] (ain)
 
 Aku sudah mengkonfirmasinya setelah mendapatkan sampel tetapi Aku sangat yakin bahwa herb itu mengandung energi sihir. Efeknya sangat kuat.
 
@@ -50,20 +50,19 @@ Tapi yang menarik adalah masing-masing reaksi ini agak berbeda satu sama lain.
 
 Untuk mengujinya, Aku pergi ke tempat reaksi terdekat dan di sana Aku melihat tumbuhan yang sama sekali berbeda dari sampel.
 
-a"Ini beda."
+[Ini beda.] (ain)
 
-c"Tapi itu bereaksi, kan?"
+[Tapi itu bereaksi, kan?] (ciel)
 
-a"ini mungkin digunakan untuk sesuatu yang lain. Tetap saja, ini berbeda dari yang diminta."
+[ini mungkin digunakan untuk sesuatu yang lain. Tetap saja, ini berbeda dari yang diminta.] (ain)
 
-c"Apa yang akan kamu lakukan, Ain?"
+[Apa yang akan kamu lakukan, Ain?] (ciel)
 
-a"Mari kumpulkan beberapa dan tanyakan Celia-san tentang ini. Orang itu seharusnya bisa menjawab segera tapi, yah, itu mungkin akan menjengkelkan jika aku bertanya."
+[Mari kumpulkan beberapa dan tanyakan Celia-san tentang ini. Orang itu seharusnya bisa menjawab segera tapi, yah, itu mungkin akan menjengkelkan jika aku bertanya.] (ain)
 
-c"Orang itu?"
+[Orang itu?] (ciel)
 
-a"Orang yang telah mengikuti kita sejak kita pergi.
-Jika aku bertanya padanya, itu mungkin akan memulai diskusi sihir."
+[Orang yang telah mengikuti kita sejak kita pergi. Jika aku bertanya padanya, itu mungkin akan memulai diskusi sihir.] (ain)
 
 mendengar kata-kataku, Ciel membuat suara yang tampaknya meyakinkan.
 
@@ -71,15 +70,15 @@ Aku menemukan herb yang diperlukan saat Aku mengikuti reaksi tetapi karena jumla
 
 Sama seperti matahari tepat di atas kami, dan karena tas yang dibawa sekarang sudah penuh, Aku memutuskan untuk mengakhirinya untuk hari ini.
 
-a"Karena kita masih punya waktu, mengapa kita tidak mengumpulkan beberapa batu sihir?"
+[Karena kita masih punya waktu, mengapa kita tidak mengumpulkan beberapa batu sihir?] (ain)
 
-c"Tapi kita sedang diawasi, apakah itu benar-benar tidak masalah?"
+[Tapi kita sedang diawasi, apakah itu benar-benar tidak masalah?] (ciel)
 
-a"Lalu kita akan menguji lingkaran sihir. Hal ini penting untuk diuji terlebih. Selain itu, kita sudah sangat dekat dengan hutan. Bahkan jika terjadi sesuatu, kita masih bisa bertarung tanpa mengungkapkan kartu andalan kita."
+[Lalu kita akan menguji lingkaran sihir. Hal ini penting untuk diuji terlebih. Selain itu, kita sudah sangat dekat dengan hutan. Bahkan jika terjadi sesuatu, kita masih bisa bertarung tanpa mengungkapkan kartu andalan kita.] (ain)
 
-c"Kalau begitu, mari kita bertukar setelah memasuki hutan, oke?"
+[Kalau begitu, mari kita bertukar setelah memasuki hutan, oke?] (ciel)
 
-a"baiklah."
+[baiklah.] (ain)
 
 ◇
 
@@ -97,11 +96,11 @@ bahkan setelah uji lingkaran sihir kami dijalankan, matahari masih tetap tinggi 
 
 kupikir kita bisa pulang sekarang dan kembali nanti, tapi kemudian aku tiba-tiba merasakan banyak reaksi dari +DETECTIONku.
 
-a"Sepertinya ada parti bertemu dengan sekelompok monster."
+[Sepertinya ada party bertemu dengan sekelompok monster.] (ain)
 
-c"Apakah mereka di dekat kita?"
+[Apakah mereka di dekat kita?] (ciel)
 
-a"Biarkan aku memeriksanya. Tidak ada apa-apa di dekat kita, tetapi ada empat orang dan sepuluh monster."
+[Tidak ada apa-apa di dekat kita, tetapi ada empat orang dan sepuluh monster.] (ain)
 
 Setelah Aku berkata demikian, kami mendengar "UuooH!" Dari jarak yang agak jauh.
 
