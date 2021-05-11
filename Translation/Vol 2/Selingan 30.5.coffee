@@ -117,28 +117,27 @@ Celia putus asa tetapi Aku benar-benar tidak bisa berbuat apa-apa tentang hal it
 
 bahkan dalam kasusku, Aku tidak dapat menggunakan sihir lain saat Aku menggunakannya.
 
-"Aku memintanya untuk menuliskan lingkaran sihirnya, jadi jika itu hanya mengaktifkannya, maka kamu harusnya dapat melakukannya dengan latihan yang cukup."
+"Aku memintanya untuk menuliskan lingkaran sihirnya, jadi jika itu hanya mengaktifkannya, maka kamu harusnya dapat melakukannya dengan latihan yang cukup." (carol)
 
-celia"dengan kata lain bagian yang sulit adalah mempertahankannya?"
+"dengan kata lain bagian yang sulit adalah mempertahankannya?" (celia)
 
-carol"Tepat. Itu membutuhkan kontrol energi sihir yang sangat halus. Sampai-sampai bahkan orang-orang yang telah menghabiskan bertahun-tahun memakai sihir hanya dapat menggunakannya dengan tidak sempurna."
+"Tepat. Itu membutuhkan kontrol energi sihir yang sangat halus. Sampai-sampai bahkan orang-orang yang telah menghabiskan bertahun-tahun memakai sihir hanya dapat menggunakannya dengan tidak sempurna." (carol)
 
-celia"Jadi maksudmu sihir Cielmer-san tidak hanya mengandalkan energi sihirnya yang melimpah?"
+"Jadi maksudmu sihir Cielmer-san tidak hanya mengandalkan energi sihirnya yang melimpah?" (celia)
 
-carol"Dan ini bukannya bakat, ini sebenarnya masalah pengalaman. sihir apa yang dia gunakan untuk memiliki teknik sebanyak ini pada usia 10 tahun?"
+"Dan ini bukannya bakat, ini sebenarnya masalah pengalaman. sihir apa yang dia gunakan untuk memiliki teknik sebanyak ini pada usia 10 tahun?" (clarol)
 
 Bahkan jika ada Job seperti "+BARRIER SORCERY KING"[2] dan semacamnya, mungkin masih butuh beberapa tahun bagi mereka untuk bisa menggunakan +BARRIER yang menghalangi cahaya. Jika mereka mencoba membuat ulang +BARRIER gadis itu, berapa banyak waktu yang mereka butuhkan?
 
 Jika sihir yang dia kuasai adalah semacam sihir tempur, dia mungkin bisa menghancurkan kota dengan mudah dan itu menakutkan.
 
-carol"Aku masih terus meneliti ini, jadi Aku mungkin bisa mengubahnya menjadi item sihir suatu hari nanti.
-Meskipun ketika saatnya tiba, Aku tetap membutuhkan izinnya."
+"Aku masih terus meneliti ini, jadi Aku mungkin bisa mengubahnya menjadi item sihir suatu hari nanti. Meskipun ketika saatnya tiba, Aku tetap membutuhkan izinnya."(carol)
 
-celia"Untuk berpikir bahwa hari pembatasan penggunaan ruang penelitianmu membuatmu frustrasi ..."
+"Untuk berpikir bahwa hari pembatasan penggunaan ruang penelitianmu membuatmu frustrasi ..." (celia)
 
-carol"Aku tidak keberatan jika Kamu mencabut batasannya lho..."
+"Aku tidak keberatan jika Kamu mencabut batasannya lho..." (carol)
 
-celia"Itu tidak akan terjadi."
+"Itu tidak akan terjadi." (celia)
 
 Aku benar-benar berharap dia akan melakukannya tetapi dia tidak termakan untuk itu.
 
@@ -146,11 +145,11 @@ Dia mungkin berpikir bahwa dia tidak akan bisa menghadapi gadis itu jika dia tid
 
 Menghancurkan hubungan kami dengan gadis itu bukanlah niatku, jadi Aku menahan diri di sini.
 
-carol"Jadi setelah itu, masih ada satu sihir lagi yang Aku dapatkan darinya."
+"Jadi setelah itu, masih ada satu sihir lagi yang Aku dapatkan darinya." (carol)
 
-celia"Pada akhirnya, Aku masih tidak akan bisa menggunakannya, kan?"
+"Pada akhirnya, Aku masih tidak akan bisa menggunakannya, kan?" (celia)
 
-carol"Nah yang ini juga cukup sulit, tapi itu sangat berguna."
+"Nah yang ini juga cukup sulit, tapi itu sangat berguna." (carol)
 
 Dan karena bukti nyata lebih baik daripada debat, Aku mengucapkan mantra dan menghujani Celia dengan udara hangat.
 
@@ -158,16 +157,20 @@ Ya, Aku bermaksud agar hangat tetapi hanya sedikit hangat. Menyesuaikan bagian i
 
 Satu kesalahan saja Aku mungkin akan membakar tenggorokan Celia dan bahkan menyulut rambutnya. Jadi daripada mengambil risiko itu, Aku kira lebih aman membiarkannya dalam keadaan hangat.
 
-celia"Apa ini?"
+"Apa ini?" (celia)
 
-carol"Dia bilang itu sihir untuk mengeringkan rambut. Bagaimanapun juga, rambut akan rusak jika dibiarkan basah. Awalnya, ini sedikit lebih panas, tetapi menyesuaikannya itu sulit. Satu langkah salah dan Aku mungkin tidak sengaja membunuhmu. Ketika dia menggunakan ini, dia mengeringkan rambut panjangnya hanya dalam 10 menit."
+"Dia bilang itu sihir untuk mengeringkan rambut. Bagaimanapun juga, rambut akan rusak jika dibiarkan basah. Awalnya, ini sedikit lebih panas, tetapi menyesuaikannya itu sulit. Satu langkah salah dan Aku mungkin tidak sengaja membunuhmu. Ketika dia menggunakan ini, dia mengeringkan rambut panjangnya hanya dalam 10 menit." (carol)
 
-celia"hey, tidak bisakah kamu mengubahnya menjadi item sihir?"
+"hey, tidak bisakah kamu mengubahnya menjadi item sihir?" (celia)
 
-carol"entahlah. Ia menggunakan sihir api dan angin, jadi cukup sulit untuk membuatnya. Sebaliknya, bukankah lebih baik jika Kamu belajar sihir juga?"
+"entahlah. Ia menggunakan sihir api dan angin, jadi cukup sulit untuk membuatnya. Sebaliknya, bukankah lebih baik jika Kamu belajar sihir juga?" (carol)
 
-celia"Mempertimbangkan bagaimana mungkin ada sihir yang lebih nyaman muncul di masa depan, itu mungkin bukan ide yang buruk ......"
+"Mempertimbangkan bagaimana mungkin ada sihir yang lebih nyaman muncul di masa depan, itu mungkin bukan ide yang buruk ......" (celia)
 
 Sepertinya aku mungkin bisa menyeret Celia ke dalam lubang sihir.
 
 Pada hari itu, Aku mengajarinya banyak hal tentang sihir sehingga dia tidak memiliki waktu tidur yang cukup.
+
+----------------
+
+Ya iyalah mana bisa kalian bandingkan hunter pemula biasa dengan dedek cial yang memiliki ain di tubuhnya. pengalaman ? beuh dari bayi udah make barrier temtu saja pengalamannya setronk.. dan saya setuju menarik celia ke lubang sihir muehehehehehehe....
