@@ -6,13 +6,13 @@ Meskipun Aku pikir itu mungkin bukan hal yang baik, kami sebenarnya tidak punya 
 
 Saat aku memikirkan hal itu, sambil berbaring di tempat tidur - yaaaaah, Ciel yang sebenarnya berbaring - Ciel tiba-tiba bertanya padaku.
 
-ciel[Ain, Kamu tidak terlalu suka berinteraksi dengan orang-orang di kota ini, kan?]
+[Ain, Kamu tidak terlalu suka berinteraksi dengan orang-orang di kota ini, kan?] (ciel)
 
-ain[Aku tidak berencana terlalu banyak berhubungan dengan mereka. Selain itu, Aku ingin membatasi interaksiku dengan orang-orang di negara ini sebanyak mungkin.]
+[Aku tidak berencana terlalu banyak berhubungan dengan mereka. Selain itu, Aku ingin membatasi interaksiku dengan orang-orang di negara ini sebanyak mungkin.] (ain)
 
-ciel[kenapa?]
+[kenapa?] (ciel)
 
-ain[Tujuan kita saat ini adalah meninggalkan negara ini dan itu berarti kita tidak akan akan kembali ke kota ini. Tapi jika kita berinteraksi dengan orang-orang di negara ini lebih dari yang kita butuhkan, kita mungkin akan berubah pikiran untuk pergi. Jika kita memiliki beberapa sentimen yang tersisa tentang negara ini, kita mungkin akhirnya ingin membantu ketika sesuatu terjadi. Jadi Aku melakukan ini untuk mencegah kita merasa seperti itu.]
+[Tujuan kita saat ini adalah meninggalkan negara ini dan itu berarti kita tidak akan akan kembali ke kota ini. Tapi jika kita berinteraksi dengan orang-orang di negara ini lebih dari yang kita butuhkan, kita mungkin akan berubah pikiran untuk pergi. Jika kita memiliki beberapa sentimen yang tersisa tentang negara ini, kita mungkin akhirnya ingin membantu ketika sesuatu terjadi. Jadi Aku melakukan ini untuk mencegah kita merasa seperti itu.] (ain)
 
 Karena itu, Aku tidak tahu berapa tahun yang akan berlalu sebelum Ciel memiliki teman; tapi mengingat keamanan kami, lebih baik kami tidak meninggalkan apapun di negara ini.
 
@@ -20,23 +20,23 @@ Yang bisa Aku lakukan adalah mendukungnya sehingga kami bisa meninggalkan negara
 
 Selama kami cepat keluar dari negara ini, kami harusnya bisa aman bahkan jika berinteraksi dengan lebih banyak orang.
 
-ciel[Meskipun Kamu bilang begitu, Kamu masih akrab dengan beberapa orang lho...]
+[Meskipun Kamu bilang begitu, Kamu masih akrab dengan beberapa orang lho...] (ciel)
 
 Mendengar Ciel terkikik, aku akhirnya menelan kata-kataku.
 
-ain[Aku tidak bisa menahannya. Jika kita tidak bergaul dengan penjaga gerbang, kita akan ditahan setiap hari, dan setelah tinggal di penginapan nya selama lebih dari setengah tahun, itu wajar untuk setidaknya akrab dengan Nilda-san. kalau Celia-san dan Carol-san , mereka bukan dari negara ini, jadi ......]
+[Aku tidak bisa menahannya. Jika kita tidak bergaul dengan penjaga gerbang, kita akan ditahan setiap hari, dan setelah tinggal di penginapan nya selama lebih dari setengah tahun, itu wajar untuk setidaknya akrab dengan Nilda-san. kalau Celia-san dan Carol-san , mereka bukan dari negara ini, jadi ......] (ain)
 
-ciel[Tidak apa-apa, Aku mengerti. Aku hanya ingin sedikit mengganggu Ain. Aku tidak begitu bodoh untuk tidak menyadari kalau Ain menjaga interaksi manusia seminimal mungkin demi Aku...]
+[Tidak apa-apa, Aku mengerti. Aku hanya ingin sedikit mengganggu Ain. Aku tidak begitu bodoh untuk tidak menyadari kalau Ain menjaga interaksi manusia seminimal mungkin demi Aku...] (ciel)
 
 Sepertinya Ciel berhasil mengerjaiku. Aku tidak yakin apakah ini percakapan normal untuk anak seusianya, tapi melihat Ciel bisa tersenyum dan tertawa seperti ini membuatku merasa bahagia.
 
 Akankah dia juga mengatakan sesuatu seperti "Kamu menyebalkan, Ain." Di masa depan? Mungkin itu akan membuatku senang karena melihatnya sebagai tanda pertumbuhan, tetapi Aku mungkin tidak akan bisa menerimanya. Ugh, itu menyedihkan. Membayangkannya saja sudah sangat tak tertahankan.
 
-ciel[Ain, Ain. ada yang salah?]
+[Ain, Ain. ada yang salah?] (ciel)
 
-ciel[Tidak, aku hanya kesal dengan pikiranku yang terlalu imajinatif.]
+[Tidak, aku hanya kesal dengan pikiranku yang terlalu imajinatif.] (ain)
 
-ain[Begitu? yaaah apapun itu, Ain, jaga aku hari ini juga.]
+[Begitu? yaaah apapun itu, Ain, jaga aku hari ini juga.] (ciel)
 
 Ciel dan Aku berganti dan hari kami dimulai lagi seperti biasa.
 
@@ -53,14 +53,14 @@ tapi, mereka tidak melakukan apa pun selain itu. Aku baru saja mencapai guild se
 Aku kira mereka hanya mengamati kami. Tapi untuk apa?
 Agak menakutkan, jadi untuk saat ini, Aku memberi tahu Ciel tentang hal itu.
 
-ain[Sepertinya beberapa orang sedang memantau kita.]
+[Sepertinya beberapa orang sedang memantau kita.] (ain)
 
-ciel[Maksudmu mereka hanya menonton tanpa melakukan apa-apa, kan?]
+[Maksudmu mereka hanya menonton tanpa melakukan apa-apa, kan?] (ciel)
 
-ain[Ya. Sejauh ini mereka tidak menunjukkan tanda-tanda pergerakan lebih lanjut. Mereka mungkin menunggu waktu.
-Aku pikir kami akan baik-baik saja, tapi tolong ingat ini.]
+[Ya. Sejauh ini mereka tidak menunjukkan tanda-tanda pergerakan lebih lanjut. Mereka mungkin menunggu waktu.
+Aku pikir kami akan baik-baik saja, tapi tolong ingat ini.] (ain)
 
-ciel[oke baiklah.]
+[oke baiklah.] (ciel)
 
 Meski aku mengatakan itu, semua akan baik-baik saja selama aku tetap waspada. Tetap saja, jika ada sesuatu yang terjadi di suatu tempat yang tidak Aku sadari, tidak peduli betapa Aku waspada, Aku mungkin tidak dapat mencegahnya.
 
@@ -96,36 +96,36 @@ Permintaan yang dia pilih tanpa izinku - mungkin karena dia berpikir bahwa dia d
 
 Karena diketahui bahwa Pemimpin Goblin dapat mengumpulkan lebih dari 10 orang, menerimanya hanya dengan dua orang sangat sembrono. Selagi aku berpikir bahwa Celia-san mungkin akan mengizinkannya karena aku di sini, sebelum itu terjadi, Brass-kun tiba-tiba mulai mengatakan omong kosong.
 
-brass"Mulai sekarang, kita akan membagi hadiah menjadi tiga."
+"Mulai sekarang, kita akan membagi hadiah menjadi tiga." (brass)
 
-ain"Apa yang kamu bicarakan? Guild mengatakan kepada kita untuk membaginya secara merata, ingat?"
+"Apa yang kamu bicarakan? Guild mengatakan kepada kita untuk membaginya secara merata, ingat?" (ain)
 
-brass"Ya, itulah mengapa kita membicarakannya dengan guild."
+"Ya, itulah mengapa kita membicarakannya dengan guild." (brass)
 
 Aku bertanya-tanya mengapa dia mengatakannya di meja resepsionis tetapi sepertinya dia memiliki cukup otak untuk mempertimbangkan itu.
 
 tapi, ini sama saja dia yang menyeret Celia-san. Padahal bekerja sama dengan Brass-kun sendiri sudah seperti kecelakaan bagiku.
 
-ain"Pertama-tama, mengapa kita harus membagi hadiah menjadi tiga?"
+"Pertama-tama, mengapa kita harus membagi hadiah menjadi tiga?" (ain)
 
-brass"Aku punya adik perempuan tetapi dia sakit dan tidak bisa bekerja dengan baik. Aku butuh uang untuk membeli obatnya, jadi tolong buat menjadi tiga dan beri adikku porsi. Kamu sudah punya uang, kan? seharusnya tidak ada masalah bahkan dengan hadiah yang lebih sedikit, kan?"
+"Aku punya adik perempuan tetapi dia sakit dan tidak bisa bekerja dengan baik. Aku butuh uang untuk membeli obatnya, jadi tolong buat menjadi tiga dan beri adikku porsi. Kamu sudah punya uang, kan? seharusnya tidak ada masalah bahkan dengan hadiah yang lebih sedikit, kan?" (brass)
 
 Jadi alasan mengapa Brass-kun menginginkan uang, adalah demi adik perempuannya.
 
 Mendengar itu, dia mungkin kakak yang pekerja keras tapi jelas bukan nilai tambah baginya dalam situasi ini.
 
-ain"Aku memiliki adik laki-laki yang tidak bisa menggerakkan kakinya karena cedera. Untuk merawatnya, Aku membutuhkan lebih banyak uang daripada yang sudah Aku miliki. Jadi tolong beri Aku dua pertiga dari hadiah permintaan."
+"Aku memiliki adik laki-laki yang tidak bisa menggerakkan kakinya karena cedera. Untuk merawatnya, Aku membutuhkan lebih banyak uang daripada yang sudah Aku miliki. Jadi tolong beri Aku dua pertiga dari hadiah permintaan." (ain)
 
-brass"Jangan berbohong padaku."
+"Jangan berbohong padaku." (brass)
 
-ain"Benar, itu bohong. tapi, Aku bisa mengatakan hal yang sama kepadamu. Bahkan jika itu benar, mengapa Aku bahkan harus bekerja sama denganmu?"
+"Benar, itu bohong. tapi, Aku bisa mengatakan hal yang sama kepadamu. Bahkan jika itu benar, mengapa Aku bahkan harus bekerja sama denganmu?" (ain)
 
-brass"partyku sebelumnya, melakukannya."
+"partyku sebelumnya, melakukannya." (brass)
 
-ain"Kalau begitu tolong bikin party dengan orang-orang itu.
-Setidaknya, adik perempuanmu hanyalah orang asing bagiku. Selain itu, Aku bahkan belum melihatnya. Tidak ada alasan bagiku untuk membantu, kan?"
+"Kalau begitu tolong bikin party dengan orang-orang itu.
+Setidaknya, adik perempuanmu hanyalah orang asing bagiku. Selain itu, Aku bahkan belum melihatnya. Tidak ada alasan bagiku untuk membantu, kan?" (ain)
 
-celia"Guild Hunter bukanlah organisasi amal, jadi kecuali untuk keadaan tertentu, guild tidak mengizinkan ketidaksetaraan semacam ini. Karena itu, apa pun alasannya, hadiah akan dibagi rata di antara Kamu berdua. Secara alami akan ada denda jika uang diambil secara paksa, jadi harap ingat ini."
+"Guild Hunter bukanlah organisasi amal, jadi kecuali untuk keadaan tertentu, guild tidak mengizinkan ketidaksetaraan semacam ini. Karena itu, apa pun alasannya, hadiah akan dibagi rata di antara Kamu berdua. Secara alami akan ada denda jika uang diambil secara paksa, jadi harap ingat ini." (celia)
 
 Dengan dukungan Celia-san, Brass-kun akhirnya menutup mulutnya dan memelototiku.
 
@@ -135,17 +135,17 @@ Misalnya, mungkin mereka sekelompok teman yang berasal dari kampung halaman yang
 
 Tepat tampaknya Brass-kun diam-diam memikirkan sesuatu, dia kemudian memasang wajah sombong seolah-olah dia baru saja memikirkan ide yang bagus.
 
-brass"kalau begitu ayo kita mendasarkan hadiah pada kontribusi terhadap permintaan seperti yang dilakukan Hunter. Aku akan mendapatkan banyak uang karena Aku selalu mengalahkan orang terkuat."
+"kalau begitu ayo kita mendasarkan hadiah pada kontribusi terhadap permintaan seperti yang dilakukan Hunter. Aku akan mendapatkan banyak uang karena Aku selalu mengalahkan orang terkuat." (brass)
 
-ain"Haah ...... Aku tidak mengerti omong kosong 'pria terkuat'mu tetapi Aku tidak masalah dengan mendasarkan distribusi hadiah pada kontribusi kita. Sebagai gantinya, kita akan mempercayakan penjurian kepada guild Hunter. dan Juga, Aku akan melakukan apa yang Aku suka, jadi ingatlah itu."
+"Haah ...... Aku tidak mengerti omong kosong 'pria terkuatmu tetapi Aku tidak masalah dengan mendasarkan distribusi hadiah pada kontribusi kita. Sebagai gantinya, kita akan mempercayakan penjurian kepada guild Hunter. dan Juga, Aku akan melakukan apa yang Aku suka, jadi ingatlah itu." (ain)
 
-celia"Umm, apakah Kamu benar-benar yakin tentang ini?"
+"Umm, apakah Kamu benar-benar yakin tentang ini?" (celia)
 
 Celia-san meminta konfirmasi dari Brass-kun tetapi karena dia sama sekali tidak menyangka akan mendengarnya, dia menjadi terkejut. Lalu dia berkata "Tentu saja." Sebagai balasan.
 
 Dia benar-benar tidak turun dari stratosfer, bukan? Aku harus berhati-hati agar tidak berubah seperti ini di masa depan.
 
-brass"kalau begitu ayo pergi."
+"kalau begitu ayo pergi." (brass)
 
 Tampaknya puas dengan negosiasi kami, Brass-kun keluar dari guild.
 
@@ -153,13 +153,13 @@ Mengikutinya, aku juga meninggalkan guild sambil memikirkan apa yang harus kami 
 
 ◇
 
-ciel[Jadi sekarang apa yang harus Aku lakukan?]
+[Jadi sekarang apa yang harus Aku lakukan?] (ciel)
 
-ain[Tolong bunuh Pemimpin Goblin segera dan setelah itu mari kita tunggu dan lihat apa yang terjadi.]
+[Tolong bunuh Pemimpin Goblin segera dan setelah itu mari kita tunggu dan lihat apa yang terjadi.] (ain)
 
-ciel[Jadi kita lakukan padanya apa yang telah dia lakukan pada kita selama ini. Apakah ini untuk balas dendam?]
+[Jadi kita lakukan padanya apa yang telah dia lakukan pada kita selama ini. Apakah ini untuk balas dendam?] (ciel)
 
-ain[Yah, semacam itu.]
+[Yah, semacam itu.] (ain)
 
 Sekitar satu jam setelah memasuki hutan, Aku sudah merasakan tempat di mana Pemimpin Goblin berada.
 
@@ -177,7 +177,7 @@ Aku berjalan selama beberapa menit. +DETECTION sangat mudah digunakan tetapi jan
 
 Berkat itu, aku bahkan tidak bisa menghitung berapa kali Brass-kun menyumpahiku.
 
-ain"Ada gerombolan yang dipimpin oleh Pemimpin Goblin di sana."
+"Ada gerombolan yang dipimpin oleh Pemimpin Goblin di sana." (ain)
 
 Saat aku menunjuk ke tempat itu, seolah-olah akhirnya gilirannya, Brass-kun segera menyerbu ke arah pemimpinnya.
 
@@ -185,7 +185,7 @@ Tapi sebelum dia bisa mencapainya, Ciel lebih cepat ketika dia mengambil alih tu
 
 Brass-kun berdiri di sana tanpa berkata-kata ketika dia melihat kepala pemimpin goblin melayang di depan matanya, tetapi apakah dia mengerti bahwa dia sedang berdiri di tengah-tengah gerombolan goblin sekarang?
 
-ain"Aku mengalahkan yang terkuat, jadi tolong urus yang lain."
+"Aku mengalahkan yang terkuat, jadi tolong urus yang lain." (ain)
 
 Aku berteriak begitu setelah Ciel bertukar denganku dan Brass-kun akhirnya melakukan sadar kembali.
 
@@ -216,3 +216,9 @@ Kami pergi ke meja resepsionis tetapi Celia-san tidak ada di sana. Sementara kam
 Dengan hadiah yang bergantung pada kontribusinya, Brass-kun mungkin bahkan tidak akan mendapatkan 30% dari hadiah kali ini, jadi aku bisa mengerti dia ingin mengerutkan alisnya.
 
 Saat Celia-san tiba tidak lama setelah itu, Brass-kun berkata sambil berkata "Dia tidak melakukan apa-apa sama sekali."
+
+---------------
+
+Boi boi boi boi boi.... kacau sudah anda brass.. saya sendiri lebih kasihan sama adiknya, si brass rajin kirim surat, sedang sudah common sense di dunia itu kalau kirim surat mahal, kalau brass rajin kirim surat berarti tandanya brass kaya, tapi sampai sekarang ga nyembuhin adiknya, gimana perasaan orang rumah sana ?? dan sungguh terlalu dirimu brass...
+
+dan yap, kalau rumor tentang ain beredar diantara hunter, kok brass masih seperti biasa ? sepertinya tidak peduli saja orangnya.. hadeeh...
