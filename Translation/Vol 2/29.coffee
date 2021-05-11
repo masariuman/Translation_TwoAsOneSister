@@ -41,37 +41,37 @@ Beberapa saat kemudian, Celia-san memasuki ruangan, jadi Aku memberi tahu dia "P
 Setelah menerimanya, Celia-san menjawab dengan "Permisi." Dan memeriksa herb.
 
 "Aku telah memverifikasi barang yang diminta. Tidak ada keraguan bahwa semua ini adalah herb yang ditentukan.
-Sangat bagus Kamu tidak salah mengidentifikasikan ini pada misi pertamamu, Cielmer-san."
+Sangat bagus Kamu tidak salah mengidentifikasikan ini pada misi pertamamu, Cielmer-san." (celia)
 
-a"Terima kasih banyak. Ngomong-ngomong, apakah ini juga herb?"
+"Terima kasih banyak. Ngomong-ngomong, apakah ini juga herb?" (ain)
 
 Mata Celia-san membelalak saat aku menyerahkan tas berisi sampel kecil yang aku kumpulkan. Dia kemudian melihat isi tas untuk memverifikasinya.
 
-"Ya, semuanya pasti herb. Berdasarkan peringkat mereka, ini hanya 1 atau 2 tingkat lebih tinggi dari yang Kamu kumpulkan untuk permintaan itu, jadi ini tidak terlalu mahal, tetap saja ..."
+"Ya, semuanya pasti herb. Berdasarkan rank mereka, ini hanya 1 atau 2 tingkat lebih tinggi dari yang Kamu kumpulkan untuk permintaan itu, jadi ini tidak terlalu mahal, tetap saja ..." (celia)
 
-a"Tolong jangan pikirkan itu, mengetahui bahwa ini adalah herb sudah cukup."
+"Tolong jangan pikirkan itu, mengetahui bahwa ini adalah herb sudah cukup." (ain)
 
 Hanya dengan mengetahui ini, menyelesaikan permintaan mengumpulkan herb akan lebih mudah mulai sekarang.
 
 Juga, Aku harus memberi tahu mereka tentang goblin yang kami kalahkan.
 
-a"Juga, maukah kamu memeriksanya juga?"
+"Juga, maukah kamu memeriksanya juga?" (ain)
 
-"Ini ... bagian bukti goblin dan batu sihir, bukan? Guild pasti menyambut baik barang-barang ini. Tapi seperti yang Aku pikirkan, mungkin yang terbaik bagimu untuk memiliki tas magic, Cielmer-san."
+"Ini ... bagian bukti goblin dan batu sihir, bukan? Guild pasti menyambut baik barang-barang ini. Tapi seperti yang Aku pikirkan, mungkin yang terbaik bagimu untuk memiliki tas sihir, Cielmer-san." (celia)
 
-a"Tas magic?"
+"Tas sihir?" (ain)
 
-"Ini adalah tas yang dapat menyimpan lebih banyak benda daripada yang seharusnya. Dapat dikatakan bahwa tas magic dapat mengabaikan berat objek dan sangat didambakan oleh solo dan Hunter peringkat yang lebih tinggi."
+"Ini adalah tas yang dapat menyimpan lebih banyak benda daripada yang seharusnya. Dapat dikatakan bahwa tas magic dapat mengabaikan berat objek dan sangat didambakan oleh solo dan Hunter peringkat yang lebih tinggi." (celia)
 
-a"Kalau dipikir-pikir, Carol-san juga menggunakannya."
+"Kalau dipikir-pikir, Carol-san juga menggunakannya." (ain)
 
 Jadi saat battleaxe dan hal lainnya tiba-tiba muncul, dia mungkin menggunakan tas magic.
 
 Benar, jika kami punya satu, kami seharusnya bisa membuat kemajuan bagus dengan permintaan penaklukan dan sejenisnya.
 
-a"Aku ingin satu tapi mahal, kan?"
+"Aku ingin satu tapi mahal, kan?" (ain)
 
-"Kecuali Kamu seorang Hunter tingkat tinggi, memiliki satu secara pribadi akan sulit. katanya bahwa hanya job tipe Alkemis yang dapat membuat ini dan karena kelangkaannya, bahkan yang kecil pun akan membutuhkan koin emas untuk membelinya. tapi, selama Kamu memiliki pencapaian yang cukup, dimungkinkan untuk meminjam tas magic dari guild."
+"Kecuali Kamu seorang Hunter tingkat tinggi, memiliki satu secara pribadi akan sulit. katanya bahwa hanya job tipe Alkemis yang dapat membuat ini dan karena kelangkaannya, bahkan yang kecil pun akan membutuhkan koin emas untuk membelinya. tapi, selama Kamu memiliki pencapaian yang cukup, dimungkinkan untuk meminjam tas magic dari guild." (celia)
 
 Celia-san hanya mengatakan sebanyak itu tapi singkatnya, hanya mendapatkan beberapa prestasi, kurasa.
 
@@ -79,37 +79,37 @@ Bagian di mana guild akan meminjamkannya mungkin karena itu perlu dilakukan saat
 
 Meskipun Aku tertarik dengan tas magic, sepertinya Aku tidak bisa melakukan sesuatu untuk itu sekarang, jadi Aku beralih ke masalah utama dan melihat ke Carol-san.
 
-a"Jadi, mengapa Carol-san mengikutiku?"
+"Jadi, mengapa Carol-san mengikutiku?" (ain)
 
-"Benar! Mengapa Kamu mendorong semua masalah itu kepadaku?"
+"Benar! Mengapa Kamu mendorong semua masalah itu kepadaku?" (carol)
 
-Carol-san , yang seharusnya memikirkan sesuatu, segera bereaksi pada kata-kataku dengan ekspresi muak di wajahnya.
+Carol-san, yang seharusnya memikirkan sesuatu, segera bereaksi pada kata-kataku dengan ekspresi muak di wajahnya.
 
 Jangan menjawab satu pertanyaan dengan pertanyaan yang lain... itu yang ingin Aku katakan, tapi Aku tidak benar-benar memiliki hak untuk mengeluh tentang itu, jadi Aku menahan diri dan hanya menjawabnya.
 
-a"Itu karena sepertinya merepotkan. Bahkan jika aku menyelamatkan mereka, aku tidak yakin mereka akan percaya padaku tapi jika Carol-san adalah orang yang menyelamatkan mereka, mereka tidak akan ragu dan aku tidak akan menarik perhatian yang tidak perlu, kan?"
+"Itu karena sepertinya merepotkan. Bahkan jika aku menyelamatkan mereka, aku tidak yakin mereka akan percaya padaku tapi jika Carol-san adalah orang yang menyelamatkan mereka, mereka tidak akan ragu dan aku tidak akan menarik perhatian yang tidak perlu, kan?" (ain)
 
-"Tentu, itu mungkin masalahnya, tetapi hal-hal yang merepotkan masih merepotkan, Kamu tahu?"
+"Tentu, itu mungkin masalahnya, tetapi hal-hal yang merepotkan masih merepotkan, Kamu tahu?" (carol)
 
-a"Jadi, apakah lebih baik jika Aku tidak menyelamatkan mereka?"
+"Jadi, apakah lebih baik jika Aku tidak menyelamatkan mereka?" (ain)
 
-"Aku tidak mengatakan itu. Lagi pula, jika Kamu tidak menyelamatkan mereka, Aku akan melakukannya sebagai gantinya."
+"Aku tidak mengatakan itu. Lagi pula, jika Kamu tidak menyelamatkan mereka, Aku akan melakukannya sebagai gantinya." (carol)
 
 Jadi tidak apa-apa? Tapi kurasa ini tidak mengubah fakta bahwa aku mendorong mereka padanya. Ini seperti bagaimana aku masih menyimpan dendam padanya karena hampir membunuh kami.
 
 Seolah menyerah, Carol-san menghela nafas "Baiklah." Dan mengangkat bahunya.
 
-"Aku mengikutimu karena... semacam inisiasi."
+"Aku mengikutimu karena... semacam inisiasi." (carol)
 
-a"Apa maksudmu?"
+"Apa maksudmu?" (ain)
 
 Karena Aku baru saja mendapat lebih banyak pertanyaan dari jawabannya, Carol-san melirik Celia-san .
 
-"Di masa lalu, untuk orang yang memulai dengan rank-G dan naik rank, dan untuk orang-orang yang memulai dari rank-E juga, ada tingkat kematian yang tinggi bagi mereka yang berada di rank-E. mereka akan terbiasa pergi ke luar kota saat mereka masih di rank-F dan akan menjadi terlalu percaya diri kalau memulai di rank-E; jadi dalam kedua kasus, mereka akhirnya mengabaikan lingkungan mereka. Untuk alasan itu, tes rahasia diadakan untuk setiap Hunter yang baru saja mencapai rank-E."
+"Di masa lalu, untuk orang yang memulai dengan rank-G dan naik rank, dan untuk orang-orang yang memulai dari rank-E juga, ada tingkat kematian yang tinggi bagi mereka yang berada di rank-E. mereka akan terbiasa pergi ke luar kota saat mereka masih di rank-F dan akan menjadi terlalu percaya diri kalau memulai di rank-E; jadi dalam kedua kasus, mereka akhirnya mengabaikan lingkungan mereka. Untuk alasan itu, tes rahasia diadakan untuk setiap Hunter yang baru saja mencapai rank-E." (celia)
 
-a"Jadi, Hunter tingkat atas mengikuti mereka dan melihat apakah mereka benar-benar memperhatikan situasi di luar kota?"
+"Jadi, Hunter tingkat atas mengikuti mereka dan melihat apakah mereka benar-benar memperhatikan situasi di luar kota?" (ain)
 
-"Secara teknis begitu. karena kami meminta Hunter rank-D ke atas, sebenarnya bukan Hunter teratas yang melakukannya, tapi itu memang benar. Jika Hunter yang dimaksud sedang tidak berdaya di luar kota, situasi di mana mereka seharusnya bertindak hati-hati; kemudian sebagai peringatan, Hunter yang mengikuti akan mengejutkan mereka. Jadi, kamu juga diuji, tapi ......"
+"Secara teknis begitu. karena kami meminta Hunter rank-D ke atas, sebenarnya bukan Hunter teratas yang melakukannya, tapi itu memang benar. Jika Hunter yang dimaksud sedang tidak berdaya di luar kota, situasi di mana mereka seharusnya bertindak hati-hati; kemudian sebagai peringatan, Hunter yang mengikuti akan mengejutkan mereka. Jadi, kamu juga diuji, tapi ......" (celia)
 
 Setelah mengatakan itu, Celia-san menoleh ke Carol-san.
 
@@ -117,19 +117,19 @@ Jadi bukan hanya Aku yang mereka awasi, ini adalah guild secara keseluruhan. Tid
 
 Maka dalam kasus itu, tidak perlu menanyai mereka lebih jauh.
 
-"Bahkan Aku tidak berpikir bahwa Aku akan ditemukan semudah itu, Kamu tahu? Kamu juga bisa menggunakan sihir +DETECTION, kan? Tidak heran Kamu menemukanku."
+"Bahkan Aku tidak berpikir bahwa Aku akan ditemukan semudah itu, Kamu tahu? Kamu juga bisa menggunakan sihir +DETECTION, kan? Tidak heran Kamu menemukanku." (carol)
 
-a"Aku tidak dapat menggunakan +DETECTION lho... "
+"Aku tidak dapat menggunakan +DETECTION lho... " (ain)
 
 Meskipun Aku mencoba bermain bodoh, Carol-san berkata "itu sudah pasti." Dan sangat yakin.
 
 Sebenarnya, Aku benar-benar menggunakan +DETECTION tetapi Aku yakin Aku tidak melakukan apa pun yang akan membuatnya terlalu jelas. Tetap saja, dia mungkin tidak tahu kapan Aku menggunakannya. Aku masih menggunakannya sekarang tetapi dia tidak mengatakan apa-apa tentang itu.
 
-"Jika Kamu benar-benar tidak bisa, maka tidak mungkin Kamu dapat mengumpulkan herb secara khusus dan membedakannya seperti itu. Seharusnya tidak mungkin bagi seseorang yang belum pernah keluar sampai saat ini untuk mengetahui hanya dengan melihat."
+"Jika Kamu benar-benar tidak bisa, tidak mungkin Kamu dapat mengumpulkan herb secara khusus dan membedakannya seperti itu. Seharusnya tidak mungkin bagi seseorang yang belum pernah keluar sampai saat ini untuk mengetahui hanya dengan melihat." (carol)
 
-"Jika Aku tidak salah, +DETECTION sulit dilakukan, bukan?"
+"Jika Aku tidak salah, +DETECTION sulit dilakukan, bukan?" (celia)
 
-"Benar, itu sulit. Tidak ada metode yang pasti untuk melakukannya, jadi ini berbeda tergantung pengguna."
+"Benar, itu sulit. Tidak ada metode yang pasti untuk melakukannya, jadi ini berbeda tergantung pengguna." (carol)
 
 Jadi skill pendeteksian sulit, ya? Tapi sebenarnya tidak terasa seperti itu. tapi, jika Aku mengingat dengan benar, tidak ada buku tentang +DETECTION di ruangan itu. Mungkin saja Aku tidak mengetahuinya. yaah Aku tidak membaca setiap buku di sana juga.
 
