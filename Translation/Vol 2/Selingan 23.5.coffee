@@ -16,9 +16,9 @@ Dan setelah aku mendengar suara tenang Ain, semua kegelisahan yang kurasakan ben
 
 Fakta bahwa Aku tidak melihat orang di sekitar meskipun kota itu terlihat sekarang mungkin bisa membantu juga.
 
-a"Seperti yang Aku duga, apakah bertemu pria mengganggumu?"
+[Seperti yang Aku duga, apakah bertemu pria mengganggumu?] (ain)
 
-c"Eh , yah ...... Ya."
+[Eh , yah ...... Ya.] (ciel)
 
 Karena Aku merasa lega dengan kurangnya orang, Ain bertanya demikian tapi... Aku tidak terlalu cemas untuk bertemu dengan laki-laki.
 
@@ -32,9 +32,9 @@ Lagipula, pria itu memang mengajariku informasi yang berkaitan dengan tindakan i
 
 Berkat itu, Aku bisa memahami situasiku sendiri, jadi itu sangat membantu kami. Aku sama sekali tidak senang tentang itu.
 
-a"Aku ingin mengkonfirmasi ini sebelumnya, tetapi jika Kamu harus bertarung di depan orang-orang, apakah Kamu akan baik-baik saja Ciel?"
+[Aku ingin mengkonfirmasi ini sebelumnya, tetapi jika Kamu harus bertarung di depan orang-orang, apakah Kamu akan baik-baik saja Ciel?] (ain)
 
-c"Aku akan baik-baik saja. Selama Aku bersama Ain, tidak ada yang perlu ditakuti. Jika bukan itu masalahnya, maka ketika menghadapi pria itu, Aku tidak punya pilihan lain selain gemetar ketakutan, kan?"
+[Aku akan baik-baik saja. Selama Aku bersama Ain, tidak ada yang perlu ditakuti. Jika bukan itu masalahnya, maka ketika menghadapi pria itu, Aku tidak punya pilihan lain selain gemetar ketakutan, kan?] (ciel)
 
 Aku menjawab kekhawatiran Ain dengan penuh keyakinan. entah itu manusia atau monster, dengan Ain di sisiku, tidak ada yang perlu ditakuti.
 
@@ -55,8 +55,11 @@ Tetap saja, itu adalah sesuatu yang luar biasa lebih tinggi dariku dan aku bahka
 Selain itu, Ain sepertinya juga tidak melihat ini sebagai hal yang buruk, jadi Aku ingin terbuka dengan emosi Aku sendiri.
 
 Setelah itu, sebelum kami sampai di kota, kami berhasil menemukan cara untuk berkomunikasi satu sama lain tanpa berbicara.
+
 Mendengarkan sebenarnya tidak berbeda dari sebelumnya, tetapi berbicara perlu sedikit membiasakan diri.
+
 Karena itu, Aku sekarang dapat berbicara dengan Ain kapan pun Aku mau dan itu benar-benar luar biasa. Lagi pula, jika kita tidak dapat berbicara karena orang-orang di sekitar, mungkin ada situasi di mana kita tidak dapat berbicara sepanjang hari.
+
 Tetap saja, Aku agak sedih karena Aku tidak bisa mendengar suara Ain. Yang Aku maksud dengan suara adalah suara Ain ketika dia menggunakan tubuh Aku, tetapi karena dia memiliki nada yang lebih lembut dari Aku, Aku benar-benar ingin mendengarnya bernyanyi dengan suara seperti itu.
 
 Begitu kami cukup dekat dengan dinding, kami mulai melihat orang-orang jadi Aku bertukar dengan Ain.
@@ -108,15 +111,15 @@ Dan bahkan jika itu benar, Aku tidak benar-benar berniat melakukan apapun tentan
 
 Selama Ain tetap menjadi dirinya sendiri, itu sudah cukup bagiku.
 
-c"Setelah pergi ke guild, apa yang akan kita lakukan hari ini?"
+[Setelah pergi ke guild, apa yang akan kita lakukan hari ini?] (ciel)
 
 Aku bertanya padanya tentang itu sebagai perubahan topik dan kemudian Ain menjawab seolah-olah dia baru saja mengingatnya.
 
-a"Kalau dipikir-pikir, sebenarnya aku tidak membicarakannya. Tergantung pada jam berapa kita meninggalkan guild tapi jika kita masih punya waktu setelah menemukan penginapan, kenapa kita tidak pergi mencarikan pakaian untukmu? Karena sepertinya kita tidak perlu menyembunyikan rambutmu, mengapa kita tidak mengambil kesempatan untuk membuatmu cantik?"
+[Kalau dipikir-pikir, sebenarnya aku tidak membicarakannya. Tergantung pada jam berapa kita meninggalkan guild tapi jika kita masih punya waktu setelah menemukan penginapan, kenapa kita tidak pergi mencarikan pakaian untukmu? Karena sepertinya kita tidak perlu menyembunyikan rambutmu, mengapa kita tidak mengambil kesempatan untuk membuatmu cantik?] (ain)
 
-c"Aku tidak keberatan tetap seperti ini kok..."
+[Aku tidak keberatan tetap seperti ini kok...] (ciel)
 
-a"Itu tidak bagus."
+[Itu tidak bagus.] (ain)
 
 Tidak seperti biasanya bagi Ain, dia langsung menyangkalku bahkan tanpa berhenti untuk berpikir.
 
@@ -212,12 +215,12 @@ Ain tidak perlu merasa bertanggung jawab atas segalanya. Karena jika Ain melakuk
 
 Jadi, karena kami sudah selesai dengan pembicaraan serius, Aku mencoba bertanya kepada Ain tentang sesuatu yang Aku perhatikan saat dia menggunakan tubuh hari ini.
 
-c"Kalau dipikir-pikir, Ain lebih suka dada besar, kan?
-Ukuranku kurang memuaskan ya?"
+[Kalau dipikir-pikir, Ain lebih suka dada besar, kan?
+Ukuranku kurang memuaskan ya?] (ciel)
 
-a"Ummmm , apa maksudmu? Apakah Aku mengatakan sesuatu tentang ini?"
+[Ummmm , apa maksudmu? Apakah Aku mengatakan sesuatu tentang ini?] (ain)
 
-c"Maksudku, ketika Kamu melihat orang dengan dada besar, itu selalu menarik perhatianmu, Ain. Kamu iri dengan itu, kan?"
+[Maksudku, ketika Kamu melihat orang dengan dada besar, itu selalu menarik perhatianmu, Ain. Kamu iri dengan itu, kan?] (ciel)
 
 Sayangnya, pyntaku masih sangat kecil.
 
@@ -225,7 +228,7 @@ Mungkin karena itu, setiap kali Ain melihat wanita dengan dada besar, dia cender
 
 Tetap saja, Aku pikir tinggi badanku yang dekat dengan dada adalah bagian dari alasannya juga.
 
-a"Aku hanya berpikir itu tampak sangat berat. Bukannya Aku tertarik dengan mereka, Aku hanya memiliki kebiasaan melihat hal-hal yang tidak biasa."
+[Aku hanya berpikir itu tampak sangat berat. Bukannya Aku tertarik dengan mereka, Aku hanya memiliki kebiasaan melihat hal-hal yang tidak biasa.] ain
 
 Begitu, Aku ingat Ain melihat orang-orang tinggi juga.
 
@@ -235,21 +238,21 @@ begitu ya. Mungkin Ain pernah mengalami masalah dengan dada yang lebih kecil seb
 
 Apakah Ain seorang gadis? Atau laki-laki? Apapun Ain, Ain akan selalu menjadi Ain.
 
-c"Aku ingin tahu bagaimana Aku bisa membuatnya lebih besar?"
+[Aku ingin tahu bagaimana Aku bisa membuatnya lebih besar?] (ciel)
 
 Untuk saat ini, kembali ke dada. Dan saat aku memikirkannya, sepertinya aku mengatakan itu dengan keras. "Mereka bilang memijatnya membuat mereka lebih besar." Ain menjawab.
 
 Anehnya, sepertinya Aku bisa membuatnya lebih besar dengan cara yang sederhana. ketika Aku akan mencobanya, Ain tiba-tiba menghentikanku.
 
-a"Itu hanya rumor jadi sebaiknya jangan mempercayainya."
+[Itu hanya rumor jadi sebaiknya jangan mempercayainya.] (ain)
 
-c"Apakah kamu pernah mencobanya sebelumnya, Ain?"
+[Apakah kamu pernah mencobanya sebelumnya, Ain?] (ciel)
 
-a"T -tidak ."
+[T -tidak .] (ain)
 
-c"Bagaimana dengan orang-orang di sekitarmu?"
+[Bagaimana dengan orang-orang di sekitarmu?] (ciel)
 
-a"Mereka belum mencobanya juga . Dan bahkan jika mereka melakukannya, Aku belum pernah mendengar mereka mengatakan bahwa mereka melakukannya."
+[Mereka belum mencobanya juga . Dan bahkan jika mereka melakukannya, Aku belum pernah mendengar mereka mengatakan bahwa mereka melakukannya.] (ain)
 
 Untuk beberapa alasan, rasanya Ain tidak ingin Aku mencobanya, tapi itu mungkin hanya imajinasiku.
 
@@ -275,15 +278,15 @@ Aku belum terlalu sering melihat wajahku tetapi jika Ain mengatakan seperti itu,
 
 Tapi, apakah Ain mungkin menyukai penampilanku?
 
-c"Umm , jadi dari sudut pandang Ain, aku cantik, kan?"
+[Umm , jadi dari sudut pandang Ain, aku cantik, kan?] (ciel)
 
-a"Ya. Jika Aku secantik Kamu di kehidupanku sebelumnya, itu akan mengubah hidupku."
+[Ya. Jika Aku secantik Kamu di kehidupanku sebelumnya, itu akan mengubah hidupku.] (ain)
 
-c"Apakah Kamu senang Aku cantik, Ain?"
+[Apakah Kamu senang Aku cantik, Ain?] (ciel)
 
-a"Itu benar. Yah, Aku berharap dapat melihat Kamu menjadi lebih cantik di masa depan dan Aku ingin mencoba mempercantik Kamu sekarang."
+[Itu benar. Yah, Aku berharap dapat melihat Kamu menjadi lebih cantik di masa depan dan Aku ingin mencoba mempercantik Kamu sekarang.] (ain)
 
-c"Begitu, Aku mengerti ......"
+[Begitu, Aku mengerti ......] (ciel)
 
 Aku bisa menganggap ini sebagai pujian, bukan?
 
