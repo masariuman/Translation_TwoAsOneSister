@@ -134,13 +134,13 @@ Hehe ~ Ciel-ku sangat luar biasa, kan? Hanya bercanda.
 
 "Juga, Aku punya satu permintaan lagi, atau lebih tepatnya, satu pertanyaan lagi." (ain)
 
-celia"ada lagi ya, baiklah."
+"ada lagi ya, baiklah." (celia)
 
-ain"Aku hanya ingin bertanya, bahkan jika kkami membentuk party, apakah tidak apa-apa untuk memperlakukannya seperti biasa ?"
+"Aku hanya ingin bertanya, bahkan jika kkami membentuk party, apakah tidak apa-apa untuk memperlakukannya seperti biasa ?" (ain)
 
-celia"Yah tentu saja. Bagaimanapun juga, ini hanyalah tes."
+"Yah tentu saja. Bagaimanapun juga, ini hanyalah tes." (celia)
 
-ain"Kalau begitu, tidak masalah."
+"Kalau begitu, tidak masalah." (ain)
 
 Dengan itu, pekerjaan party kami diputuskan semacam uji coba gratis.(free trial, bukan full version hehe)
 
@@ -158,33 +158,33 @@ Aku yakin dia berpikir Mengapa Aku perlu bermain sebagai babysitter? atau semaca
 
 Lagipula, menilai dari penampilanku, dia mungkin berpikir bahwa aku hanya Hunter rank-G, dan dia sepertinya tidak akan mempercayai kami bahkan jika kami memberitahunya bahwa aku di rank-D. Itulah yang Aku dapat dari ekspresinya.
 
-brass"Jadi, Aku hanya perlu menjaga udang ini, kan?"
+"Jadi, Aku hanya perlu menjaga udang ini, kan?" (brass)
 
-carol"Jika itu definisi Kamu tentang membentuk party, maka tentu saja. Secara alami, Kamu tidak punya hak untuk menolak. Karena Kamu terus berulang kali gagal dalam permintaanmu akhir-akhir ini, jika Kamu menolak sekarang atau tidak dapat bekerja sama, Kamu akan diturunkan menjadi F."
+"Jika itu definisi Kamu tentang membentuk party, maka tentu saja. Secara alami, Kamu tidak punya hak untuk menolak. Karena Kamu terus berulang kali gagal dalam permintaanmu akhir-akhir ini, jika Kamu menolak sekarang atau tidak dapat bekerja sama, Kamu akan diturunkan menjadi F." (carol)
 
-grass" Hmph. "
+"Hmph." (brass)
 
 Mendengar kata-kata Carol-san , Brass-kun dengan penuh kebencian memelototiku. Tidak peduli bagaimana Kamu melihatnya, itu salahnya sendiri.
 
 Mengambil alih dari Carol-san , Celia-san memulai penjelasannya.
 
-celia"Jika Kamu membentuk party dengannya, maka kami dapat mengizinkan Kamu untuk menerima permintaan rank-E dengan tingkat kesulitan tinggi. Dan karena party Kamu diatur oleh guild, apa pun alasannya, hadiahmu akan selalu dibagi rata. Tidak seperti party biasa, jika ada masalah di antara kalian berdua saat kalian berdua tidak mengerjakan permintaan, itu akan dianggap sebagai konflik antar Hunter, jadi mohon diingat."
+"Jika Kamu membentuk party dengannya, maka kami dapat mengizinkan Kamu untuk menerima permintaan rank-E dengan tingkat kesulitan tinggi. Dan karena party Kamu diatur oleh guild, apa pun alasannya, hadiahmu akan selalu dibagi rata. Tidak seperti party biasa, jika ada masalah di antara kalian berdua saat kalian berdua tidak mengerjakan permintaan, itu akan dianggap sebagai konflik antar Hunter, jadi mohon diingat." (celia)
 
-brass"Dan jika dia memberatkanku?"
+"Dan jika dia memberatkanku?" (brass)
 
-carol"Nah, karena kalian berdua adalah Hunter, pada akhirnya itu adalah tanggung jawab diri sendiri."
+"Nah, karena kalian berdua adalah Hunter, pada akhirnya itu adalah tanggung jawab diri sendiri." (carol)
 
-brass"Kalau begitu baiklah, aku mengerti."
+"Kalau begitu baiklah, aku mengerti." (brass)
 
 Dia mungkin bermaksud bahwa dia akan meninggalkan kami jika situasinya buruk. Kami sedang berpikir untuk melakukan hal yang sama, jadi Aku tidak terlalu mempermasalahkannya.
 
 Tetap saja, tidakkah dia mengerti bahwa melakukan sesuatu yang tidak pantas bagi seorang anggota party akan membuatnya diturunkan ranknya?
 
-brass"Lalu Aku akan menerima permintaan ini. Jangan seret aku. Udang."
+"Lalu Aku akan menerima permintaan ini. Jangan seret aku. Udang." (brass)
 
-ain"Permintaan penaklukan Kobold, apakah tidak apa-apa?"
+"Permintaan penaklukan Kobold, apakah tidak apa-apa?" (ain)
 
-brass"dengarkan saja apa yang dikatakan greater swordman, udang."
+"dengarkan saja apa yang dikatakan greater swordman, udang." (brass)
 
 Setelah mengatakan itu, Brass-kun pergi ke meja resepsionis dan kemudian meninggalkan guild.
 
@@ -208,3 +208,6 @@ Aku tahu siapa dia, tapi dia mungkin bahkan tidak tahu siapa Aku. Nah, karena +D
 
 Meskipun sampai pertempuran dimulai, aku akan tetap menjadi orang yang paling memegang kendali.
 
+----------------
+
+BRuh, kenapa anda tega menyatukan si sampah dengan CIEL ??!!! NGGAKK NGAAAK !!!! CIEEL ABAIKAN SAJA AMPAS KUDA INI... ga terima saya 1 party sama ciel... CUIH....
