@@ -1,24 +1,24 @@
 ch 25 : Cerita masa lalu dan reaksi berlebihan
 
-a"jadi, Aku ingin membicarakan latar belakangku sedikit. Tapi, sepertinya entah mengapa Kamu sudah mengetahui masa laluku dari percakapan kita kemarin."
+"jadi, Aku ingin membicarakan latar belakangku sedikit. Tapi, sepertinya entah mengapa Kamu sudah mengetahui masa laluku dari percakapan kita kemarin." (ain)
 
-"Karena mungkin ada beberapa kesalahpahaman dari pihak kami, kami ingin mendengar tentang informasi apa pun yang ingin Kamu bicarakan, terlepas dari sedikitnya itu."
+"Karena mungkin ada beberapa kesalahpahaman dari pihak kami, kami ingin mendengar tentang informasi apa pun yang ingin Kamu bicarakan, terlepas dari sedikitnya itu." (celia)
 
-a"Baiklah. Sebelum mencapai usia 10 tahun dan menerima jobku, Aku berada di tempat bangsawan tertentu."
+"Baiklah. Sebelum mencapai usia 10 tahun dan menerima jobku, Aku berada di tempat bangsawan tertentu." (ain)
 
-"Apakah Kamu tahu nama atau gelar kebangsawanan mereka?"
+"Apakah Kamu tahu nama atau gelar kebangsawanan mereka?" (celia)
 
-a"Mungkin, tetapi karena Aku tidak sepenuhnya yakin tentang itu, dan untuk alasan keamanan juga , Aku ingin menyimpannya untuk diriku sendiri. Jadi ketika Aku berusia 10 tahun, Aku dijual kepada seorang pria yang tampaknya adalah bangsawan lainnya. Kereta yang mengangkutku diserang oleh monster di jalan, dan Aku bisa melarikan diri. karena itulah, pada dasarnya seharusnya tidak ada yang mencariku."
+"Mungkin, tetapi karena Aku tidak sepenuhnya yakin tentang itu, dan untuk alasan keamanan juga , Aku ingin menyimpannya untuk diriku sendiri. Jadi ketika Aku berusia 10 tahun, Aku dijual kepada seorang pria yang tampaknya adalah bangsawan lainnya. Kereta yang mengangkutku diserang oleh monster di jalan, dan Aku bisa melarikan diri. karena itulah, pada dasarnya seharusnya tidak ada yang mencariku." (ain)
 
 Aku tahu bahwa Ciel terlihat sangat tidak biasa, jadi jika nama dan jobnya diketahui dan wajahnya terlihat, dia jelas akan ketahuan. tapi, berdasarkan kepribadian Duke Respelgia, dia mungkin akan memprioritaskan melakukan eksperimen berikutnya daripada peduli pada Ciel, seorang gadis yang dia buang.
 
 Jika lebih banyak orang seperti kami dibuat dalam jumlah yang lebih besar, dunia mungkin akan dalam kekacauan. Tetap saja, Aku tidak berpikir bahwa ini akan terjadi. Jika hal itu mudah dilakukan, maka seharusnya kami sudah dibuang atau dibunuh pada saat Ciel berumur 5 tahun. Aku tidak berpikir dia akan mengulangi eksperimen gagal yang membutuhkan waktu bertahun-tahun untuk menyelesaikannya beberapa kali.
 
-"Kalau begitu, bangsawan yang membelimu sudah mati, kan?"
+"Kalau begitu, bangsawan yang membelimu sudah mati, kan?" (celia)
 
-a"Aah ...... Ya. Ketika Aku melarikan diri, selain monster itu, hanya ada mayat saja di dekatnya. Jadi mereka mungkin tidak berpikir Aku untuk hidup."
+"Aah ...... Ya. Ketika Aku melarikan diri, selain monster itu, hanya ada mayat saja di dekatnya. Jadi mereka mungkin tidak berpikir Aku untuk hidup." (ain)
 
-"Jumlah bangsawan yang hilang atau mati secara misterius tidak banyak, tapi tidak sedikit juga. Oleh karena itu, Aku percaya bahwa kemungkinan Cielmer-san harusnya kecil untuk dikaitkan dengan kasus itu. Dan tergantung pada situasinya, fakta bahwa bangsawan tersebut sudah mati mungkin secara langsung mengarah pada keselamatanmu sendiri."
+"Jumlah bangsawan yang hilang atau mati secara misterius tidak banyak, tapi tidak sedikit juga. Oleh karena itu, Aku percaya bahwa kemungkinan Cielmer-san harusnya kecil untuk dikaitkan dengan kasus itu. Dan tergantung pada situasinya, fakta bahwa bangsawan tersebut sudah mati mungkin secara langsung mengarah pada keselamatanmu sendiri." (celia)
 
 Celia-san menutupi kesalahanku, tapi memiliki orang lain untuk menutupiku terasa sangat rumit.
 
@@ -26,9 +26,9 @@ Bahkan rasanya Aku mungkin baru saja memberi mereka petunjuk yang mengarah langs
 
 Fakta bahwa aku berdoa untuk Duke sangat menyebalkan, tetapi jika guild menemukan keterlibatan Duke Respelgia dan memutuskan untuk melakukan sesuatu tentang hal itu, dia mungkin hanya curiga bahwa kita masih hidup.
 
-"Jadi monster apa saat itu?"
+"Jadi monster apa saat itu?" (carol)
 
-a"Monster itu adalah pemilik batu magic ini. Itu adalah raksasa bermata satu yang memiliki senjata seperti klub besar."
+"Monster itu adalah pemilik batu magic ini. Itu adalah raksasa bermata satu yang memiliki senjata seperti klub besar." (ain)
 
 Aku menunjukkan mereka batu magic. Berdasarkan jumlah energi sihir yang disimpan di dalamnya, Aku curiga ini mungkin jenis batu magic yang sama yang digunakan untuk membuat pil hitam itu, bahkan jika itu benar, Aku tidak dapat berbuat apa-apa sekarang. Akan sangat bagus jika Aku dapat menemukan cara untuk secara langsung menyerap energi sihir dari batu magic tapi karena Aku tidak dapat mengontrol energi sihir yang tidak Aku miliki di luar tubuh Ciel, Aku tidak dapat berbuat apa-apa. Sebaliknya, pil yang disuntikkan ke monster - milik orang lain? - energi sihir ke dalam tubuh mungkin sebenarnya tidak normal.
 
@@ -36,45 +36,45 @@ Menurut Carol-san , itu adalah monster rank B; dan karena aku sudah resmi menang
 
 Sebaliknya, dia bahkan mengangguk pada dirinya sendiri terlihat agak yakin tentang sesuatu. Aku berasumsi ini tentang apa yang dia katakan sebelumnya, tentang bagaimana ini secara langsung dapat mengarah ke-keselamatanku.
 
-"Menilai dari batu magic ini dan uraianmu tentang monster itu, yang menyerangmu pasti seekor cyclop. Itu adalah monster rank B raksasa bermata satu. Dengan asumsi bahwa mereka menyewa, misalnya, pengawal rank C, konfrontasi dengannya akan menyebabkan kehancuran tertentu. bisa dikatakan bahwa orang yang mengurungmu Kamu cukup siap."
+"Menilai dari batu magic ini dan uraianmu tentang monster itu, yang menyerangmu pasti seekor cyclop. Itu adalah monster rank B raksasa bermata satu. Dengan asumsi bahwa mereka menyewa, misalnya, pengawal rank C, konfrontasi dengannya akan menyebabkan kehancuran tertentu. bisa dikatakan bahwa orang yang mengurungmu cukup siap." (celia)
 
-a"Jadi menurutmu bangsawan yang mengurungku mengatur ini juga, kan? Atau lebih tepatnya, apakah sebenarnya ada cara untuk mengendalikan monster?"
+"Jadi menurutmu bangsawan yang mengurungku mengatur ini juga, kan? Atau lebih tepatnya, apakah sebenarnya ada cara untuk mengendalikan monster?" (ain)
 
-"Seharusnya tidak ada, itulah yang ingin Aku katakan. Pada kenyataannya, Job untuk menjinakkan monster rank rendah telah ditemukan, jadi tidak aneh jika ada Job yang bisa mengendalikan monster rank tinggi. Selain itu, jika bangsawan telah mendirikan tempat tinggal di hutan tempat monster rank B dapat ditemukan, tergantung pada metode mereka, mereka seharusnya dapat dengan mudah menggunakannya."
+"Seharusnya tidak ada, itulah yang ingin Aku katakan. Pada kenyataannya, Job untuk menjinakkan monster rank rendah telah ditemukan, jadi tidak aneh jika ada Job yang bisa mengendalikan monster rank tinggi. Selain itu, jika bangsawan telah mendirikan tempat tinggal di hutan tempat monster rank B dapat ditemukan, tergantung pada metode mereka, mereka seharusnya dapat dengan mudah menggunakannya." (celia)
 
 Aku berasumsi bahwa para cyclop baru saja terpikat oleh laguku, dan itu mungkin benar-benar terjadi, tetapi bahkan tanpa laguku, para cyclop akan tetap menyerang kereta kuda.
 
 Dan karena hasilnya akan sama, kurasa apa yang sebenarnya terjadi tidak terlalu penting bagi duke dan aku.
 
-"apa yang terjadi dengan tubuh monster itu?"
+"apa yang terjadi dengan tubuh monster itu?" (carol)
 
-a"Setelah mendapatkan batu magicnya, Aku membakarnya dan menguburnya."
+"Setelah mendapatkan batu magicnya, Aku membakarnya dan menguburnya." (ain)
 
-"pengetahuanmu sungguh cukup luas untuk situasi seperti ini, Kamu tahu itu?"
+"pengetahuanmu sungguh cukup luas untuk situasi seperti ini, Kamu tahu itu?" (carol)
 
 Ketika Aku bertanya pada Carol, yang bergabung dalam percakapan, "Apakah caraku menanganinya salah?" Dia menggelengkan kepalanya sebagai jawaban.
 
-"Masalahnya di sini adalah karena sebenarnya tidak salah. Dari apa yang baru saja Kamu katakan, Kamu dikurung selama 10 tahun, jadi fakta bahwa Kamu tahu cara menangani situasi dengan benar itu konyol."
+"Masalahnya di sini adalah karena sebenarnya tidak salah. Dari apa yang baru saja Kamu katakan, Kamu dikurung selama 10 tahun, jadi fakta bahwa Kamu tahu cara menangani situasi dengan benar itu tidak masuk akal." (carol)
 
-a"Sejak Aku menjadi 5 tahun, mereka mungkin ingin memanfaatkanku, jadi Aku disimpan di ruangan yang penuh dengan buku. Semua yang Aku tahu berasal dari buku-buku itu."
+"Sejak Aku menjadi 5 tahun, mereka mungkin ingin memanfaatkanku, jadi Aku disimpan di ruangan yang penuh dengan buku. Semua yang Aku tahu berasal dari buku-buku itu." (ain)
 
-"Jadi maksudmu pengetahuanmu tentang sihir berasal dari sana juga, kan?"
+"Jadi maksudmu pengetahuanmu tentang sihir berasal dari sana juga, kan?" (carol)
 
-a"Itu semua dari buku dan juga dari pengalamanku sendiri."
+"Itu semua dari buku dan juga dari pengalamanku sendiri." (ain)
 
-"Sebaliknya, dengan tingkat sihirmu, Aku tidak percaya kamu dijual."
+"Sebaliknya, dengan tingkat sihirmu, Aku tidak percaya kamu dijual." (carol)
 
-a"Itu karena aku berpura-pura tidak bisa menggunakan sihir. Selain mengurungku sehingga Aku tidak bisa melarikan diri, Aku biasanya dibiarkan sendirian."
+"Itu karena aku berpura-pura tidak bisa menggunakan sihir. Selain mengurungku sehingga Aku tidak bisa melarikan diri, Aku biasanya dibiarkan sendirian." (ain)
 
 Karena dia seorang duke, dia mungkin tidak bisa tinggal sepanjang hari, jadi dia mungkin tidak punya banyak waktu untuk dihabiskan untukku.
 
 Dalam hal ini, Aku sangat bersyukur atas lingkungan seperti itu.
 
-"Dengan kata lain, sihirmu sudah berada pada level ini pada saat Kamu menerima jobmu, kan?"
+"Dengan kata lain, sihirmu sudah berada pada level ini pada saat Kamu menerima jobmu, kan?" (carol)
 
-a"Itu hanya beberapa hari sejak itu terjadi."
+"Itu hanya beberapa hari sejak itu terjadi." (ain)
 
-"Jadi, job apa yang Kamu dapatkan?"
+"Jadi, job apa yang Kamu dapatkan?" (carol)
 
 Jika Aku ingat dengan benar, pertanyaan Carol-san saat ini seharusnya relatif bermasalah.
 
@@ -92,13 +92,13 @@ Namun, Aku adalah anak dari para putri yang mengecewakan. Saat ini, Aku tidak ta
 
 Tetap saja, dengan memberi tahu orang-orang yang selama ini baik hati dan peduli kepadaku, aku seharusnya bisa mengetahui betapa dibencinya Job Song Princess itu. Dalam skenario terburuk, kami akan dipaksa untuk melarikan diri jadi... apa yang harus dilakukan.
 
-a"Aku ingin memberi tahu mereka kalau Aku adalah song princess, tetapi apakah tidak apa-apa?"
+[Aku ingin memberi tahu mereka kalau Aku adalah song princess, tetapi apakah tidak apa-apa?] (ain)
 
-c"song princess? Meskipun mereka tahu Ain sebagai Cielmer?"
+[song princess? Meskipun mereka tahu Ain sebagai Cielmer?] (ciel)
 
-a"Itu karena jika orang tahu Ciel sebagai song princess, kita akan bisa menipu sang duke karena dia hanya tahu bahwa kamu adalah dance princess. Begitu kita mencapai peringkat B dan menjadi terkenal, jika kebetulan duke mendengar dance princess bernama Cielmer, dia benar-benar akan menyadari bahwa itu kamu."
+[Itu karena jika orang tahu Ciel sebagai song princess, kita akan bisa menipu duke karena dia hanya tahu bahwa kamu adalah dance princess. Begitu kita mencapai rank B dan menjadi terkenal, jika kebetulan duke mendengar dance princess bernama Cielmer, dia benar-benar akan menyadari bahwa itu kamu.] (ain)
 
-c"Begitu. dalam situasi terburuk, kita bisa kabur begitu saja. Ketika itu terjadi, ayo kita bersembunyi jauh di dalam hutan di suatu tempat, oke?"
+[Begitu. dalam situasi terburuk, kita bisa kabur begitu saja. Ketika itu terjadi, ayo kita bersembunyi jauh di dalam hutan di suatu tempat, oke?] (ciel)
 
 Aku mendapat izin Ciel, tetapi Aku bertanya-tanya mengapa Ciel terdengar sangat senang tentang itu.
 
@@ -106,19 +106,19 @@ Keberadaannya yang optimis pasti membuatku merasa tidak terlalu tegang, jadi aku
 
 Aku tidak tahu bagaimana mereka melihatku karena Aku terdiam sebentar saat berdiskusi dengan Ciel, tetapi karena yang mereka tanyakan adalah hal itu, mereka pasti mengira bahwa jobku sulit untuk diungkapkan. Padahal, kami baru saja membuat keputusan untuk mengatakannya.
 
-a"Aku seorang song princess."
+"Aku seorang song princess." (ain)
 
-"...... Untuk berpikir bahwa itu adalah song princess..."
+"...... Untuk berpikir bahwa itu adalah song princess..." (carol)
 
-a"Apakah ada masalah dengan itu?"
+"Apakah ada masalah dengan itu?" (ain)
 
-"Guild sendiri tidak memiliki masalah dengan itu. tapi, dalam hal apabila ini tersebar, kami tidak dapat menjamin bahwa kami dapat melindungimu."
+"Guild sendiri tidak memiliki masalah dengan itu. tapi, dalam hal apabila ini tersebar, kami tidak dapat menjamin bahwa kami dapat melindungimu." (celia)
 
-a"Jadi dengan kata lain, tidak apa-apa selama tidak terungkap, kan?"
+"Jadi dengan kata lain, tidak apa-apa selama tidak terungkap, kan?" (ain)
 
-"Itu benar. Jadi tolong, cobalah menahan diri untuk tidak menceritakan hal ini kepada orang lain."
+"Itu benar. Jadi tolong, cobalah menahan diri untuk tidak menceritakan hal ini kepada orang lain." (celia)
 
-a"Mungkin lebih baik untuk berpikir bahwa Aku tidak akan bisa tinggal di kota ini jika Aku ketahuan."
+"Mungkin lebih baik untuk berpikir bahwa Aku tidak akan bisa tinggal di kota ini jika Aku ketahuan." (ain)
 
 Setelah dengan santai mengatakannya, Celia-san dengan tenang mengangguk setuju.
 
