@@ -2,7 +2,7 @@ CHAPTER 37: ASSISTANCE, WATER SORCERY, AND A NEW POWER
 
 Pada hari kami dijadwalkan untuk membantu Perla-san dan partynya, Aku akhirnya datang ke guild pada saat ada banyak orang, sebuah kebiasaan yang Aku dapatkan dari bekerja bersama dengan Brass-kun.
 
-ciel [Bahkan dengan pihak sebelumnya, Aku tidak terlalu berpikir kalau aku perlu untuk datang lebih awal.]
+[Bahkan dengan pihak sebelumnya, Aku tidak terlalu berpikir kalau aku perlu untuk datang lebih awal.] (ciel)
 
 ain [waktu itu, Aku melakukannya agar Brass-kun tidak mengeluh kita datang terlambat. Jika kita bahkan terlambat sedikit saja, dia mungkin akan menggunakan itu sebagai alasan untuk mengeluh sepanjang hari.]
 

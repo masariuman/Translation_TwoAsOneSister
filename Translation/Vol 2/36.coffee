@@ -1,10 +1,10 @@
 CHAPTER 36: LESSON, SORCERY, AND JOBS
 
-ain"Jadi, dalam menggunakan sihir, kontrol selalu penting dan fondasi untuk kontrol itu adalah sirkulasi energi sihir."
+"Jadi, dalam menggunakan sihir, kontrol selalu penting dan fondasi untuk kontrol itu adalah sirkulasi energi sihir." (ain)
 
-carol"Ya, tetapi Kamu tidak dapat menggunakan sihir yang kuat hanya dengan sirkulasi kekuatan sihir."
+"Ya, tetapi Kamu tidak dapat menggunakan sihir yang kuat hanya dengan sirkulasi kekuatan sihir." (carol)
 
-ain"pada dasarnya, dalam dalam kasus sihir atribut air, hanya ada beberapa mantra yang dikhususkan untuk pertempuran. Selain itu, memiliki sirkulasi yang baik akan meningkatkan total sirkuit energi sihirmu, memungkinkan penggunaan sihir yang kuat. Secara alami, sirkulasi energi sihir bukanlah segalanya, tetapi ketika dua orang menggunakan mantra yang sama, orang yang memiliki kendali lebih baik akan lebih kuat."
+"pada dasarnya, dalam dalam kasus sihir atribut air, hanya ada beberapa mantra yang dikhususkan untuk pertempuran. Selain itu, memiliki sirkulasi yang baik akan meningkatkan total sirkuit energi sihirmu, memungkinkan penggunaan sihir yang kuat. Secara alami, sirkulasi energi sihir bukanlah segalanya, tetapi ketika dua orang menggunakan mantra yang sama, orang yang memiliki kendali lebih baik akan lebih kuat." (ain)
 
 Saat Aku mengajar Perla-san, salah satu anggota dari tiga orang party, Carol-san bergumam "Kamu mengajar dengan sangat baik." Sebagai pujian.
 
@@ -26,9 +26,9 @@ Mereka menghormatiku sejak awal, meskipun sebagian tampaknya karena Carol-san me
 
 Mereka kemudian meminta maaf tentang apa yang terjadi dengannya. Sepertinya mereka adalah teman dari desa yang sama. Setelah menerima jobnya, Brass-kun mulai menjadi sombong, dan mengarahkan dirinya sendiri langsung menuju stratosfer.
 
-ain"Apa peranmu biasanya di party, Perla-san ?"
+"Apa peranmu biasanya di party, Perla-san ?" (ain)
 
-perla"Umm , ketika di luar pertempuran, Aku membuat air minum dan mencuci percikan darah. Selama pertarungan, Aku menembakkan bola air tetapi itu hanya cukup untuk menghentikan monster bergerak, Aku tidak bisa mengalahkan mereka. Aku tidak bisa menggunakan sihir es juga, Aku hanya beban."
+"Umm , ketika di luar pertempuran, Aku membuat air minum dan mencuci percikan darah. Selama pertarungan, Aku menembakkan bola air tetapi itu hanya cukup untuk menghentikan monster bergerak, Aku tidak bisa mengalahkan mereka. Aku tidak bisa menggunakan sihir es juga, Aku hanya beban." (perla)
 
 Mengesampingkan Perla-san yang sekarang tertekan , Aku merenung sebentar.
 
@@ -42,25 +42,25 @@ Apa yang bisa dia lakukan terbatas. Tapi tetap saja, dia setidaknya harus bisa m
 
 Dia sudah melakukan bagiannya dengan baik di luar pertarungan, tapi kurasa Brass-kun mungkin telah memaksa mentalitas "Hunter hebat"-nya sama dengan mentalitas "Orang yang mengalahkan monster yang lebih kuat" pada mereka.
 
-ain"Ketika penyihir bertarung, menurutmu apa yang penting?"
+"Ketika penyihir bertarung, menurutmu apa yang penting?" (ain)
 
-perla"Kekuatan ofensif tinggi... dan ...... kendali sihir?"
+"Kekuatan ofensif tinggi... dan ...... kendali sihir?" (perla)
 
-ain"Menurut pendapatku, yang terpenting adalah pengamatan."
+"Menurut pendapatku, yang terpenting adalah pengamatan." (ain)
 
 Meskipun bagus dia mengingat diskusi tentang kontrol, Aku pikir kesadaran itu penting bagi penyihir.
 
 Ini tidak benar-benar terbatas pada penyihir tetapi penjaga belakang harus memiliki gambaran lengkap tentang apa yang terjadi. Terutama dalam kasus individu yang bergerak sendirian. Jika mereka tidak mengamati sekelilingnya, mereka bisa mati begitu saja.
 
-ain"Aku biasanya bertindak sendiri, jadi Aku tidak tahu banyak tentang bagaimana bertindak dalam sebuah party tetapi tidak peduli seberapa kuat manteramu, tidak ada gunanya jika Kamu mengenai temanmu, kan? Untuk memastikan itu tidak terjadi, Kamu harus mempertimbangkan di mana temanmu berada, di mana musuh terkonsentrasi, dan di mana akan baik untuk melepaskan manteramu."
+"Aku biasanya bertindak sendiri, jadi Aku tidak tahu banyak tentang bagaimana bertindak dalam sebuah party tetapi tidak peduli seberapa kuat manteramu, tidak ada gunanya jika Kamu mengenai temanmu, kan? Untuk memastikan itu tidak terjadi, Kamu harus mempertimbangkan di mana temanmu berada, di mana musuh terkonsentrasi, dan di mana akan baik untuk melepaskan manteramu." (ain)
 
-perla"Jadi untuk menyadarinya, Aku harus mengamati, kan?"
+"Jadi untuk menyadarinya, Aku harus mengamati, kan?" (perla)
 
-ain"Jika orang dapat melakukannya hanya setelah disuruh, itu tidak akan dianggap sebagai hal yang sulit. tapi, jika itu hanya tentang menghentikan dan mengganggu musuh, mantra yang kuat dan rumit tidak diperlukan. Lagipula, hanya membuat genangan air di dekat kaki lawan sudah cukup untuk menghalangi gerakan mereka dan hanya menyerang mata mereka dengan percikan air saja sudah cukup untuk membuat mereka lengah. Untuk melakukan ini dengan terampil, mengamati sangat penting."
+"Jika orang dapat melakukannya hanya setelah disuruh, itu tidak akan dianggap sebagai hal yang sulit. tapi, jika itu hanya tentang menghentikan dan mengganggu musuh, mantra yang kuat dan rumit tidak diperlukan. Lagipula, hanya membuat genangan air di dekat kaki lawan sudah cukup untuk menghalangi gerakan mereka dan hanya menyerang mata mereka dengan percikan air saja sudah cukup untuk membuat mereka lengah. Untuk melakukan ini dengan terampil, mengamati sangat penting." (ain)
 
-perla"Jadi dengan kata lain, Aku harus fokus sepenuhnya pada dukungan?"
+"Jadi dengan kata lain, Aku harus fokus sepenuhnya pada dukungan?" (perla)
 
-ain"Ya. itu Menurutku, melakukannya harusnya lebih mudah. tapi, Aku yakin partymu memiliki jalannya sendiri, jadi tolong diskusikan bersama mereka. Bahkan jika Kamu mengubah metodemu, itu tidak akan segera berjalan dengan baik."
+"Ya. itu Menurutku, melakukannya harusnya lebih mudah. tapi, Aku yakin partymu memiliki jalannya sendiri, jadi tolong diskusikan bersama mereka. Bahkan jika Kamu mengubah metodemu, itu tidak akan segera berjalan dengan baik." (ain)
 
 Dengan pelajaran kami berakhir di sini, Aku mengumumkan "Itu saja dariku." Saat Aku bertepuk tangan dua kali.
 
@@ -74,38 +74,37 @@ Tanpa ide yang jelas tentang apa yang Aku lakukan, Aku belajar +DETECTION dan +B
 
 Di sisi lain, Aku pikir Ciel memiliki cara belajar yang sepenuhnya ortodoks. tapi, fundamentalnya berasal dari rak buku keluarga Respelgia, jadi mungkin sangat tidak konvensional. Bagian di mana energi sihir berada pada jiwa sudah berbeda dari persepsi umum.
 
-carol"Apakah itu benar-benar cukup?"
+"Apakah itu benar-benar cukup?" (carol)
 
-ain"Dasar-dasarnya itu penting. Terlebih lagi jika Kamu awalnya tidak bisa menggunakan sihir."
+"Dasar-dasarnya itu penting. Terlebih lagi jika Kamu awalnya tidak bisa menggunakan sihir." (ain)
 
-carol"Yah, sudah cukup sih. Kamu sama sekali tidak mengatakan sesuatu yang salah. Kebetulan, bisakah Kamu mengajariku sesuatu juga?"
+"Yah, sudah cukup sih. Kamu sama sekali tidak mengatakan sesuatu yang salah. Kebetulan, bisakah Kamu mengajariku sesuatu juga?" (carol)
 
-ain"Mengapa Aku harus mengajarimu?"
+"Mengapa Aku harus mengajarimu?" (ain)
 
-carol"Apakah ada yang Kamu inginkan?"
+"Apakah ada yang Kamu inginkan?" (carol)
 
-ain"Aku ingin kualifikasi Hunter rank-B."
+"Aku ingin kualifikasi Hunter rank-B." (ain)
 
-carol"Bisakah Kamu membuatnya menjadi sesuatu yang mungkin bagiku? Celia bertanggung jawab atas hal-hal semacam itu."
+"Bisakah Kamu membuatnya menjadi sesuatu yang mungkin bagiku? Celia bertanggung jawab atas hal-hal semacam itu." (carol)
 
-carol"Kalau begitu, tas sihir saja. Yang kecil sudah cukup."
+"Kalau begitu, tas sihir saja. Yang kecil sudah cukup." (ain)
 
-carol"Oh, kalau itu aku bisa. Bagaimana kalau yang ini?"
+"Oh, kalau itu aku bisa. Bagaimana kalau yang ini?" (carol)
 
 Setelah terkejut, dia mengeluarkan kantong berukuran kecil, yang sedikit lebih besar dari tangan Ciel, dan meletakkannya di atas meja.
 
 Menakutkan betapa mulusnya percakapan ini, tetapi jika Aku bisa mendapatkannya, Aku benar-benar akan melakukannya.
 
-ain"tas sihir mahal, kan?"
+"tas sihir mahal, kan?" (ain)
 
-carol"Yah, memang mahal. Tapi yang ini tidak mahal.
-Ini dibuat oleh perajin barang kenalanku untuk latihan. yaah tidak ada harganya, tetapi karena Kamu hanya bisa mendapatkannya jika Kamu kenal dengan seorang perajin barang, Aku kira itu akan cukup sulit didapat."
+"Yah, memang mahal. Tapi yang ini tidak mahal. Ini dibuat oleh perajin barang kenalanku untuk latihan. yaah tidak ada harganya, tetapi karena Kamu hanya bisa mendapatkannya jika Kamu kenal dengan seorang perajin barang, Aku kira itu akan cukup sulit didapat." (carol)
 
-ain"Ini, daya tampungnya bagaimana?"
+"Ini, daya tampungnya bagaimana?" (ain)
 
-carol"Sebesar tas bahu hunter. Jika Kamu menggunakan sebagai ganti dompet, seharusnya tidak ada masalah, kan?"
+"Sebesar tas bahu hunter. Jika Kamu menggunakan sebagai ganti dompet, seharusnya tidak ada masalah, kan?" (carol)
 
-ain"Aku pikir ini sudah terlalu banyak, tetapi jika Kamu memberikannya maka Aku akan memilikinya setelah kita selesai."
+"Aku pikir ini sudah terlalu banyak, tetapi jika Kamu memberikannya maka Aku akan memilikinya setelah kita selesai." (ain)
 
 Dengan negosiasi selesai, saatnya memikirkan apa yang harus Aku bicarakan.
 
@@ -115,36 +114,35 @@ Sebaliknya, karena Carol-san suka melakukan penelitian, dia mungkin akan jauh le
 
 Kalau begitu, karena Perla-san juga ada di sini sebelumnya, mungkin aku harus berbicara tentang job dan energi sihir. Selain itu, ada sesuatu yang membuatku penasaran.
 
-ain"Sebelum kita berdiskusi, Aku ingin mengkonfirmasi sesuatu tentang persepsi umum. Carol-san , apa kamu tahu dari mana energi sihir itu berasal?"
+"Sebelum kita berdiskusi, Aku ingin mengkonfirmasi sesuatu tentang persepsi umum. Carol-san , apa kamu tahu dari mana energi sihir itu berasal?" (ain)
 
-carol" ...... Hanya dari pembukaan ini, aku sudah merasa ini akan menghancurkan komunitas sihir. Yah, bagaimanapun juga, yang biasanya dikatakan adalah bahwa energi sihir mengalir dari jantung. tapi, karena ada orang yang sedikit tidak tahu di mana jantungnya berada, teori terbaru adalah bahwa itu dari sesuatu yang mengendalikan energi sihir di suatu tempat di dalam tubuh."
+" ...... Hanya dari pembukaan ini, aku sudah merasa ini akan menghancurkan komunitas sihir. Yah, bagaimanapun juga, yang biasanya dikatakan adalah bahwa energi sihir mengalir dari jantung. tapi, karena ada orang yang sedikit tidak tahu di mana jantungnya berada, teori terbaru adalah bahwa itu dari sesuatu yang mengendalikan energi sihir di suatu tempat di dalam tubuh." (carol)
 
 Seperti yang Aku duga, itulah yang dianggap sebagai pengetahuan umum.
 
 Jika tidak, maka informasi yang akan Aku katakan tidak akan berharga dan Aku tidak akan mendapatkan tas sihir, jadi ini bagus.
 
-ain"itu, sebenarnya itu berasal dari jiwa."
+"itu, sebenarnya itu berasal dari jiwa." (ain)
 
-carol"Kamu terdengar sangat percaya diri mengatakan itu. Biasanya tidak ada yang akan percaya jika Kamu mengatakan sesuatu yang tidak masuk akal, Kamu tahu?"
+"Kamu terdengar sangat percaya diri mengatakan itu. Biasanya tidak ada yang akan percaya jika Kamu mengatakan sesuatu yang tidak masuk akal, Kamu tahu?" (carol)
 
-ain"Aku akan mengatakan bahwa Kamu dan Aku mungkin bukan bagian dari "normal" itu. Dan tentang mengapa Aku sangat yakin tentang itu, yang bisa Aku katakan adalah bahwa Aku sendiri memiliki pengalaman seperti itu."
+"Aku akan mengatakan bahwa Kamu dan Aku mungkin bukan bagian dari "normal" itu. Dan tentang mengapa Aku sangat yakin tentang itu, yang bisa Aku katakan adalah bahwa Aku sendiri memiliki pengalaman seperti itu." (ain)
 
-carol"Aku tidak akan bertanya kepadamu pengalaman seperti apa itu. Aku merasa, jika Aku melakukannya, Aku akan memiliki lebih banyak pekerjaan yang harus dilakukan. tapi, Aku tahu kau tidak berbohong. Paling tidak, kamu tidak perlu mengatakan kebohongan yang tidak berguna."
+"Aku tidak akan bertanya kepadamu pengalaman seperti apa itu. Aku merasa, jika Aku melakukannya, Aku akan memiliki lebih banyak pekerjaan yang harus dilakukan. tapi, Aku tahu kau tidak berbohong. Paling tidak, kamu tidak perlu mengatakan kebohongan yang tidak berguna." (carol)
 
-ain"kalau aku sangat membencimu, aku mungkin bisa membuat satu atau dua kebohongan. itu mungkin akan mencuri banyak waktumu."
+"kalau aku sangat membencimu, aku mungkin bisa membuat satu atau dua kebohongan. itu mungkin akan mencuri banyak waktumu." (ain)
 
-carol"Jika setelah memberi tahuku sebanyak ini apa yang Kamu katakan sebenarnya tidak benar, Aku akan kagum."
+"Jika setelah memberi tahuku sebanyak ini apa yang Kamu katakan sebenarnya tidak benar, Aku akan kagum." (carol)
 
 Mengatakan demikian, mata Carol-san berbinar kegirangan.
 
 Dari sudut pandangku, karena seseorang masih bisa menggunakan sihir secara normal bahkan jika energi sihir itu berasal dari tempat yang salah, kurasa ini tidak akan berdampak besar. Ya, tentu, Aku sadar bahwa ini akan berdampak besar, tetapi dari percakapan kami saat ini, tidak akan terlihat seperti itu.
 
-carol"Oh. Terlepas dari mengalami terobosan ini sendiri, Kamu tidak benar-benar memiliki banyak reaksi."
+"Oh. Terlepas dari mengalami terobosan ini sendiri, Kamu tidak benar-benar memiliki banyak reaksi." (carol)
 
-ain"Nah, menurutku tidak ada yang akan berubah sama sekali.
-Apakah itu benar-benar sesuatu yang membuatmu bersemangat?"
+"Nah, menurutku tidak ada yang akan berubah sama sekali. Apakah itu benar-benar sesuatu yang membuatmu bersemangat?" (ain)
 
-carol"Apa yang kamu bicarakan? Selama Kamu tahu dari mana energi sihir berasal, mungkin saja Kamu bisa mengeluarkan lebih banyak kekuatan sihir, Kamu tahu? Dalam hal itu, setidaknya bisa saja meningkatkan kekuatan serangan secara langsung."
+"Apa yang kamu bicarakan? Selama Kamu tahu dari mana energi sihir berasal, mungkin saja Kamu bisa mengeluarkan lebih banyak kekuatan sihir, Kamu tahu? Dalam hal itu, setidaknya bisa saja meningkatkan kekuatan serangan secara langsung." (carol)
 
 Aku kewalahan oleh kegembiraan Carol-san.
 
@@ -154,58 +152,62 @@ jika Carol-san senang karena itu, baguslah. Sekarang kami bisa memiliki tas sihi
 
 Tetap saja, Aku agak khawatir tentang kegembiraan murni Carol-san.
 
-ain"Aku senang Kamu terlihat senang tentang itu tetapi harap diingat bahwa informasi ini berasal dari individu yang melahirkan makhluk sepertiku."
+"Aku senang Kamu terlihat senang tentang itu tetapi harap diingat bahwa informasi ini berasal dari individu yang melahirkan makhluk sepertiku." (ain)
 
-carol"Itu benar."
+"Itu benar." (carol)
 
 Melihat Carol-san menjadi tenang dalam sekejap memang agak menakutkan.
 
 kenapa dia tidak memiliki ketenangan ini selama pertandingan formal kami?
 
-carol"Sebenarnya, tidak apa-apa memberitahuku tentang ini?"
+"Sebenarnya, tidak apa-apa memberitahuku tentang ini?" (carol)
 
-ain"Sudah ada bangsawan yang tahu tentang ini. Bahkan jika Aku tidak memberi tahumu, orang lain mungkin menemukannya dan menyebarkan informasi ini suatu hari nanti. Kamu bahkan mungkin menemukannya sendiri. Jadi dalam hal ini, bukankah lebih aman jika Aku memberitahu dan memperingatkanmu tentang hal itu?"
+"Sudah ada bangsawan yang tahu tentang ini. Bahkan jika Aku tidak memberi tahumu, orang lain mungkin menemukannya dan menyebarkan informasi ini suatu hari nanti. Kamu bahkan mungkin menemukannya sendiri. Jadi dalam hal ini, bukankah lebih aman jika Aku memberitahu dan memperingatkanmu tentang hal itu?" (ain)
 
-carol"Itu mungkin benar. Paling tidak, Aku akan berpikir untuk berhati-hati tentang itu."
+"Itu mungkin benar. Paling tidak, Aku akan berpikir untuk berhati-hati tentang itu." (carol)
 
-ain"Selain itu, jika kita akan melawan bangsawan tersebut, pengetahuan tentang informasi dapat mempengaruhi gelombang pertempuran."
+"Selain itu, jika kita akan melawan bangsawan tersebut, pengetahuan tentang informasi dapat mempengaruhi gelombang pertempuran." (ain)
 
-carol"Jadi kamu sedang berpikir bahwa itu mungkin terjadi."
+"Jadi kamu sedang berpikir bahwa itu mungkin terjadi." (carol)
 
-ain"Siapa yang tahu? Aku baru saja dikurung. Meskipun Aku agak menyadari metode apa yang dia gunakan untuk mencapai tujuannya, Aku tidak tahu apa tujuan itu. tapi, itu adalah individu yang akan mengunci bayi selama 10 tahun untuk tujuannya dan menjualnya ketika dia tidak dibutuhkan lagi."
+"Siapa yang tahu? Aku baru saja dikurung. Meskipun Aku agak menyadari metode apa yang dia gunakan untuk mencapai tujuannya, Aku tidak tahu apa tujuan itu. tapi, itu adalah individu yang akan mengunci bayi selama 10 tahun untuk tujuannya dan menjualnya ketika dia tidak dibutuhkan lagi." (ain)
 
 Dia mungkin melakukan beberapa hal yang tidak masuk akal selain apa yang dia lakukan pada kami tapi menilai dari rumor yang beredar, tidak ada apa-apa padanya. Di pub, Aku hanya menanyakan tentang topik-topik yang relatif bagian umum saja sehingga orang tidak akan mengira bahwa Aku sedang menyelidiki Respelgia. Tetap saja, orang-orang hanya secara acak membicarakan tentang bangsawan yang sangat mengerikan tanpa aku bertanya. Berkat itu, Aku sudah memutuskan rute mana yang akan digunakan untuk mencapai laut setelah meninggalkan kota ini.
 
 Carol-san berkata "Aku akan mengingatnya." dan dia mengangguk dengan sungguh-sungguh, jadi mungkin akan buruk jika aku tidak memberitahunya juga.
 
-ain"Kalau dipikir-pikir, Aku sudah mengajari Perla-san beberapa waktu yang lalu tetapi bukankah menurutmu dia adalah individu yang cukup menarik?"
+"Kalau dipikir-pikir, Aku sudah mengajari Perla-san beberapa waktu yang lalu tetapi bukankah menurutmu dia adalah individu yang cukup menarik?" (ain)
 
-carol"...... Tunggu, dengan energi sihir berasal dari jiwa, itulah yang Kamu maksud ?"
+"...... Tunggu, dengan energi sihir berasal dari jiwa, itulah yang Kamu maksud ?" (carol)
 
-Hanya dengan menyebut nama Perla-san , Carol-san terguncang. Dia sangat cepat.
+Hanya dengan menyebut nama Perla-san, Carol-san terguncang. Dia sangat cepat.
 
 Dan berdasarkan nada suaranya yang cemas, dia mungkin merasa bahwa hubungan antara Jobs dan energi sihir itu berbahaya.
 
-ain"Dari pengalamanku, keduanya berbeda. tapi, Aku tidak dapat mengatakan bahwa mereka sama sekali tidak memiliki pengaruh satu sama lain."
+"Dari pengalamanku, keduanya berbeda. tapi, Aku tidak dapat mengatakan bahwa mereka sama sekali tidak memiliki pengaruh satu sama lain." (ain)
 
-carol"Aku mengerti, Kamu benar. tas sihir yang murah tidak akan cukup untuk informasi ini. Apakah ada hal lain yang Kamu inginkan?"
+"Aku mengerti, Kamu benar. tas sihir yang murah tidak akan cukup untuk informasi ini. Apakah ada hal lain yang Kamu inginkan?" (carol)
 
-ain"tolong rahasiakan percakapan kita dan penelitian yang akan Kamu lakukan berdasarkan diskusi ini untuk dirimu sendiri. Setidaknya, selama Aku masih di negara ini."
+"tolong rahasiakan percakapan kita dan penelitian yang akan Kamu lakukan berdasarkan diskusi ini untuk dirimu sendiri. Setidaknya, selama Aku masih di negara ini." (ain)
 
-carol"Tak perlu dikatakan lagi. Tidak mungkin aku mempublikasikan ini."
+"Tak perlu dikatakan lagi. Tidak mungkin aku mempublikasikan ini." (carol)
 
-ain"Lalu apakah kamu masih akan melakukan studi tentang ini?"
+"Lalu apakah kamu masih akan melakukan studi tentang ini?" (ain)
 
-carol"aku melakukan penelitian sihir bukan untuk menonjol sama sekali. Aku melakukannya karena itu menyenangkan. Aku punya banyak penelitian rahasia selain yang ini."
+"aku melakukan penelitian sihir bukan untuk menonjol sama sekali. Aku melakukannya karena itu menyenangkan. Aku punya banyak penelitian rahasia selain yang ini." (carol)
 
-ain"Aku tidak keberatan jika setelah Aku meninggalkan negara ini, tolong beri tahu Aku tentang hasilnya di masa depan. Aku baru saja berusia 10 tahun baru-baru ini, Aku tidak memiliki pemahaman yang baik tentang jobku sejak awal."
+"Aku tidak keberatan jika setelah Aku meninggalkan negara ini, tolong beri tahu Aku tentang hasilnya di masa depan. Aku baru saja berusia 10 tahun baru-baru ini, Aku tidak memiliki pemahaman yang baik tentang jobku sejak awal." (ain)
 
 Sehubungan dengan job kami, Ciel mungkin memiliki kendali yang lebih baik dibandingkan denganku.
 
 Tapi jika Aku bisa menguasainya, Aku bisa lebih bertenaga. tapi, berapa tahun itu akan terjadi?
 
-carol"Oh itu benar. Saat kita berdiskusi, itu benar-benar membuatku lupa tentang konsep usia. Setelah Kamu mencapai rank B, hubungi Aku di markas. Aku akan mengundangmu ke rumahku. Pada saat itu, pekerjaan Aku di negara ini harusnya selesai juga."
+"Oh itu benar. Saat kita berdiskusi, itu benar-benar membuatku lupa tentang konsep usia. Setelah Kamu mencapai rank B, hubungi Aku di markas. Aku akan mengundangmu ke rumahku. Pada saat itu, pekerjaanku di negara ini harusnya selesai juga." (carol)
 
-ain"Ketika saatnya tiba, aku akan melakukannya. Baiklah kalau begitu."
+"Ketika saatnya tiba, aku akan melakukannya. Baiklah kalau begitu." (ain)
 
 Supaya aku tidak melupakan hari ini, aku memastikan untuk membawa tas sihir itu sebelum keluar kamar.
+
+-------------------------
+
+waaiiii, saatnya ain-sensei bertindak, tercium bau bau si perla / party mereka bakalan terkenal nih karena diajarkan sama ain.. dan woow carol bersemangat sekali kalau sudah masaalah sihir, jadi penasaran sama art characternya.. tapi yaah nunggu ada illust resmi baru bisa lihat gimana wajah carol walau dalam pikiranku rambut carol panjang dan berantakan... dan merah/oren... dan "pekerjaanku di negara ini harusnya selesai juga" ??? jadi carol originnya bukan dari negara ini ?? pantas aja dia ga masalah ain mau pindah negara... apa ain bakal di ajak ke negaranya nanti ??? HMMMMMMM... menarik...
