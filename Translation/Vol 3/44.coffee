@@ -189,18 +189,23 @@ Mengalihkan tatapanku ke Atlo, yang berdiri secara diagonal di belakangku, aku m
 
 "Itu benar. Kami juga melakukan perdagangan budak, meskipun kami tidak menculik orang secara sembarangan. Tidak seperti biasanya kami bertindak berdasarkan kontrak yang tepat, Kamu mengerti?" (Faneed)
 
-Faneed menghela nafas lelah. Bergantung pada sudut pandang seseorang, dia bisa dilihat sebagai korban di sini juga.
-Bukan itu urusanku. Lagipula, aku tidak terlalu marah untuk terlalu terlibat dan bahkan tidak ingin melakukannya.
-Ada beberapa aspek yang membuatnya tampak seperti pria yang baik juga, tapi Aku bisa menebak kontraknya sendiri mungkin tidak masuk akal untuk memulai.
+Faneed menghela nafas lelah. Bergantung pada sudut pandang seseorang, dia bisa dilihat sebagai korban juga.
 
-"Kemudian di luar itu, orang-orang dengan identitas yang tidak jelas yang tidak akan menimbulkan masalah bahkan ketika diculik harus terdengar sempurna.
-Seperti aku. Aku bisa membayangkan menjadi target yang sempurna."
-" Padahal, siapa yang mengira bahwa jaminan yang Aku berikan adalah artefak kerajaan curian."
-" Satu hal terakhir, apa hubungan Kamu dengan pasangan pedagang yang menjual Aku?"
-" Mereka ' kembali pelanggan."
+itu bukan urusanku. Lagipula, aku tidak terlalu marah untuk terlalu terlibat dan bahkan tidak ingin ikut terlibat.
 
-Garis"artefak kerajaan yang dicuri" mungkin adalah ungkapan unik di dunia ini. Yah, aku bisa membayangkan itu berarti diberi sesuatu yang merepotkan atau lebih.
-Kemudian jika pasangan pedagang adalah pelanggan dari organisasi mereka, akhirnya Aku memiliki pemahaman yang baik tentang situasinya.
+Ada beberapa aspek yang membuatnya tampak seperti pria yang baik juga, tapi Aku bisa menebak kontraknya sendiri mungkin tidak masuk akal juga.
+
+"Kemudian di luar itu, orang-orang dengan identitas yang tidak jelas yang tidak akan menimbulkan masalah bahkan ketika diculik tentu terdengar sempurna. Seperti aku. Aku bisa membayangkan menjadi target yang sempurna." (ain)
+
+"iya, siapa yang mengira bahwa jaminan yang diberikan adalah artefak kerajaan curian." (Faneed)
+
+"Satu hal terakhir, apa hubunganmu dengan pasangan pedagang yang menjualku?" (ain)
+
+"Mereka pelanggan." (Faneed)
+
+"artefak kerajaan yang dicuri" mungkin adalah ungkapan unik di dunia ini. Yah, aku bisa membayangkan itu berarti diberi sesuatu yang merepotkan.
+
+Kemudian jika pasangan pedagang adalah pelanggan dari organisasi mereka, Aku akhirnya paham tentang situasinya.
 
 "Bagaimanapun, ini akan menjadi permintaan pertama Aku tetapi bisakah Aku mengobrol dengan pasangan pedagang tersebut?
 Kamu membawa mereka ke sini, kan?"
