@@ -219,3 +219,8 @@ Tidak menyadari konflik batinku, Ciel berkata [baiklah~] Dengan tatapan lembut, 
 
 ------------
 
+Yesss akhirnya pisah sama ni anak.. ga ada sadar sadarnya, baguslah ain ga terlalu ngurusin ni anak... bisa jadi brass nanti jadi plot utk balas dendam ke ain.. damn..  sepertinya next setim dengan teren sepertinya bakal lancar mengingat mereka tidak begitu egois seperti brass... hmmm...
+
+oh iya ini dari komentar orang luar, katanya karena brass tidak memspesifik kan hadiah, jadi carol asal sebut aja biar ga ribet
+
+jadi brass dapat 4/10*50% ... karena 1 goblin setara 50%, yang bossnya, jadi daripada 4/11*100%, dia lebih ke dapat yang 4/10*50% = 20%, karena 10 goblin kecil 50% dan dia hanya mengalahkan 4 goblin kecil saja, dan pemimpin goblin tidak masuk hitungan, padahal kalau mau dihitung keseluruhan dia dpt 4/11+100% = 36,66%.. dan 20% lebih gampang dihitung daripada 36,66% , apalagi dalam kasus uang, jadi carol mempermudah aja biar ga ribet, dan kebetulan brass ga bisa hitung hitungan juga..
