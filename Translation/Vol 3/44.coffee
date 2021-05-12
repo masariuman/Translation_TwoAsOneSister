@@ -207,13 +207,13 @@ Ada beberapa aspek yang membuatnya tampak seperti pria yang baik juga, tapi Aku 
 
 Kemudian jika pasangan pedagang adalah pelanggan dari organisasi mereka, Aku akhirnya paham tentang situasinya.
 
-"Bagaimanapun, ini akan menjadi permintaan pertama Aku tetapi bisakah Aku mengobrol dengan pasangan pedagang tersebut?
-Kamu membawa mereka ke sini, kan?"
-
-(Bab ini disediakan untuk Kamu oleh Re: Library)
-
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Harap dukung kami dengan mengunjungi situs kami.)
+"ini akan menjadi keinginan pertamaku tetapi bisakah Aku mengobrol dengan pasangan pedagang tersebut? Kamu membawa mereka ke sini, kan?" (ain)
 
 Saat aku berkata demikian, Faneed memanggil salah satu bawahannya — seorang pria yang ada di antara mereka yang bersembunyi — dan mengatakan sesuatu padanya.
+
 Tanpa beberapa menit berlalu, pria itu sudah membawa pasangan yang tampak akrab.
+
 Mereka kelihatannya memiliki ekspresi yang sangat ketakutan di wajah mereka saat mereka masuk, dan saat mereka melihatku, mata mereka terbuka lebar karena terkejut.
+
+---------------------------
+
