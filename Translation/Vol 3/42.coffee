@@ -14,38 +14,38 @@ masalahnya, adalah bahwa para pedagang dan serigala akan segera bertemu satu sam
 
 Mengingat mereka hanya dua orang saja, sangat mungkin mereka tidak menyewa penjaga. Ada juga kemungkinan bahwa salah satu dari mereka adalah penjaga atau mereka cukup kuat untuk tidak membutuhkannya juga, kurasa.
 
-ain [ada kereta kuda di depan kita yang mungkin diserang monster, tapi apa yang harus kita lakukan?]
+[ada kereta kuda di depan kita yang mungkin diserang monster, tapi apa yang harus kita lakukan?] (ain)
 
-ciel [Apakah itu artinya kita akan bertemu mereka jika kita terus berjalan?]
+[Apakah itu artinya kita akan bertemu mereka jika kita terus berjalan?] (ciel)
 
-ain [iya. bisa dikatakan kita pada akhirnya akan bertemu mereka jika serangan monster membuat mereka berhenti di jalur mereka.]
+[iya. bisa dikatakan kita pada akhirnya akan bertemu mereka jika serangan monster membuat mereka berhenti di jalur mereka.] (ain)
 
-ciel [Pilihan apa yang kita miliki?]
+[Pilihan apa yang kita miliki?] (ciel)
 
-ain [secara garis besar, kita dapat mengabaikan mereka, membantu mereka, atau mengamati situasi. Jika kita memutuskan untuk membantu mereka, kita dapat memilih untuk melakukannya secara terbuka atau sembunyi-sembunyi; sementara jika kita memutuskan untuk mengamatinya, kita kemudian dapat memilih untuk membantu mereka atau mengabaikan mereka setelah itu.]
+[secara garis besar, kita dapat mengabaikan mereka, membantu mereka, atau mengamati situasi. Jika kita memutuskan untuk membantu mereka, kita dapat memilih untuk melakukannya secara terbuka atau sembunyi-sembunyi; sementara jika kita memutuskan untuk mengamatinya, kita kemudian dapat memilih untuk membantu mereka atau mengabaikan mereka setelah itu.] (ain)
 
-ciel [Jadi, Ain, hal apa yang membuatmu penasaran?]
+[Jadi, Ain, hal apa yang membuatmu penasaran?] (ciel)
 
 Ciel mengatakan itu bangga. Seolah-olah dia baru saja menyatakan bahwa dia mengenalku sepenuhnya tetapi karena dia benar, aku pasrah pada penampilannya yang menggemaskan.
 
-ain [Untuk beberapa alasan, mereka sepertinya tidak menyewa penjaga. Aku tidak yakin apakah mereka kuat atau hanya memilih untuk tidak mempekerjakan siapa pun tapi, Aku merasa mereka bukan orang yang sangat baik.]
+[Untuk beberapa alasan, mereka sepertinya tidak menyewa penjaga. Aku tidak yakin apakah mereka kuat atau hanya memilih untuk tidak mempekerjakan siapa pun tapi, Aku merasa mereka bukan orang yang sangat baik.] (ain)
 
-ciel [Begitu. Kalau begitu, kenapa tidak kita amati dulu?
-Jika mereka tidak kuat, kita akan membantu mereka kalau mau.]
+[Begitu. Kalau begitu, kenapa tidak kita amati dulu?
+Jika mereka tidak kuat, kita akan membantu mereka kalau mau.] (ciel)
 
-ain [Jadi kita akan menyelamatkan mereka.]
+[Jadi kita akan menyelamatkan mereka.] (ain)
 
-ciel [Aku penasaran orang macam apa mereka sebenarnya. Mengapa mereka tidak menyewa penjaga?]
+[Aku penasaran orang macam apa mereka sebenarnya. Mengapa mereka tidak menyewa penjaga?] (ciel)
 
-ain [Baiklah. Aku akan bertanggung jawab setelah kita menyelamatkan mereka, oke?]
+[Baiklah. Aku akan bertanggung jawab setelah kita menyelamatkan mereka, oke?] (ain)
 
 Dengan pedagang yang kemungkinan besar adalah laki-laki, akan sulit bagi Ciel.
 
 Terlepas dari itu, karena Ciel tertarik tentang masalah ini, maka aku akan menemaninya.
 
-ciel [Untuk saat ini, kita harus bergegas dan mengejar mereka, bukan? Bisakah Kamu membantuku, Ain?]
+[Untuk saat ini, kita harus bergegas dan mengejar mereka, bukan? Bisakah Kamu membantuku, Ain?] (ciel)
 
-ain [Teruslah berlari sampai Aku selesai bernyanyi.]
+[Teruslah berlari sampai Aku selesai bernyanyi.] (ain)
 
 Ini adalah mode pergerakan tercepat kami. Aku bernyanyi untuk memperkuat Ciel, sementara Ciel menggunakan kekuatan sihirnya yang berlebihan untuk melakukan penguatan fisik.
 
@@ -69,7 +69,7 @@ Tetap saja, menurutku itu tidak layak untuk mempertaruhkan nyawa mereka.
 
 pedagang "Y-ya. Kamu menyelamatkan kami."
 
-ain "Meskipun ada hal-hal yang perlu dibicarakan, Aku akan membongkar monster untuk saat ini, jadi tolong bersiaplah untuk melanjutkan perjalanan untuk saat ini."
+"Meskipun ada hal-hal yang perlu dibicarakan, Aku akan membongkar monster untuk saat ini, jadi tolong bersiaplah untuk melanjutkan perjalanan untuk saat ini." (ain)
 
 Aku menuju ke serigala yang kalah.
 
@@ -85,33 +85,33 @@ Ketika Aku meminjam tubuh Ciel lagi, Aku memberi tahu dia "Aku akan melakukan ap
 
 Pasangan itu menenangkan kuda-kuda yang ketakutan itu. Wanita itu kemudian duduk di gerbong belakang, sementara pria itu melihat ke arah kami.
 
-ain "Terima kasih telah menunggu. Sekarang, tentang hadiahnya."
+"Terima kasih telah menunggu. Sekarang, tentang hadiahnya." (ain)
 
-pedagang "Tentu saja, Aku mengerti. Tetapi daripada hadiah, kami ingin mempekerjakanmu untuk mengantar kami ke ibu kota."
+"Tentu saja, Aku mengerti. Tetapi daripada hadiah, kami ingin mempekerjakanmu untuk mengantar kami ke ibu kota." (pedagang)
 
-ain [Diskusi kita tentang hadiah untuk menyelamatkan mereka entah bagaimana berubah menjadi diskusi tentang mengawal mereka, tapi apa yang ingin kamu lakukan Ciel?]
+[Diskusi kita tentang hadiah untuk menyelamatkan mereka entah bagaimana berubah menjadi diskusi tentang mengawal mereka, tapi apa yang ingin kamu lakukan Ciel?] (ain)
 
-ciel [Aku ingin mengamati orang-orang ini selama mungkin tapi ...]
+[Aku ingin mengamati orang-orang ini selama mungkin tapi ...] (ciel)
 
-ain [Baiklah.]
+[Baiklah.] (ain)
 
 Aku benar-benar memiliki firasat buruk tentang ini, atau lebih tepatnya Aku merasa hal-hal akan menjadi merepotkan, tetapi Aku berasumsi bahwa Ciel masih mengatakan itu sambil menyadari hal ini.
 
 Mereka hanya tampak seperti pasangan yang baik, jadi ini bagus untuk dialami Ciel. Tapi, meminta orang untuk mengawal mereka tanpa memberi tahu berapa banyak mereka akan membayar... apa yang mereka pikirkan.
 
-ain "Baiklah."
+"Baiklah." (ain)
 
-pedagang "Kami akan membayar dengan ini. Hanya ini yang bisa kami bayar untuk saat ini, tetapi seharusnya sudah cukup."
+"Kami akan membayar dengan ini. Hanya ini yang bisa kami bayar untuk saat ini, tetapi seharusnya sudah cukup." (pedagang)
 
 Saat menerimanya, Aku menyimpannya tanpa mengkonfirmasi isinya. aku melihat pria itu dengan sekilas, aku melihatnya dengan tangan di dada dan dia menghela nafas lega.
-ß
+
 ※※※※※※※※※※
 
-pedagang "Aku tidak pernah membayangkan bahwa kami akan bertemu serigala hutan di tempat ini, Kami benar-benar akan mati jika kamu tidak ada di sana."
+"Aku tidak pernah membayangkan bahwa kami akan bertemu serigala hutan di tempat ini, Kami benar-benar akan mati jika kamu tidak ada di sana." (pedagang)
 
-ain "Karena mereka disebut serigala hutan, itu berarti mereka awalnya hidup di hutan, bukan? Apakah mereka biasanya muncul di sini?"
+"Karena mereka disebut serigala hutan, itu berarti mereka awalnya hidup di hutan, bukan? Apakah mereka biasanya muncul di sini?" (ain)
 
-pedagang "Meskipun Aku tidak bisa mengatakan bahwa mereka tidak biasanya muncul, tapi itu adalah hal yang sangat jarang sekali."
+"Meskipun Aku tidak bisa mengatakan bahwa mereka tidak biasanya muncul, tapi itu adalah hal yang sangat jarang sekali." (pedagang)
 
 Nama pria itu sepertinya Anicet. Orang yang pergi bersamanya adalah istrinya Milea-san .
 
@@ -121,11 +121,11 @@ Bukannya aku meragukan mereka, itu mungkin benar... Aku akan berhenti membahas i
 
 Masalahnya disini ini mungkin adalah serigala hutan. Aku hanya menganggap serigala semuanya sama saja tetapi sepertinya mereka agak berbeda berdasarkan habitatnya.
 
-anicet "Mengalahkan serigala hutan di usia muda, mungkin karena Jobmu, kan?"
+"Mengalahkan serigala hutan di usia muda, mungkin karena Jobmu, kan?" (anicet)
 
-ain "Berbicara tentang Job agak ......"
+"Berbicara tentang Job agak ......" (ain)
 
-anicet "Ahh, benar. Itu tidak sopan, bukan?"
+"Ahh, benar. Itu tidak sopan, bukan?" (anicet)
 
 Dengan ekspresi 'Aku tidak bermaksud melakukan itu' di wajahnya, Anicet mengangkat telapak tangannya ke kepalanya dan meminta maaf.
 
@@ -133,17 +133,17 @@ Meskipun itu tidak sopan, bagi seorang pedagang yang menaruh kepercayaan di atas
 
 Dalam situasi ini, sulit untuk menilai apakah mereka hanya memperlakukan Ciel seperti anak kecil atau mereka hanya menyelidikinya karena suatu alasan karena penampilannya. Meskipun ini bukan salah Ciel, jadi bisa dikatakan, sama sekali tidak ada yang bisa kita lakukan tentang ini.
 
-anicet "Kalau dipikir-pikir, apa yang membawamu ke ibu kota?"
+"Kalau dipikir-pikir, apa yang membawamu ke ibu kota?" (anicet)
 
 dia mungkin ingin mengubah topik, jadi Aku menjawab "Mampir saja." Untuk pertanyaannya.
 
 yaah, kami sebenarnya hanya mampir untuk melihat lautan. Jadi, tidak masalah meskipun tidak ada pekerjaan untuk kami di ibu kota, kami akan pergi begitu saja.
 
-anicet "hanya mampir?"
+"hanya mampir?" (anicet)
 
-ain "Ya. Meskipun sebagai Hunter, Aku ingin berkunjung ke sana setidaknya sekali saja."
+"Ya. Meskipun sebagai Hunter, Aku ingin berkunjung ke sana setidaknya sekali saja." (ain)
 
-anicet "benar, Kamu tidak akan kehilangan apa pun dengan mengunjungi sekali, tetapi Kamu mungkin akan terkejut jika ini pertama kalinya bagimu."
+"benar, Kamu tidak akan kehilangan apa pun dengan mengunjungi sekali, tetapi Kamu mungkin akan terkejut jika ini pertama kalinya bagimu." (anicet)
 
 Bahkan ada pembicaraan tentang kemungkinan besar dicopet.
 
@@ -153,13 +153,13 @@ tapi, pemandangan gedung dan jalan mungkin mengejutkanku. Karena Aku belum melih
 
 tidak seperti istana Jepang yang berfungsi sebagai tempat wisata, istana ini benar-benar memiliki keluarga kerajaan yang tinggal di sana, jadi kami mungkin tidak akan bisa mendekatinya dengan mudah dan, yang terpenting, kami tidak punya urusan dengan orang-orang peringkat teratas negara itu.
 
-anicet "Karena ini akan menjadi pertama kalinya untukmu, Aku menganggap Kamu belum memutuskan mau menginap dimana, benar?"
+"Karena ini akan menjadi pertama kalinya untukmu, Aku menganggap Kamu belum memutuskan mau menginap dimana, benar?" (anicet)
 
-ain "Itu benar."
+"Itu benar." (ain)
 
-anicet "Kalau begitu, Aku tahu tempat yang bagus. Aku akan mengantarmu ke sana setelah kita mencapai ibu kota."
+"Kalau begitu, Aku tahu tempat yang bagus. Aku akan mengantarmu ke sana setelah kita mencapai ibu kota." (anicet)
 
-milea "itu ide yang bagus. Sebagai seorang gadis, akan sangat sulit untuk memilih penginapan."
+"itu ide yang bagus. Sebagai seorang gadis, akan sangat sulit untuk memilih penginapan." (milea)
 
 Tanpa menunggu jawabanku, suara Milea-san tiba-tiba menggema dari belakang.
 
@@ -167,17 +167,17 @@ Ini pertama kalinya kami pergi ke ibu kota, jadi kami tentu saja tidak tahu peng
 
 Yah, daripada berpikir sendiri, aku akan mencoba menyerahkan keputusan kepada Ciel.
 
-ain [Apa yang harus kita lakukan?]
+[Apa yang harus kita lakukan?] (ain)
 
-ciel [Ain tidak tahu tentang penginapan apa pun, kan? Kalau begitu, kupikir membuat mereka menuntun kita ke salah satu penginapan akan lebih mudah tapi...]
+[Ain tidak tahu tentang penginapan apa pun, kan? Kalau begitu, kupikir membuat mereka menuntun kita ke salah satu penginapan akan lebih mudah tapi...] (ciel)
 
-ain [kalau begitu aku akan meminta mereka untuk melakukannya.]
+[kalau begitu aku akan meminta mereka untuk melakukannya.] (ain)
 
 Jika itu tempat yang jelas-jelas mencurigakan, kami bisa menghindarinya. Aku Juga ingin berpikir bahwa tidak ada yang seburuk itu di antara penginapan ibu kota.
 
 Padahal tentunya, menemukan penginapan di tempat yang asing cukup merepotkan.
 
-ain "Jika memungkinkan, penginapan dengan bak mandi akan bagus, tapi apakah ada yang seperti itu?"
+"Jika memungkinkan, penginapan dengan bak mandi akan bagus, tapi apakah ada yang seperti itu?" (ain)
 
 Karena Aku memiliki kesempatan, Aku mencoba bertanya kepada mereka tentang hal itu dan pasangan itu menegaskan, memberikan stempel persetujuan mereka kepada penginapan.
 
