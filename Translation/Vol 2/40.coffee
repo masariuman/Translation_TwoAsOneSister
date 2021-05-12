@@ -24,11 +24,11 @@ Tetap saja, selama kami menjadi rank-C setelah ini, kami tidak harus tinggal di 
 
 Menemukan Celia-san, kami menuju ke ruangan kami biasanya.
 
-carol "Apa yang terjadi di sini?"
+"Apa yang terjadi di sini?" (carol)
 
-celia "Meskipun Aku tidak bisa mengatakan hal yang sama untukmu, Carol, Kamu harus diberi tahu tentang ini, Cielmer-san."
+"Meskipun Aku tidak bisa mengatakan hal yang sama untukmu, Carol, Kamu harus diberi tahu tentang ini, Cielmer-san." (celia)
 
-ain "Jika itu adalah sesuatu yang berhubungan denganku, Aku sangat ingin tahu."
+"Jika itu adalah sesuatu yang berhubungan denganku, Aku sangat ingin tahu." (ain)
 
 Dengan kata pengantar itu, Celia-san mulai menjelaskan.
 
@@ -58,29 +58,29 @@ Meskipun Aku benar-benar seorang song princess, Aku yakin kalau Aku tidak melaku
 
 Sepertinya Alejo dan gengnya kemungkinan besar akan dikirim ke tambang sebagai budak kriminal.
 
-celia "Jadi, untuk topik berikutnya tapi ......"
+"Jadi, untuk topik berikutnya tapi ......" (celia)
 
-ain "Sekarang Aku bisa menjadi rank-C, kan?"
+"Sekarang Aku bisa menjadi rank-C, kan?" (ain)
 
-celia "Tentu saja. Karena Kamu menyelamatkan seluruh kota, itu tidak akan menjadi masalah. tapi, karena ada prosedur yang perlu dilakukan, kami ingin Kamu menunggu sepanjang hari."
+"Tentu saja. Karena Kamu menyelamatkan seluruh kota, itu tidak akan menjadi masalah. tapi, karena ada prosedur yang perlu dilakukan, kami ingin Kamu menunggu sepanjang hari." (celia)
 
-ain "tidak masalah."
+"tidak masalah." (ain)
 
-celia "Mengenai hadiah mengatasi penyerbuan, ini akan memakan waktu sekitar beberapa hari tetapi apakah tidak masalah denganmu?"
+"Mengenai hadiah mengatasi penyerbuan, ini akan memakan waktu sekitar beberapa hari tetapi apakah tidak masalah denganmu?" (celia)
 
-ain "itu akan menjadi masalah."
+"itu akan menjadi masalah." (ain)
 
 Lagipula, aku tahu bahwa meskipun kami tinggal di kota ini, kami hanya akan diperlakukan dengan hati-hati.
 
 Aku lebih suka kenyamanan daripada uang.
 
-ain "itu tidak akan berjalan baik, jadi Aku hanya akan mengambil apa yang bisa disiapkan sampai besok."
+"itu tidak akan berjalan baik, jadi Aku hanya akan mengambil apa yang bisa disiapkan sampai besok." (ain)
 
-celia "Jadi, Kamu akan meninggalkan kota besok?"
+"Jadi, Kamu akan meninggalkan kota besok?" (celia)
 
-ain "Tentu. Aku sudah rank C dan mungkin akan merasa tidak nyaman untuk tinggal di kota ini."
+"Tentu. Aku sudah rank C dan mungkin akan merasa tidak nyaman untuk tinggal di kota ini." (ain)
 
-celia "baiklah. Kalau begitu tolong datang ke guild Hunter besok pagi. Terima kasih atas kerja samamu untuk menyelesaikan penyerbuan ini."
+"baiklah. Kalau begitu tolong datang ke guild Hunter besok pagi. Terima kasih atas kerja samamu untuk menyelesaikan penyerbuan ini." (celia)
 
 Setelah Celia-san membungkuk, aku meninggalkan gedung guild dengan hati-hati.
 
@@ -96,21 +96,21 @@ Kasurnya menyenangkan seperti biasa.
 
 Aku merasakan tubuh Ciel berangsur-angsur mengendur dan, berpikir bahwa dia mungkin merasakan hal yang sama sepertiku, itu membuatku geli.
 
-ciel [Jadi kita akan meninggalkan kota besok, kan?]
+[Jadi kita akan meninggalkan kota besok, kan?] (ciel)
 
-ain [Akan lebih baik jika kita pergi. kita sama sekali tidak punya alasan untuk tinggal.]
+[Akan lebih baik jika kita pergi. kita sama sekali tidak punya alasan untuk tinggal.] (ain)
 
-ciel [Rasanya sedikit ... tidak ramah. yaaah, pada dasarnya, kita memutuskan untuk tinggal di sini hanya untuk mencapai rank-C, jadi mau bagaimana lagi.]
+[Rasanya sedikit ... tidak ramah. yaaah, pada dasarnya, kita memutuskan untuk tinggal di sini hanya untuk mencapai rank-C, jadi mau bagaimana lagi.] (ciel)
 
-ain [Apakah kamu ingin tinggal lebih lama lagi?]
+[Apakah kamu ingin tinggal lebih lama lagi?] (ain)
 
-ciel [Bukan itu maksudku. Aku akan menjadi orang yang paling banyak bergerak di kota berikutnya dan seterusnya, kan Ain?]
+[Bukan itu maksudku. Aku akan menjadi orang yang paling banyak bergerak di kota berikutnya dan seterusnya, kan Ain?] (ciel)
 
-ain [Kamu hanya merasa gugup kalau begitu.]
+[Kamu hanya merasa gugup kalau begitu.] (ain)
 
-ciel [Bisakah aku melakukannya sebaik Ain?]
+[Bisakah aku melakukannya sebaik Ain?] (ciel)
 
-ain [Mengabaikan masalah apakah aku benar-benar melakukannya dengan baik atau tidak untuk saat ini, Kamu tidak perlu meniruku, oke Ciel? Meskipun Kamu tidak boleh membunuh orang tanpa pandang bulu, menghancurkan sesuatu, atau membatalkan permintaan, jika Kamu tidak ingin berbicara dengan orang Ciel, Kamu dapat memilih untuk tidak melakukannya. Selain itu, Aku akan mendukungmu jika diperlukan. Dan... aku akan bertanggung jawab untuk berbicara dengan laki-laki, oke?]
+[Mengabaikan masalah apakah aku benar-benar melakukannya dengan baik atau tidak untuk saat ini, Kamu tidak perlu meniruku, oke Ciel? Meskipun Kamu tidak boleh membunuh orang tanpa pandang bulu, menghancurkan sesuatu, atau membatalkan permintaan, jika Kamu tidak ingin berbicara dengan orang Ciel, Kamu dapat memilih untuk tidak melakukannya. Selain itu, Aku akan mendukungmu jika diperlukan. Dan... aku akan bertanggung jawab untuk berbicara dengan laki-laki, oke?] (ain)
 
 Dengan keengganan Ciel pada laki-laki, menyerahkan segalanya padanya akan menjadi rumit.
 
@@ -122,9 +122,9 @@ Meskipun kami selalu bersama-sama, kami tidak selalu berbicara sepanjang hari da
 
 ◇
 
-ciel [Entah bagaimana, rasanya sudah lama sekali kita melewatkan waktu seperti ini bahkan hanya setengah hari.]
+[Entah bagaimana, rasanya sudah lama sekali kita melewatkan waktu seperti ini bahkan hanya setengah hari.] (ciel)
 
-ain [padahal baru beberapa waktu yang lalu ketika kita menghabiskan setiap hari seperti ini.]
+[padahal baru beberapa waktu yang lalu ketika kita menghabiskan setiap hari seperti ini.] (ain)
 
 Ciel memulai percakapan denganku dan Aku kira dia terkejut semuanya itu berubah menjadi malam dalam waktu singkat.
 
@@ -134,21 +134,21 @@ Bagaimanapun juga, kami terus-menerus harus mempersiapkan diri waktu di mansion.
 
 Sambil bermalas-malasan di tempat tidur, Ciel terus mengobrol denganku.
 
-ciel [Ini akan memakan waktu lama sebelum kita menjadi rank-B, kan?]
+[Ini akan memakan waktu lama sebelum kita menjadi rank-B, kan?] (ciel)
 
-ain [Mungkin akan lebih baik berpikir kalau itu tidak akan terjadi sampai kita berusia 15 tahun.]
+[Mungkin akan lebih baik berpikir kalau itu tidak akan terjadi sampai kita berusia 15 tahun.] (ain)
 
-ciel [Selama waktu itu, apakah pria itu akan bergerak sendiri?]
+[Selama waktu itu, apakah pria itu akan bergerak sendiri?] (ciel)
 
-ain [Kemungkinan besar tidak. Aku tidak tahu apa tujuannya, tetapi bagiku tampaknya kita hanyalah salah satu caranya untuk mencapainya.]
+[Kemungkinan besar tidak. Aku tidak tahu apa tujuannya, tetapi bagiku tampaknya kita hanyalah salah satu caranya untuk mencapainya.] (ain)
 
-ciel [Aku tidak begitu yakin dengan cara kerja negara, tetapi apakah negara ini baik-baik saja? Pria itu berada pada posisi yang sangat tinggi, kan?]
+[Aku tidak begitu yakin dengan cara kerja negara, tetapi apakah negara ini baik-baik saja? Pria itu berada pada posisi yang sangat tinggi, kan?] (ciel)
 
-ain [Menilai dari rumor yang beredar, seharusnya tidak apa-apa karena dia sepertinya tidak melakukan hal buruk akhir-akhir ini, setidaknya di luarnya saja. Ini hanya berdasarkan gambaranku tentang mereka, tapi menurutku para bangsawan biasa melakukan sesuatu di balik layar. Apa yang orang itu rencanakan mungkin belum tentu menghancurkan negara. Dan bahkan jika itu adalah sesuatu yang buruk, negara ini kemungkinan tidak akan runtuh sebelum kita bisa melarikan diri.]
+[Menilai dari rumor yang beredar, seharusnya tidak apa-apa karena dia sepertinya tidak melakukan hal buruk akhir-akhir ini, setidaknya di luarnya saja. Ini hanya berdasarkan gambaranku tentang mereka, tapi menurutku para bangsawan biasa melakukan sesuatu di balik layar. Apa yang orang itu rencanakan mungkin belum tentu menghancurkan negara. Dan bahkan jika itu adalah sesuatu yang buruk, negara ini kemungkinan tidak akan runtuh sebelum kita bisa melarikan diri.] (ain)
 
-ciel [bukankah kalau negara ini runtuh membuat kita lebih mudah melarikan diri?]
+[bukankah kalau negara ini runtuh membuat kita lebih mudah melarikan diri?] (ciel)
 
-ain [itu juga kemungkinan lainnya.]
+[itu juga kemungkinan lainnya.] (ain)
 
 Dalam kasus terburuk, kami mungkin ditangkap karena percakapan ini tetapi Aku sudah memastikan bahwa tidak ada orang di sekitar kami.
 
@@ -162,15 +162,15 @@ Jika Aku bisa membuat penghalang yang begitu kuat sehingga tidak ada makhluk yan
 
 Aku tahu itu benar-benar berlebihan, tapi tidak ada ruginya memiliki tujuan.
 
-ciel [Kalau dipikir-pikir, Ain. Kamu bukan dewa, kan?]
+[Kalau dipikir-pikir, Ain. Kamu bukan dewa, kan?] (ciel)
 
-ain [bukan, kenapa tiba-tiba bertanya seperti itu?]
+[bukan, kenapa tiba-tiba bertanya seperti itu?] (ain)
 
-ciel [Aku hanya sedikit penasaran.]
+[Aku hanya sedikit penasaran.] (ciel)
 
-ain [Begitu ya. Tetap saja, jika aku adalah dewa, aku akan bisa menyelamatkan Ciel dengan cara yang jauh lebih keren, kurasa.]
+[Begitu ya. Tetap saja, jika aku adalah dewa, aku akan bisa menyelamatkan Ciel dengan cara yang jauh lebih keren, kurasa.] (ain)
 
-ciel [Kalau begitu, aku senang kalau Ain bukan dewa.]
+[Kalau begitu, aku senang kalau Ain bukan dewa.] (ciel)
 
 Ciel tersenyum, tetapi Aku benar-benar tidak yakin bagaimana Aku harus bereaksi terhadap itu.
 
@@ -184,35 +184,35 @@ Meskipun mungkin tidak ada yang baik tentang itu dari sudut pandang Ciel.
 
 Tidak ada diskusi apa pun tentang ini, tetapi sekarang masih sangat pagi, ketika para Hunter belum datang, Guild Hunter sudah terbuka dan Celia-san sedang menunggu di sana bersama dengan Carol-san.
 
-celia "Maaf membuatmu menunggu."
+"Maaf membuatmu menunggu." (celia)
 
-ain "Aku juga, maaf telah merepotkanmu sepagi ini."
+"Aku juga, maaf telah merepotkanmu sepagi ini." (ain)
 
-celia "Jangan khawatir tentang itu. Ini adalah masalah di pihak kota. Sekarang, tanpa penundaan lebih lanjut, ini akan menjadi kartu rank C."
+"Jangan khawatir tentang itu. Ini adalah masalah di pihak kota. Sekarang, tanpa penundaan lebih lanjut, ini akan menjadi kartu rank C." (celia)
 
-ain "Terima kasih banyak."
+"Terima kasih banyak." (ain)
 
 Kartu yang Aku terima memiliki huruf C tertulis di atasnya. Lingkaran sihir di belakang sepertinya tidak memiliki perbedaan besar.
 
 Kemudian setelah melihat lebih dekat, keduanya tampak berbeda dari biasanya. Mereka terlihat seperti akan pergi.
 
-ain "Celia-san, Carol-san , apakah kalian akan kembali ke guild utama?"
+"Celia-san, Carol-san , apakah kalian akan kembali ke guild utama?" (ain)
 
-celia "benar. Kami sudah menyelesaikan apa yang perlu kami lakukan di kota ini. Dengan itu, Cielmer-san, berikutnya kita akan bertemu ketika setelah Kamu dipromosikan ke rank B."
+"benar. Kami sudah menyelesaikan apa yang perlu kami lakukan di kota ini. Dengan itu, Cielmer-san, berikutnya kita akan bertemu ketika setelah Kamu dipromosikan ke rank B." (celia)
 
-carol "Dan berkat seseorang tertentu, kami punya banyak hal untuk dilaporkan, Kamu tahu ?"
+"Dan berkat seseorang tertentu, kami punya banyak hal untuk dilaporkan, Kamu tahu ?" (carol)
 
-ain "Meskipun sama sekali tidak ada yang bisa Aku lakukan tentang itu, tolong lakukan yang terbaik."
+"Meskipun sama sekali tidak ada yang bisa Aku lakukan tentang itu, tolong lakukan yang terbaik." (ain)
 
 Pekerjaan mereka sama sekali bukan urusan kami dan akan sangat membantu jika mereka berdua kembali ke guild utama.
 
-celia "dan Juga, ini hadiah untuk menangani penyerbuan."
+"dan Juga, ini hadiah untuk menangani penyerbuan." (celia)
 
 Kantong yang diberikan kepadaku sepertinya penuh tetapi Aku mengabaikannya dan memasukkannya ke dalam dompet kami.
 
 Memeriksa isinya tidak akan benar-benar meningkatkan jumlahnya, dan kami juga tidak memiliki masalah uang.
 
-ain "baiklah, terima kasih. Kalau begitu, Aku harus pergi sekarang."
+"baiklah, terima kasih. Kalau begitu, Aku harus pergi sekarang." (ain)
 
 Aku ingin pergi sebelum Hunter lain tiba, jadi setelah perpisahan singkat, Aku meninggalkan guild Hunter.
 
@@ -220,14 +220,14 @@ Ini hanya akan merepotkan jika kami mendapatkan pesta perpisahan atau semacamnya
 
 Sangat umum mendengar orang pergi dari kota ke kota untuk mencari pekerjaan. Kamu tidak akan bertahan lama sebagai Hunter jika Kamu terus mengkhawatirkan setiap ucapan selamat tinggal.
 
-ciel [Sudah lama sejak terakhir kita berdua saja, Ain.]
+[Sudah lama sejak terakhir kita berdua saja, Ain.] (ciel)
 
-ain [iya. Jadi, apa yang harus kita lakukan?]
+[iya. Jadi, apa yang harus kita lakukan?] (ain)
 
-ciel [Hanya dengan Ain tanpa ada yang menyela sudah membuatku bahagia? Aku dapat berbicara dengan Ain sebanyak yang Aku inginkan, kan?]
+[Hanya dengan Ain tanpa ada yang menyela sudah membuatku bahagia? Aku dapat berbicara dengan Ain sebanyak yang Aku inginkan, kan?] (ciel)
 
-ain [Kita juga bisa bernyanyi dan menari sebanyak yang kita bisa.]
+[Kita juga bisa bernyanyi dan menari sebanyak yang kita bisa.] (ain)
 
-ciel [Itu sangat menyenangkan.]
+[Itu sangat menyenangkan.] (ciel)
 
 Meskipun Aku senang melihat Ciel tampak senang tanpa ada pikiran berlama-lama untuk meninggalkan kota, mungkin Aku tidak bertanggung jawab, tetapi Aku tidak bisa menahan diri untuk berpikir: Ini juga masalah, kan?
