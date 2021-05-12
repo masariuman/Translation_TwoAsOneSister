@@ -4,11 +4,11 @@ Pada hari kami dijadwalkan untuk membantu Perla-san dan partynya, Aku akhirnya d
 
 [Bahkan dengan pihak sebelumnya, Aku tidak terlalu berpikir kalau aku perlu untuk datang lebih awal.] (ciel)
 
-ain [waktu itu, Aku melakukannya agar Brass-kun tidak mengeluh kita datang terlambat. Jika kita bahkan terlambat sedikit saja, dia mungkin akan menggunakan itu sebagai alasan untuk mengeluh sepanjang hari.]
+[waktu itu, Aku melakukannya agar Brass-kun tidak mengeluh kita datang terlambat. Jika kita bahkan terlambat sedikit saja, dia mungkin akan menggunakan itu sebagai alasan untuk mengeluh sepanjang hari.] (ain)
 
-ciel [Benarkah?]
+[Benarkah?] (ciel)
 
-ain [iya.]
+[iya.] (ain)
 
 Berbicara tentang itu di sepanjang jalan, aku membuka pintu guild dan apa yang pertama kali kurasakan saat masuk ke dalam adalah panas.
 
@@ -16,13 +16,13 @@ Aku khususnya merasakan banyak panas dari arah papan permintaan, jadi Aku melari
 
 Melihat dari mana suara itu berasal, Aku melihat semua orang yang akan Aku ajak berparty hari ini sudah ada di sini.
 
-ain"Kalian semua di sini cukup awal hari ini."
+"Kalian semua di sini cukup awal hari ini." (ain)
 
-ilda"tidak, ini adalah waktu berkumpul kami biasanya."
+"tidak, ini adalah waktu berkumpul kami biasanya." (ilda)
 
-ain"padahal Brass-kun datang lebih lama."
+"padahal Brass-kun datang lebih lama." (ain)
 
-ilda"Ahh ......"
+"Ahh ......" (ilda)
 
 Ilda-san , yang menjawab kata-kataku, sepertinya mengingat sesuatu dan menunjukkan tampilan yang tampaknya yakin tapi jengkel.
 
@@ -38,7 +38,7 @@ Meskipun ada banyak orang di depan papan permintaan, kami mengabaikan mereka dan
 
 "Aku setuju dengan itu."
 
-ain"Jika hanya kalian bertiga, maka itu memang pilihan yang tepat. Kehati-hatian yang kalian miliki sangat penting. Tapi, hari ini kita akan berburu orc."
+"Jika hanya kalian bertiga, maka itu memang pilihan yang tepat. Kehati-hatian yang kalian miliki sangat penting. Tapi, hari ini kita akan berburu orc." (ain)
 
 Mendengar pernyataanku, mereka memiringkan kepala dengan bingung.
 
@@ -48,11 +48,11 @@ Karena kehati-hatian itu penting, itu normal jika mereka mengambil rute teraman 
 
 "Mengapa?"
 
-ain"Itu karena aku benci laba-laba."
+"Itu karena aku benci laba-laba." (ain)
 
 "Kamu benci ......"
 
-ain"Bukannya aku membenci mereka sampai-sampai aku tidak bisa mengalahkan mereka, aku sangat membenci mereka sehingga aku langsung memusnahkan mereka ketika aku melihatnya. Sampai-sampai tidak ada jejak tubuh mereka yang tersisa. Akan sangat beruntung jika ada batu sihir yang tersisa. Jadi, dengan pertimbangan itu, ini akan bertentangan dengan tujuan hari ini. Dan karena kita tidak dapat mengambil bukti, permintaan tersebut tidak akan dianggap berhasil."
+"Bukannya aku membenci mereka sampai-sampai aku tidak bisa mengalahkan mereka, aku sangat membenci mereka sehingga aku langsung memusnahkan mereka ketika aku melihatnya. Sampai-sampai tidak ada jejak tubuh mereka yang tersisa. Akan sangat beruntung jika ada batu sihir yang tersisa. Jadi, dengan pertimbangan itu, ini akan bertentangan dengan tujuan hari ini. Dan karena kita tidak dapat mengambil bukti, permintaan tersebut tidak akan dianggap berhasil." (ain)
 
 Itu tidak akan berfungsi sebagai pelatihan yang baik untuk mereka, apalagi kesempatan untuk berlatih membongkar monster.
 
@@ -60,19 +60,19 @@ Aku sama sekali tidak akan pernah menerima permintaan terkait laba-laba atas kei
 
 Jika kebetulan kami menemukan laba-laba yang dapat menahan serangan Ciel, kami mungkin akan membakar seluruh tempat itu hingga rata dengan tanah.
 
-ain"Dengan itu, kita akan menaklukkan orc."
+"Dengan itu, kita akan menaklukkan orc." (ain)
 
-terencio"Ba-baiklah. tapi, apakah ada permintaan penaklukan orc yang tersisa untuk kita?"
+"Ba-baiklah. tapi, apakah ada permintaan penaklukan orc yang tersisa untuk kita?" (terencio)
 
-ain"Aku mengandalkan Hunter's Guild untuk masalah itu, jadi kita akan mengaturnya entah bagaimana. Ini adalah permintaan dari guild, jadi jika mereka tidak mengakomodasi ini, aku tidak akan menerimanya."
+"Aku mengandalkan Hunter's Guild untuk masalah itu, jadi kita akan mengaturnya entah bagaimana. Ini adalah permintaan dari guild, jadi jika mereka tidak mengakomodasi ini, aku tidak akan menerimanya." (ain)
 
 Terencio-kun sepertinya tidak terlalu yakin tapi jika dia tidak yakin dengan itu, tidak ada yang bisa Aku lakukan.
 
-ain"Ngomong-ngomong, sudahkah Kamu memutuskan apa yang harus dilakukan dengan gaya bertarungmu?"
+"Ngomong-ngomong, sudahkah Kamu memutuskan apa yang harus dilakukan dengan gaya bertarungmu?" (ain)
 
-perla"Ya, Cielmer-san. Kami berencana mencoba apa yang Kamu katakan kepadaku. Jika tidak berjalan dengan baik, kami akan kembali ke gaya bertarung lama kami."
+"Ya, Cielmer-san. Kami berencana mencoba apa yang Kamu katakan kepadaku. Jika tidak berjalan dengan baik, kami akan kembali ke gaya bertarung lama kami." (perla)
 
-ain"Kalau begitu, ayo kita coba hari ini sambil memikirkannya."
+"Kalau begitu, ayo kita coba hari ini sambil memikirkannya." (ain)
 
 Saat kami mengobrol ringan, meja resepsionis menjadi kosong, jadi aku pergi untuk menerima permintaan. Aku secara teratur dibantu oleh Celia-san tetapi mungkin Aku harus mencoba pergi ke resepsionis lain demi Ciel.
 
@@ -90,27 +90,27 @@ Padahal, karena aku tahu di mana monster itu berada, mereka tidak perlu berhati-
 
 Saat kami sudah cukup dalam untuk menghadapi monster rank-D, aku berhenti berjalan sebentar.
 
-ain"setelah ini, monster rank-D akan mulai muncul. Dengan pemikiran tersebut, mari kita istirahat sejenak untuk saat ini. Aku melihat kalian sudah waspada sampai sekarang, kalian seharusnya merasa lelah, kan?"
+"setelah ini, monster rank-D akan mulai muncul. Dengan pemikiran tersebut, mari kita istirahat sejenak untuk saat ini. Aku melihat kalian sudah waspada sampai sekarang, kalian seharusnya merasa lelah, kan?" (ain)
 
-"Tapi, kami berada di tengah hutan..."
+"Tapi, kita berada di tengah hutan..."
 
-ain"Tidak ada monster di sekitar sini, jadi jangan khawatir tentang itu."
+"Tidak ada monster di sekitar sini, jadi jangan khawatir tentang itu." (ain)
 
 Setelah mendengar kata-kataku, mereka bertiga saling menatap mata, saling mengangguk, dan segera merilekskan tubuh mereka.
 
 Sepertinya mereka mempercayaiku.
 
-ain"Karena kita punya waktu sekarang, kita akan membahas apa yang harus dilakukan selama pertempuran, oke? Kamu akan melawan orc. Jika monster lain datang, aku akan mengurusnya jadi tolong mundur saat itu terjadi. Jika Kamu tetap di depan, terus terang, Kamu hanya akan menghalangiku."
+"Karena kita punya waktu sekarang, kita akan membahas apa yang harus dilakukan selama pertempuran, oke? Kamu akan melawan orc. Jika monster lain datang, aku akan mengurusnya jadi tolong mundur saat itu terjadi. Jika Kamu tetap di depan, terus terang, Kamu hanya akan menghalangiku." (ain)
 
 Bahkan setelah aku mengatakan sesuatu yang kemungkinan akan membuat marah Brass-kun , mereka hanya mengangguk pada kata-kataku tanpa ada tanda-tanda tersinggung.
 
-ain"Dalam kasus jumlah orc bertambah, Aku akan menurunkan jumlah mereka sampai hanya satu, jadi Terencio-kun, kamu di posisi depan sementara Ilda-san menyerang dari barisan belakang. Jangan khawatir tentang garis belakang dan hanya utamakan keselamatanmu, oke Terencio-kun ?"
+"Dalam kasus jumlah orc bertambah, Aku akan menurunkan jumlah mereka sampai hanya satu, jadi Terencio-kun, kamu di posisi depan sementara Ilda-san menyerang dari barisan belakang. Jangan khawatir tentang garis belakang dan hanya utamakan keselamatanmu, oke Terencio-kun ?" (ain)
 
-perla"Apa yang harus Aku lakukan?"
+"Apa yang harus Aku lakukan?" (perla)
 
-ain"Perla-san , cukup amati kami untuk saat ini. Sebagai gantinya, Aku akan mengganggu orc."
+"Perla-san , cukup amati kami untuk saat ini. Sebagai gantinya, Aku akan mengganggu orc." (ain)
 
-perla"Dimengerti."
+"Dimengerti." (perla)
 
 Mereka tampak agak gugup tetapi apakah mereka akan baik-baik saja?
 
@@ -124,7 +124,7 @@ Ada tiga monster. Berbicara tentang orc sejenak, mereka adalah monster berwajah 
 
 Mereka umumnya bertindak dalam kelompok 2 atau 3, jadi yang aku deteksi pasti adalah orc.
 
-ain"Sekarang, ayo bergerak."
+"Sekarang, ayo bergerak." (ain)
 
 Setelah mengatakan itu, kami mendekati tiga keberadaan yang Aku rasakan.
 
@@ -132,7 +132,7 @@ Ada juga keberadaan lain di sekitar kami, tetapi karena mereka terlalu jauh untu
 
 Secara kebetulan, tiga keberadaan ini juga menuju ke arah kami, jadi kami akan segera bertemu dengan mereka.
 
-ain"kita akan bertemu monster kapan saja sekarang, jadi tolong mundur sebentar."
+"kita akan bertemu monster kapan saja sekarang, jadi tolong mundur sebentar." (ain)
 
 Saat Aku memberi mereka instruksi dan menunggu monster muncul, gerakan monster tiba-tiba bertambah cepat.
 
@@ -144,11 +144,11 @@ Aku sudah berganti dengan Ciel, jadi saat mereka memasuki penglihatan kami, dua 
 
 Jika target kami adalah hewan atau manusia, maka mereka mungkin akan melarikan diri pada saat ini, tetapi karena monster berbeda, dalam arti tertentu, itu lebih mudah.
 
-ain"Sekarang, lanjutkan seperti yang direncanakan."
+"Sekarang, lanjutkan seperti yang direncanakan." (ain)
 
-terencio"Y-ya. Ilda, ayo."
+"Y-ya. Ilda, ayo." (Terencio)
 
-Ilda"Roger!"
+"Roger!" (ilda)
 
 Melihat Terencio-kun berlari ke arahnya, orc berhenti mengamati dan menyiapkan senjatanya.
 
@@ -160,15 +160,15 @@ Meski untungnya hanya mengenai armor Terecio-kun, dia masih kehilangan keseimban
 
 Sebelum Orc bisa menindaklanjuti dengan serangan, Ilda-san menembak panah untuk menjaganya.
 
-ciel [Gunakan hanya mantra air sederhana, kan?]
+[Gunakan hanya mantra air sederhana, kan?] (ciel)
 
-ain [Dan tolong jaga konsumsi kekuatan sihir sesedikit mungkin]
+[Dan tolong jaga konsumsi kekuatan sihir sesedikit mungkin] (ain)
 
-ciel [Itu permintaan yang cukup sulit.]
+[Itu permintaan yang cukup sulit.] (ciel)
 
-ain [Haruskah kita berganti? Ini tidak benar-benar sihir tempur, jadi aku harus bisa mengatasinya juga.]
+[Haruskah kita berganti? Ini tidak benar-benar sihir tempur, jadi aku bisa mengatasinya juga.] (ain)
 
-ciel [Bahkan Ain tidak boleh mengambil peranku lho..]
+[Bahkan Ain tidak boleh mengambil peranku lho..] (ciel)
 
 Terencio-kun berdiri kembali dan kali ini, dia menangkis tombak orc sambil mengayunkan pedangnya di setiap waktu luang yang dia miliki. Tidak seperti ayunan pertamanya yang sembrono, dia sekarang menargetkan titik-titik yang tidak dilindungi oleh baju besi. Tetap saja, dia tidak melakukan pukulan yang fatal.
 
@@ -192,7 +192,7 @@ Meskipun Ciel mengganggu pergerakan orc, mereka cukup stabil selama pertempuran.
 
 Sementara Aku tenggelam dalam pikiranku, pukulan terakhir terjadi. Saat orc menangkis tebasan Terencio-kun dengan tombaknya, pedang Terencio-kun malah mematahkan tombak menjadi dua dan mendaratkan serangan ke tubuh monster itu.
 
-terencio"Kita berhasil ...... kita berhasil!"
+"Kita berhasil ...... kita berhasil!" (terencio)
 
 Setelah memenangkan pertarungan sengit, Terencio-kun berteriak dengan keras, sepertinya dia tidak bisa menyembunyikan kegembiraannya.
 
@@ -200,26 +200,30 @@ Bukan hal yang baik untuk dilakukan dalam situasi ini, tetapi dia mungkin tidak 
 
 Lebih penting lagi, Aku ingin tahu tentang pukulan terakhirnya.
 
-ain [Dalam tebasan terakhir, energi sihir mengalir ke pedangnya, kan?]
+[Dalam tebasan terakhir, energi sihir mengalir ke pedangnya, kan?] (ain)
 
-ciel [Seperti yang kuduga, itu adalah kekuatan Jobnya.]
+[Seperti yang kuduga, itu adalah kekuatan Jobnya.] (ciel)
 
-ain [Dari apa yang aku lihat, sepertinya dia hanya bisa melakukannya sekarang.]
+[Dari apa yang aku lihat, sepertinya dia hanya bisa melakukannya sekarang.] (ain)
 
-ciel [Itu hal yang cukup langka untuk dilihat, bukan?]
+[Itu hal yang cukup langka untuk dilihat, bukan?] (ciel)
 
-ain [Kurasa begitu.]
+[Kurasa begitu.] (ain)
 
-ain"Kerja bagus. Perla-san, apakah itu membantumu?"
+"Kerja bagus. Perla-san, apakah itu membantumu?" (ain)
 
 Karena tidak ada gunanya tetap diam, aku berkata begitu dan menoleh ke arah Perla-san , yang menatapku sambil berkedip karena terkejut.
 
 Tidak lama kemudian, dia menjawab "Ya!" Dengan ekspresi senang.
 
-perla"Jika hanya itu, Aku pasti bisa melakukannya juga."
+"Jika hanya itu, Aku pasti bisa melakukannya juga." (perla)
 
-ain"Itu sebenarnya bukan sesuatu yang bisa Kamu kuasai langsung, jadi tolong jangan terburu-buru dan lakukan yang terbaik."
+"Itu sebenarnya bukan sesuatu yang bisa Kamu kuasai langsung, jadi tolong jangan terburu-buru dan lakukan yang terbaik." (ain)
 
-perla"Tentu saja!"
+"Tentu saja!" (perla)
 
 Dengan itu, uji coba rank D mereka sekarang telah berakhir. Setelah ini, kami bertemu laba-laba dan segera mengubah segalanya kecuali batu sihirnya menjadi debu. Rasanya sepertinya anggota party terdiam terkejut, tapi aku memutuskan untuk tidak terlalu memikirkannya.
+
+---------------------
+
+yaaaah ain-sensei mengajari perla dan strategi untuk tim... bagus juga tim yang sekarang mau mendengarkan dengan baik, walau gugup, itu hal yang wajar, tidak seperti brass yg kelewat percaya diri... dan saya penasaran dgn ekpresi mereka ketika mereka melihat ain/ciel memusnahkan laba-laba seketika bahahahaha...
