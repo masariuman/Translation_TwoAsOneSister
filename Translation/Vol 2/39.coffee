@@ -1,12 +1,12 @@
 CHAPTER 39: SONG, DANCE, AND STAMPEDE
 
-ain [Sebelum kita berganti tubuh, maukah kamu jika Aku bernyanyi sebentar?]
+[Sebelum kita berganti tubuh, maukah kamu jika Aku bernyanyi sebentar?] (ain)
 
-ciel [Tidak masalah, tapi mengapa?]
+[Tidak masalah, tapi mengapa?] (ciel)
 
-ain [Aku ingin monster sebanyak mungkin datang kepada kita. tidak ada orang dalam jangkauan kita, jadi kupikir jika kita bisa menuntun monster ke arah kita, sisanya yang lain akan mengikutinya.]
+[Aku ingin monster sebanyak mungkin datang kepada kita. tidak ada orang dalam jangkauan kita, jadi kupikir jika kita bisa menuntun monster ke arah kita, sisanya yang lain akan mengikutinya.] (ain)
 
-ciel [Baiklah. Aku akan menyerahkan timing nya ke Ain.]
+[Baiklah. Aku akan menyerahkan timing nya ke Ain.] (ciel)
 
 Dari tepi hutan, kami sekarang berada sedikit di dekat kota. Segerombolan monster akan tiba dalam beberapa menit, tapi Ciel dan aku terus berbicara seperti yang selalu kami lakukan.
 
@@ -14,11 +14,11 @@ Karena kami benar-benar tidak dapat membiarkan siapa pun tahu bahwa Aku adalah S
 
 Sisanya akan mengikuti. Aku beralih dengan Ciel dan menyerahkan sisanya padanya.
 
-ciel [Ain. Bukankah hari ini terasa agak panas?]
+[Ain. Bukankah hari ini terasa agak panas?] (ciel)
 
-ain [Benarkah? ...... Tidak, itu benar. Lalu, haruskah Aku menyanyikan sesuatu dengan nuansa yang sejuk dan menyegarkan?]
+[Benarkah? ...... Tidak, itu benar. Lalu, haruskah Aku menyanyikan sesuatu dengan nuansa yang sejuk dan menyegarkan?] (ain)
 
-ciel [Kita mungkin di sini untuk waktu yang lama, tapi ....... Tidak perlu khawatir tentang itu, kan?]
+[Kita mungkin di sini untuk waktu yang lama, tapi ....... Tidak perlu khawatir tentang itu, kan?] (ciel)
 
 Ciel terkikik. Bahkan jika itu akan memakan waktu beberapa jam seperti yang dia perkirakan, +REPERTOARku seharusnya sudah cukup untuk bertahan.
 
@@ -118,15 +118,15 @@ Mereka jelas jauh lebih besar dari monster sampai sekarang, dan bahkan setelah m
 
 Bahkan setelah memukul mereka dengan cambuk air, bahkan setelah memukul mereka dengan bola air, bahkan dengan ombak yang berdesir dan anak panah yang banyak, itu semua tampak seperti usaha yang sia-sia.
 
-ciel [Menyusahkan sekali.]
+[Menyusahkan sekali.] (ciel)
 
-ain [Kamu tidak terdengar terlalu bermasalah dengan itu, Ciel.]
+[Kamu tidak terdengar terlalu bermasalah dengan itu, Ciel.] (ain)
 
-ciel [Fufu, aku bercanda. Haruskah kita membekukannya?]
+[Fufu, aku bercanda. Haruskah kita membekukannya?] (ciel)
 
-ain [Baiklah. Ngomong-ngomong, apakah kamu masih ahli dalam kekuatan sihir?]
+[Baiklah. Ngomong-ngomong, apakah kamu masih ahli dalam kekuatan sihir?] (ain)
 
-ciel [Aku ... mungkin bermain-main sedikit terlalu banyak, tapi ini tidak apa-apa.]
+[Aku ... mungkin bermain-main sedikit terlalu banyak, tapi ini tidak apa-apa.] (ciel)
 
 Kami berhenti sebentar dan mengobrol.
 
@@ -168,23 +168,23 @@ Nah, entah bagaimana kami telah menangani semua ini, tetapi masih ada masalah.
 
 ada dua keberadaan yang datang dari kota dan salah satunya kembali. Dengan kata lain, masih ada satu. Aku lebih suka jika keduanya kembali bersama. Kami terus diawasi sejak bagian es, tapi mengingat tidak ada dance princess yang bisa menunjukkan kekuatan pada skala ini sendiri, itu mungkin akan dianggap sebagai sihir skala besar atau sesuatu yang serupa ...... Biasanya, begitulah.
 
-ain "jahat sekali kamu hanya mengintip saja, Carol-san."
+"jahat sekali kamu hanya mengintip saja, Carol-san." (ain)
 
-carol "Setelah bersenang-senang menari, mengapa suasana hatimu tiba-tiba buruk?"
+"Setelah bersenang-senang menari, mengapa suasana hatimu tiba-tiba buruk?" (carol)
 
-ain "Seseorang menerobos masuk saat aku menikmati diriku sendiri, jadi aku tidak bisa menahannya."
+"Seseorang menerobos masuk saat aku menikmati diriku sendiri, jadi aku tidak bisa menahannya." (ain)
 
 Sambil berbalik, aku melihat Carol-san yang terkejut saat dia menatapku.
 
 Kami telah menyelesaikan sendirian... Meskipun ada alasan untuk menunjukkan rasa syukur, tidak ada alasan untuk bereaksi seperti itu! Hanya bercanda.
 
-ain "Untuk saat ini, kamu tidak cukup kasar untuk meminta penjelasan, kan?"
+"Untuk saat ini, kamu tidak cukup kasar untuk meminta penjelasan, kan?" (ain)
 
-carol "Yah, tentu saja. Setelah semua yang baru saja terjadi. Selain itu, Aku bukan Hunter yang terlalu buruk untuk menuntut penjelasan di sini."
+"Yah, tentu saja. Setelah semua yang baru saja terjadi. Selain itu, Aku bukan Hunter yang terlalu buruk untuk menuntut penjelasan di sini." (carol)
 
-ain "Tapi kamu penasaran, kan? Tentang Jobku."
+"Tapi kamu penasaran, kan? Tentang Jobku." (ain)
 
-carol "Itu ...... salahmu karena memberitahuku tentang hubungan sihir dan Job, kan?"
+"Itu ...... salahmu karena memberitahuku tentang hubungan sihir dan Job, kan?" (carol)
 
 Carol-san membuang muka dengan wajah cemberut dan itu begitu lucu, aku hampir tertawa.
 
@@ -192,29 +192,29 @@ sepertinya kenikmatan yang tersisa dari sebelumnya membuatku sedikit lebih banya
 
 Tetap saja, Aku tidak berniat menyampaikan semuanya selama kami masih di negara ini.
 
-ain "gimana ya, Job yang Aku katakan itu benar. Hanya itu yang bisa Aku katakan untuk saat ini."
+"gimana ya, Job yang Aku katakan itu benar. Hanya itu yang bisa Aku katakan untuk saat ini." (ain)
 
-carol "Benar. Aku akan memikirkannya nanti."
+"Benar. Aku akan memikirkannya nanti." (carol)
 
-ain "Ngomong-ngomong, tentang monster ini, haruskah Aku membongkar semuanya? meskipun Mengambil bagian bukti, batu sihir, dan sebagainya akan merepotkan."
+"Ngomong-ngomong, tentang monster ini, haruskah Aku membongkar semuanya? meskipun Mengambil bagian bukti, batu sihir, dan sebagainya akan merepotkan." (ain)
 
-carol "Itu tergantung padamu. Jika ada bahan dan batu sihir yang kamu inginkan, ambillah. Jika kamu tidak menginginkan apa pun, mintalah guild untuk menangani ini. Setelah itu, kamu akan diberi hadiah untuk menyelesaikan ini semua sebesar 70% dari jumlah pembelian material."
+"Itu tergantung padamu. Jika ada bahan dan batu sihir yang kamu inginkan, ambillah. Jika kamu tidak menginginkan apa pun, mintalah guild untuk menangani ini. Setelah itu, kamu akan diberi hadiah untuk menyelesaikan ini semua sebesar 70% dari jumlah pembelian material." (carol)
 
 Aku penasaran mengapa hanya 70%, sepertinya 30% akan digunakan untuk biaya perantara guild dan hadiah untuk Hunter yang menerima permintaan tersebut. Ini pasti jauh lebih baik daripada melakukannya sendiri.
 
 Dengan mengatakan itu, seharusnya tidak masalah untuk mengambil batu sihir monster kelas-C yang memiliki reaksi yang sangat kuat dari +DETECTION.
 
-ain [Ciel, apakah kamu memiliki bahan yang kamu inginkan?]
+[Ciel, apakah kamu memiliki bahan yang kamu inginkan?] (ain)
 
-ciel [Bahan? Bahkan jika kamu bertanya kepadaku Ain, Aku tidak tahu bagaimana cara menggunakannya. bisakah tanduk dan semacamnya berubah menjadi senjata? Bulu menjadi baju besi? walau begitu, aku tidak membutuhkannya, kan?]
+[Bahan? Bahkan jika kamu bertanya kepadaku Ain, Aku tidak tahu bagaimana cara menggunakannya. bisakah tanduk dan semacamnya berubah menjadi senjata? Bulu menjadi baju besi? walau begitu, aku tidak membutuhkannya, kan?] (ciel)
 
-ain [Benar, kamu tidak membutuhkannya. Ini tidak seperti kita bisa membuat pil, tapi batu sihir mungkin berguna untuk sesuatu, jadi kupikir tidak apa-apa hanya mengambil itu saja.]
+[Benar, kamu tidak membutuhkannya. Ini tidak seperti kita bisa membuat pil, tapi batu sihir mungkin berguna untuk sesuatu, jadi kupikir tidak apa-apa hanya mengambil itu saja.] (ain)
 
-ciel [Begitu . Ain, bisakah kamu memilih mana yang bagus?]
+[Begitu . Ain, bisakah kamu memilih mana yang bagus?] (ciel)
 
-ain [Dalam hal ini, Aku akan mengambil hanya beberapa batu sihir.]
+[Dalam hal ini, Aku akan mengambil hanya beberapa batu sihir.] (ain)
 
-ciel [baiklah, nikmati waktumu.]
+[baiklah, nikmati waktumu.] (ciel)
 
 Aku beralih dengan Ciel, memilih 10 dari monster yang dibekukan di kaki mereka, dan meminta Ciel mendapatkan batu sihir mereka.
 
@@ -226,27 +226,27 @@ Ciel dengan cepat mengambil batu sihir dengan sihir, dan setelah membersihkannya
 
 Sangat nyaman. Jika kita memiliki kantong magic yang jauh lebih besar, apakah kita bisa membawa semua monster ini?
 
-carol "Aku sudah melihat sekilas tetapi, apakah ada laba-laba raksasa-......"
+"Aku sudah melihat sekilas tetapi, apakah ada laba-laba raksasa-......" (carol)
 
-ain "Sama sekali tidak ada yang seperti itu."
+"Sama sekali tidak ada yang seperti itu." (ain)
 
-carol "Bisakah kamu menjawabku dengan serius? Itu akan mempengaruhi bagaimana kita harus menghadapi kedepannya."
+"Bisakah kamu menjawabku dengan serius? Itu akan mempengaruhi bagaimana kita harus menghadapi kedepannya." (carol)
 
-ain "setiap laba-laba yang menuju ke sini berubah menjadi abu. batu sihir mereka seharusnya berguling-guling di tanah di suatu tempat, kurasa."
+"setiap laba-laba yang menuju ke sini berubah menjadi abu. batu sihir mereka seharusnya berguling-guling di tanah di suatu tempat, kurasa." (ain)
 
-carol "baiklah. Dimengerti."
+"baiklah. Dimengerti." (carol)
 
 Mengabaikan perasaanku, hanya memiliki satu jenis monster tertentu yang bertahan mungkin akan menjadi masalah tersendiri.
 
 Ini mungkin menjadi spesies tingkat tinggi. Atau lebih tepatnya, apakah monster dunia ini berevolusi atau bertransformasi?
 
-ain "Aku punya pertanyaan, Aku tahu bahwa ada monster yang memiliki spesies tingkat tinggi, subspesies, dan sebagainya, tetapi apakah spesies yang ada tiba-tiba berubah juga?"
+"Aku punya pertanyaan, Aku tahu bahwa ada monster yang memiliki spesies tingkat tinggi, subspesies, dan sebagainya, tetapi apakah spesies yang ada tiba-tiba berubah juga?" (ain)
 
-carol "Kalau dipikir-pikir, kita belum membicarakan evolusi, kan? Telah dikonfirmasi bahwa monster berumur panjang berubah menjadi spesies tingkat tinggi. Tidak ada perbedaan antara monster yang lahir sebagai spesies tingkat tinggi dan yang berevolusi tingkat tinggi."
+"Kalau dipikir-pikir, kita belum membicarakan evolusi, kan? Telah dikonfirmasi bahwa monster berumur panjang berubah menjadi spesies tingkat tinggi. Tidak ada perbedaan antara monster yang lahir sebagai spesies tingkat tinggi dan yang berevolusi tingkat tinggi." (carol)
 
-ain "Jadi itu sebabnya kamu bertanya tentang laba-laba?"
+"Jadi itu sebabnya kamu bertanya tentang laba-laba?" (ain)
 
-carol "Akan menyebalkan jika ada laba-laba menjadi tingkat yang lebih tinggi. Selain itu, banyak monster menjadi lebih cerdas setelah berevolusi ke tingkat yang lebih tinggi, dan ada kasus di mana hal itu memicu kejadian seperti ini."
+"Akan menyebalkan jika ada laba-laba menjadi tingkat yang lebih tinggi. Selain itu, banyak monster menjadi lebih cerdas setelah berevolusi ke tingkat yang lebih tinggi, dan ada kasus di mana hal itu memicu kejadian seperti ini." (carol)
 
 Sepertinya ada suatu masa ketika spesies tingkat tinggi lahir, mengumpulkan monster dari garis keturunan yang sama, meningkatkan jumlah mereka, dan turun ke desa.
 
@@ -256,44 +256,48 @@ Sementara kami melakukannya, Aku bertanya tentang bagaimana monster berkembang b
 
 Dalam perjalanan pulang, saat mengobrol dengan Carol-san, Aku tiba-tiba menyadari sesuatu yang penting.
 
-ain "oh iya, insiden ini akan ditambahkan ke pencapaianku, kan?"
+"oh iya, insiden ini akan ditambahkan ke pencapaianku, kan?" (ain)
 
-carol "Pasti. Orang lain dan Aku memverifikasinya, jadi ini pasti akan menjadi pencapaianmu."
+"Pasti. Orang lain dan Aku memverifikasinya, jadi ini pasti akan menjadi pencapaianmu." (carol)
 
-ain "Aku bisa menjadi rank-C, kan?"
+"Aku bisa menjadi rank-C, kan?" (ain)
 
-carol "Karena kamu menyelesaikan kasus ini dengan beberapa lusinan monster kelas-C di dalamnya, itu tidak akan aneh bahkan jika kamu menjadi rank C teratas sejak awal. Dan masih tidak aneh juga untukmu untuk mencapai rank-B, tetapi itu akan sulit mengingat usiamu."
+"Karena kamu menyelesaikan kasus ini dengan beberapa lusinan monster kelas-C di dalamnya, itu tidak akan aneh bahkan jika kamu menjadi rank C teratas sejak awal. Dan masih tidak aneh juga untukmu untuk mencapai rank-B, tetapi itu akan sulit mengingat usiamu." (carol)
 
-ain "yah mau bagaimana lagi."
+"yah mau bagaimana lagi." (ain)
 
 Untuk saat ini, menjadi rank-C sudah cukup baik.
 
-ain "Jadi apa yang menyebabkan hal ini terjadi hari ini?"
+"Jadi apa yang menyebabkan hal ini terjadi hari ini?" (ain)
 
-carol "Aku hanya datang ke sini untuk melihat apakah memang ada penyerbuan monster, jadi entahlah... Sebaliknya, bagaimana denganmu? Apakah kamu tahu sesuatu?"
+"Aku hanya datang ke sini untuk melihat apakah memang ada penyerbuan monster, jadi entahlah... Sebaliknya, bagaimana denganmu? Apakah kamu tahu sesuatu?" (carol)
 
-ain "Aku menemukan cairan berwarna aneh, beraroma manis."
+"Aku menemukan cairan berwarna aneh, beraroma manis." (ain)
 
-carol "Itu manis yang memuakkan, kan?"
+"Itu manis yang memuakkan, kan?" (carol)
 
-ain "Begitulah, tapi party yang bersamaku kebetulan tidak merasakan hal yang sama. Sebaliknya, salah satu dari mereka bahkan tidak mencium apapun sama sekali."
+"Begitulah, tapi party yang bersamaku kebetulan tidak merasakan hal yang sama. Sebaliknya, salah satu dari mereka bahkan tidak mencium apapun sama sekali." (ain)
 
-carol "...... Nah, itu sudah dipastikan."
+"...... Nah, itu sudah dipastikan." (carol)
 
-ain "Seperti yang Aku pikirkan, aromanya akan terasa berbeda tergantung pada jumlah energi sihir yang dimiliki, kan?"
+"Seperti yang Aku pikirkan, aromanya akan terasa berbeda tergantung pada jumlah energi sihir yang dimiliki, kan?" (ain)
 
-carol "Tepat. Dan karena monster memiliki batu sihir secara alami, kamu dapat mengatakan bahwa mereka secara alami memiliki energi sihir. Tertarik oleh aromanya saja sudah cukup, tetapi yang menjengkelkan adalah semakin tinggi kelas monsternya, semakin kuat mereka tertarik pada benda itu."
+"Tepat. Dan karena monster memiliki batu sihir secara alami, kamu dapat mengatakan bahwa mereka secara alami memiliki energi sihir. Tertarik oleh aromanya saja sudah cukup, tetapi yang menjengkelkan adalah semakin tinggi kelas monsternya, semakin kuat mereka tertarik pada benda itu." (carol)
 
 Menghela nafas panjang, Carol-san kemudian bertanya padaku.
 
-carol "Dan bendanya mana?"
+"Dan bendanya mana?" (carol)
 
-ain "Setelah menutupinya, Aku meminta party yang bersamaku untuk membawanya ke kota."
+"Setelah menutupinya, Aku meminta party yang bersamaku untuk membawanya ke kota." (ain)
 
-carol "Kalau begitu, semuanya harus diselesaikan pada saat kita kembali. hal paling buruk, kita mungkin tiba di tengah-tengah keributan."
+"Kalau begitu, semuanya harus diselesaikan pada saat kita kembali. hal paling buruk, kita mungkin tiba di tengah-tengah keributan." (carol)
 
-ain "Kedengarannya sangat mengganggu."
+"Kedengarannya sangat mengganggu." (ain)
 
 Aku memiliki firasat bahwa kesalahan akan ditimpakan padaku.
 
 Menyimpan itu hanya dalam pikiranku, Aku memutuskan untuk mengakhiri diskusi kami tentang kejadian ini.
+
+---------------
+
+Yah nampaknya akan ada pihak yang menuduh ain/ciel, well tidak masalah tinggal pindah kota aja, udah rank-c juga. ngapain diam ditempat yg tidak tentram.. dan akhirnya dedek ciel menikmati menari setelah sekian lama tidak menari !! Yaaaayy !
