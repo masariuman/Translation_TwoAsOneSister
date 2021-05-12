@@ -80,56 +80,71 @@ Karena Ciel sekarang sudah benar-benar terjaga, Aku bertanya padanya "Haruskah k
 
 Setelah menyelesaikan persiapannya, Ciel disambut dengan "Selamat pagi." Saat dia membuka pintu.
 
-Dengan tatapan ragu-ragu, Ciel mengalihkan pandangannya dan melihat seorang wanita cantik berpakaian hitam bermata jangkung — dari sudut pandang kami — berdiri di sana.
+Dengan tatapan ragu-ragu, Ciel mengalihkan pandangannya dan melihat seorang wanita cantik berpakaian hitam bermata sipit keatas — dari sudut pandang kami — berdiri di sana.
 
-"Pagi. Di sini untuk Aku?"
-" Maafkan perkenalan Aku yang terlambat. Tolong panggil aku Atlo.
-Seperti yang diminta, kami datang untuk menjemput Kamu."
-"Begitu . Lalu, pimpin jalannya."
-" Tentu saja."
+"Pagi. menungguku?" (ciel)
 
-"Seseorang yang sopan datang."
-"Kurasa ini berarti mereka bukan hanya organisasi yang sulit diatur."
-"Ain, apakah kamu tahu apa yang akan terjadi selanjutnya?"
-"Aku samar-samar bisa menebak."
-"Kalau begitu, aku ingin kamu untuk memberitahuku jika aku mungkin membuat kesalahan."
-" Bahkan jika kamu melakukan sesuatu yang salah, itu mungkin akan baik-baik saja. Para pembunuh itu cukup suam-suam kuku."
-Iklan
+"Maafkan perkenalan Aku yang terlambat. Tolong panggil aku Atlo. Seperti yang diminta, kami datang untuk menjemputmu." (atlo)
+
+"Begitu. kalau begitu, pimpin jalannya." (ciel)
+
+"Tentu saja." (atlo)
+
+[Seseorang yang sopan datang.] (ciel)
+
+[Kurasa ini berarti mereka bukan hanya organisasi yang tidak jelas.] (ain)
+
+[Ain, apakah kamu tahu apa yang akan terjadi selanjutnya?] (ciel)
+
+[Aku samar-samar bisa menebak.] (ain)
+
+[Kalau begitu, aku ingin kamu untuk memberitahuku jika aku mungkin membuat kesalahan.] (ciel)
+
+[Bahkan jika kamu melakukan sesuatu yang salah, itu mungkin akan baik-baik saja. Para pembunuh itu begitu berbahaya.] (ain)
 
 Saat kami dipandu lebih dalam ke penginapan karena suatu alasan, Aku terus mengobrol dengan Ciel.
+
 Sebagian mungkin karena Aku hanya memiliki beberapa pilihan saat itu, tetapi Aku tidak takut pada mereka seperti yang Aku lakukan pada upaya pembunuhan berulang kali di mansion.
+
 Untuk alasan itu, bahkan jika Ciel mengikuti tanpa persiapan, itu seharusnya tidak terlalu berbahaya.
 
-Meskipun Atlo sesekali melihat kembali ke Ciel, kami meninggalkan penginapan dari apa yang tampaknya merupakan pintu masuk belakang tanpa dia bahkan berbicara kepada kami.
+Meskipun Atlo sesekali melihat kembali ke Ciel, kami meninggalkan penginapan dari apa yang tampaknya merupakan pintu masuk belakang dan dia bahkan tidak berbicara kepada kami.
+
 Di luar pintu, jalan setapak menuju ke jalan yang agak kotor. Meskipun tampaknya bukan semacam permukiman kumuh, ia memiliki suasana kerusuhan yang samar-samar.
+
 Setelah agak jauh dari penginapan, kami memasuki gedung yang berbeda dan naik tangga ke atas — lantai tiga —.
-Alto mengetuk pintu, mengatakan"Aku telah membawa tamu." Dan Aku mendengar suara maskulin yang dalam berkata"Masuk." Sebagai balasan.
 
-Saat kami memasuki ruangan, hal pertama yang Aku ingat adalah kantor eksekutif. Aku mungkin salah karena Aku belum pernah melihat kantor eksekutif yang sebenarnya sebelumnya, tetapi memiliki sofa dan meja yang tampak berkelas, dan apa yang tampak seperti meja bos duduk lebih jauh di dalam.
-Bos yang diduga memiliki tubuh berotot yang sangat besar dan mengenakan pakaian yang mencolok. Jika dia berada di samping Atlo, mereka akan memberikan getaran Beauty and the Beast yang sempurna.
+Alto mengetuk pintu, mengatakan "Aku telah membawanya." Dan Aku mendengar suara maskulin yang dalam berkata "Masuk." Sebagai balasan.
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+Saat kami memasuki ruangan, hal pertama yang Aku ingat adalah kantor eksekutif. Aku mungkin salah karena Aku belum pernah melihat kantor eksekutif yang sebenarnya sebelumnya, tetapi memiliki sofa dan meja yang tampak berkelas, dan apa yang tampak seperti meja bos juga ada.
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+ada seseorang yang diduga bos dan memiliki tubuh berotot yang sangat besar dan mengenakan pakaian yang mencolok. Jika dia berada di samping Atlo, mereka akan memberikan getaran Sicantik dan Siburuk Rupa yang sempurna.
 
 Dia memiliki dua pengawal bersamanya tapi selain mereka, aku bisa merasakan sejumlah kehadiran lain di dalam ruangan juga.
 
-"Hei nona kecil, betapa senangnya kamu datang. Duduk."
+"Hei nona kecil, terima kasih telah datang. Duduklah."
 
-Bos yang diduga menyuruh kami duduk, jadi Ciel duduk di sofa yang tampak mahal dan segera secangkir teh hangat disajikan. Atlo yang menyajikannya, tapi kapan dia punya waktu untuk menyiapkannya?
+orang yang diduga bos menyuruh kami duduk, jadi Ciel duduk di sofa yang tampak mahal dan segera secangkir teh hangat disajikan. Atlo yang menyajikannya, tapi kapan dia punya waktu untuk menyiapkannya?
 
-"Ain. Setelah dipikir-pikir, maukah kamu beralih ke diskusi?"
-" Tidak sama sekali. Apakah Kamu memiliki sesuatu yang ingin Kamu tanyakan?"
-" Bisakah Kamu bertanya mengapa situasi saat ini terjadi?"
-" Aku akan mencoba sebaik mungkin."
+[Ain. Setelah dipikir-pikir, maukah kamu mengambil alih untuk diskusi?] (ciel)
 
-Karena Ciel meminta peralihan, Aku setuju tanpa ragu-ragu. Seperti yang Aku pikirkan, berbicara dengan pria untuk waktu yang lama mungkin masih terlalu berlebihan bagi Ciel.
-Daripada tiba-tiba memulai dengan situasi seperti ini, akan lebih baik jika dia mulai berbicara dengan resepsionis guild pria dan sejenisnya. Sebaliknya, jika Aku jujur, Ciel tidak perlu bekerja keras selama kami masih di negara ini.
+[baiklah. Apakah Kamu memiliki sesuatu yang ingin Kamu tanyakan?] (ain)
 
-"Nama Aku Faneed. Terlepas dari penampilan Aku, Aku menempati bagian atas bawah tanah."
-" Terima kasih atas penjelasannya. Kamu bisa memanggil Aku nona kecil atau Blan, mana saja yang Kamu suka."
-" Alias, kan?"
-" Tentu saja. Ngomong-ngomong, apakah ini tempat untuk berdiskusi? Atau sebaliknya, ……"
+[Bisakah Kamu bertanya mengapa situasi saat ini terjadi?] (ciel)
+
+[Aku akan mencoba sebaik mungkin.] (ain)
+
+Karena Ciel memintaku melakukannya, Aku setuju tanpa ragu-ragu. Seperti yang Aku pikirkan, berbicara dengan pria untuk waktu yang lama mungkin masih terlalu berlebihan bagi Ciel.
+
+Daripada tiba-tiba memulai dengan situasi seperti ini, akan lebih baik jika dia mulai berbicara dengan resepsionis guild pria dan sejenisnya. jujur saja, Ciel tidak perlu bekerja keras selama kami masih di negara ini.
+
+"Namaku Faneed. Terlepas dari penampilanku, Aku menempati tingkatan teratas dalam organisasi underground." (Faneed)
+
+"Terima kasih atas penjelasannya. Kamu bisa memanggilku nona kecil atau Blan, mana saja yang Kamu suka." (ain)
+
+"Alias, ya?" (Faneed)
+
+"Tentu saja. Ngomong-ngomong, apakah ini tempat untuk berdiskusi? Atau sebaliknya, ......" (ain)
 
 Mengatakan demikian, Aku mengalihkan pandangan Aku ke seluruh ruangan. Sulit untuk menghitungnya, tetapi setidaknya harus ada 20.
 Dikelilingi oleh banyak orang ini, aku tidak bisa menahan curiga jika mereka berniat untuk memulai perkelahian.
