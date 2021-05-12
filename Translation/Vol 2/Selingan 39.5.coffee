@@ -20,13 +20,13 @@ Tetap saja, semua ini tentang setelah kami menjadi rank-D, jadi aku harus bekerj
 
 Ini adalah ketiga kalinya Aku melihat Guru sejak kami bekerja sebagai party bersama. Tetap saja, Guru mengajariku banyak hal penting, jadi dia adalah guruku.
 
-perla "Teren-kun . Aku baru saja melihat Guru, Aku akan kembali."
+"Teren-kun . Aku baru saja melihat Guru, Aku akan kembali." (perla)
 
-teren "baiklah."
+"baiklah." (terencio)
 
-Ilda "Jangan ganggu dia, oke?"
+"Jangan ganggu dia, oke?" (ilda)
 
-perla "Tidak apa-apa kok. Lagipula itu Guru."
+"Tidak apa-apa kok. Lagipula itu Guru." (perla)
 
 Aku bahkan tidak yakin apa yang Aku maksud dengan itu, tetapi Aku sangat senang melihatnya sehingga Aku berlari ke arahnya.
 
@@ -34,20 +34,20 @@ Dia memiliki rambut putih halus, mata biru, bibir dan hidung kecil. Meskipun cuk
 
 Apalagi dia imut seperti boneka. Dengan penampilan Guru, Aku bisa membayangkan dia benar-benar seorang bangsawan tetapi karena dia tidak berbicara tentang hidupnya, Aku tidak tahu pasti.
 
-perla "Guru, apakah Kamu pergi ke hutan untuk permintaan juga?"
+"Guru, apakah Kamu pergi ke hutan untuk permintaan juga?" (perla)
 
-ain "benar, tapi, 'Guru'?"
+"benar, tapi, 'Guru'?" (ain)
 
 Kalau dipikir-pikir, ini mungkin pertama kalinya aku benar-benar memanggilnya Guru saat berbicara dengannya.
 
 Guru membalas dengan tatapan bingung, tetapi karena 'Guru' benar-benar cocok dengannya dihatiku, Aku membalasnya tanpa mempedulikannya.
 
-perla "Ya! Aku dapat melakukan lebih banyak hal sekarang karena bantuan Guru dan kami sekarang diizinkan untuk mengikuti tes rank-D. Itu semua berkat semua yang Kamu ajarkan kepadaku, jadi Kamu adalah Guruku. Apakah itu buruk?"
+"Ya! Aku dapat melakukan lebih banyak hal sekarang karena bantuan Guru dan kami sekarang diizinkan untuk mengikuti tes rank-D. Itu semua berkat semua yang Kamu ajarkan kepadaku, jadi Kamu adalah Guruku. Apakah itu buruk?" (perla)
 
-ain "Tidak, itu tidak terlalu buruk atau semacamnya. yaah, selamat telah menerima izin untuk mengikuti tes rank-D. kalian tidak menuju ujian sekarang, kan?"
+"Tidak, itu tidak terlalu buruk atau semacamnya. yaah, selamat telah menerima izin untuk mengikuti tes rank-D. kalian tidak menuju ujian sekarang, kan?" (ain)
 
-perla "Kami telah memutuskan untuk mengambilnya setelah kami menjadi sedikit lebih baik dengan kerja tim kami.
-Aku masih membasahi Teren-kun sampai sekarang."
+"Kami telah memutuskan untuk mengambilnya setelah kami menjadi sedikit lebih baik dengan kerja tim kami.
+Aku masih membasahi Teren-kun sampai sekarang." (perla)
 
 Sementara aku menikmati obrolan kami bersama-sama, kami terjebak dengan Teren-kun dan Ilda-chan .
 
@@ -67,23 +67,23 @@ Saat kami hampir berada di tepi hutan, atau lebih tepatnya saat kami semakin men
 
 Baunya seperti permen gula yang sesekali Aku lihat di toko-toko, menyebabkan Aku berkata 'Baunya sangat enak!' Dengan semangat tinggi, tetapi tidak ada yang setuju denganku.
 
-teren "Apakah Kamu benar-benar yakin tentang itu?"
+"Apakah Kamu benar-benar yakin tentang itu?" (terencio)
 
-perla "Bukankah baunya seperti permen?"
+"Bukankah baunya seperti permen?" (perla)
 
-ilda "Tapi Aku benar-benar tidak mencium apa pun."
+"Tapi Aku benar-benar tidak mencium apa pun." (ilda)
 
-perla "Guru, ini ......"
+"Guru, ini ......" (perla)
 
 Aku berpikir untuk bertanya kepada Guru karena yang terbaik adalah bertanya tentang hal-hal yang tidak Aku ketahui, tetapi dia sudah pindah dari tempatnya sebelumnya dan mengambil botol kaca berbentuk aneh.
 
 Ilda-chan segera pergi kepadanya dan bertanya apa itu.
 
-ain "Obat ini?. Apakah ini terlihat familiar?"
+"Obat ini?. Apakah ini terlihat familiar?" (ain)
 
-ilda "Tidak juga, tapi apa itu?"
+"Tidak juga, tapi apa itu?" (ilda)
 
-ain "ini Kemungkinan sumber dari aroma itu. Aku punya firasat buruk tentang ini tapi untuk saat ini, maukah kamu kembali ke kota dan menunjukkan ini kepada orang-orang guild? Kamu dapat memberi tahu mereka kalau Aku mengambilnya."
+"ini Kemungkinan sumber dari aroma itu. Aku punya firasat buruk tentang ini tapi untuk saat ini, maukah kamu kembali ke kota dan menunjukkan ini kepada orang-orang guild? Kamu dapat memberi tahu mereka kalau Aku mengambilnya." (ain)
 
 Merasa tidak nyaman dengan kata-kata Guru, kami bertiga saling memandang dan mengangguk.
 
@@ -91,11 +91,11 @@ Aku yakin ada sesuatu yang tidak kami ketahui sedang terjadi saat ini.
 
 Mengambil botol kaca, kami hendak kembali ke kota, tetapi menyadari bahwa Guru tidak berniat untuk kembali, Aku tidak bisa menahan diri untuk tidak bertanya.
 
-perla "Guru, apa yang Kamu rencanakan?"
+"Guru, apa yang Kamu rencanakan?" (perla)
 
-ain "Aku ingin tahu ada apa sebenarnya. Jika tidak ada pilihan lain, Aku akan lari."
+"Aku ingin tahu ada apa sebenarnya. Jika tidak ada pilihan lain, Aku akan lari." (ain)
 
-perla "Itu janji, oke?"
+"Itu janji, oke?" (perla)
 
 Untuk beberapa alasan, Aku merasa seperti tidak dapat melihat Guru lagi, menyebabkan air mata mengalir di mataku.
 
@@ -143,7 +143,7 @@ Orang-orang yang berdiri di sekitar Alejo adalah penduduk kota dan di seberang m
 
 Mempertimbangkan bahwa para veteran tampak bingung saat mereka menatap Alejo yang berteriak-teriak, kurasa itu salahnya jika persiapan perlindungan terlambat.
 
-ilda "Ayo, cepat."
+"Ayo, cepat." (ilda)
 
 Didorong oleh Ildan-chan , aku hendak memasuki gedung Guild Hunter tetapi kemudian ketika aku mendengar dia berkata "Bocah berambut putih yang nongkrong di pub itu yang melakukannya." Aku berhenti di jalurku.
 
@@ -165,11 +165,11 @@ Aku tidak tahu apa pendapat orang ini tentang pernyataan Alejo. Tetap saja, Aku 
 
 Dan berbeda dengan diriku yang sekarang, dengan penuh percaya diri, Alejo mulai berbicara.
 
-alejo "Ada bocah berambut putih yang menjadi hunter baru-baru ini bernyanyi di pub. Dia juga berpenghasilan banyak, aku dengar. Tapi kamu sudah tahu itu, kan?"
+"Ada bocah berambut putih yang menjadi hunter baru-baru ini bernyanyi di pub. Dia juga berpenghasilan banyak, aku dengar. Tapi kamu sudah tahu itu, kan?" (alejo)
 
 "Ya, jadi?"
 
-alejo "Bukankah itu gila? Bocah 10 tahun. Kecuali ada alasan khusus, seperti neraka dia bisa mendapatkan banyak uang hanya dengan itu. aku benar-benar pergi ke sana sekali, tetapi kemudian aku ditarik oleh lagu yang secara bertahap dan aku mulai mendengar lebih jelas di tengah semua hiruk pikuk pub. Dan tentu saja. Bocah itu adalah "song princess". Dia menggunakan kekuatannya untuk menjerat orang agar menyerahkan koin mereka. Aku bahkan hampir memberikannya sendiri."
+"Bukankah itu gila? Bocah 10 tahun. Kecuali ada alasan khusus, seperti neraka dia bisa mendapatkan banyak uang hanya dengan itu. aku benar-benar pergi ke sana sekali, tetapi kemudian aku ditarik oleh lagu yang secara bertahap dan aku mulai mendengar lebih jelas di tengah semua hiruk pikuk pub. Dan tentu saja. Bocah itu adalah "song princess". Dia menggunakan kekuatannya untuk menjerat orang agar menyerahkan koin mereka. Aku bahkan hampir memberikannya sendiri." (alejo)
 
 Saat dia selesai, para Hunter yang bersimpati dengan Alejo sebelumnya menindaklanjuti dengan "Aku juga mendengarnya!" dan "Kami telah ditipu!" Sebagai balasan.
 
@@ -177,9 +177,9 @@ Guru adalah song princess? song princess, jika Aku ingat, dibenci sebagai contoh
 
 Aku merasa sangat tidak nyaman karena suatu alasan. Beberapa warga kota menjerit ketika mereka mendengar Song Princess, beberapa dari mereka tampak menjijikkan, dan yang jauh lebih mengerikan berteriak "keluarkan Song Princess dari kota!" Dan semacamnya, memperburuk ketidaknyamananku.
 
-alejo "Jadi, untuk memastikan bocah bermata biru berambut putih itu tidak melakukan apa-apa, kami punya beberapa sukarelawan untuk mengawasinya. Dan kemudian hari ini terjadi. Seseorang melihat bocah itu tiba-tiba pergi ke hutan sendirian. Jadi kami mengikutinya, karena sangat aneh dia melakukan itu, dan di sanalah dia, menyanyikan lagu untuk memanggil monster sialan! Itu sebabnya kami bergegas kembali ke sini, lihat."
+"Jadi, untuk memastikan bocah bermata biru berambut putih itu tidak melakukan apa-apa, kami punya beberapa sukarelawan untuk mengawasinya. Dan kemudian hari ini terjadi. Seseorang melihat bocah itu tiba-tiba pergi ke hutan sendirian. Jadi kami mengikutinya, karena sangat aneh dia melakukan itu, dan di sanalah dia, menyanyikan lagu untuk memanggil monster sialan! Itu sebabnya kami bergegas kembali ke sini, lihat." (alejo)
 
-perla "Tunggu sebentar."
+"Tunggu sebentar." (perla)
 
 Itu tidak mungkin terjadi. kami bertemu dengan Guru di sepanjang jalan.
 
@@ -187,11 +187,11 @@ Aku secara refleks meninggikan suaraku, segera mengumpulkan perhatian semua oran
 
 Ditambah dengan "Apa?" Alejo yang tidak senang itu terus terang membuatku takut. tapi, ketika Aku menemukan wajah yang sangat akrab di antara para Hunter yang bersimpati padanya, ketakutanku secara bertahap berubah menjadi kemarahan.
 
-perla "Kami telah pergi ke hutan bersamanya, jadi tidak mungkin Guru menyebabkan penyerbuan."
+"Kami telah pergi ke hutan bersamanya, jadi tidak mungkin Guru menyebabkan penyerbuan." (perla)
 
-alejo "Bersama ...... huh. Kamu baru saja memanggilnya 'Guru', ya? Kamu bersekongkol dengannya, kan? Terdengar sangat akrab dengannya."
+"Bersama ...... huh. Kamu baru saja memanggilnya 'Guru', ya? Kamu bersekongkol dengannya, kan? Terdengar sangat akrab dengannya." (alejo)
 
-perla "Itu, berbeda."
+"Itu, berbeda." (perla)
 
 Aku merasa malu membiarkan hal itu tergelincir, tetapi aku tidak bisa mentolerir melihat seringai Brass-kun , jadi aku membalasnya.
 
@@ -201,11 +201,11 @@ Tetapi ketika Aku berpikir demikian, salah satu veteran yang menghadapi Alejo, y
 
 "aku ada Beberapa pertanyaan, tetapi pertama-tama tentang mengapa Kamu menyimpulkan bahwa gadis berambut putih itu adalah song princess. Kamu mengatakan itu karena sesuatu dari pub, kan?"
 
-alejo "Ya, benar sekali."
+"Ya, benar sekali." (alejo)
 
 "Kemudian dalam hal ini, bagian di mana Kamu mendengar lagu itu secara bertahap aneh."
 
-alejo "Tidak, itu pasti normal. Karena semua orang yang mendengar lagu bocah itu mulai terdiam, suaranya perlahan-lahan akan menjangkau semakin jauh."
+"Tidak, itu pasti normal. Karena semua orang yang mendengar lagu bocah itu mulai terdiam, suaranya perlahan-lahan akan menjangkau semakin jauh." (alejo)
 
 "Begitulah biasanya. Tapi itu cerita yang berbeda untuk song princess. Sama sekali tidak mungkin suara sebanyak itu akan menenggelamkan suara Song Princess. Lagu song princess hanya bisa didengar atau tidak, tidak ada selain itu. Itu sebabnya jika mereka berada dalam pertempuran, musuh juga akan diperkuat. Itu cerita yang cukup terkenal, kan?"
 
@@ -215,7 +215,7 @@ Penduduk kota, sekarang bingung, menatap langsung ke Alejo dan veteran itu.
 
 "Sebagai permulaan, cukup berisiko bagi seseorang untuk memanggil monster itu sendiri, Kamu tahu?"
 
-alejo "Kota ini memiliki Hunter rank-B di dalamnya."
+"Kota ini memiliki Hunter rank-B di dalamnya." (alejo)
 
 "Kalau begitu, tidak ada gunanya memanggil monster kalau begitu. Sial, kenapa dia yang melakukannya? Dan pada dasarnya, bagaimana Kamu tahu kalau itu adalah lagu yang memanggil monster?"
 
@@ -225,7 +225,7 @@ Dengan situasi yang tampaknya sekarang melawan mereka, wajah Brass-kun menjadi p
 
 Saat pihak Alejo terdiam, tidak dapat melanjutkan argumen mereka, satu staf muncul dari gedung guild. Di tangannya ada botol yang kami bertiga kirimkan kepada mereka.
 
-staf "Penyebab penyerbuan telah diverifikasi. Itu adalah hasil dari 『Monster Lure』 yang diproduksi secara ilegal. Selain itu, Alejo dan 6 lainnya dicurigai memproduksi dan menggunakan 『Monster Lure』 secara ilegal dan karena itu, akan ditahan. Selain itu, Kamu akan dihukum karena berusaha memfitnah seorang Hunter tentang job mereka. Selain itu, penyerbuan sebagian besar telah dimusnahkan, jadi untuk memastikannya, harap tetap waspada."
+"Penyebab penyerbuan telah diverifikasi. Itu adalah hasil dari 『Monster Lure』 yang diproduksi secara ilegal. Selain itu, Alejo dan 6 lainnya dicurigai memproduksi dan menggunakan 『Monster Lure』 secara ilegal dan karena itu, akan ditahan. Selain itu, Kamu akan dihukum karena berusaha memfitnah seorang Hunter tentang job mereka. Selain itu, penyerbuan sebagian besar telah dimusnahkan, jadi untuk memastikannya, harap tetap waspada." (staf)
 
 Saat staf guild berkata demikian, beberapa knight muncul secara tiba-tiba dan menangkap Alejo dan para Hunter yang bersimpati padanya. Brass-kun ditangkap bersama mereka dan membuat keributan tetapi mengingat apa yang baru saja dia lakukan, itu wajar.
 
@@ -235,17 +235,17 @@ Aku memasuki gedung guild dan mulai mencari staf guild yang berbicara sebelumnya
 
 Aku dapat menemukannya dengan cepat, jadi Aku bertanya "Apakah Guru baik-baik saja!?" Tetapi dia hanya memiringkan kepalanya dengan bingung.
 
-perla "Apakah Cielmer-chan baik-baik saja? Untuk membiarkan kami melarikan diri, dia, penyerbuan ..."
+"Apakah Cielmer-chan baik-baik saja? Untuk membiarkan kami melarikan diri, dia, penyerbuan ..." (perla)
 
-staf "Begitu ya ...... Jika Aku tidak salah, Kamu diajari sihir oleh Cielmer-san , kan? Kamu memanggilnya guru, tetapi apakah itu tetap sampai sekarang?"
+"Begitu ya ...... Jika Aku tidak salah, Kamu diajari sihir oleh Cielmer-san , kan? Kamu memanggilnya guru, tetapi apakah itu tetap sampai sekarang?" (staf)
 
-ilda "Y-Ya!"
+"Y-Ya!" (ilda)
 
 Ildan-chan menyatakan apa yang ingin Aku katakan, yang tampaknya dipahami oleh staf guild.
 
 Pertanyaannya yang tiba-tiba membuatku gagap, tetapi Guru akan selalu menjadi Guru bagiku, jadi tidak ada masalah sama sekali.
 
-staf "Dalam hal ini, Aku akan membuat pengecualian dan memberi tahumu sedikit. Apakah kalian berdua keberatan menunggu sebentar? Tidak perlu khawatir, Aku yakin Kamu akan segera memahami situasinya."
+"Dalam hal ini, Aku akan membuat pengecualian dan memberi tahumu sedikit. Apakah kalian berdua keberatan menunggu sebentar? Tidak perlu khawatir, Aku yakin Kamu akan segera memahami situasinya." (staf)
 
 Hanya mengatakan itu, dia membawaku ke suatu tempat.
 
@@ -253,34 +253,38 @@ Dia tampak sangat tenang karena suatu alasan, aku bertanya-tanya mengapa.
 
 Mungkin, mungkin saja, dia tidak terburu-buru berarti sudah terlambat.
 
-staf "Singkatnya, Cielmer-san aman."
+"Singkatnya, Cielmer-san aman." (staf)
 
-perla "benarkah!?"
+"benarkah!?" (perla)
 
-staf "Ya. Sebenarnya, orang yang memusnahkan penyerbuan itu adalah Cielmer-san ."
+"Ya. Sebenarnya, orang yang memusnahkan penyerbuan itu adalah Cielmer-san." (staf)
 
 Aku tidak mengerti apa yang dia katakan untuk sesaat, membuatku hanya berkedip karena terkejut dan dia terkikik geli.
 
-staf "Bahkan jika penyerbuan mencapai kota ini dan menghancurkannya, Cielmer-san sendirian yang akan bertahan. Betapa kuatnya dia."
+"Bahkan jika penyerbuan mencapai kota ini dan menghancurkannya, Cielmer-san sendirian yang akan bertahan. Betapa kuatnya dia." (staf)
 
-perla "Guru baru berusia 10 tahun, kan?"
+"Guru baru berusia 10 tahun, kan?" (perla)
 
-staf "Itu tidak dapat disangkal. tapi, gurumu adalah orang yang penampilannya memungkiri kekuatannya sendiri."
+"Itu tidak dapat disangkal. tapi, gurumu adalah orang yang penampilannya memungkiri kekuatannya sendiri." (staf)
 
 Guru sekuat itu? Karena dia mengalahkan monster kelas-D dengan satu serangan, aku tahu dia cukup kuat tetapi untuk berpikir bahwa dia cukup kuat untuk memusnahkan seluruh penyerbuan.
 
 Entah bagaimana, Aku mendapatkan orang yang luar biasa sebagai guru.
 
-perla "Tentang apa yang terjadi sebelumnya, apa yang akan terjadi jika Guru benar-benar song princess?"
+"Tentang apa yang terjadi sebelumnya, apa yang akan terjadi jika Guru benar-benar song princess?" (perla)
 
-staf "Akan ada kemungkinan asumsi pihak Alejo mungkin disetujui."
+"Akan ada kemungkinan asumsi pihak Alejo mungkin disetujui." (staf)
 
-perla "Tapi Guru menyelesaikan penyerbuan, kan? Bahkan setelah semua itu?"
+"Tapi Guru menyelesaikan penyerbuan, kan? Bahkan setelah semua itu?" (perla)
 
-staf "itu masih kemungkinan. Setidaknya di negara ini, begitulah cara mereka melihat Song princess."
+"itu masih kemungkinan. Setidaknya di negara ini, begitulah cara mereka melihat Song princess." (staf)
 
 Dengan keamanan Guru sekarang dikonfirmasi, Aku mencoba bertanya tentang apa yang membuatku merasa tidak nyaman sebelumnya tetapi, yang membuatku kecewa, itu seperti yang kubayangkan.
 
 Meskipun Alejo dan kelompoknya adalah orang-orang yang menggunakan umpan monster dan Guru menyelesaikan semuanya, jika Guru adalah song princess, dia akan diperlakukan sebagai yang buruk.
 
 Keraguan di benakku sepertinya sama sekali tidak memiliki jawaban yang terlihat.
+
+-------------------------
+
+Perla oh perla.. sungguh murni hatimu.. terima kasih telah mendukung ain/ciel kami !!!! Kamu layak dianggap sebagai MURID !!!!!! F**KING alejo !! lupa sama alejo madafaka... brass juga.. meh... MAKAN TU HUKUMAN BAHAHHAAHHAH !!!!
