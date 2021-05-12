@@ -231,3 +231,9 @@ Sangat umum mendengar orang pergi dari kota ke kota untuk mencari pekerjaan. Kam
 [Itu sangat menyenangkan.] (ciel)
 
 Meskipun Aku senang melihat Ciel tampak senang tanpa ada pikiran berlama-lama untuk meninggalkan kota, mungkin Aku tidak bertanggung jawab, tetapi Aku tidak bisa menahan diri untuk berpikir: Ini juga masalah, kan?
+
+-----------------------------
+
+Yep, lebih baik langsung pergi saja, daripada tidak enak di kota tersebut. lebih baik pergi dengan seadanya daripada serakah nanti nambah masalah lagi....
+
+yaay tidak terasa vol 2 sudah selesai, selanjutnya apakah mereka akan melihat laut ?? dan bagaimana kadar gula di volume berikutnya ??? YAAAAYYY asal ada dedek ciel tidak masalah !!!
