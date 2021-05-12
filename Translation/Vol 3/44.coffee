@@ -146,41 +146,50 @@ Daripada tiba-tiba memulai dengan situasi seperti ini, akan lebih baik jika dia 
 
 "Tentu saja. Ngomong-ngomong, apakah ini tempat untuk berdiskusi? Atau sebaliknya, ......" (ain)
 
-Mengatakan demikian, Aku mengalihkan pandangan Aku ke seluruh ruangan. Sulit untuk menghitungnya, tetapi setidaknya harus ada 20.
-Dikelilingi oleh banyak orang ini, aku tidak bisa menahan curiga jika mereka berniat untuk memulai perkelahian.
+Aku mengalihkan pandanganku ke seluruh ruangan. Sulit untuk menghitungnya, tetapi setidaknya ada 20.
+
+Dikelilingi oleh banyak orang, aku tidak bisa menahan curiga jika mereka berniat untuk memulai pertarungan.
+
 Mendengar kata-kataku, salah satu pengawal hendak menghampiriku, tapi Faneed menghentikannya.
 
-"Ini memang tempat untuk berdiskusi. Selama Kamu tidak memulai apa pun, Aku tidak akan melakukan apa pun."
-" Maka ini berarti Kamu akan memperlakukan kemarin sebagai insiden yang terisolasi, kan?"
-" Tidak apa-apa. Hanya pertanyaan hipotetis tetapi, Nona. Blan, apakah Kamu dapat menangani situasi saat ini?"
-" Jika orang-orang di sekitarku hanya mampu seperti individu semalam, ini tidak akan menjadi masalah."
-" Oke, mengerti."
-Iklan
+"Ini memang tempat untuk berdiskusi. Selama Kamu tidak memulai apa pun, Aku tidak akan melakukan apa pun." (Faneed)
+
+"Maka ini berarti Kamu akan memperlakukan hal kemarin sebagai insiden yang tidak ada hubungannya dengan ini, kan?" (ain)
+
+"Tidak masalah. Hanya pertanyaan hipotetis tetapi, Nona. Blan, apakah Kamu dapat menangani situasi saat ini?" (Faneed)
+
+"Jika orang-orang di sekitarku hanya mampu seperti individu semalam, ini tidak akan menjadi masalah." (ain)
+
+"Baiklah, aku mengerti." (Faneed)
 
 Faneed mengangkat tangannya, menunjukkan tanda menyerah.
-Meskipun Aku tidak benar-benar yakin apakah itu benar-benar menyerah, sepertinya kita bisa berdiskusi dengan baik.
+Meskipun Aku tidak benar-benar yakin apakah itu benar-benar menyerah, sepertinya kami bisa berdiskusi dengan baik.
 
-"Tapi sebelum bicara, minta maaf dulu. Maafkan anak muda kita karena bersikap kasar tadi. Jika Kamu memiliki tuntutan, Aku akan mendengarnya."
+"Tapi sebelum bicara, meminta maaf adalah prioritas pertama. Maafkan anak muda kami karena bersikap kasar sebelumnya. Jika Kamu memiliki sesuatu yang diinginkan, Aku akan mendengarnya." (Faneed)
 
 Nada suaranya berubah sedikit formal mungkin menunjukkan martabatnya sebagai seseorang yang berdiri di puncak organisasi atau semacamnya.
-Adapun mengapa dia memiliki tatapan tajam meskipun menyatakan bahwa dia akan mendengarkan tuntutan kami, itu mungkin berarti bahwa kami mungkin terlibat dalam konflik tergantung pada apa itu, tetapi jujur ​​saya tidak berniat mengajukan tuntutan yang akan menyebabkan konfrontasi.
-Dalam hal itu, Ciel mungkin tidak jauh berbeda. Jika dia menginginkan sesuatu, dia pasti sudah memberitahuku tentang itu lebih awal.
 
-"Untuk saat ini, harap angkat kepalamu.
-Aku tidak punya niat khusus untuk berkonflik dengan Kamu dan orang-orang Kamu. Sepertinya itu merepotkan."
-"Ha, ha, ha ! Menyusahkan, ya ?"
+Adapun mengapa dia memiliki tatapan tajam meskipun menyatakan bahwa dia akan mendengarkan apa yang akan kami katakan kami, itu mungkin berarti bahwa kami mungkin terlibat dalam konflik tergantung pada apa itu, tetapi jujur aku tidak berniat meminta yang akan menyebabkan konfrontasi.
+
+Dalam hal itu, Ciel mungkin tidak jauh berbeda. Jika dia menginginkan sesuatu, dia pasti sudah memberitahuku sebelumnya.
+
+"Untuk saat ini, harap angkat kepalamu. Aku tidak punya niat khusus untuk berkonflik denganmu dan orang-orangmu. Sepertinya itu merepotkan." (ain)
+
+"Ha, ha, ha ! merepotkan, ya ?" (Faneed)
 
 Faneed mengangkat kepalanya dan tertawa geli.
+
 Mengalihkan tatapanku ke Atlo, yang berdiri secara diagonal di belakangku, aku melihatnya menatapku dengan penuh minat.
 
-"Dengan itu dikatakan, bisakah kita mulai dengan menegaskan kembali situasi saat ini?
-Aku baru saja tiba di ibu kota, didesak ke sebuah penginapan, makan malam Aku dibius, dan pembunuh dikirim kepada Aku. Jadi sejujurnya, Aku hanya bisa membuat asumsi berdasarkan situasinya."
-" Mereka tidak benar-benar ada di sana untuk membunuh Kamu, jadi mereka sebenarnya bukan pembunuh.
-Tetap saja, asumsi Kamu seharusnya tidak terlalu jauh, jika Kamu bertanya kepada Aku."
-" Kemudian dari sudut pandang Kamu, Kamu bermaksud untuk menculik dan menjual Aku kepada beberapa bangsawan yang tidak ditentukan untuk mendapatkan uang, benar?"
-" Itu benar. Kami juga melakukan perdagangan budak, meskipun tidak seperti kami menculik orang secara sembarangan. Tidak seperti biasanya kami bertindak berdasarkan kontrak yang tepat, Kamu mengerti?"
+"kalau begitu, bisakah kita mulai dengan menegaskan kembali situasi saat ini? Aku baru saja tiba di ibu kota, didesak ke sebuah penginapan, makan malamku mengandung obat, dan pembunuh dikirim kepadaku. Jadi sejujurnya, Aku hanya bisa membuat asumsi berdasarkan situasinya." (ain)
 
-Faneed mendesah lelah. Bergantung pada sudut pandang seseorang, dia bisa dilihat sebagai korban di sini juga.
+"Mereka tidak benar-benar ada di sana untuk membunuhmu, jadi mereka sebenarnya bukan pembunuh. Tetap saja, asumsimu seharusnya tidak terlalu jauh." (Faneed)
+
+"Kemudian dari sudut pandang Kamu, Kamu bermaksud untuk menculik dan menjualku kepada beberapa bangsawan yang tidak ditentukan untuk mendapatkan uang, benar?" (ain)
+
+"Itu benar. Kami juga melakukan perdagangan budak, meskipun kami tidak menculik orang secara sembarangan. Tidak seperti biasanya kami bertindak berdasarkan kontrak yang tepat, Kamu mengerti?" (Faneed)
+
+Faneed menghela nafas lelah. Bergantung pada sudut pandang seseorang, dia bisa dilihat sebagai korban di sini juga.
 Bukan itu urusanku. Lagipula, aku tidak terlalu marah untuk terlalu terlibat dan bahkan tidak ingin melakukannya.
 Ada beberapa aspek yang membuatnya tampak seperti pria yang baik juga, tapi Aku bisa menebak kontraknya sendiri mungkin tidak masuk akal untuk memulai.
 
