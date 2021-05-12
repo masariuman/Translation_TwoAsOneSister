@@ -2,7 +2,7 @@ CHAPTER 41: PUB, THE CONTINENT, AND RISPELGIA
 
 "Dan hanya mengingat seberapa muda Kamu, itu pasti sangat sulit."
 
-ain"Aku hanya bisa melarikan diri saat itu. Tetap saja, belakangan ini sebenarnya tidak terlalu sulit, kamu tahu? "
+"Aku hanya bisa melarikan diri saat itu. Tetap saja, belakangan ini sebenarnya tidak terlalu sulit, kamu tahu?" (ain)
 
 "Yah, kamu sudah rank-D, ya. Kamu benar-benar msa depan yang baik, nona kecil. "
 
@@ -58,15 +58,15 @@ Tetap saja, Aku rasa dari mata orang lain, dia mungkin tampak kecil untuk anak b
 
 Baiklah, Aku akan meminta bapak tua yang duduk di sebelahku memberikan beberapa informasi sekarang.
 
-ain "Berbicara tentang rank, jika Aku menjadi rank-C, tidak bisakah Aku membuat koneksi dengan bangsawan hebat?"
+"Berbicara tentang rank, jika Aku menjadi rank-C, tidak bisakah Aku membuat koneksi dengan bangsawan hebat?" (ain)
 
 "Ini masih akan sulit hanya dengan rank tetapi benar, Kamu mungkin bisa melakukannya suatu hari nanti, nona kecil."
 
-ain "Ada bangsawan yang buruk juga, kan? Di mana tempat yang aman untuk dikunjungi?"
+"Ada bangsawan yang buruk juga, kan? Di mana tempat yang aman untuk dikunjungi?" (ain)
 
 "untuk saat ini, Aku akan mengatakan pergi ke ibu kota pasti aman, tetapi Aku akan menyarankan ketempat Duke Rispelgia yang hebat."
 
-ain "Duke Rispelgia?"
+"Duke Rispelgia?" (ain)
 
 Yup. yaaah, Aku sudah menduga akan membcarakannya dalam waktu dekat, tapi untuk berpikir bahwa itu akan terjadi sekarang.
 
@@ -78,11 +78,11 @@ Dengan alkohol yang diminumnya, lelaki tua itu mulai tertawa terbahak-bahak. Aku
 
 Kalau Aku akhiri percakapan di sini, ada kemungkinan, mungkin hanya sedikit saja, bahwa hubungan kami dengan duke Rispelgia akan terungkap, jadi Aku terus bertanya.
 
-ain "Setelah meninggalkan kota ini, Aku berpikir untuk pergi ke ibu kota kerajaan selanjutnya. Apakah ada hal yang harus Aku perhatikan?"
+"Setelah meninggalkan kota ini, Aku berpikir untuk pergi ke ibu kota kerajaan selanjutnya. Apakah ada hal yang harus Aku perhatikan?" (ain)
 
 "hmmmm.... Menjadi rank-D pada usia sekarang, Kamu mungkin memiliki job yang hebat atau semacamnya, kan?"
 
-ain  "Aku tidak akan mengatakan apa itu, tapi ya."
+"Aku tidak akan mengatakan apa itu, tapi ya." (ain)
 
 "Ketua guild di sana benar-benar membenci diskriminasi job. Lebih baik pastikan untuk memperhatikan apa yang Kamu katakan."
 
@@ -90,7 +90,7 @@ Meskipun dance princess dan song princess pasti memiliki rank lebih tinggi dari 
 
 hal terburuk, mungkin ada kebutuhan untuk mengungkapkan job kami, tapi karena kami mungkin target perlindungan, kurasa itu aman.
 
-ain "Aku akan berhati-hati."
+"Aku akan berhati-hati." (ain)
 
 "Ya, pastikan untuk melakukan itu. kamu Harus mendengarkan yang lebih tua, Kamu tahu?"
 
@@ -102,7 +102,7 @@ Tepat ketika Aku pikir ini sudah berakhir, suara lain muncul dari belakang.
 
 "ah, itu benar. Sebut saja itu agak berlebihan, tapi tidak ada salahnya untuk diwaspadai. Ada begitu banyak orang disana. Kamu mungkin akan baik-baik saja karena Kamu seorang Hunter, tapi hati-hati terhadap daerah kumuh, oke?"
 
-ain "Jadi memang ada tempat seperti itu ketika ada banyak orang."
+"Jadi memang ada tempat seperti itu ketika ada banyak orang." (ain)
 
 "Tidak ada yang bisa kita lakukan untuk itu."
 
@@ -126,11 +126,11 @@ Itu sebabnya kami mencuci dengan sihir. Juga, tempat tidurnya keras.
 
 Karena masih lebih baik dari pada tanah batu, masih nyaman di mata Ciel.
 
-ciel [Jadi Rispelgia adalah bangsawan yang baik, kan?]
+[Jadi Rispelgia adalah bangsawan yang baik, kan?] (ciel)
 
-ain [dia Hanya juga memiliki sisi itu saja. Tidak peduli seberapa baik pemerintahannya, itu tidak membatalkan apa yang dia lakukan padamu.]
+[dia Hanya juga memiliki sisi itu saja. Tidak peduli seberapa baik pemerintahannya, itu tidak membatalkan apa yang dia lakukan padamu.] (ain)
 
-ciel [Benar. Selama dia hanya mengabaikan kita sekarang, itu akan bagus.]
+[Benar. Selama dia hanya mengabaikan kita sekarang, itu akan bagus.] (ciel)
 
 Ciel bergumam begitu, tidak terdengar terlalu tertarik tentang itu.
 
@@ -142,19 +142,19 @@ Saat ini, akan lebih baik jika Rispelgia tidak menemukan kami.
 
 Fakta bahwa kami tidak bisa pergi jika kami tidak mencapai rank-B, tapi kami juga tidak boleh menonjol terdengar... agak rumit.
 
-ciel [apa maksudnya kena copet?]
+[apa maksudnya kena copet?] (ciel)
 
-ain [Sederhananya, itu akan terjadi ketika dompetmu atau barang lain dicuri saat Kamu berjalan.]
+[Sederhananya, itu akan terjadi ketika dompetmu atau barang lain dicuri saat Kamu berjalan.] (ain)
 
-ciel "Apakah benar-benar aman untuk melakukan sesuatu yang berani?"
+[Apakah benar-benar aman untuk melakukan sesuatu yang berani?] (ciel)
 
-ain [mereka melakukannya dengan cukup baik sehingga orang tidak menyadarinya kalau mereka telah dicuri.]
+[mereka melakukannya dengan cukup baik sehingga orang tidak menyadarinya kalau mereka telah dicuri.] (ain)
 
-ciel [Jadi melakukan itu bisa saja terjadi.]
+[Jadi melakukan itu bisa saja terjadi.] (ciel)
 
-ain [Kamu tidak boleh melakukannya, oke?]
+[Kamu tidak boleh melakukannya, oke?] (ain)
 
-ciel [Aku tidak akan melakukannya. Tidak ada alasan untuk melakukannya.]
+[Aku tidak akan melakukannya. Tidak ada alasan untuk melakukannya.] (ciel)
 
 Karena topik itu tampaknya lebih menarik minatnya daripada Duke Rispelgia, Aku memperingatkannya sebelumnya tetapi itu membuat Ciel menggembungkan pipinya dengan cemberut.
 
@@ -168,15 +168,15 @@ Ciel mendengarkanku bernyanyi bahkan saat dia merajuk dan saat Aku menyelesaikan
 
 Jika Aku hanya memiliki tubuh, Aku akan senang untuk menyentuh pipinya yang bengkak.
 
-ciel [Ain sangat tidak adil.]
+[Ain sangat tidak adil.] (ciel)
 
-ain [Benarkah?]
+[Benarkah?] (ain)
 
-ciel [Ain bernyanyi ketika aku marah. Sekarang Aku tidak bisa marah lagi.]
+[Ain bernyanyi ketika aku marah. Sekarang Aku tidak bisa marah lagi.] (ciel)
 
-ain [Kalau begitu kamu tidak marah lagi?]
+[Kalau begitu kamu tidak marah lagi?] (ain)
 
-ciel [Aku masih marah. Ain sangat tidak adil.]
+[Aku masih marah. Ain sangat tidak adil.] (ciel)
 
 Meskipun kalimat Ciel mulai berputar, bagian terakhir terdengar agak monoton.
 
@@ -196,15 +196,15 @@ Daripada menunggu permintaan pengawalan, prioritas kami tetap yang utama.
 
 "Cielmer-san , kamu akan pergi hari ini kan?"
 
-ciel "Mn. Benar."
+"Mn. Benar." (ciel)
 
 "Sayangnya, semua permintaan pengawalan menuju ibukota kerajaan semuanya sudah dipesan."
 
-ciel "kalau begitu, tidak masalah."
+"kalau begitu, tidak masalah." (ciel)
 
 "Jadi, maukah kamu menunda- ......"
 
-ciel "Tidak. Sampai jumpa."
+"Tidak. Sampai jumpa." (ciel)
 
 Melihat Ciel memasuki guild, wanita resepsionis itu berbicara dengannya.
 
@@ -217,3 +217,7 @@ Yah, itu salahku karena mengatakan "Jika kamu kesulitan berbicara, bagaimana kal
 Jika ini menyebabkan masalah maka Aku hanya perlu melindunginya. keaadaan terburuknya, kami juga memiliki opsi untuk melarikan diri dengan +BARRIER dengan kecepatan penuh.
 
 Bagaimanapun juga, kami berjalan dengan ibukota kerajaan dalam kemauan kami sendiri.
+
+-----------------------
+
+Saatnya perjalanan baru ~~~ yaaa ganbatte nee dedek ciel bersosialisasinya ~~ ga mesti babang ain mulu yg ambil alih kalau masalah berbicara ~~ btw si duke muka 2 nya pro ya, ga ada yang tau sisi jeleknya, pro sangad.. kalau ain/ciel tidak hidup mungkin tidak akan ada yang tahu kecuali pelayannya..
