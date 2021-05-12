@@ -217,3 +217,12 @@ Mereka kelihatannya memiliki ekspresi yang sangat ketakutan di wajah mereka saat
 
 ---------------------------
 
+Well, ain terlalu overprotektif sampai dia tidak puas dengan barriernya yang ada saat ini... apa mau bikin barrier dgn pertahanan sempurna ??? ,mungkin kedepannya bakal bisa...
+
+Lmao why blan ?? itu nama random darimana ??? sungguh acak sekali si ain bahahaha
+
+Ohoooyy !!! Damn you pasangan pedagang asongan !!! udah dikasi kepercayaan oleh AinCiel malah berkhianat... maaan pasti Faneed juga pusing anak buahnya babak belur seperti itu... tapi Faneed cukup bijak lebih memilih bernegoisasi dengan ain daripada malah lanjut menyerang AinCiel... good good, tidak arogan juga sebagai atasan... now now, mari kita saksikan 1001 alasan yang akan diutarakan oleh pedagang asongan ini.......
+
+Btw, saya bingung mau nerjemahkan apa untuk underground, organisasi gelap ? organisasi bawah tanah ??? ada saran ?? 
+
+Yak sekian chapter kali ini, silahkan nikmati chapternya, dan kalau ada saran, saya sangat dengan senang hati menerimanya di kolom komentar !! TERIMA KASIH !!
