@@ -23,21 +23,21 @@ Meskipun begitu, menurutku hutan tempat mansion itu berada dan hutan di dekat Sa
 
 Lagipula, cyclopses kelas B muncul di hutan itu dan serigala yang biasa terlihat di sana berkekuatan sekitar kelas D atau C.
 
-ciel [hey, Ain?]
+[hey, Ain?] (ciel)
 
-ain [Ada apa?]
+[Ada apa?] (ain)
 
-ciel [Aku bertanya-tanya mengapa laba-laba itu ada.]
+[Aku bertanya-tanya mengapa laba-laba itu ada.] (ciel)
 
-ain [Laba-laba bukanlah makhluk yang benar-benar jahat. Mereka memakan serangga yang membahayakan manusia.]
+[Laba-laba bukanlah makhluk yang benar-benar jahat. Mereka memakan serangga yang membahayakan manusia.] (ain)
 
-ciel [bagaimana pendapatmu yang sebenarnya tentang mereka?]
+[bagaimana pendapatmu yang sebenarnya tentang mereka?] (ciel)
 
-ain [Akan lebih bagus jika mereka punah, begitulah menurutku.]
+[Akan lebih bagus jika mereka punah, begitulah menurutku.] (ain)
 
-ciel [Rumit bukan?]
+[Rumit bukan?] (ciel)
 
-ain [Ya.]
+[Ya.] (ya)
 
 Saat kami melewati gerbang sambil bertukar omong kosong itu, sepertinya pengejar kami juga ikut dengan kami kali ini.
 
@@ -51,31 +51,31 @@ ketika Aku mendekati hutan sambil memeras kepalaku tentang siapa mereka kali ini
 
 Melihatku, salah satu dari mereka, Perla-san , dengan antusias melambaikan tangannya, mengatakan sesuatu pada dua lainnya, lalu tiba-tiba berlari ke arahku.
 
-perla"Guru, apakah Kamu pergi ke hutan untuk permintaan juga?"
+"Guru, apakah Kamu pergi ke hutan untuk permintaan juga?" (perla)
 
-ain"Benar, tapi 'Guru'?"
+"Benar, tapi 'Guru'?" (ain)
 
-perla"Yup! Aku dapat melakukan lebih banyak hal sekarang karena bantuan Guru dan kami sekarang diizinkan untuk mengikuti tes rank-D. Itu semua berkat semua yang Kamu ajarkan kepadaku, jadi Kamu adalah Guruku. Apakah itu buruk?"
+"Yup! Aku dapat melakukan lebih banyak hal sekarang karena bantuan Guru dan kami sekarang diizinkan untuk mengikuti tes rank-D. Itu semua berkat semua yang Kamu ajarkan kepadaku, jadi Kamu adalah Guruku. Apakah itu buruk?" (perla)
 
-ain"Tidak, itu tidak terlalu buruk. selamat telah menerima izin untuk mengikuti tes rank-D. kalian tidak melakukan ujian sekarang, kan?"
+"Tidak, itu tidak terlalu buruk. selamat telah menerima izin untuk mengikuti tes rank-D. kalian tidak melakukan ujian sekarang, kan?" (ain)
 
-perla"Kami telah memutuskan untuk mengikutinya setelah kami menjadi sedikit lebih baik dengan kerja tim kami. Lagipula aku masih membuat Teren-kun basah kuyup."
+"Kami telah memutuskan untuk mengikutinya setelah kami menjadi sedikit lebih baik dengan kerja tim kami. Lagipula aku masih membuat Teren-kun basah kuyup." (perla)
 
 ketika kami berbicara, Terencio-kun dan Ilda-san datang juga, jadi setelah bertukar salam cahaya, aku mulai berjalan lagi.
 
-perla"Kalau dipikir-pikir, tes rank-D seperti apa?"
+"Kalau dipikir-pikir, tes rank-D seperti apa?" (perla)
 
-ilda"Aku juga penasaran tentang itu."
+"Aku juga penasaran tentang itu." (ilda)
 
 Ilda-san berkata mengikuti pertanyaan Perla-san, tapi sayangnya, Aku tidak memiliki jawaban untuk itu.
 
 Aku ragu apakah Aku harus memberi tahu mereka atau tidak, tetapi karena tidak ada alasan untuk berbohong, Aku memutuskan untuk berbicara tentang apa yang terjadi sampai batas tertentu.
 
-ain"Aku sebenarnya dibebaskan dari ujian rank-D, jadi Aku tidak terlalu tahu."
+"Aku sebenarnya dibebaskan dari ujian rank-D, jadi Aku tidak terlalu tahu." (ain)
 
-perla"Kamu bisa dibebaskan?"
+"Kamu bisa dibebaskan?" (perla)
 
-ain"Sepertinya ada sistem yang memungkinkannya selama Kamu cukup mampu. Setelah lulus tes kekuatan selama pendaftaran, Aku diberi pengecualian."
+"Sepertinya ada sistem yang memungkinkannya selama Kamu cukup mampu. Setelah lulus tes kekuatan selama pendaftaran, Aku diberi pengecualian." (ain)
 
 Mendengar penjelasanku, mereka bertiga mengeluarkan "Ahh ~" yang yakin pada saat yang sama.
 
@@ -89,11 +89,11 @@ aku benar-benar lebih menyukai begini daripada ditanya secara acak tentang berba
 
 cerita tentang Brass-kun juga muncul dan sepertinya dia mendekati mereka semua dengan sikap merendahkan seperti biasa, karena tidak belajar sama sekali, jadi mereka mengalahkannya dalam pertandingan formal.
 
-ain"Ini benar-benar mengganggu tapi dia benar-benar putus asa, jadi tolong berhati-hati."
+"Ini benar-benar mengganggu tapi dia benar-benar putus asa, jadi tolong berhati-hati." (ain)
 
-perla"Sebagai mantan anggota partynya, kami benar-benar ingin membantunya. Tetapi pada akhirnya, hanya itu yang bisa kami lakukan."
+"Sebagai mantan anggota partynya, kami benar-benar ingin membantunya. Tetapi pada akhirnya, hanya itu yang bisa kami lakukan." (perla)
 
-ain"Tidak peduli seberapa keras Kamu mencoba, ada orang yang tidak mau mendengarkanmu sama sekali. Aku akan berhati-hati kalau begitu ...... Bukankah ada aroma manis sekarang?"
+"Tidak peduli seberapa keras Kamu mencoba, ada orang yang tidak mau mendengarkanmu sama sekali. Aku akan berhati-hati kalau begitu ...... Bukankah ada aroma manis sekarang?" (ain)
 
 Meskipun Aku sudah muak hanya berpikir bahwa kami mungkin terlibat dengan beberapa masalah lagi, Aku menjawab tanpa membiarkan pemikiran itu muncul.
 
@@ -101,11 +101,11 @@ Aku mencium aroma manis dari hembusan angin yang datang dari arah hutan.
 
 Itu bukan hanya aroma manis yang samar, tapi bau manis yang tidak enak yang sepertinya akan membuatku tercekik jika aku mendekat.
 
-perla"sebentar. iya Ada sesuatu yang manis."
+"sebentar. iya Ada sesuatu yang manis." (perla)
 
-ilda"Ya, tapi baunya sangat samar."
+"Ya, tapi baunya sangat samar." (ilda)
 
-Terencio"Benarkah? Aku sama sekali tidak mencium bau apa pun."
+"Benarkah? Aku sama sekali tidak mencium bau apa pun." (terencio)
 
 Ketiganya memiliki reaksi yang berbeda. Meskipun ini pasti terdengar seperti topik yang sangat ingin diteliti oleh Carol-san , karena kami bertiga dari empat orang dapat menciumnya, bau ini mungkin bukan hanya imajinasiku.
 
@@ -125,21 +125,21 @@ Aku mencari wadah, mengambilnya, dan kembali ke tiga lainnya.
 
 ilda "ada sesuatu?"
 
-ain"ini narkotika? seharusnya iya. Apakah ini terlihat familiar?"
+"ini obat terlarang? seharusnya iya. Apakah ini terlihat familiar?" (ain)
 
-ilda "Tidak juga, tapi apa itu?"
+"Tidak juga, tapi apa itu?" (ilda)
 
-ain"Kemungkinan sumber dari aroma itu. Aku punya firasat buruk tentang ini tapi untuk saat ini, maukah kalian kembali ke kota dan menunjukkan ini kepada orang-orang guild? kalian dapat memberi tahu mereka kalai Aku mengambilnya."
+"Kemungkinan sumber dari aroma itu. Aku punya firasat buruk tentang ini tapi untuk saat ini, maukah kalian kembali ke kota dan menunjukkan ini kepada orang-orang guild? kalian dapat memberi tahu mereka kalai Aku mengambilnya." (ain)
 
 Mendengar permintaanku, mereka bertiga saling memandang dan mengangguk dalam diam.
 
 Setelah itu, mereka menerima benda itu dan kembali ke kota.
 
-perla"Guru, apa yang Kamu rencanakan?"
+"Guru, apa yang Kamu rencanakan?" (perla)
 
-ain"Aku ingin tahu ada apa sebenarnya. Jika tidak ada pilihan lain, Aku akan lari."
+"Aku ingin tahu ada apa sebenarnya. Jika tidak ada pilihan lain, Aku akan lari." (ain)
 
-perla"Itu janji, oke?"
+"Itu janji, oke?" (perla)
 
 Perla-san berhenti, menoleh ke arahku, dan mengatakannya dengan ekspresi yang agak sedih. Meskipun Aku sangat menyesal telah merusak momen ini, Aku pikir kota ini mungkin akan dihancurkan terlebih dahulu sebelum sesuatu terjadi pada kami.
 
@@ -153,25 +153,25 @@ Juga, mungkin bukan kami, tapi bau obat di dalam botol tadi, yang membuat monste
 
 Kalau dipikir-pikir, kurasa aku pernah mendengar tentang obat yang bisa menyebabkan serbuan monster tapi ... kurasa tidak ada gunanya memikirkannya sekarang.
 
-ain [Sekarang, apa yang harus kita lakukan?]
+[Sekarang, apa yang harus kita lakukan?] (ain)
 
-ciel [Bahkan jika Kamu bertanya kepadaku, Ain, Aku tidak tahu apa yang terjadi sekarang.]
+[Bahkan jika Kamu bertanya kepadaku, Ain, Aku tidak tahu apa yang terjadi sekarang.] (ciel)
 
-ain [Segerombolan monster akan segera tiba di sini.]
+[Segerombolan monster akan segera tiba di sini.] (ain)
 
-ciel [Dengan segerombolan, berapa banyak jumlahnya?]
+[Dengan segerombolan, berapa banyak jumlahnya?] (ciel)
 
-ain [Aku tidak benar-benar ingin menghitungnya, tapi itu pasti mencapai angka tiga digit.]
+[Aku tidak benar-benar ingin menghitungnya, tapi itu pasti mencapai angka tiga digit.] (ain)
 
-ciel [Bukankah itu ... penyerbuan?]
+[Bukankah itu ... penyerbuan?] (ciel)
 
-ain [Pasti.]
+[Pasti.] (ain)
 
-ciel [Ain, bagaimana menurutmu?]
+[Ain, bagaimana menurutmu?] (ciel)
 
-ain [Aku berpikir tidak apa-apa untuk melarikan diri, tetapi di sisi lain, jika kita mengalahkan banyak dari mereka di sini, kita mungkin bisa mencapai rank-C atau lebih. Kembali ke Sannois mungkin hanya akan menimbulkan masalah yang tidak perlu juga, jadi kita akan membutuhkan tempat lain jika kita melarikan diri.]
+[Aku berpikir tidak apa-apa untuk melarikan diri, tetapi di sisi lain, jika kita mengalahkan banyak dari mereka di sini, kita mungkin bisa mencapai rank-C atau lebih. Kembali ke Sannois mungkin hanya akan menimbulkan masalah yang tidak perlu juga, jadi kita akan membutuhkan tempat lain jika kita melarikan diri.] (ain)
 
-ciel [ ...... Seberapa kuat yang terkuat di antara mereka?]
+[ ...... Seberapa kuat yang terkuat di antara mereka?] (ciel)
 
 Untuk beberapa alasan, rasanya Ciel bingung saat itu, tetapi Aku ingin mengatakan bahwa itu sama sekali bukan salahku.
 
@@ -179,26 +179,32 @@ Selain itu, Aku pikir Ciel agak memahami situasinya, karena dia ikut serta dalam
 
 Lagi pula, jika menurutnya itu sangat berbahaya, dia selalu dapat mengambil alih kendali tubuhnya dan melarikan diri.
 
-ain [Lebih kuat dari kelas-D, tapi harusnya lebih lemah dari cyclop. Ada banyak dari mereka pada level kekuatan itu.]
+[Lebih kuat dari kelas-D, tapi harusnya lebih lemah dari cyclop. Ada banyak dari mereka pada level kekuatan itu.] (ain)
 
-ciel [Kamu cukup tenang, Ain?]
+[Kamu cukup tenang, Ain?] (ciel)
 
-ain [Tak satu pun dari mereka bahkan mendekati tingkat bahaya tombak es. Jika itu kamu, Ciel, mungkin akan baik-baik saja bahkan jika kamu tertidur.]
+[Tak satu pun dari mereka bahkan mendekati tingkat bahaya tombak es. Jika itu kamu, Ciel, mungkin akan baik-baik saja bahkan jika kamu tertidur.] (ain)
 
-ciel [Maksudmu jika itu Ain , kan?]
+[Maksudmu jika itu Ain , kan?] (ciel)
 
-ain [Tidak masalah siapa di antara kita, tapi masalahnya di sini adalah ada juga banyak monster. Sementara mereka untungnya menuju ke arah kita, mungkin sulit untuk mengalahkan mereka semua tanpa membiarkan beberapa dari mereka lewat.]
+[Tidak masalah siapa di antara kita, tapi masalahnya di sini adalah ada juga banyak monster. Sementara mereka untungnya menuju ke arah kita, mungkin sulit untuk mengalahkan mereka semua tanpa membiarkan beberapa dari mereka lewat.] (ain)
 
 karena Carol-san juga kembali ke kota, menurutku beberapa monster yang lewat tidak akan menjadi masalah.
 
-ciel [Dengan 'kembali ke kota mungkin menyebabkan masalah yang tidak perlu', apa maksudnya?]
+[Dengan 'kembali ke kota mungkin menyebabkan masalah yang tidak perlu', apa maksudnya?] (ciel)
 
-ain [mungkin akan di tuduh sebagai penyebab semua ini? Karena beberapa orang langsung terlintas di pikiran ketika memikirkan orang yang menaruh dendam padaku, Aku menduga mereka bekerja sama hanya untuk menjebakku. kita diikuti beberapa bulan terakhir ini mungkin agar mereka bisa mendapatkan waktu yang tepat, atau agar Aku tidak melarikan diri, atau alasan serupa lainnya dalam kasus ini.]
+[mungkin akan di tuduh sebagai penyebab semua ini? Karena beberapa orang langsung terlintas di pikiran ketika memikirkan orang yang menaruh dendam padaku, Aku menduga mereka bekerja sama hanya untuk menjebakku. kita diikuti beberapa bulan terakhir ini mungkin agar mereka bisa mendapatkan waktu yang tepat, atau agar Aku tidak melarikan diri, atau alasan serupa lainnya dalam kasus ini.] (ain)
 
-ciel [Bagaimana ya, mereka cukup gigih juga. kesampingkan mereka, Ain. Aku ingin menari dengan semua yang Aku miliki.]
+[Bagaimana ya, mereka cukup gigih juga. kesampingkan mereka, Ain. Aku ingin menari dengan semua yang Aku miliki.] (ciel)
 
-ain [Kalau begitu, Aku akan bernyanyi dengan sepenuh hati juga.]
+[Kalau begitu, Aku akan bernyanyi dengan sepenuh hati juga.] (ain)
 
 Ada kemungkinan seseorang dari guild atau Hunter yang ditugaskan mungkin datang ke sini untuk memeriksa situasinya, tetapi Aku akan memikirkannya ketika itu terjadi. Setidaknya, dengan dukunganku, mereka seharusnya tidak menyadari bahwa Ciel adalah dance princess. Jika mereka menyadarinya, tidak diragukan lagi itu akan mengubah nilai dari job dance princess.
 
 Tapi yang lebih penting, jika Ciel ingin menari, aku hanya perlu menyanyikan lagu yang senada untuknya.
+
+-------------------------
+
+Yaay akhirnya ciel menari lagi di chapter berikutnya... hmm apakah ini jebakan utk ciel ? apakah ada hubungan dgn brass ????
+
+waaah penasaran mau lihat senyum polos bahagia perla ketika ketemu ain/ciel 
