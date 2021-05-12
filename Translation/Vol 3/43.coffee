@@ -8,13 +8,13 @@ ini hampir malam, jadi aku tidak bisa melihatnya dengan baik.
 
 kami melihat Milea-san pergi setelah dia memarkir kereta kudanya di toko mereka, sebelum Anicet memandu kami ke penginapan.
 
-ain "Jadi Kamu punya toko sendiri?"
+"Jadi Kamu punya toko sendiri?" (ain)
 
-anicet "ada Tapi kecil. anak perempuan kami sedang menunggu kami di sana."
+"ada Tapi kecil. anak perempuan kami sedang menunggu kami di sana." (anicet)
 
-ain "He ~ eh , kamu punya anak ya."
+"He ~ eh , kamu punya anak ya." (ain)
 
-anicet "yaaaah, dia bukan pada umur untuk kamu sebut bocah. Dia berusia 18 tahun sekarang. Dia juga cukup cerdas dan populer di distrik orang biasa, lho... "
+"yaaaah, dia bukan pada umur untuk kamu sebut bocah. Dia berusia 18 tahun sekarang. Dia juga cukup cerdas dan populer di distrik orang biasa, lho... " (anicet)
 
 Saat kami mengobrol sambil berjalan, sepertinya Aku akhirnya mengaktifkan tombol tertentu yang seharusnya tidak Aku sentuh.
 
@@ -22,29 +22,29 @@ dan karena itu, kami mendengarkan ocehan Anicet tentang anaknya.
 
 ocehan seperti senyuman yang dia miliki di usia 3 tahun atau hadiahnya ketika dia berusia 5 tahun. sejujurnya itu tidak menarik tetapi karena Aku tidak berniat memberikan informasi dari pihak kami, Aku hanya diam dan mendengarkan.
 
-ciel [Jadi anak-anak normal tumbuh seperti itu.]
+[Jadi anak-anak normal tumbuh seperti itu.] (Ciel)
 
-ain [Dilihat dari ceritanya, mereka memang terdengar hidup mewah.]
+[Dilihat dari ceritanya, mereka memang terdengar hidup mewah.] (ain)
 
-ciel [Jika kita berbicara tentang kekayaan, Aku lebih kaya daripada mereka, bukan? Lagipula, aku harus minum pil mahal setiap hari.]
+[Jika kita berbicara tentang kekayaan, Aku lebih kaya daripada mereka, bukan? Lagipula, aku harus minum pil mahal setiap hari.] (ciel)
 
-ain [Ciel ......]
+[Ciel ......] (ain)
 
-ciel [Aku tidak bermaksud begitu, aku tidak bermaksud seperti itu. Aku hanya sedikit terkesan setelah mendengar tentang hal-hal normal, itu saja.]
+[Aku tidak bermaksud begitu, aku tidak bermaksud seperti itu. Aku hanya sedikit terkesan setelah mendengar tentang hal-hal normal, itu saja.] (ciel)
 
 Aku pikir Ciel menjadi melankolis karena mendengarkan cerita dari keluarga lain, tetapi setelah mendengar nadanya yang tajam, sepertinya dia tidak keberatan sama sekali.
 
-ain [Yah terima kasih untuk itu, kekuatan sihir kita meningkat cukup banyak.]
+[Yah terima kasih untuk itu, kekuatan sihir kita meningkat cukup banyak.] (ain)
 
-ciel [iya.]
+[iya.] (ciel)
 
-ain [Ngomong-ngomong, haruskah kita pergi ke depan dan menginap ditempat yang dia kenalkan untuk kita?]
+[Ngomong-ngomong, haruskah kita pergi ke depan dan menginap ditempat yang dia kenalkan untuk kita?] (ain)
 
-ciel [Ummm ...... jika aku bilang aku mau karena Aku penasaran, apakah Kamu akan marah?]
+[Ummm ...... jika aku bilang aku mau karena Aku penasaran, apakah Kamu akan marah?] (ciel)
 
-ain [tidak akan. Tapi itu hanya ... mungkin agak berbahaya.]
+[tidak akan. Tapi itu hanya ... mungkin agak berbahaya.] (ciel)
 
-ciel [Kalau begitu, aku akan siap kabur kapan saja.]
+[Kalau begitu, aku akan siap kabur kapan saja.] (ciel)
 
 Mengingat Ciel sudah bertekad, seharusnya tidak masalah untuk mencobanya.
 
@@ -54,11 +54,11 @@ Saat Aku terus mengobrol dengan Ciel sambil membiarkan cerita Anicet keluar dari
 
 Meskipun terlihat seperti penginapan yang mahal, sepertinya tidak ditujukan untuk para bangsawan. Tampaknya menargetkan rakyat jelata yang ingin berbelanja secara mewah.
 
-anicet "Benar, benar, ini penginapannya. Aku berteman dengan pemilik di sini. Biasanya akan mahal untuk tinggal di sini, tetapi jika hanya satu malam, mereka bisa membiarkan Kamu tinggal secara gratis."
+"Benar, benar, ini penginapannya. Aku berteman dengan pemilik di sini. Biasanya akan mahal untuk tinggal di sini, tetapi jika hanya satu malam, mereka bisa membiarkan Kamu tinggal secara gratis." (anicet)
 
-ain "Itu luar biasa. Meskipun itu penginapan yang luar biasa."
+"Itu luar biasa. Meskipun itu penginapan yang luar biasa." (ain)
 
-anicet "Hahaha. seperti itulah. yaah, masuklah ke dalam sekarang."
+"Hahaha. seperti itulah. yaah, masuklah ke dalam sekarang." (anicet)
 
 Didorong dari belakang, kami didorong ke penginapan. Dengan interior kelas atas, sebagian besar berwarna putih, sulit untuk menyebut tempat ini untuk masyarakat umum.
 
@@ -73,7 +73,7 @@ Meskipun kami bukan tipe yang akan diculik tanpa perlawanan; jika keadaan menjad
 Juga, Ciel tidak suka kalau beban kerjaku meningkat.
 Meskipun sudah terlambat menurut pendapatku, mengingat Aku memakai +BARRIER sepanjang waktu untuk melindungi Ciel, sepertinya Ciel ingin Aku beristirahat sedikit.
 
-anicet "Hei, sudah lama ya. Gadis ini seorang VIP. Jika memungkinkan, bisakah Kamu memberinya beberapa layanan?"
+"Hei, sudah lama ya. Gadis ini seorang VIP. Jika memungkinkan, bisakah Kamu memberinya beberapa layanan?" (anicet)
 
 Sesampainya di meja resepsionis, Anicet berbicara dengan seorang wanita yang duduk dengan mata tertutup yang terlihat hampir seusianya.
 
@@ -81,11 +81,11 @@ Memiliki perasaan yang agak dingin padanya, wanita itu menatapku dengan tatapan 
 
 "kalau begitu, sebagai VIP Anicet-sama , kami dapat menawarkan uji coba satu malam di kamar khusus."
 
-"Kalau begitu, ayo kita coba itu."
+"Kalau begitu, ayo kita coba itu." (ain)
 
 "Nona muda, apakah Kamu baik-baik saja?"
 
-ain "Selama Aku bisa tinggal gratis ......"
+"Selama Aku bisa tinggal gratis ......" (ain)
 
 aku sebenarnya tidak peduli. Kami sama sekali tidak punya masalah dengan uang.
 
@@ -93,9 +93,9 @@ Sebaliknya, tas sihir yang kami dapat dari Carol-san mulai penuh, jadi Aku ingin
 
 mungkin kami harus memiliki dompet yang berbeda untuk digunakan untuk koin senilai perak ke bawah.
 
-anicet "Nah, Aku akan pergi sekarang. aku berhutang padamu, nona kecil."
+"Nah, Aku akan pergi sekarang. aku berhutang padamu, nona kecil." (anicet)
 
-ain "Jangan berkata seperti itu, aku juga merasakan hal yang sama."
+"Jangan berkata seperti itu, aku juga merasakan hal yang sama." (ain)
 
 "Sekarang, izinkan aku untuk membawamu ke kamarmu."
 
@@ -103,7 +103,7 @@ Selesai check-in, Anicet meninggalkan penginapan. Sepertinya dia tidak tinggal d
 
 Dia mungkin tidak punya cukup uang untuk tinggal di sini dan karena dia punya toko, Aku kira dia menuju ke sana.
 
-ain "Namamu, Aku harus memanggilmu apa?"
+"Namamu, Aku harus memanggilmu apa?" (ain)
 
 "Aku tidak punya nama untuk diberikan kepada tamu kami."
 
@@ -111,21 +111,21 @@ Aku mencoba menanyakan itu, tetapi dia hanya membalas jawaban singkat itu.
 
 yaah dia tidak memiliki label nama seperti yang dilakukan  karyawan di Jepang modern, meskipun mungkin ada beberapa orang yang tidak ingin memberikan nama mereka juga.
 
-ain [Aku tidak bisa menahan perasaan curiga tapi Aku bingung apakah Aku terlalu skeptis?]
+[Aku tidak bisa menahan perasaan curiga tapi Aku bingung apakah Aku terlalu skeptis?] (ain)
 
-ciel [Tapi Ain, Kamu tidak waspada, kan?]
+[Tapi Ain, Kamu tidak waspada, kan?] (ciel)
 
-ain [Itu karena tidak ada gunanya waspada. Selain itu, jika dia memperhatikan kalau kita sangat tegang, kita mungkin tidak punya waktu untuk istirahat. alangkah baiknya jika Aku hanya terlalu khawatir.]
+[Itu karena tidak ada gunanya waspada. Selain itu, jika dia memperhatikan kalau kita sangat tegang, kita mungkin tidak punya waktu untuk istirahat. alangkah baiknya jika Aku hanya terlalu khawatir.] (ain)
 
-ciel [Jadi masalahnya apakah kita bisa istirahat atau tidak?]
+[Jadi masalahnya apakah kita bisa istirahat atau tidak?] (ciel)
 
-ain [Itu karena Aku ingin mandi.]
+[Itu karena Aku ingin mandi.] (ain)
 
-ciel [Ain benar-benar suka mandi..]
+[Ain benar-benar suka mandi..] (ain)
 
 "Ini akan menjadi kamarmu."
 
-ain [Terima kasih banyak.]
+"Terima kasih banyak." (ain)
 
 "Kami akan mengantarkan makanan ke kamarmu, jadi silakan bersantai dan melepas lelah."
 
@@ -135,17 +135,17 @@ Tempat tidurnya juga lebih besar, dengan seprai putih bersihnya tidak memiliki s
 
 Kamar mandi dan bak mandi juga luas, jadi jika bukan karena kekhawatiranku, ini akan menjadi kamar yang sempurna.
 
-ain [Karena kita berada di kamar kita sekarang, Aku akan mengembalikan tubuhmu, oke?]
+[Karena kita berada di kamar kita sekarang, Aku akan mengembalikan tubuhmu, oke?] (ain)
 
-ciel [Ain, tidak apa-apa menggunakannya lebih lama lho?]
+[Ain, tidak apa-apa menggunakannya lebih lama lho?] (ciel)
 
-ain [Aku sudah banyak menggunakannya untuk hari ini ...... bisa kukatakan, Aku mungkin akan memiliki kesempatan untuk meminjamnya lagi segera, jadi Aku akan menggunakannya nanti.]
+[Aku sudah banyak menggunakannya untuk hari ini ...... bisa kukatakan, Aku mungkin akan memiliki kesempatan untuk meminjamnya lagi segera, jadi Aku akan menggunakannya nanti.] (ain)
 
-ciel [Baiklah. Lalu bagaimana kalau kita mandi sekarang?]
+[Baiklah. Lalu bagaimana kalau kita mandi sekarang?] (ciel)
 
-ain [Serius?!]
+[Serius?!] (ain)
 
-ciel [Tentu saja, itu membuat Ain sangat bahagia.]
+[Tentu saja, itu membuat Ain sangat bahagia.] (ciel)
 
 Ciel terkikik ketika dia mendengarku senang, tetapi Aku harap dia tidak akan keberatan Aku merasa seperti ini.
 
@@ -173,25 +173,25 @@ Saat keluar dari kamar mandi, aku meminta Ciel berganti tubuh denganku dan menge
 
 Itu sihir yang bisa dilakukan Ciel tetapi mengingat keselamatannya, akan lebih baik aku melakukannya.
 
-ciel [Kita harus siap berganti tubuh secara tak terduga segera.]
+[Kita harus siap berganti tubuh secara tak terduga segera.] (ciel)
 
-ain [Aku lupa fakta bahwa kita berganti saat mengeringkan rambut.]
+[Aku lupa fakta bahwa kita berganti saat mengeringkan rambut.] (ain)
 
-ciel [Haruskah kita tetap seperti ini untuk hari ini?]
+[Haruskah kita tetap seperti ini untuk hari ini?] (ciel)
 
-ain [Sejujurnya, itu bukan ide yang buruk tetapi Kamu harus mengistirahatkan tubuh, Ciel. Karena jika terjadi sesuatu, mengingat Aku tidak memiliki kemampuan menyerang, Aku akhirnya harus berganti denganmu.]
+[Sejujurnya, itu bukan ide yang buruk tetapi Kamu harus mengistirahatkan tubuh, Ciel. Karena jika terjadi sesuatu, mengingat Aku tidak memiliki kemampuan menyerang, Aku akhirnya harus berganti denganmu.] (ain)
 
-ciel [Kalau begitu, maukah Kamu setidaknya meluangkan waktu untuk ini, Ain? Saat ini ketika Ain mengeringkan rambutku untukku, jujur Aku sangat menyukainya.]
+[Kalau begitu, maukah Kamu setidaknya meluangkan waktu untuk ini, Ain? Saat ini ketika Ain mengeringkan rambutku untukku, jujur Aku sangat menyukainya.] (ciel)
 
-ain [Baiklah. tapi, melakukan ini terlalu lama juga tidak baik, jadi Aku akan berhenti setelah kering, oke?]
+[Baiklah. tapi, melakukan ini terlalu lama juga tidak baik, jadi Aku akan berhenti setelah kering, oke?] (ain)
 
-ciel [Tentu saja, Aku tidak ingin Ain membenciku.]
+[Tentu saja, Aku tidak ingin Ain membenciku.] (ciel)
 
-ain [Aku tidak akan membencimu hanya karena itu kok.]
+[Aku tidak akan membencimu hanya karena itu kok.] (ain)
 
-ciel [Fufu... Ain, Terima kasih.]
+[Fufu... Ain, Terima kasih.] (ciel)
 
-ain [Jangan khawatir, dengan senang hati.]
+[Jangan khawatir, dengan senang hati.] (ain)
 
 Saat Aku mengeringkan rambutnya, Ciel memang tampak lebih santai, atau lebih tepatnya, mengantuk.
 
@@ -205,9 +205,9 @@ Menu makan malam mirip dengan beberapa makanan yang terlihat di Jepang; roti put
 
 Kami diberitahu untuk meninggalkan piring di luar pintu setelah makan tetapi untuk memulainya, Aku ragu apakah ini benar-benar baik untuk dimakan. Aku merasa kasihan pada Ciel, tapi aku harus membuatnya menahan diri untuk tidak makan untuk saat ini.
 
-ain [Maaf merepotkan saat kamu akan makan tapi jika memungkinkan, maukah kamu tidak memakannya?]
+[Maaf merepotkan saat kamu akan makan tapi jika memungkinkan, maukah kamu tidak memakannya?] (ain)
 
-ciel [...... Mengapa?]
+[...... Mengapa?] (ciel)
 
 Tidak seperti biasanya, Ciel menjawab dengan nada tidak senang. Karena dia berharap untuk makan karena dia menemukan makanan yang layak, ini sama sekali tidak mengherankan.
 
@@ -219,9 +219,9 @@ Setelah menjawab "Mungkin ada semacam obat yang dicampur didalamnya." Ke Ciel ya
 
 Pil tidur dan obat mati rasa mungkin bisa saja ada didalamnya dan Aku tidak bisa mengatakan kedua obat itu sama saja karena Aku mungkin tidak dapat melakukan apa pun jika itu obat mati rasa. karena kami harus meninggalkan peralatan makan di luar, aku harus melakukan sesuatu tentang makan malam kami.
 
-ain [Aku ingin mengetestnya agar bisa dimakan, jadi maukah Kamu berganti denganku, Ciel?]
+[Aku ingin mengetestnya agar bisa dimakan, jadi maukah Kamu berganti denganku, Ciel?] (ain)
 
-ciel [baiklah.]
+[baiklah.] (ciel)
 
 Aku tidak ingin makan makanan portabel ketika kami sudah memiliki makanan yang layak tepat di depan kami juga, jadi Aku harus mencoba yang terbaik.
 
@@ -259,13 +259,13 @@ Setelah melangkah sejauh ini, Aku mulai mempertanyakan apa sebenarnya +BARRIER i
 
 karena itu berjalan dengan baik, Aku harus memberi tahu Ciel.
 
-ain [Dengan ini, roti putih seharusnya aman untuk dimakan, kurasa.]
+[Dengan ini, roti putih seharusnya aman untuk dimakan, kurasa.] (ain)
 
-ciel [Ain, kamu bisa memakannya lho...]
+[Ain, kamu bisa memakannya lho...] (ciel)
 
-ain [Aku akan membiarkanmu untuk makan, Ciel. Tetap saja, +BARRIER ini membutuhkan cukup banyak usaha, jadi mohon tahanlah dengan ini dan steaknya.]
+[Aku akan membiarkanmu untuk makan, Ciel. Tetap saja, +BARRIER ini membutuhkan cukup banyak usaha, jadi mohon tahanlah dengan ini dan steaknya.] (ain)
 
-ciel [Aku sudah senang makan bahkan dengan ini saja. Selain itu, akan agak sulit bagiku untuk menghabiskan semua ini.]
+[Aku sudah senang makan bahkan dengan ini saja. Selain itu, akan agak sulit bagiku untuk menghabiskan semua ini.] (ciel)
 
 benar juga. Bagaimanapun juga, Ciel suka makan tapi dia tidak bisa makan sebanyak itu.
 
