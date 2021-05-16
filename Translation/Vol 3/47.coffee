@@ -101,28 +101,29 @@ Sebaliknya, mengingat kami memiliki tempat tidur dan kamar mandi kelas atas, itu
 
 Saat aku memikirkan itu,"Fufu" terkikik keluar dari bibir Ciel.
 
-"Apakah ada sesuatu dalam pikiranmu?"
-"Kita akan segera dapat melihat laut, kan? Aku hanya, sangat bersemangat tentang itu."
+[Apakah ada sesuatu dalam pikiranmu?] (ain)
 
-(Bab ini disediakan untuk Kamu oleh Re: Library)
+[Kita akan segera melihat laut, kan? Aku hanya, sangat bersemangat tentang itu.] (ciel)
 
-(Kunjungi Re: Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Meskipun Ciel mengatakan Segera , kami masih harus pergi ke kota lebih jauh ke utara dari sini dan menyeberangi gunung, jadi itu akan memakan waktu. tapi, mengingat kami telah menghabiskan dua tahun sejak melarikan diri dari mansion  sejauh ini, bisa melihat laut dalam waktu kurang dari sebulan mungkin akan segera terjadi.
 
-Iklan
-Meskipun Ciel mengatakan Segera , kita masih harus pergi ke kota lebih jauh ke utara dari sini dan menyeberangi gunung, jadi itu akan memakan waktu. Namun, mengingat kita telah menghabiskan dua tahun sejak melarikan diri dari mansion saat datang sejauh ini, bisa melihat laut dalam waktu kurang dari sebulan mungkin akan segera terjadi.
+[Laut memiliki banyak air, bukan? Tapi warnanya biru? Kenapa ya. Air dalam cangkir tidak memiliki warna apa pun!] (ciel)
 
-"Laut memiliki banyak air, bukan? Tapi warnanya biru? Kenapa ya. Air dalam cangkir tidak memiliki warna apa pun!"
-" Kenapa memang."
+[entahlah.] (ain)
 
 Ciel berkata dengan agak bersemangat, tapi aku bingung bagaimana harus menjawab ini.
-Dari pengetahuan yang Aku miliki ketika Aku masih hidup, Aku tahu bahwa itu terkait dengan pantulan dan / atau panjang gelombang cahaya tetapi jika Aku menjawabnya dengan itu, Aku harus menjelaskan sifat sebenarnya dari cahaya juga.
-Ciel cerdas, jadi mungkin dia akan memahaminya tetapi Aku juga tidak yakin apakah pengetahuan ilmiah yang Aku miliki dapat langsung diterapkan di dunia sihir dan sihir ini.
 
-"Selain itu, Aku juga harus melihat apakah laut benar-benar biru juga."
+Dari pengetahuan yang Aku miliki ketika Aku masih hidup, Aku tahu bahwa itu terkait dengan pantulan atau panjang gelombang cahaya tetapi jika Aku menjawabnya dengan itu, Aku harus menjelaskan sifat sebenarnya dari cahaya juga.
 
-Sementara alasan Ciel ingin melihat lautan adalah karena aku menamainya"Cielmer", awalnya, aku tidak tahu apa warna lautan di dunia ini.
+Ciel cerdas, jadi mungkin dia akan memahaminya tetapi Aku juga tidak yakin apakah pengetahuan ilmiah yang Aku miliki dapat langsung diterapkan di dunia Magic dan Sorcery ini.
+
+[Selain itu, Aku juga harus melihat apakah laut benar-benar biru juga.] (ain)
+
+Sementara alasan Ciel ingin melihat lautan adalah karena aku menamainya "Cielmer", pada dasarnya, aku tidak tahu apa warna lautan di dunia ini.
+
 Di bumi, Aku dapat dengan yakin mengatakan bahwa lautan jelas berwarna biru, tetapi di dunia ini, bahkan mungkin hitam.
-Bagaimanapun, ada dua bulan di dunia ini. Apalagi keduanya berbeda warnanya.
+
+Bagaimanapun juga, ada dua bulan di dunia ini. Apalagi keduanya berbeda warnanya.
 
 "Lalu mari kita lihat. Jika memungkinkan, Aku ingin melihat lautan yang Ain ketahui tetapi selama Aku bersamamu, lautan apa pun pantas untuk dilihat.
 Ngomong-ngomong, Ain. Bolehkah aku menanyakan sesuatu padamu?"
