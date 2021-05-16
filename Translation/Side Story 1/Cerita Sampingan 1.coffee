@@ -28,19 +28,20 @@ Adapun mengapa Ain berbicara sekarang, itu karena Aku androfobik — atau lebih 
 
 Aku sedikit lebih buruk dengan pria tetapi pada dasarnya Aku hanya tidak suka orang. Padahal, akhir-akhir ini aku semakin pandai berbicara.
 
-"Tetap saja, Aku tidak melihat hutan di dekatnya tetapi apakah serigala hutan biasanya muncul di sekitar sini?" (ain)
+"Tetap saja, Aku tidak melihat hutan di dekat sini tetapi apakah serigala hutan biasanya muncul di sekitar sini?" (ain)
 
-"Yah, Aku tidak bisa mengatakan bahwa mereka sama sekali tidak. Mempertimbangkan area tersebut, mereka mungkin telah menyimpang dari hutan utara. Namun, hal itu juga tidak sering terjadi. Kami sangat tidak beruntung. Tetapi karena Kamu menemukan kami, Kamu dapat mengatakan bahwa kami juga cukup beruntung. Meskipun demikian, mengalahkan serigala hutan pada usia itu, Aku kira itu berkat Job Kamu, kan?" (anicet)
+"Yah, Aku tidak bisa mengatakan bahwa mereka sama sekali tidak akan muncul. Mempertimbangkan area tersebut, mereka mungkin dari hutan utara. tapi, hal itu juga tidak sering terjadi. Kami sangat tidak beruntung. Tetapi karena Kamu menemukan kami, Kamu dapat mengatakan bahwa kami juga cukup beruntung. Meskipun demikian, mengalahkan serigala hutan pada usiamu, pasti itu berkat Jobmu, kan?" (anicet)
 
 "Berbicara tentang Job agak ......" (ain)
 
-"Ahh , benar. Itu pelanggaran etiket, bukan?" (anicet)
+"Ahh , benar. Itu pelanggaran, bukan?" (anicet)
 
-Pria pedagang itu sepertinya mengatakan itu secara tidak sengaja, saat dia meminta maaf dengan tangan menutupi dahinya.
+Pria pedagang itu sepertinya mengatakan itu secara tidak sengaja, karena dia meminta maaf dengan tangan menutupi dahinya.
 
-Pekerjaan adalah sejenis kemampuan yang diberikan oleh tuhan. Misalnya, seseorang yang diberikan Job Swordsman akan menjadi lebih baik dalam menangani pedang.
+job adalah sejenis kemampuan yang diberikan oleh dewa. Misalnya, seseorang yang diberikan Job Swordsman akan menjadi lebih baik dalam menangani pedang.
 
-Karena para Hunter secara khusus tidak pernah tahu apakah Hunter lain akan memusuhi mereka, membongkar Job seseorang adalah pelanggaran etiket. Selain itu, karena orang dapat didiskriminasi karena memiliki Pekerjaan tertentu, Hunter Guild — yang sangat menentang diskriminasi Pekerjaan — melarang secara paksa mempertanyakan Pekerjaan orang.
+Karena para Hunter secara khusus tidak pernah tahu apakah Hunter lain akan memusuhi mereka, membongkar Job seseorang adalah pelanggaran. Selain itu, karena orang dapat didiskriminasi karena memiliki job tertentu, Hunter Guild — yang sangat menentang diskriminasi job — melarang secara paksa mempertanyakan job orang.
+
 Menyadari bahwa dia melakukan kesalahan, pedagang mengubah topik pembicaraan.
 
 "Kalau dipikir-pikir, apa yang membawamu ke ibukota?" (anicet)
@@ -51,47 +52,47 @@ Menyadari bahwa dia melakukan kesalahan, pedagang mengubah topik pembicaraan.
 
 "Ya. Meskipun sebagai Hunter, Aku ingin berkunjung ke sana setidaknya sekali juga." (ain)
 
-"Yah, tentu saja, Kamu tidak akan kehilangan apa pun dengan mengunjungi sekali, tetapi Kamu mungkin akan terkejut jika ini pertama kalinya bagi Kamu." (anicet)
+"Yah, tentu saja, Kamu tidak akan kehilangan apa pun dengan mengunjungi sekali, tetapi Kamu mungkin akan terkejut jika ini pertama kalinya bagimu." (anicet)
 
-Seperti itu, Aku mendengarkan cerita tentang ibu kota kerajaan sambil tersentak oleh pelatih yang gemetar saat kami menuju ke sana.
+Seperti itu, Aku mendengarkan cerita tentang ibu kota kerajaan sambil menuju ke sana.
 
 ◇
 
 Saat itu senja. Matahari diwarnai dengan warna merah tua dan padang rumput, yang dulunya hijau cerah di bawah cahaya siang hari, sekarang tampak agak sepi.
 
-Sementara Aku sudah menganggap diri Aku terbiasa dengan pemandangan yang hidup ini, aneh bagaimana Aku akhirnya terpesona olehnya.
+Aku yang sudah menganggap diriku terbiasa dengan pemandangan ini, entah kenapa aneh rasanya bagaimana Aku akhirnya terpesona olehnya.
 
 Aku pikir itu indah dan Aku ingin menyentuhnya, tetapi entah bagaimana Aku merasa Aku tidak boleh melakukannya.
 
-Mungkin memperhatikan bagaimana Aku tertegun, dia memberi tahu Aku "Kami di sini" setelah tertawa cekikikan.
+Mungkin memperhatikan bagaimana Aku tertegun, dia memberi tahuku "kita sudah sampai" setelah tertawa cekikikan.
 
-Meskipun Aku telah melihat sejumlah kota di masa lalu, gerbang ibu kota lebih besar dari yang pernah Aku lihat sebelumnya dan dinding yang mengelilinginya sangat tinggi dan tampak kokoh.
+Meskipun Aku telah melihat sejumlah kota di masa lalu, gerbang kali ini lebih besar dari yang pernah Aku lihat sebelumnya dan dinding yang mengelilinginya sangat tinggi dan tampak kokoh.
 
-Dindingnya diwarnai oranye karena matahari terbenam yang cerah, tetapi mungkin sebenarnya putih jika dilihat pada siang hari.
+Dindingnya diwarnai orange karena matahari terbenam yang cerah, tetapi mungkin sebenarnya putih jika dilihat pada siang hari.
 
-Seperti rambutku. Aku ingat, di kota pertama yang kami kunjungi, kami masuk sambil menyembunyikan rambut Aku.
+Seperti rambutku. Aku ingat, di kota pertama yang kami kunjungi, kami masuk sambil menyembunyikan rambutku.
 
-Ain mengajari Aku bahwa itu karena mata biru dan rambut putih Aku mungkin menonjol.
+Ain mengajariku bahwa itu karena mata biru dan rambut putihku mungkin menonjol.
 
-Sebenarnya, meski Aku tidak bisa mengatakan tidak, Aku diberitahu bahwa orang-orang dengan rambut putih seperti Aku sedikit dan orang-orang yang memiliki mata biru indah seperti mata Aku bahkan lebih jarang didapat. Namun, mereka tidak terlalu menonjol sehingga kita perlu terus-menerus menyembunyikannya di bawah tenda.
+Sebenarnya, meski Aku tidak bisa mengatakan tidak, Aku diberitahu bahwa orang-orang dengan rambut putih sepertiku sedikit dan orang-orang yang memiliki mata biru indah seperti mataku bahkan lebih jarang didapat. mereka tidak terlalu menunjukkan diri sehingga kami perlu terus-menerus menyembunyikannya.
 
 Bahkan jika itu tidak secara langsung mempengaruhi kelangsungan hidup kami, aku sangat berterima kasih atas pertimbangan Ain untukku.
 
-Setelah menunjukkan Kartu Hunter Guild Aku di gerbang, kami diizinkan masuk tanpa masalah apa pun.
+Setelah menunjukkan Kartu Hunter Guildku di gerbang, kami diizinkan masuk tanpa masalah apa pun.
 
-Itu mengejutkan kesatria yang menjaga gerbang, tapi aku sudah terbiasa dan aku sadar bahwa aku masih anak-anak, jadi itu tidak terlalu menggangguku.
+Itu mengejutkan knight yang menjaga gerbang, tapi aku sudah terbiasa dan aku sadar bahwa aku masih anak-anak, jadi itu tidak terlalu menggangguku.
 
 Kami berpisah dengan pasangan pedagang sebelum pemeriksaan, tapi Ain sudah mendapatkan informasi tentang penginapan di ibukota.
 
-Setelah beralih dengan Ain, Aku menuju ke penginapan yang diberitahukan kepada kami.
+Setelah berganti dengan Ain, Aku menuju ke penginapan yang diberitahukan kepada kami.
 
 Apa yang kami butuhkan dari sebuah penginapan adalah bahwa itu harus memiliki harga yang wajar dan tempat yang aman. Dengan harga murah, karena orang mungkin memasuki kamar kami untuk menyerang kami pada tengah malam, kami — terutama Ain — tidak akan bisa santai.
 
-Padahal, di sisi lain, jika kita menginap di tempat yang sangat mahal, kali ini kita akan terlihat sebagai seorang anak dengan uang dan diikuti. Saat itu terjadi, Ain akan memiliki lebih banyak pekerjaan lagi.
+Padahal, di sisi lain, jika kami menginap di tempat yang sangat mahal, kali ini kami akan terlihat sebagai seorang anak yang memiliki uang dan diikuti. Saat itu terjadi, Ain akan memiliki lebih banyak pekerjaan lagi.
 
-Aku akhirnya mengandalkan Ain karena dia bisa menggunakan sihir pendeteksi dan sepertinya tidak perlu tidur, tapi Ain bersikeras bahwa tidak masalah seperti itu.
+Aku akhirnya mengandalkan Ain karena dia bisa menggunakan sihir +DETECTION dan sepertinya tidak perlu tidur, tapi Ain bersikeras bahwa tidak masalah seperti itu.
 
-Tidak menginginkan itu, Aku memaksakan diri satu kali dan akhirnya mendapat bahaya karena kurang tidur, jadi Ain meyakinkan Aku bahwa kami memiliki peran yang berbeda dan sekarang kami telah menyelesaikannya.
+Tidak menginginkan itu, Aku memaksakan diri satu kali dan akhirnya mendapat bahaya karena kurang tidur, jadi Ain meyakinkanku bahwa kami memiliki peran yang berbeda dan sekarang kami telah menyelesaikannya.
 
 Peran Aku, secara keseluruhan, adalah bertarung. Sementara Ain bisa mencari sekeliling dengan sihir dan menggunakan perisai yang melindungi kita, dia tidak bisa menyerang. Faktanya, bahkan ketika dia menggunakan sihir tempur, tidak satupun dari mereka bisa digunakan secara praktis dalam pertempuran. Dan bahkan jika dia menggunakan tubuhku, gadis muda biasa dengan senjata masih belum terlalu kuat.
 
