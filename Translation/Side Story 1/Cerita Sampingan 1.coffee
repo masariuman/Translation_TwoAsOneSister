@@ -4,11 +4,11 @@
 
 "Aku sangat senang mendengarnya. Aku minta maaf untuk mengatakan ini tetapi kami hanya memiliki barang dagangan yang sedang digunakan, kami hampir tidak punya uang sungguhan." (anicet)
 
-"Kalau dipikir-pikir, ini juga dianggap permintaan pendamping, kan? Dalam hal ini, mungkin buruk jika Aku tidak meminta hadiah. Terlepas dari penampilanku, aku berafiliasi dengan Hunter Guild, jadi aku akan dimarahi karena membuat pengecualian."
+"Kalau dipikir-pikir, ini juga dianggap permintaan pendamping, kan? Dalam hal ini, mungkin buruk jika Aku tidak meminta hadiah. Terlepas dari penampilanku, aku berafiliasi dengan Hunter Guild, jadi aku akan dimarahi karena membuat pengecualian." (ain)
 
-"Hmm...... Mengapa tidak memilih sesuatu dari belakang? ...... Padahal, Aku tidak tahu apakah kami memiliki sesuatu yang Kamu butuhkan, Cielmer- chan ."
+"Hmm...... Mengapa tidak memilih sesuatu dari belakang? ...... Padahal, Aku tidak tahu apakah kami memiliki sesuatu yang Kamu butuhkan, Cielmer-chan ." (anicet)
 
-"Aku tidak punya tempat untuk menyimpan furnitur dan kerajinan tangan ini setelah semua. Jika memungkinkan, Aku ingin bertanya tentang banyak hal. Aku baru saja datang dari pedesaan, jadi ada banyak hal yang masih belum Aku ketahui."
+"Aku tidak punya tempat untuk menyimpan furnitur dan kerajinan tangan ini setelah semua. Jika memungkinkan, Aku ingin bertanya tentang banyak hal. Aku baru saja datang dari pedesaan, jadi ada banyak hal yang masih belum Aku ketahui." (ain)
 
 Sebelumnya di jalan menuju ibu kota kerajaan, kami menemukan pelatih diserang oleh beberapa serigala hutan dan menyelamatkan pelatih.
 
@@ -28,11 +28,9 @@ Adapun mengapa Ain berbicara sekarang, itu karena Aku androfobik — atau lebih 
 
 Lebih tepatnya, Aku sedikit lebih buruk dengan pria tetapi Aku tidak suka orang. Padahal, akhir-akhir ini aku semakin pandai berbicara.
 
-"Tetap saja, Aku tidak melihat hutan di dekatnya tetapi apakah serigala hutan biasanya muncul di sekitar sini?"
+"Tetap saja, Aku tidak melihat hutan di dekatnya tetapi apakah serigala hutan biasanya muncul di sekitar sini?" (ain)
 
-"Yah, Aku tidak bisa mengatakan bahwa mereka sama sekali tidak. Mempertimbangkan area tersebut, mereka mungkin telah menyimpang dari hutan utara. Namun, hal itu juga tidak sering terjadi. Kami sangat tidak beruntung. Tetapi karena Kamu menemukan kami, Kamu dapat mengatakan bahwa kami juga cukup beruntung.
-
-Meskipun demikian, mengalahkan serigala hutan pada usia itu, Aku kira itu berkat Pekerjaan Kamu, kan?"
+"Yah, Aku tidak bisa mengatakan bahwa mereka sama sekali tidak. Mempertimbangkan area tersebut, mereka mungkin telah menyimpang dari hutan utara. Namun, hal itu juga tidak sering terjadi. Kami sangat tidak beruntung. Tetapi karena Kamu menemukan kami, Kamu dapat mengatakan bahwa kami juga cukup beruntung. Meskipun demikian, mengalahkan serigala hutan pada usia itu, Aku kira itu berkat Pekerjaan Kamu, kan?" (anicet)
 
 "Berbicara tentang Pekerjaan agak ......"
 
