@@ -1,54 +1,76 @@
 "Kamu benar-benar menyelamatkan kami di sana. Aku tidak pernah membayangkan kita akan bertemu serigala hutan di tempat ini, paham?
+
 Jika bukan karena Kamu menemukan kami, istri Aku dan Aku akan mati saat itu."
+
 "Aku tidak bisa bergerak maju bersama mereka di jalan. Selain itu, hanya bisa berkendara sudah sangat membantu."
+
 "Aku sangat senang mendengarnya. Aku minta maaf untuk mengatakan ini tetapi kami hanya memiliki barang dagangan yang sedang digunakan, kami hampir tidak punya uang sungguhan."
-"Kalau dipikir-pikir, ini juga dianggap permintaan pendamping, kan? Dalam hal ini, mungkin buruk jika Aku tidak meminta hadiah.
-Terlepas dari penampilanku, aku berafiliasi dengan Hunter Guild, jadi aku akan dimarahi karena membuat pengecualian."
+
+"Kalau dipikir-pikir, ini juga dianggap permintaan pendamping, kan? Dalam hal ini, mungkin buruk jika Aku tidak meminta hadiah. Terlepas dari penampilanku, aku berafiliasi dengan Hunter Guild, jadi aku akan dimarahi karena membuat pengecualian."
+
 "Hmm…… Mengapa tidak memilih sesuatu dari belakang? …… Padahal, Aku tidak tahu apakah kami memiliki sesuatu yang Kamu butuhkan, Cielmer- chan ."
-"Aku tidak punya tempat untuk menyimpan furnitur dan kerajinan tangan ini setelah semua.
-Jika memungkinkan, Aku ingin bertanya tentang banyak hal. Aku baru saja datang dari pedesaan, jadi ada banyak hal yang masih belum Aku ketahui."
+
+"Aku tidak punya tempat untuk menyimpan furnitur dan kerajinan tangan ini setelah semua. Jika memungkinkan, Aku ingin bertanya tentang banyak hal. Aku baru saja datang dari pedesaan, jadi ada banyak hal yang masih belum Aku ketahui."
 
 Sebelumnya di jalan menuju ibu kota kerajaan, kami menemukan pelatih diserang oleh beberapa serigala hutan dan menyelamatkan pelatih.
+
 Sebagai ungkapan rasa syukur, dua pedagang keliling paruh baya yang sudah menikah yang menungganginya mengundang kami untuk berwisata bersama mereka karena kami berjalan tanpa ditemani.
+
 Dan saat ini, Aku duduk di sebelah suami di kursi pengemudi dan mendengarkan saat dia berbicara kepada Aku. Namun, yang menjawabnya bukanlah aku.
 
 Sejak Aku lahir, ada orang lain di dalam diri Aku. Menurutnya, dia sepertinya menghantui Aku.
+
 Sedangkan untuk Aku, Aku tidak keberatan selama Aku bersama dengan Ain, jadi Aku tidak terlalu peduli jika dia menghantui Aku atau bahkan jika dia mengambil alih tubuh Aku. Pertama-tama, jika bukan karena Ain, Aku pasti sudah mati.
+
 Dengan itu, orang yang berbicara dengan pedagang sekarang, adalah orang tersayang Ainsel. Karena kami telah bersama sejak Aku lahir, sudah 12 tahun sejak kami bertemu.
+
 Cielmer adalah nama Aku yang dipikirkan oleh Ain untuk Aku.
 
 Adapun mengapa Ain berbicara sekarang, itu karena Aku androfobik — atau lebih tepatnya Ain mengira Aku.
+
 Lebih tepatnya, Aku sedikit lebih buruk dengan pria tetapi Aku tidak suka orang. Padahal, akhir-akhir ini aku semakin pandai berbicara.
 
 "Tetap saja, Aku tidak melihat hutan di dekatnya tetapi apakah serigala hutan biasanya muncul di sekitar sini?"
-"Yah, Aku tidak bisa mengatakan bahwa mereka sama sekali tidak. Mempertimbangkan area tersebut, mereka mungkin telah menyimpang dari hutan utara.
-Namun, hal itu juga tidak sering terjadi. Kami sangat tidak beruntung. Tetapi karena Kamu menemukan kami, Kamu dapat mengatakan bahwa kami juga cukup beruntung.
+
+"Yah, Aku tidak bisa mengatakan bahwa mereka sama sekali tidak. Mempertimbangkan area tersebut, mereka mungkin telah menyimpang dari hutan utara. Namun, hal itu juga tidak sering terjadi. Kami sangat tidak beruntung. Tetapi karena Kamu menemukan kami, Kamu dapat mengatakan bahwa kami juga cukup beruntung.
+
 Meskipun demikian, mengalahkan serigala hutan pada usia itu, Aku kira itu berkat Pekerjaan Kamu, kan?"
+
 "Berbicara tentang Pekerjaan agak ……"
+
 "Ahh , benar. Itu pelanggaran etiket, bukan?"
 
 Pria pedagang itu sepertinya mengatakan itu secara tidak sengaja, saat dia meminta maaf dengan tangan menutupi dahinya.
+
 Pekerjaan adalah sejenis kemampuan yang diberikan oleh tuhan. Misalnya, seseorang yang diberikan Job Swordsman akan menjadi lebih baik dalam menangani pedang.
+
 Karena para Hunter secara khusus tidak pernah tahu apakah Hunter lain akan memusuhi mereka, membongkar Job seseorang adalah pelanggaran etiket. Selain itu, karena orang dapat didiskriminasi karena memiliki Pekerjaan tertentu, Hunter Guild — yang sangat menentang diskriminasi Pekerjaan — melarang secara paksa mempertanyakan Pekerjaan orang.
 Menyadari bahwa dia melakukan kesalahan, pedagang mengubah topik pembicaraan.
 
 "Kalau dipikir-pikir, apa yang membawamu ke ibukota?"
+
 "Mampir saja."
+
 "Mampir saja?"
+
 "Ya. Meskipun sebagai Hunter, Aku ingin berkunjung ke sana setidaknya sekali juga."
+
 "Yah, tentu saja, Kamu tidak akan kehilangan apa pun dengan mengunjungi sekali, tetapi Kamu mungkin akan terkejut jika ini pertama kalinya bagi Kamu."
 
 Seperti itu, Aku mendengarkan cerita tentang ibu kota kerajaan sambil tersentak oleh pelatih yang gemetar saat kami menuju ke sana.
 
 ◇
 
-Iklan
 Saat itu senja. Matahari diwarnai dengan warna merah tua dan padang rumput, yang dulunya hijau cerah di bawah cahaya siang hari, sekarang tampak agak sepi.
+
 Sementara Aku sudah menganggap diri Aku terbiasa dengan pemandangan yang hidup ini, aneh bagaimana Aku akhirnya terpesona olehnya.
+
 Aku pikir itu indah dan Aku ingin menyentuhnya, tetapi entah bagaimana Aku merasa Aku tidak boleh melakukannya.
+
 Mungkin memperhatikan bagaimana Aku tertegun, dia memberi tahu Aku"Kami di sini" setelah tertawa cekikikan.
 
 Meskipun Aku telah melihat sejumlah kota di masa lalu, gerbang ibu kota lebih besar dari yang pernah Aku lihat sebelumnya dan dinding yang mengelilinginya sangat tinggi dan tampak kokoh.
+
 Dindingnya diwarnai oranye karena matahari terbenam yang cerah, tetapi mungkin sebenarnya putih jika dilihat pada siang hari.
 Seperti rambutku. Aku ingat, di kota pertama yang kami kunjungi, kami masuk sambil menyembunyikan rambut Aku.
 
