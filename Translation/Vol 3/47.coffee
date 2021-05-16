@@ -149,31 +149,46 @@ Aku merasakan rasa frustrasi yang tak terlukiskan, atau lebih tepatnya seperti p
 
 [Apa? Kamu mengatakan bahwa itu akan menjadi lebih besar jika Aku memijatnya, kan?] (ain)
 
-Baik. Akulah yang mengatakan itu. Tidak perlu dipertanyakan lagi, tapi bagaimana Ciel bisa begitu tenang seperti ini? Karena itu, semakin sulit untuk mengganggunya. Yah, tentu, jika Ciel benar-benar merasakan hal yang sama sepertiku, maka pasti akan sulit untuk mengganggunya juga.
+Baik. Akulah yang mengatakan itu. Tidak perlu dipertanyakan lagi, tapi bagaimana Ciel bisa begitu tenang seperti ini? Karena dia tenang seperti itu, semakin sulit untuk menghentikannya. Yah, tentu, jika Ciel benar-benar merasakan hal yang sama sepertiku, maka pasti akan sulit untuk menghentikannya juga.
 
-"Aku, sudah bilang sebelumnya, itu hanya rumor."
-"Itu benar. Tetapi Kamu juga mengatakan Kamu belum menguji apakah itu benar atau tidak.
-Kalau begitu dalam kasus ini, kita bisa mencobanya dengan mengujinya, kan?"
+[Aku, sudah bilang sebelumnya, itu hanya rumor.] (ciel)
+
+[iya. Tetapi Kamu juga mengatakan Kamu belum menguji apakah itu benar atau tidak. Kalau begitu dalam kasus ini, kita bisa mencobanya dengan mengujinya, kan?] (ciel)
 
 Dalam hal ini, kemungkinan besar tidak ada artinya kecuali dilakukan setiap hari.
-Meskipun jika Aku mengatakan itu, maka ini akan mulai terjadi setiap hari, jadi Aku pasti tidak boleh sembarangan berbicara lagi.
-Bagaimanapun, kejadian hari ini adalah akibat dari kesalahan kemarin, jadi Aku harus belajar darinya. Akan menyenangkan jika aku bisa. Bisakah Aku?
-Tetap saja, karena sepertinya Ciel melakukannya hanya jika itu yang terlintas dalam pikiran — dan karena aku tidak terlalu terbiasa dengan rangsangan itu — mungkin lebih baik sebetulnya lebih baik memberitahunya tentang hal itu pada saat ini. Apakah itu buruk untuk pendidikan Ciel?
 
-"Hyu!"
+kalau aku mengatakan itu, ini akan mulai terjadi setiap hari, jadi Aku pasti tidak boleh sembarangan berbicara lagi.
 
-Ketika Aku mencoba untuk mengalihkan perhatian Aku dalam pemikiran yang dalam, tangan Ciel menyentuh puncak.
-Dari stimulasi, Aku tanpa sadar menjerit. Aneh, hanya asing. Itu memalukan.
+Bagaimanapun juga, kejadian hari ini adalah akibat dari kesalahan kemarin, jadi Aku harus belajar dari kejadian ini. Akan menyenangkan jika aku bisa. apakah aku bisa?
+
+Tetap saja, karena sepertinya Ciel melakukannya hanya jika itu yang terlintas dalam pikiran — dan karena aku tidak terlalu terbiasa dengan rangsangan itu — mungkin lebih baik memberitahunya tentang hal itu pada saat ini. Apakah itu buruk untuk pendidikan Ciel?
+
+[Hyu!] (ain)
+
+Ketika Aku mencoba untuk mengalihkan perhatianku dalam pemikiran yang dalam, tangan Ciel menyentuh ujungnya.
+
+Dari stimulasi, Aku tanpa sadar menjerit. rasanya Aneh, hanya saja asing bagiku. Itu memalukan.
+
 Stimulasi ini dan bahkan suara nada tinggi yang tiba-tiba Aku buat ini, entah bagaimana Aku tidak bisa terbiasa dengan semuanya.
-Aku hanya bisa menahannya agar Ciel tidak menyadarinya. Untungnya, sepertinya Ciel tidak memperhatikan jeritan Aku karena Aku tidak ditanya apa-apa tentang itu.
+
+Aku hanya bisa menahannya agar Ciel tidak menyadarinya. Untungnya, sepertinya Ciel tidak memperhatikan jeritanku karena Aku tidak ditanya apa-apa tentang itu.
 
 Saat waktu yang lama namun singkat ini berlalu, tangan Ciel menjauh dari dadanya.
-Aku akhirnya dibebaskan. Ciel berbaring miring, tampak puas karena suatu alasan. Dan kemudian, dia menutup matanya seolah ingin menikmati sesuatu.
-Untuk saat ini, karena aku ingin gangguan dan rasanya dia mungkin akan tertidur,"Jika kamu mengantuk, mengapa kita tidak mandi lebih awal?" Aku memanggilnya.
-Namun, Aku rasa itu tidak sampai ke telinganya — meskipun Aku sebenarnya tidak yakin apakah telinganya yang mendengar Aku secara fisik — karena dia tidak bereaksi. Karena itu,"Ciel, apakah kamu mendengarku? Ciel?"Aku memanggilnya lagi dan dia bereaksi kali ini.
 
-"Maafkan Aku. Aku agak tenggelam dalam pikiran Aku."
-" Jangan khawatir, Aku hanya ingin mengatakan itu: jika Kamu ingin tidur, bagaimana kalau mandi lebih awal? Itu saja."
-" Ayo lakukan itu. Lagipula kita punya kamar yang bagus untuk ditinggali, aku ingin menikmatinya."
+Aku akhirnya bebas. Ciel berbaring miring, tampak puas karena suatu alasan. Dan kemudian, dia menutup matanya seolah ingin menikmati sesuatu.
+
+Untuk saat ini, karena aku ingin mengalihkannya dan rasanya dia mungkin akan tertidur, "Jika kamu mengantuk, mengapa kita tidak mandi lebih awal?" Aku memanggilnya.
+
+tapi, Aku rasa itu tidak sampai ke telinganya — meskipun Aku sebenarnya tidak yakin apakah telinganya yang mendengar Aku secara fisik — karena dia tidak bereaksi. Karena itu,"Ciel, apakah kamu mendengarku? Ciel?" Aku memanggilnya lagi dan dia bereaksi kali ini.
+
+[Maafkan Aku. Aku agak tenggelam dalam pikiran Aku.] (ciel)
+
+[Jangan khawatir, Aku hanya ingin mengatakan jika Kamu ingin tidur, bagaimana kalau mandi lebih awal? Itu saja.] (ain)
+
+[Ayo mandi. Lagipula kita punya kamar yang bagus untuk ditinggali, aku ingin menikmatinya.] (ciel)
 
 Sambil berkata demikian, Ciel bangkit dan dengan langkah ringan, dia pergi untuk mengisi bak mandi dengan air panas.
+
+-----------------
+
+Pertama-tama, pilihan yang bagus untuk pergi ke toko yang kemungkinan membuat masalahnya tidak besar. bagus ain memikirkan hal itu juga, jadi tidak terlalu merepotkan. tapi sangat disayangkan tidak bisa dapat tas sihir yg lebih besar. entahlah tapi bukannya ada banyak toko ? atau toko untuk hunter tingkat atas hanya ada 1 saja ? atau penjaga toko tersebut bilang kalau tidak ada stok secara global untuk semua toko ? entahlah...
