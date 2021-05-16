@@ -1,14 +1,14 @@
-"Kamu benar-benar menyelamatkan kami di sana. Aku tidak pernah membayangkan kita akan bertemu serigala hutan di tempat ini, paham? Jika bukan karena Kamu menemukan kami, istri Aku dan Aku akan mati saat itu." (anicet)
+"Kamu benar-benar menyelamatkan kami. Aku tidak pernah membayangkan kami akan bertemu serigala hutan di tempat ini, Jika bukan karena Kamu, istriku dan Aku akan mati saat itu." (anicet)
 
-"Aku tidak bisa bergerak maju bersama mereka di jalan. Selain itu, hanya bisa berkendara sudah sangat membantu." (ain)
+"Aku tidak bisa bergerak maju kalau mereka menghadang jalan juga. Selain itu, hanya bisa berkendara sudah sangat membantu." (ain)
 
-"Aku sangat senang mendengarnya. Aku minta maaf untuk mengatakan ini tetapi kami hanya memiliki barang dagangan yang sedang digunakan, kami hampir tidak punya uang sungguhan." (anicet)
+"Aku sangat senang mendengarnya. Aku minta maaf untuk mengatakan ini tetapi kami hanya memiliki barang dagangan, kami hampir tidak punya uang." (anicet)
 
-"Kalau dipikir-pikir, ini juga dianggap permintaan pendamping, kan? Dalam hal ini, mungkin buruk jika Aku tidak meminta hadiah. Terlepas dari penampilanku, aku berafiliasi dengan Hunter Guild, jadi aku akan dimarahi karena membuat pengecualian." (ain)
+"Kalau dipikir-pikir, ini juga dianggap permintaan pengawalan, kan? Dalam hal ini, mungkin buruk jika Aku tidak meminta hadiah. Terlepas dari penampilanku, aku berafiliasi dengan Guild Hunter, aku akan dimarahi karena membuat pengecualian." (ain)
 
-"Hmm...... Mengapa tidak memilih sesuatu dari belakang? ...... Padahal, Aku tidak tahu apakah kami memiliki sesuatu yang Kamu butuhkan, Cielmer-chan ." (anicet)
+"Hmm...... Mengapa tidak memilih sesuatu dari belakang? ...... Aku tidak tahu apakah kami memiliki sesuatu yang Kamu butuhkan, Cielmer-chan ." (anicet)
 
-"Aku tidak punya tempat untuk menyimpan furnitur dan kerajinan tangan ini setelah semua. Jika memungkinkan, Aku ingin bertanya tentang banyak hal. Aku baru saja datang dari pedesaan, jadi ada banyak hal yang masih belum Aku ketahui." (ain)
+"Aku tidak punya tempat untuk menyimpan furnitur dan kerajinan tangan. Jika memungkinkan, Aku ingin bertanya tentang banyak hal. Aku baru saja datang dari pedesaan, jadi ada banyak hal yang masih belum Aku ketahui." (ain)
 
 Sebelumnya di jalan menuju ibu kota kerajaan, kami menemukan pelatih diserang oleh beberapa serigala hutan dan menyelamatkan pelatih.
 
