@@ -6,11 +6,13 @@ CHAPTER 47: TOOL SHOP, BED, AND INEXPERIENCE
 
 [Ini akan sangat berguna. Lagipula, kita mungkin bisa melakukan beberapa permintaan pada saat yang sama.] (ciel)
 
-[masalahnya adalah jika kita mampu membelinya tapi ...... bahkan jika kita tidak bisa, kemungkinan besar akan menjadi sesuatu yang bisa kita nantikan di masa depan.]
+[masalahnya jika kita mampu membelinya tapi ...... bahkan jika kita tidak bisa, kemungkinan besar akan menjadi sesuatu yang bisa kita nantikan di masa depan.] (ain)
 
-Dalam hal ukuran yang kita inginkan, Aku rasa kita tidak dapat membelinya dengan apa yang kita miliki sekarang.
-Lagi pula, kami diberi tahu bahwa dengan harga itulah Kamu dapat membangun rumah atau kastil. Ukuran yang ideal adalah yang memungkinkan kami membawa beberapa lusin mayat monster.
-Dengan itu, kita bisa menguras darah dari tubuh dan, setelah membayar biaya komisi yang diperlukan, serahkan yang lainnya ke Hunter Guild.
+Dalam hal ukuran yang kami inginkan, Aku rasa kami tidak dapat membelinya dengan apa yang kami miliki sekarang.
+
+kami diberi tahu harganya mahal bahkan Kamu dapat membangun rumah atau istana. Ukuran yang ideal adalah yang memungkinkan kami membawa beberapa lusin mayat monster.
+
+Dengan itu, kami bisa menguras darah dan, setelah membayar biaya komisi yang diperlukan, serahkan yang lainnya ke Hunter Guild.
 
 Di kota-kota kecil, biasanya ada satu dari setiap toko perkakas dan toko senjata. Tapi di ibu kota kerajaan, seperti halnya ada berbagai toko senjata, sepertinya juga ada berbagai toko alat.
 Ini dibagi menurut jenis pelanggan.
