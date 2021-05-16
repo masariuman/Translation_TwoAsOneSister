@@ -192,3 +192,11 @@ Sambil berkata demikian, Ciel bangkit dan dengan langkah ringan, dia pergi untuk
 -----------------
 
 Pertama-tama, pilihan yang bagus untuk pergi ke toko yang kemungkinan membuat masalahnya tidak besar. bagus ain memikirkan hal itu juga, jadi tidak terlalu merepotkan. tapi sangat disayangkan tidak bisa dapat tas sihir yg lebih besar. entahlah tapi bukannya ada banyak toko ? atau toko untuk hunter tingkat atas hanya ada 1 saja ? atau penjaga toko tersebut bilang kalau tidak ada stok secara global untuk semua toko ? entahlah...
+
+akhirnya tidak lama lagi mereka akan melihat laut, dan saya juga penasaran apakah lautnya tetap sama biru atau beda warna. tapi warna air saja tetap sama yaitu transparant/bening, selama langit warnanya biru dan awan warnanya putih, ada kemungkinan warna lautnya juga sama. mungkin akan berbeda kalau lautnya dipengaruhi sihir tertentu.
+
+dan saya yakin walaupun ain bukan dewa, tapi bagi dedek ciel mungkin ain adalah dewa/malaikat penyelamat hidupnya. tanpa ada ain, mungkin dedek ciel sudah lama broken/kacau. berkat ain, dedek ciel tetap waras sampai sekarang, walau jatuh jatuhnya kalau dilihat dari alurnya dedek ciel bakal posesif ke ain saja dan berhubung ain overprotektif, sepertinya tidak akan ada genre harem. dan saya menduga akhirnya ain akan mendapat tubuh sendiri dan mereka akan bersama selamanya menjadi pasangan yang penuh dengan gula dimana mana, maniis...
+
+terakhir, dedek ciel kita mulai nakal lagi ya, duuh gemesin pengen kucubit pipinya. sudah mulai jago ya nakal ngerjain ain. tapi saya penasaran harusnya dedek ciel merasakan hal yang sama dengan ain rasakan, apakah memang dedek ciel tidak terlalu terangsang ? apakah ciel kurang ekpresi ? ah memang sih kalau tidak kepada ain, dedek ciel datar saja... tapi cara ngerjain ainnya jangan gitu dong, anu saya bingung karena hati saya masih anggap ain laki, ga mau tegang sama ain...
+
+ahahahahahha, sekian untuk chapter kali ini, silahkan menikmati membacanya ~~ kalau ada yang ingin didiskusikan atau ada saran, silahkan coret-coret di kolom komentar yaa ~~~ TERIMA KASIH !!!
