@@ -72,24 +72,30 @@ Dengan demikian, metode yang paling dapat diandalkan untuk memperolehnya adalah 
 Kami akan pergi paling cepat dalam lima hari. Selain tas sihir, satu-satunya yang kami butuhkan adalah makanan portabel, jadi membeli barang lain sekarang hanya akan menambah barang bawaan kami.
 
 Karena alasan itu, kami akan meninggalkan toko tanpa membeli apa pun, tetapi kami tetap diberi senyuman.
+
 Biasanya orang akan terlihat tidak senang ketika pelanggan pulang tanpa membeli apapun, jadi bisa jadi orang-orang di ibukota kerajaan mendapat pelatihan yang baik.
-Meskipun itu mungkin karena ini menjadi toko berorientasi Hunter tingkat tinggi juga.
+
+mungkin saja karena ini toko berorientasi Hunter tingkat tinggi juga.
 
 Kami masih punya waktu untuk berkeliaran, tetapi karena kami tegang di tengah malam kemarin, kami memutuskan untuk kembali ke penginapan sebelumnya.
-Iklan
 
 ◇
 
-Sesampai kami di kamar, Aku perintahkan Ciel untuk segera memeriksa barang-barang yang kami tinggalkan.
+Sesampai di kamar, Aku perintahkan Ciel untuk segera memeriksa barang-barang yang kami tinggalkan.
+
 Setelah memastikan bahwa tidak ada yang salah, Ciel menjatuhkan dirinya ke atas tempat tidur yang dirapikan dengan rapi.
+
 Karena banyak yang terjadi hari ini, dia mungkin kelelahan.
 
 Adapun mengapa Aku meminta Ciel memeriksa barang-barang kami terlebih dahulu, itu karena Aku belum mempercayai penginapan ini.
+
 Kami sengaja meninggalkan beberapa barang berharga untuk diperiksa apakah akan dicuri atau tidak.
-Hasilnya, tidak ada yang dicuri. Kita seharusnya bisa rileks sekarang ...... tidak. Pertama-tama, mencuri begitu jelas sehingga hanya penginapan kelas rendah yang mengizinkannya — yang hanya sesuatu yang kudengar dari suatu tempat.
+
+Hasilnya, tidak ada yang dicuri. kami seharusnya bisa rileks sekarang ...... tidak. pada dasarnya, mencuri hanya terjadi di penginapan kelas rendah yang mengizinkannya — itulah  yang kudengar dari suatu tempat.
 
 Nah, untuk mempercayai penginapan, Aku tidak benar-benar mempercayai penginapan mana pun sepenuhnya.
-Karena Aku selalu terjaga, tidak ada kemungkinan kita diserang saat tidur. Dengan kata lain, seperti biasa. Masih sama dalam dua belas tahun ini.
+
+Karena Aku selalu bangun, tidak ada kemungkinan kami diserang saat tidur. Dengan kata lain, seperti biasa. Masih sama dalam dua belas tahun ini.
 
 Sebaliknya, mengingat kami memiliki tempat tidur dan kamar mandi kelas atas, itu sebenarnya lebih baik dari biasanya.
 
