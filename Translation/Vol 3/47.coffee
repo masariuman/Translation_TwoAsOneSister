@@ -24,24 +24,31 @@ Jadi sekarang pertanyaannya adlaah ke toko mana Ciel harus pergi, tapi menurutku
 
 Lagipula, para Hunter yang bermasalah Ciel hampir pada umumnya adalah Hunter rank-D dan dibawahnya. Hunter rank tinggi lebih memperhatikan diri mereka sendiri.
 
-Aku mendengar bahwa Hunter rank tinggi melakukan permintaan dari bangsawan juga, jadi Aku kira itu menjadi perlu setidaknya memiliki beberapa tingkat kesopanan.
+Aku mendengar bahwa Hunter rank tinggi melakukan permintaan dari bangsawan juga, jadi Aku kira itu menjadi perlu setidaknya memiliki beberapa kesopanan.
 
-Jadi dengan itu, toko perkakas yang saat ini kami kunjungi adalah, bagaimana Aku harus mengatakan ini, sebuah bangunan kecil berlantai dua yang terlihat seperti toko ritel besar itu.
-Secara alami, bangunan itu sendiri tidak terbuat dari beton bertulang baja atau semacamnya, tetapi ada banyak barang yang dipajang dan beberapa asisten toko memperkenalkan produk saat kami berkeliaran di sekitar lantai.
-Ada pelanggan lain juga, tetapi setelah memberi Ciel sekilas saat dia memasuki toko, mereka kembali berbelanja tanpa perhatian khusus.
+Jadi dengan itu, toko alat yang saat ini kami kunjungi adalah, bagaimana Aku harus mengatakan ini, sebuah bangunan kecil berlantai dua yang terlihat seperti toko retail besar.
 
-"Mereka tidak mengatakan apa-apa tentang kami, itu tidak terduga."
-"Mungkin mereka berpikir bahwa kamu adalah putri bangsawan yang datang ke sini dengan penyamaran atau lebih?"
-"Yah, mereka tidak salah. Mungkin."
-" Aku tidak begitu mengerti sistem bangsawan tapi Aku pikir, dalam kasus Kamu, Kamu mungkin tidak dianggap sebagai putri bangsawan meskipun Kamu adalah anak bangsawan."
+Secara alami, bangunan itu sendiri tidak terbuat dari beton bertulang baja atau semacamnya, tetapi ada banyak barang yang dipajang dan beberapa asisten toko memperkenalkan produk saat kami berkeliaran.
 
-Karena itu sama sekali tidak relevan bagi Aku ketika Aku masih hidup, Aku tidak tahu detail pasti dari aristokrasi.
-Sementara duke dan Ciel terkait oleh darah, akankah keberadaan Ciel diakui oleh publik sejak awal? Apakah perlakuannya akan sama dengan perlakuan terhadap anak-anak tidak sah yang tidak dilaporkan yang tidak dikurung secara rahasia? Bagaimana cara kerja hak suksesi? Apakah pria lebih dominan? Apakah adik laki-laki kepala keluarga lebih tinggi dalam urutan suksesi, atau apakah itu anak laki-laki? Dll dll.
-Sejujurnya Aku tidak terlalu peduli tentang hal-hal ini tetapi memikirkannya akan menjadi cara yang baik untuk membuang waktu saat pelatihan atau di malam hari.
+Ada pelanggan lain juga, tetapi setelah melihat sekilas Ciel saat dia memasuki toko, mereka kembali berbelanja tanpa dan mengabaikan kami.
+
+[Mereka tidak mengatakan apa-apa tentang kita, itu tidak terduga.] (ciel)
+
+[Mungkin mereka berpikir bahwa kamu adalah putri bangsawan yang datang ke sini dengan penyamaran ?] (ain)
+
+[Yah, mereka tidak salah. Mungkin.] (ciel)
+
+[Aku tidak begitu mengerti sistem bangsawan tapi kupikir, dalam kasusmu, Kamu mungkin tidak dianggap sebagai putri bangsawan meskipun Kamu adalah anak bangsawan.] (ain)
+
+Karena itu sama sekali tidak relevan bagiku ketika Aku masih hidup, Aku tidak tahu detail pasti dari sistem bangsawan.
+
+Sementara duke dan Ciel terkait oleh darah, apakah keberadaan Ciel diakui oleh publik sejak awal ? Apakah perlakuannya akan sama dengan perlakuan terhadap anak-anak tidak sah yang tidak dilaporkan yang tidak dikurung secara rahasia ? Bagaimana cara kerja hak warisan ? Apakah pria lebih dominan ? Apakah adik laki-laki kepala keluarga lebih tinggi dalam urutannya, atau apakah itu anak laki-laki ? Dan sebagainya.
+
+Sejujurnya Aku tidak terlalu peduli tentang hal-hal ini tetapi memikirkannya akan menjadi cara yang baik untuk membuang waktu saat latihan atau di malam hari.
 
 "Dari sekilas, sepertinya tidak ada kantong ajaib."
-"Mungkin saja tidak ada di lantai pertama tapi ... tasnya terkonsentrasi di sekitar sini, jadi kurasa itu tidak tersedia atau tidak pada layar.
-Sementara itu, mari kita periksa juga lantai dua."
+
+"Mungkin saja tidak ada di lantai pertama tapi ... tasnya terkonsentrasi di sekitar sini, jadi kurasa itu tidak tersedia atau tidak pada layar. Sementara itu, mari kita periksa juga lantai dua."
 
 Lantai pertama memiliki ransel dan tempat bagasi lainnya, tenda, dan apa yang tampak seperti trailer sepeda.
 Lantai dua tampaknya menjadi tempat lampu, pemantik api, pemukul api, jatah portabel, dan kebutuhan perjalanan lainnya semuanya berada. Bahkan ada versi item magic dari lampu yang dijual, harganya lumayan mahal.
