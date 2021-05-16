@@ -14,15 +14,16 @@ kami diberi tahu harganya mahal bahkan Kamu dapat membangun rumah atau istana. U
 
 Dengan itu, kami bisa menguras darahnya dan setelah membayar biaya komisi yang diperlukan, sisanya diserahkan ke Hunter Guild.
 
-Di kota-kota kecil, biasanya ada satu dari setiap toko perkakas dan toko senjata. Tapi di ibu kota kerajaan, seperti halnya ada berbagai toko senjata, sepertinya juga ada berbagai toko alat.
+Di kota-kota kecil, biasanya pasti ada satu toko alat dan toko senjata. Tapi di ibu kota kerajaan, seperti halnya ada berbagai toko senjata, sepertinya juga ada berbagai toko alat.
 
 Ini dibagi menurut jenis pelanggan.
 
-Terutama karena, dalam kasus pemburu, hanya memasuki toko kemungkinan akan mengintimidasi pelanggan lain. Mungkin yang terbaik bagi manajemen dan pelanggan untuk melakukannya dengan cara itu. Karena pemburu juga memiliki penghasilan yang sangat berbeda tergantung pada rank mereka, ada kasus ketika toko-toko juga membedakan berdasarkan itu.
+Terutama karena dalam kasus Hunter, hanya memasuki toko kemungkinan akan mengintimidasi pelanggan lain. Mungkin yang terbaik bagi manajemen dan pelanggan untuk melakukannya dengan cara itu. Karena Hunter juga memiliki penghasilan yang sangat berbeda tergantung pada rank mereka, ada kasus toko-toko juga membedakan berdasarkan itu.
 
-Jadi dengan kasus ini, sekarang menjadi pertanyaan ke toko mana Ciel harus pergi, tapi Aku katakan satu untuk pemburu rank tinggi adalah pilihan yang lebih aman.
-Lagipula, para pemburu yang memilih Ciel hampir pada umumnya adalah pemburu rank-D dengan rank rendah dan di bawahnya. Hunter rank tinggi lebih memperhatikan diri mereka sendiri.
-Aku mendengar bahwa pemburu rank tinggi melakukan permintaan dari bangsawan juga, jadi Aku kira itu menjadi perlu setidaknya memiliki beberapa tingkat kesopanan.
+Jadi dengan kasus ini, sekarang menjadi pertanyaan ke toko mana Ciel harus pergi, tapi menurutku toko untuk Hunter rank tinggi adalah pilihan yang lebih aman.
+
+Lagipula, para Hunter yang bermasalah Ciel hampir pada umumnya adalah Hunter rank-D dengan rank rendah dan di bawahnya. Hunter rank tinggi lebih memperhatikan diri mereka sendiri.
+Aku mendengar bahwa Hunter rank tinggi melakukan permintaan dari bangsawan juga, jadi Aku kira itu menjadi perlu setidaknya memiliki beberapa tingkat kesopanan.
 
 Jadi dengan itu, toko perkakas yang saat ini kami kunjungi adalah, bagaimana Aku harus mengatakan ini, sebuah bangunan kecil berlantai dua yang terlihat seperti toko ritel besar itu.
 Secara alami, bangunan itu sendiri tidak terbuat dari beton bertulang baja atau semacamnya, tetapi ada banyak barang yang dipajang dan beberapa asisten toko memperkenalkan produk saat kami berkeliaran di sekitar lantai.
@@ -56,7 +57,7 @@ Dengan demikian, metode yang paling dapat diandalkan untuk memperolehnya adalah 
 Kami akan berangkat paling cepat dalam lima hari. Selain tas ajaib, satu-satunya yang kami butuhkan adalah jatah portabel, jadi membeli barang lain sekarang hanya akan menambah barang bawaan kami.
 Karena alasan itu, kami akan meninggalkan toko tanpa membeli apa pun, tetapi kami tetap dikirim dengan senyuman.
 Biasanya orang akan terlihat tidak senang ketika pelanggan pulang tanpa membeli apapun, jadi bisa jadi orang-orang di ibukota kerajaan mendapat pelatihan yang baik.
-Meskipun itu mungkin karena ini menjadi toko berorientasi pemburu tingkat tinggi juga.
+Meskipun itu mungkin karena ini menjadi toko berorientasi Hunter tingkat tinggi juga.
 
 Kami masih punya waktu untuk berkeliaran, tetapi karena kami tegang di tengah malam kemarin, kami memutuskan untuk kembali ke penginapan sebelumnya.
 Iklan
