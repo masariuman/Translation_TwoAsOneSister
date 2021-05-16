@@ -92,15 +92,15 @@ Padahal, di sisi lain, jika kami menginap di tempat yang sangat mahal, kali ini 
 
 Aku akhirnya mengandalkan Ain karena dia bisa menggunakan sihir +DETECTION dan sepertinya tidak perlu tidur, tapi Ain bersikeras bahwa tidak masalah seperti itu.
 
-Tidak menginginkan itu, Aku memaksakan diri satu kali dan akhirnya mendapat bahaya karena kurang tidur, jadi Ain meyakinkanku bahwa kami memiliki peran yang berbeda dan sekarang kami telah menyelesaikannya.
+Tidak menginginkan hal itu, Aku memaksakan diri satu kali dulunya dan akhirnya mendapat bahaya karena kurang tidur, jadi Ain meyakinkanku bahwa kami memiliki peran yang berbeda dan sekarang kami telah menyelesaikannya.
 
-Peran Aku, secara keseluruhan, adalah bertarung. Sementara Ain bisa mencari sekeliling dengan sihir dan menggunakan perisai yang melindungi kita, dia tidak bisa menyerang. Faktanya, bahkan ketika dia menggunakan sihir tempur, tidak satupun dari mereka bisa digunakan secara praktis dalam pertempuran. Dan bahkan jika dia menggunakan tubuhku, gadis muda biasa dengan senjata masih belum terlalu kuat.
+Peranku, secara keseluruhan, adalah bertarung. Sementara Ain bisa mencari sekeliling dengan sihir dan menggunakan +BARRIER yang melindungi kami, dia tidak bisa menyerang. Faktanya, bahkan ketika dia menggunakan sihir tempur, tidak satupun dari mereka bisa digunakan dalam pertempuran. Dan bahkan jika dia menggunakan tubuhku, gadis muda biasa dengan senjata masih belum terlalu kuat.
 
-Dalam kasus Aku, Aku dapat menggunakan sihir tempur sampai batas tertentu dan Pekerjaan Aku bukanlah pekerjaan yang sama sekali tidak berguna dalam pertempuran.
+Dalam kasusku, Aku dapat menggunakan sihir tempur sampai batas tertentu dan jobku bukanlah job yang sama sekali tidak berguna dalam pertempuran.
 
-Selain itu, akulah yang bertanggung jawab untuk menjalani hari demi hari. Pada saat kita perlu terus berbicara dengan seseorang untuk waktu yang lama — seperti sebelumnya — Ain menggantikan Aku karena Aku tidak baik dengan orang lain, tetapi umumnya hanya Aku.
+Selain itu, akulah yang bertanggung jawab untuk menjalani keseharian. Pada saat kami perlu terus berbicara dengan seseorang untuk waktu yang lama — seperti sebelumnya — Ain menggantikanku karena Aku tidak baik dengan orang lain, tetapi umumnya hanya Aku yang berbicara.
 
-Sekarang, kembali ke pokok bahasan. Singkatnya, untuk mengurangi beban Ain sebanyak mungkin, itu perlu untuk menemukan penginapan dengan harga terjangkau namun aman. Singkatnya, penginapan yang biasanya melayani Hunter wanita.
+Sekarang, kembali ke topik utama. Singkatnya, untuk mengurangi beban Ain sebanyak mungkin, itu perlu untuk menemukan penginapan dengan harga terjangkau namun aman. Singkatnya, penginapan yang biasanya melayani Hunter wanita.
 
 Meskipun itu bagus karena kami mendapatkan informasi yang dibutuhkan, kami harus melihatnya sendiri sebelum kami benar-benar dapat memutuskan untuk tinggal di sana. Tetap saja, Aku perhatikan bahwa ada banyak orang saat Aku berjalan melewati ibu kota.
 
@@ -108,17 +108,17 @@ Meskipun tidak begitu padat sehingga Aku terus-menerus bertemu orang lain di jal
 
 Jalanan juga cenderung lebar hanya untuk menampung mereka, tetapi Aku tidak memiliki energi untuk menikmati pemandangan kota saat berada di tengah keramaian yang asing.
 
-Saat kami akhirnya keluar dari kawasan komersial yang berada tepat di depan gerbang ibu kota, jumlah orang berkurang sampai batas tertentu.
+Saat kami keluar dari kawasan perdagangan yang berada tepat di depan gerbang ibu kota, jumlah orang berkurang sampai batas tertentu.
 
-Sepertinya tempat penginapan berkumpul di area yang sama juga karena kami dengan cepat menemukan penginapan yang diberitahukan kepada kami.
+Sepertinya tempat penginapan ada di area yang sama juga karena kami dengan cepat menemukan penginapan yang diberitahukan kepada kami.
 
 Penginapan itu bernama White Flower Metropolis. Ini adalah penginapan yang hanya melayani wanita atau kelompok dengan pria dan wanita. Interior bangunan cerah dan rapi tidak seperti penginapan yang lebih berorientasi pada Hunter yang umumnya memiliki interior pedesaan.
 
-Di konter tepat di depan pintu masuk, ada seorang wanita dewasa duduk berjaga. Ketika kami pertama kali memasuki penginapan, kami biasanya disambut dengan tatapan tidak sopan setengah dari waktu tetapi kali ini, itu tidak terjadi. Sementara itu, kami membayar selama tiga hari dan dipandu ke kamar kami.
+Di konter tepat di depan pintu masuk, ada seorang wanita dewasa duduk berjaga. Ketika kami pertama kali memasuki penginapan, kami biasanya disambut dengan tatapan tidak sopan tetapi kali ini, itu tidak terjadi. kami membayar selama tiga hari dan dipandu ke kamar kami.
 
-Di penginapan bertingkat tiga ini, kami diberitahu bahwa lantai 3 adalah untuk kamar khusus wanita sedangkan lantai 2 memiliki kamar umum. Kamar kami adalah yang pertama di lantai tiga.
+Di penginapan bertingkat tiga ini, kami diberitahu bahwa lantai 3 adalah untuk kamar khusus wanita sedangkan lantai 2 adalah kamar umum. Kamar kami adalah yang pertama di lantai tiga.
 
-Kamar memiliki tempat tidur putih dengan seprai bersih dan, meskipun air panasnya sendiri lebih mahal, ada juga bak mandi, jadi tempat itu mungkin populer di kalangan wanita.
+Kamar memiliki tempat tidur putih dengan seprai bersih dan, meskipun air panasnya menambah harganya, ada juga bak mandi, jadi tempat itu mungkin populer di kalangan wanita.
 
 Menurunkan barang bawaan kami, Aku membaringkan tubuh Aku di atas tempat tidur mulus yang tidak berkerut.
 
