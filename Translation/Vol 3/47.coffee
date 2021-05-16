@@ -20,9 +20,10 @@ Ini dibagi menurut jenis pelanggan.
 
 Terutama karena dalam kasus Hunter, hanya memasuki toko kemungkinan akan mengintimidasi pelanggan lain. Mungkin yang terbaik bagi manajemen dan pelanggan untuk melakukannya dengan cara itu. Karena Hunter juga memiliki penghasilan yang sangat berbeda tergantung pada rank mereka, ada kasus toko-toko juga membedakan berdasarkan itu.
 
-Jadi dengan kasus ini, sekarang menjadi pertanyaan ke toko mana Ciel harus pergi, tapi menurutku toko untuk Hunter rank tinggi adalah pilihan yang lebih aman.
+Jadi sekarang pertanyaannya adlaah ke toko mana Ciel harus pergi, tapi menurutku toko untuk Hunter rank tinggi adalah pilihan yang lebih aman.
 
-Lagipula, para Hunter yang bermasalah Ciel hampir pada umumnya adalah Hunter rank-D dengan rank rendah dan di bawahnya. Hunter rank tinggi lebih memperhatikan diri mereka sendiri.
+Lagipula, para Hunter yang bermasalah Ciel hampir pada umumnya adalah Hunter rank-D dan dibawahnya. Hunter rank tinggi lebih memperhatikan diri mereka sendiri.
+
 Aku mendengar bahwa Hunter rank tinggi melakukan permintaan dari bangsawan juga, jadi Aku kira itu menjadi perlu setidaknya memiliki beberapa tingkat kesopanan.
 
 Jadi dengan itu, toko perkakas yang saat ini kami kunjungi adalah, bagaimana Aku harus mengatakan ini, sebuah bangunan kecil berlantai dua yang terlihat seperti toko ritel besar itu.
