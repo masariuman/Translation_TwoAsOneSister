@@ -46,24 +46,32 @@ Sementara duke dan Ciel terkait oleh darah, apakah keberadaan Ciel diakui oleh p
 
 Sejujurnya Aku tidak terlalu peduli tentang hal-hal ini tetapi memikirkannya akan menjadi cara yang baik untuk membuang waktu saat latihan atau di malam hari.
 
-"Dari sekilas, sepertinya tidak ada kantong ajaib."
+[Dari sekilas, sepertinya tidak ada tas sihir.] (ciel)
 
-"Mungkin saja tidak ada di lantai pertama tapi ... tasnya terkonsentrasi di sekitar sini, jadi kurasa itu tidak tersedia atau tidak pada layar. Sementara itu, mari kita periksa juga lantai dua."
+[Mungkin saja tidak ada di lantai pertama tapi ... bagian tas ada di sekitar sini, jadi kurasa itu tidak tersedia atau tidak ditampilkan. kalau begitu, mari kita periksa juga lantai dua.] (ain)
 
-Lantai pertama memiliki ransel dan tempat bagasi lainnya, tenda, dan apa yang tampak seperti trailer sepeda.
-Lantai dua tampaknya menjadi tempat lampu, pemantik api, pemukul api, jatah portabel, dan kebutuhan perjalanan lainnya semuanya berada. Bahkan ada versi item magic dari lampu yang dijual, harganya lumayan mahal.
-Tetap saja, tidak ada tas ajaib yang dijual seperti yang diharapkan. Tepat saat aku hendak menyerah dan menerimanya, tiba-tiba Ciel menghampiri seorang asisten toko wanita.
+Lantai pertama memiliki tas dan tempat bagasi lainnya, tenda, dan apa yang tampak seperti trailer sepeda.
 
-"Tidak ada tas ajaib?"
-"Ya. Sangat diAkungkan, tetapi tidak ada stok yang tersedia."
-" Akung sekali."
-" Hanya ada beberapa kantong ajaib dan bahkan di sini, di ibukota, hanya muncul di pasar kira-kira setahun sekali.
+Lantai dua tampaknya menjadi tempat lampu, korek api, Fire Starter, makanan portabel, dan kebutuhan perjalanan lainnya. Bahkan ada versi item sihir dari lampu yang dijual, harganya lumayan mahal.
+
+Tetap saja, tidak ada tas sihir yang dijual seperti yang diharapkan. Tepat saat aku hendak menyerah, tiba-tiba Ciel menghampiri seorang asisten toko wanita.
+
+"Tidak ada tas sihir ?" (ciel)
+
+"Ya. Sangat disayangkan, tetapi tidak ada stok yang tersedia."
+
+"sayang sekali." (ciel)
+
+"Hanya ada beberapa tas sihir dan bahkan di sini, di ibukota, hanya muncul di pasar kira-kira setahun sekali.
 Dengan demikian, metode yang paling dapat diandalkan untuk memperolehnya adalah bernegosiasi dengan individu yang sudah memilikinya."
-" Begitu. Aku akan datang lagi."
-" Dimengerti, kami berharap Kamu kembali."
 
-Kami akan berangkat paling cepat dalam lima hari. Selain tas ajaib, satu-satunya yang kami butuhkan adalah jatah portabel, jadi membeli barang lain sekarang hanya akan menambah barang bawaan kami.
-Karena alasan itu, kami akan meninggalkan toko tanpa membeli apa pun, tetapi kami tetap dikirim dengan senyuman.
+"Begitu. Aku akan datang lagi." (ciel)
+
+"Baiklah, silahkan datang lagi."
+
+Kami akan pergi paling cepat dalam lima hari. Selain tas sihir, satu-satunya yang kami butuhkan adalah makanan portabel, jadi membeli barang lain sekarang hanya akan menambah barang bawaan kami.
+
+Karena alasan itu, kami akan meninggalkan toko tanpa membeli apa pun, tetapi kami tetap diberi senyuman.
 Biasanya orang akan terlihat tidak senang ketika pelanggan pulang tanpa membeli apapun, jadi bisa jadi orang-orang di ibukota kerajaan mendapat pelatihan yang baik.
 Meskipun itu mungkin karena ini menjadi toko berorientasi Hunter tingkat tinggi juga.
 
