@@ -170,9 +170,9 @@ Sepertinya aku adalah penjahat yang meminta hadiah. Nah, terus kenapa?
 
 "I-itu benar. Jika Kamu tidak menyelamatkan kami, kami akan menyebarkan informasi tentangmu. Kamu ingin kami tetap diam, bukan?" (anicet)
 
-" Itu tidak bisa dinegosiasikan. Lagipula, aku setuju untuk menepati janji dengan nona ini dengan semua orang di ruangan ini. kalau untukmu, sepertinya kami harus mendidik Kalian berdua sehingga Kalian tidak membicarakan nona kami di sini juga." (faneed)
+"Itu tidak bisa dinegosiasikan. Lagipula, aku setuju untuk menepati janji dengan nona ini dengan semua orang di ruangan ini. kalau untukmu, sepertinya kami harus mendidik Kalian berdua sehingga Kalian tidak membicarakan nona kami di sini juga." (faneed)
 
-" Kalau begitu, Aku akan serahkan sisanya kepadamu." (ain)
+"Kalau begitu, Aku akan serahkan sisanya kepadamu." (ain)
 
 Karena tidak apa-apa menyerahkan semuanya kepada mereka, aku berdiri untuk keluar ruangan.
 
@@ -188,41 +188,41 @@ tanpa kusadari, ini sudah hampir tengah hari. Tetap saja, apakah tidak apa-apa m
 
 Meskipun tidak, aku tidak benar-benar tahu jalan lain untuk kembali, jadi aku kembali ke penginapan menggunakan area seperti lorong tersembunyi.
 
-"Untuk saat ini, mari kita bertukar begitu kita sampai di penginapan, oke?" (ain)
+[Untuk saat ini, mari kita bertukar begitu kita sampai di penginapan, oke?] (ain)
 
-"oke. Ngomong-ngomong, Ain?" (ciel)
+[oke. Ngomong-ngomong, Ain?] (ciel)
 
-" Ada apa?" (ain)
+[Ada apa?] (ain)
 
-" Apa yang akan terjadi pada mereka dan anak mereka?" (ciel)
+[Apa yang akan terjadi pada mereka dan anak mereka?] (ciel)
 
 Ciel bertanya begitu, tapi aku tidak terlalu paham tentang dunia underground, jadi aku tidak punya jawaban pasti.
 
 Jika dia tidak masalah dengan spekulasiku, maka Aku memiliki beberapa ide dalam pikirannya.
 
-"Pertama-tama, putrinya mungkin akan dijual." (ain)
+[Pertama-tama, putrinya mungkin akan dijual.] (ain)
 
-"Jadi, seperti yang direncanakan semula." (ciel)
+[Jadi, seperti yang direncanakan semula.] (ciel)
 
-"Leher pasangan pedagang akan patah dan jari-jarinya dipotong ...... Atau mungkin tidak. Sejujurnya, Aku sebenarnya tidak tahu." (ain)
+[Leher pasangan pedagang akan patah dan jari-jarinya dipotong ...... Atau mungkin tidak. Sejujurnya, Aku sebenarnya tidak tahu.] (ain)
 
 untuk mengambil tanggung jawab di dunia underground, memotong satu jari adalah semua yang bisa terpikirkan oleh imajinasiku yang lusuh. Ini menyedihkan.
 
 Selain itu, Aku juga pernah berpikir untuk dikemas dalam beton dan dibuang ke laut, atau dikirim ke kapal tuna dan sebagainya, tetapi Aku rasa keduanya tidak dapat diterapkan di dunia ini.
 
-"Jadi ada hal-hal yang tidak diketahui Ain." (ain)
+[Jadi ada hal-hal yang tidak diketahui Ain.] (ain)
 
-"Lagipula aku tidak tahu apa-apa tentang dunia underground. Terlepas dari bagaimana penampilanku, aku hanyalah warga sipil biasa." (ain)
+[Lagipula aku tidak tahu apa-apa tentang dunia underground. Terlepas dari bagaimana penampilanku, aku hanyalah warga sipil biasa.] (ain)
 
-" Menjadi warga sipil juga terasa aneh." (ciel)
+[Menjadi warga sipil juga terasa aneh.] (ciel)
 
 Menggunakan istilah orang biasa mungkin baik-baik saja, tetapi istilah itu tidak banyak digunakan selama hidupku di Jepang.
 
 yaaah, Aku hanyalah orang biasa ketika Aku masih hidup.
 
-"itu hanya terdengar begutu karena aku mulai agak dewasa. Ketika Kamu mencapai usia yang sama seperti ketika Aku masih hidup, Aku yakin Kamu akan mengerti betapa masih bocahnya aku." (ain)
+[itu hanya terdengar begutu karena aku mulai agak dewasa. Ketika Kamu mencapai usia yang sama seperti ketika Aku masih hidup, Aku yakin Kamu akan mengerti betapa masih bocahnya aku.] (ain)
 
-" Kalau begitu Aku akan berhenti di situ." (ciel)
+[Kalau begitu Aku akan berhenti di situ.] (ciel)
 
 Aku bertukar dengan Ciel, yang bersemangat untuk beberapa alasan, dan kami menuju ke meja resepsionis.
 
@@ -230,11 +230,11 @@ Tapi tidak seperti kemarin, orang yang bertanggung jawab hari ini adalah seorang
 
 "Blan. Aku diberitahu Aku bisa meminjam kamar." (ciel)
 
-" Blan-sama , benar. Kami telah diberitahu tentangmu. Kami ingin meminta maaf atas masalah yang telah kami sebabkan sebelumnya."
+"Blan-sama, benar. Kami telah diberitahu tentangmu. Kami ingin meminta maaf atas masalah yang telah kami sebabkan sebelumnya."
 
-" Cepat dan bawa aku ke kamar." (ciel)
+"Cepat dan bawa aku ke kamar." (ciel)
 
-" Baiklah. Kalau begitu tolong ikuti Aku."
+"Baiklah. Kalau begitu tolong ikuti Aku."
 
 Pemuda itu meninggalkan pekerjaan resepsionisnya dan Ciel kemudian mengikuti di belakangnya.
 
