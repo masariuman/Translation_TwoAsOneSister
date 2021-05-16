@@ -30,11 +30,11 @@ Lebih tepatnya, Aku sedikit lebih buruk dengan pria tetapi Aku tidak suka orang.
 
 "Tetap saja, Aku tidak melihat hutan di dekatnya tetapi apakah serigala hutan biasanya muncul di sekitar sini?" (ain)
 
-"Yah, Aku tidak bisa mengatakan bahwa mereka sama sekali tidak. Mempertimbangkan area tersebut, mereka mungkin telah menyimpang dari hutan utara. Namun, hal itu juga tidak sering terjadi. Kami sangat tidak beruntung. Tetapi karena Kamu menemukan kami, Kamu dapat mengatakan bahwa kami juga cukup beruntung. Meskipun demikian, mengalahkan serigala hutan pada usia itu, Aku kira itu berkat Pekerjaan Kamu, kan?" (anicet)
+"Yah, Aku tidak bisa mengatakan bahwa mereka sama sekali tidak. Mempertimbangkan area tersebut, mereka mungkin telah menyimpang dari hutan utara. Namun, hal itu juga tidak sering terjadi. Kami sangat tidak beruntung. Tetapi karena Kamu menemukan kami, Kamu dapat mengatakan bahwa kami juga cukup beruntung. Meskipun demikian, mengalahkan serigala hutan pada usia itu, Aku kira itu berkat Job Kamu, kan?" (anicet)
 
-"Berbicara tentang Pekerjaan agak ......"
+"Berbicara tentang Job agak ......" (ain)
 
-"Ahh , benar. Itu pelanggaran etiket, bukan?"
+"Ahh , benar. Itu pelanggaran etiket, bukan?" (anicet)
 
 Pria pedagang itu sepertinya mengatakan itu secara tidak sengaja, saat dia meminta maaf dengan tangan menutupi dahinya.
 
@@ -43,15 +43,15 @@ Pekerjaan adalah sejenis kemampuan yang diberikan oleh tuhan. Misalnya, seseoran
 Karena para Hunter secara khusus tidak pernah tahu apakah Hunter lain akan memusuhi mereka, membongkar Job seseorang adalah pelanggaran etiket. Selain itu, karena orang dapat didiskriminasi karena memiliki Pekerjaan tertentu, Hunter Guild — yang sangat menentang diskriminasi Pekerjaan — melarang secara paksa mempertanyakan Pekerjaan orang.
 Menyadari bahwa dia melakukan kesalahan, pedagang mengubah topik pembicaraan.
 
-"Kalau dipikir-pikir, apa yang membawamu ke ibukota?"
+"Kalau dipikir-pikir, apa yang membawamu ke ibukota?" (anicet)
 
-"Mampir saja."
+"Mampir saja." (ain)
 
-"Mampir saja?"
+"Mampir saja?" (anicet)
 
-"Ya. Meskipun sebagai Hunter, Aku ingin berkunjung ke sana setidaknya sekali juga."
+"Ya. Meskipun sebagai Hunter, Aku ingin berkunjung ke sana setidaknya sekali juga." (ain)
 
-"Yah, tentu saja, Kamu tidak akan kehilangan apa pun dengan mengunjungi sekali, tetapi Kamu mungkin akan terkejut jika ini pertama kalinya bagi Kamu."
+"Yah, tentu saja, Kamu tidak akan kehilangan apa pun dengan mengunjungi sekali, tetapi Kamu mungkin akan terkejut jika ini pertama kalinya bagi Kamu." (anicet)
 
 Seperti itu, Aku mendengarkan cerita tentang ibu kota kerajaan sambil tersentak oleh pelatih yang gemetar saat kami menuju ke sana.
 
@@ -63,7 +63,7 @@ Sementara Aku sudah menganggap diri Aku terbiasa dengan pemandangan yang hidup i
 
 Aku pikir itu indah dan Aku ingin menyentuhnya, tetapi entah bagaimana Aku merasa Aku tidak boleh melakukannya.
 
-Mungkin memperhatikan bagaimana Aku tertegun, dia memberi tahu Aku"Kami di sini" setelah tertawa cekikikan.
+Mungkin memperhatikan bagaimana Aku tertegun, dia memberi tahu Aku "Kami di sini" setelah tertawa cekikikan.
 
 Meskipun Aku telah melihat sejumlah kota di masa lalu, gerbang ibu kota lebih besar dari yang pernah Aku lihat sebelumnya dan dinding yang mengelilinginya sangat tinggi dan tampak kokoh.
 
@@ -131,13 +131,13 @@ Meskipun Aku mengatakan bahwa itu hal yang buruk, Aku tidak benar-benar berpikir
 
 Bagaimanapun, aku harus merahasiakan ini dari Ain.
 
-"Kita akan segera bisa melihat laut, kan? Aku hanya, sangat bersemangat tentang itu."
+[Kita akan segera bisa melihat laut, kan? Aku hanya, sangat bersemangat tentang itu.] (ciel)
 
-"Lagipula kamu sudah lama ingin melihatnya."
+[Lagipula kamu sudah lama ingin melihatnya.] (ain)
 
-"Itu ... Salah Ain, kamu tahu? Laut itu banyak airnya kan? Tapi warnanya biru? Kenapa ya. Air dalam cangkir tidak memiliki warna apa pun!"
+[Itu ... Salah Ain, kamu tahu? Laut itu banyak airnya kan? Tapi warnanya biru? Kenapa ya. Air dalam cangkir tidak memiliki warna apa pun!] (ciel)
 
-"Kenapa memang."
+[Kenapa memang.] (ain)
 
 Nada Ain sangat lembut. Aku pikir ... dia mungkin tahu jawabannya. Namun, dia juga tahu bahwa Aku tidak akan memahaminya bahkan jika dia menjelaskannya kepada Aku sekarang.
 
@@ -153,16 +153,16 @@ Artinya langit dan laut. Aku diberitahu bahwa itu didasarkan pada mata biru dan 
 
 Itu tidak berhubungan, tapi meskipun Ain tahu beberapa bahasa, sepertinya dia hanya bisa menggunakan satu bahasa dengan baik.
 
-"Selain itu, Aku juga harus melihat apakah lautan juga benar-benar biru."
+[Selain itu, Aku juga harus melihat apakah lautan juga benar-benar biru.] (ain)
 
-"Kalau begitu, mari kita lihat. Jika memungkinkan, Aku ingin melihat lautan yang Ain ketahui tetapi selama Aku bersamamu, lautan apa pun pantas untuk dilihat.
-Ngomong-ngomong, Ain. Bisakah Aku menanyakan sesuatu?"
+[Kalau begitu, mari kita lihat. Jika memungkinkan, Aku ingin melihat lautan yang Ain ketahui tetapi selama Aku bersamamu, lautan apa pun pantas untuk dilihat.
+Ngomong-ngomong, Ain. Bisakah Aku menanyakan sesuatu?] (ciel)
 
-"Ada apa?"
+[Ada apa?] (ain)
 
-"Aku sudah sering menanyakan ini, tapi Ain bukan dewa, kan?"
+[Aku sudah sering menanyakan ini, tapi Ain bukan dewa, kan?] (ciel)
 
-"Dan Aku sudah banyak menjawab ini, tapi Aku tidak Tuhan. Jika Aku benar-benar seorang dewa, maka tidak akan butuh waktu 10 tahun bagi kami untuk melarikan diri dari mansion."
+[Dan Aku sudah banyak menjawab ini, tapi Aku tidak Tuhan. Jika Aku benar-benar seorang dewa, maka tidak akan butuh waktu 10 tahun bagi kami untuk melarikan diri dari mansion.] (ain)
 
 Ain berkata begitu, tapi meskipun dia mungkin bukan dewa, aku masih berpikir dia adalah seseorang yang spesial.
 
