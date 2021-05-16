@@ -2,11 +2,11 @@ CHAPTER 47: TOOL SHOP, BED, AND INEXPERIENCE
 
 [berikutnya toko alat, kan?] (ciel)
 
-"Karena kita masih memiliki lima hari lagi, tidak harus hari ini, tapi Aku kira kita setidaknya harus melihat apa yang mereka miliki. Aku juga ingin tahu apakah mereka memiliki tas ajaib yang besar juga."
+[Karena kita masih memiliki lima hari lagi, tidak harus hari ini juga, tapi Aku kira kita setidaknya harus melihat apa yang mereka jual. Aku juga ingin tahu apakah mereka memiliki tas sihir yang besar juga.] (ain)
 
-"Ini akan sangat berguna. Lagipula, dengan itu, kita mungkin bisa melakukan beberapa permintaan pada saat yang sama."
+[Ini akan sangat berguna. Lagipula, kita mungkin bisa melakukan beberapa permintaan pada saat yang sama.] (ciel)
 
-" Jika mereka punya, masalahnya adalah jika kita mampu membelinya tapi ...... bahkan jika kita tidak bisa, itu kemungkinan besar akan terjadi. menjadi sesuatu yang bisa kita nantikan di masa depan."
+[masalahnya adalah jika kita mampu membelinya tapi ...... bahkan jika kita tidak bisa, kemungkinan besar akan menjadi sesuatu yang bisa kita nantikan di masa depan.]
 
 Dalam hal ukuran yang kita inginkan, Aku rasa kita tidak dapat membelinya dengan apa yang kita miliki sekarang.
 Lagi pula, kami diberi tahu bahwa dengan harga itulah Kamu dapat membangun rumah atau kastil. Ukuran yang ideal adalah yang memungkinkan kami membawa beberapa lusin mayat monster.
