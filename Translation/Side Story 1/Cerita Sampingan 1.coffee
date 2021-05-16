@@ -188,27 +188,27 @@ Ini kecil jika dibandingkan dengan orang dewasa, tapi Aku rasa sekarang lebih be
 
 Sementara Aku serius memikirkannya, Aku tidak begitu murni untuk tidak menyadari apa sebenarnya arti tindakan ini.
 
-"Ciel ...... Apa yang kamu lakukan?"
+[Ciel ...... Apa yang kamu lakukan?] (ain)
 
-"Apa? Kamu mengatakan bahwa itu akan menjadi lebih besar jika Aku memijatnya, kan?"
+[Apa? Kamu mengatakan bahwa itu akan menjadi lebih besar jika Aku memijatnya, kan?] (ciel)
 
 Saat Aku terus membelai mereka, Aku mulai merasakan gatal yang merambat ketika Ain mengajukan keberatan.
 
 Karena itu, Aku melakukan yang terbaik untuk menjawab dengan nada yang membuat Aku seolah-olah tidak merasakan apa-apa.
 
-"Aku, sudah bilang sebelumnya, itu hanya rumor."
+[Aku, sudah bilang sebelumnya, itu hanya rumor.] (ain)
 
-"Itu benar. Tetapi Kamu juga mengatakan Kamu belum menguji apakah itu benar atau tidak. Lalu dalam hal ini, kita bisa mencobanya dengan mengujinya, kan?"
+[Itu benar. Tetapi Kamu juga mengatakan Kamu belum menguji apakah itu benar atau tidak. Lalu dalam hal ini, kita bisa mencobanya dengan mengujinya, kan?] (ciel)
 
-Saat Aku menjawab, Aku menyentuh ujungnya dan"Hyu!"Ain berteriak.
+Saat Aku menjawab, Aku menyentuh ujungnya dan "Hyu!" Ain berteriak.
 
-Itu benar, seolah-olah Ain"tidak berpengalaman" dengan apa yang Aku lakukan, sepertinya meninggikan suaranya dalam kebingungan dan keterkejutan.
+Itu benar, seolah-olah Ain "tidak berpengalaman" dengan apa yang Aku lakukan, sepertinya meninggikan suaranya dalam kebingungan dan keterkejutan.
 
 Itu sangat lucu, sangat menggemaskan, itu membuatku ingin semakin menggodanya. Sungguh, aku gadis yang nakal.
 
 Tetap saja, bukannya aku ingin melakukan hal-hal yang kejam pada Ain. Lagipula, aku tidak ingin menyakitinya dan aku juga tidak ingin dia menderita.
 
-Puas mendengar suara menggemaskan Ain,"Fufu" Aku sedikit menyuarakan emosiku.
+Puas mendengar suara menggemaskan Ain, "Fufu" Aku sedikit menyuarakan emosiku.
 
 Jika Ain benar-benar seorang laki-laki, maka alasan dia tidak mau mengungkapkan jenis kelaminnya kemungkinan besar karena dia mengira aku androfobia.
 
@@ -222,12 +222,12 @@ Selain itu, siapa pun dia sebelumnya, Aku benar-benar berpikir bahwa dia tidak p
 
 Tetap saja, aku pasti tidak akan memberitahunya.
 
-"Ciel, apakah kamu mendengarku? Ciel?"
+[Ciel, apakah kamu mendengarku? Ciel?] (ain)
 
-"Maafkan aku. Aku agak tenggelam dalam pikiran Aku."
+[Maafkan aku. Aku agak tenggelam dalam pikiran Aku.] (ciel)
 
-"Jangan khawatir, Aku hanya ingin mengatakan itu: jika Kamu ingin tidur, bagaimana kalau mandi lebih awal? Itu saja."
+[Jangan khawatir, Aku hanya ingin mengatakan itu: jika Kamu ingin tidur, bagaimana kalau mandi lebih awal? Itu saja.] (ain)
 
-"Sudah lama sejak kita memilikinya, ya . Air panas membutuhkan koin tambahan tetapi bisa menggunakan sihir sejujurnya sangat nyaman untuk situasi seperti ini."
+[Sudah lama sejak kita memilikinya, ya . Air panas membutuhkan koin tambahan tetapi bisa menggunakan sihir sejujurnya sangat nyaman untuk situasi seperti ini.] (ciel)
 
 Bangun dari seprai yang sekarang kusut, aku memutuskan untuk pergi dan mengisi bak mandi dengan air panas menggunakan sihir.
