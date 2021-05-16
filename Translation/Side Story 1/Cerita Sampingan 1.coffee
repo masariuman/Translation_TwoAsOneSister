@@ -212,9 +212,9 @@ Puas mendengar suara menggemaskan Ain, "Fufu" Aku sedikit menyuarakan emosiku.
 
 Jika Ain benar-benar seorang laki-laki, maka alasan dia tidak mau mengungkapkan jenis kelaminnya kemungkinan besar karena dia mengira aku androfobia.
 
-Menjadi orang yang baik, Aku yakin Ain berpikir bahwa jika Aku mengetahui bahwa seorang pria bersama Aku selama ini, itu akan menyebabkan pengaruh negatif bagi Aku.
+Aku yakin Ain berpikir bahwa jika Aku mengetahui bahwa seorang pria bersamaku selama ini, itu akan menyebabkan pengaruh negatif bagiku.
 
-Namun, Aku pikir alasan Ain tidak berbicara keras terhadap Aku ketika Aku melakukan hal-hal seperti ini, adalah karena dia menyembunyikan fakta bahwa dia adalah laki-laki.
+tapi, Aku pikir alasan Ain tidak berbicara keras terhadapku ketika Aku melakukan hal-hal seperti ini, adalah karena dia menyembunyikan fakta bahwa dia adalah laki-laki.
 
 Itu sebabnya, mengingat aku sama sekali tidak keberatan jika dia tidak pernah mengatakan yang sebenarnya, aku benar-benar gadis yang nakal.
 
@@ -224,10 +224,16 @@ Tetap saja, aku pasti tidak akan memberitahunya.
 
 [Ciel, apakah kamu mendengarku? Ciel?] (ain)
 
-[Maafkan aku. Aku agak tenggelam dalam pikiran Aku.] (ciel)
+[Maafkan aku. Aku agak tenggelam dalam pikiranku.] (ciel)
 
-[Jangan khawatir, Aku hanya ingin mengatakan itu: jika Kamu ingin tidur, bagaimana kalau mandi lebih awal? Itu saja.] (ain)
+[Jangan khawatir, Aku hanya ingin mengatakan jika Kamu ingin tidur, bagaimana kalau mandi lebih awal? Itu saja.] (ain)
 
-[Sudah lama sejak kita memilikinya, ya . Air panas membutuhkan koin tambahan tetapi bisa menggunakan sihir sejujurnya sangat nyaman untuk situasi seperti ini.] (ciel)
+[Sudah lama sejak kita mandi, ya. Air panas membutuhkan koin tambahan tetapi bisa menggunakan sihir sejujurnya sangat nyaman untuk situasi seperti ini.] (ciel)
 
 Bangun dari seprai yang sekarang kusut, aku memutuskan untuk pergi dan mengisi bak mandi dengan air panas menggunakan sihir.
+
+------------------------------
+
+heyhoooo, kali ini kita kembali ke POV nya dedek Ciel. dalam cerita ini, sebenarny ada sedikit beberapa perubahan dari authornya tapi saya menyesuaikan dengan cerita sebelumnya. dan cerita ini tidak saya masukkan ke volume 3 karena saya akan memasukkannya ke volume khusus karena cerita ini hanya berfokus ke pergi ke laut tapi dari POV nya dedek ciel. makanya tidak terlalu membahas pandangan ciel terhadap ain yang menyelesaikan kasus yang ingin menculiknya, hanya cerita yang berfokus ke laut. dan ini akan di update setelah cerita utama nya lewat agar tidak terjadi spoiler.
+
+sudah kuduga ain hanya terlalu overprotektif, bahkan ciel sendiri sebenarnya tidak terlalu takut dengan laki-laki
