@@ -120,50 +120,49 @@ Di penginapan bertingkat tiga ini, kami diberitahu bahwa lantai 3 adalah untuk k
 
 Kamar memiliki tempat tidur putih dengan seprai bersih dan, meskipun air panasnya menambah harganya, ada juga bak mandi, jadi tempat itu mungkin populer di kalangan wanita.
 
-Menurunkan barang bawaan kami, Aku membaringkan tubuh Aku di atas tempat tidur mulus yang tidak berkerut.
+setelah meletakkan barang bawaan kami, Aku membaringkan tubuhku di atas tempat tidur mulus yang tidak berkerut.
 
-Meskipun Aku secara teratur menjaga diri Aku tetap rapi, itu tidak seperti Aku sama sekali tidak memiliki kotoran pada Aku, jadi berbaring di atas seprai putih membuat Aku merasa seperti sedang melakukan sesuatu yang buruk dan itu terasa sangat menyenangkan. Sepertinya aku berubah menjadi gadis nakal.
+Meskipun Aku secara teratur menjaga diriku tetap rapi, bukannya Aku sama sekali tidak memiliki kotoran padaku, jadi berbaring di atas seprai putih membuatku merasa seperti sedang melakukan sesuatu yang buruk dan itu terasa sangat menyenangkan. Sepertinya aku berubah menjadi gadis nakal.
 
 "Fufu" Mungkin karena tawa yang keluar dari bibirku ini,"Apakah ada sesuatu di pikiranmu?" Aku mendengar Ain mengatakannya dengan nada penasaran.
 
-Ini adalah salah satu kesenangan kecilku, tapi aku tidak bisa membuat Ain mencari tahu ini. Aku tidak ingin Ain membenciku.
+Ini adalah salah satu kesenangan kecilku, tapi aku tidak bisa membuat Ain mengetahui ini. Aku tidak ingin Ain membenciku.
 
-Meskipun Aku mengatakan bahwa itu hal yang buruk, Aku tidak benar-benar berpikir itu terlalu buruk, jadi mungkin Ain akan memaafkan Aku karena melakukan ini juga.
+Meskipun Aku mengatakan bahwa itu hal yang buruk, Aku tidak benar-benar berpikir itu terlalu buruk, jadi mungkin Ain akan memaafkanku karena melakukan ini juga.
 
-Bagaimanapun, aku harus merahasiakan ini dari Ain.
+Bagaimanapun juga, aku harus merahasiakan ini dari Ain.
 
 [Kita akan segera bisa melihat laut, kan? Aku hanya, sangat bersemangat tentang itu.] (ciel)
 
-[Lagipula kamu sudah lama ingin melihatnya.] (ain)
+[yaah, kamu sudah lama ingin melihatnya.] (ain)
 
-[Itu ... Salah Ain, kamu tahu? Laut itu banyak airnya kan? Tapi warnanya biru? Kenapa ya. Air dalam cangkir tidak memiliki warna apa pun!] (ciel)
+[Itu ... Salah Ain, kan? Laut itu banyak airnya kan? Tapi warnanya biru? Kenapa? Air dalam gelas tidak memiliki warna apa pun!] (ciel)
 
-[Kenapa memang.] (ain)
+[entahlah.] (ain)
 
-Nada Ain sangat lembut. Aku pikir ... dia mungkin tahu jawabannya. Namun, dia juga tahu bahwa Aku tidak akan memahaminya bahkan jika dia menjelaskannya kepada Aku sekarang.
+Nada Ain sangat lembut. mungkin ... dia mungkin tahu jawabannya. tapi, dia juga tahu bahwa Aku tidak akan memahaminya bahkan jika dia menjelaskannya kepadaku sekarang.
 
 Sungguh, Ain tahu tentang banyak hal.
 
-Tapi seperti Aku, ada juga hal-hal yang tidak dia ketahui. Aku bahkan yang belajar berbicara lebih dulu, misalnya.
+Tapi seperti Aku, ada juga hal-hal yang tidak dia ketahui. Akulah yang belajar berbicara lebih dulu, misalnya.
 
-Namun, itu tidak berarti bahwa Ain tidak pintar. Lagipula, bahkan dalam ingatanku yang paling lama, aku yakin dia berbicara dalam beberapa bahasa saat dia bernyanyi.
+tapi, itu tidak berarti bahwa Ain tidak pintar. Lagipula, bahkan dalam ingatanku yang paling lama, aku yakin dia berbicara dalam beberapa bahasa saat dia bernyanyi.
 
-Ain mungkin seseorang yang tinggal di negara yang berbeda dari sini. Bahkan namaku, Cielmer, adalah sesuatu yang diberikan Ain kepadaku dan dia mengatakan bahwa itu dari sebuah bahasa — dia bilang itu frentch? —Yang dia tahu.
+Ain mungkin seseorang yang tinggal di negara yang berbeda dari sini. Bahkan namaku, Cielmer, adalah sesuatu yang diberikan Ain kepadaku dan dia mengatakan bahwa itu dari sebuah bahasa — dia bilang itu frentch? — Yang dia tahu.
 
-Artinya langit dan laut. Aku diberitahu bahwa itu didasarkan pada mata biru dan rambut putih Aku, dan ini juga alasan mengapa Aku ingin melihat laut.
+Artinya langit dan laut. Aku diberitahu bahwa itu berdasarkan pada mata biru dan rambut putihku, dan ini juga alasan mengapa Aku ingin melihat laut.
 
-Itu tidak berhubungan, tapi meskipun Ain tahu beberapa bahasa, sepertinya dia hanya bisa menggunakan satu bahasa dengan baik.
+tapi meskipun Ain tahu beberapa bahasa, sepertinya dia hanya bisa menggunakan satu bahasa dengan baik.
 
 [Selain itu, Aku juga harus melihat apakah lautan juga benar-benar biru.] (ain)
 
-[Kalau begitu, mari kita lihat. Jika memungkinkan, Aku ingin melihat lautan yang Ain ketahui tetapi selama Aku bersamamu, lautan apa pun pantas untuk dilihat.
-Ngomong-ngomong, Ain. Bisakah Aku menanyakan sesuatu?] (ciel)
+[Kalau begitu, mari kita lihat bersama. Jika memungkinkan, Aku ingin melihat lautan yang Ain ketahui tetapi selama Aku bersamamu, lautan apa pun pantas untuk dilihat. Ngomong-ngomong, Ain. Bisakah Aku menanyakan sesuatu?] (ciel)
 
 [Ada apa?] (ain)
 
 [Aku sudah sering menanyakan ini, tapi Ain bukan dewa, kan?] (ciel)
 
-[Dan Aku sudah banyak menjawab ini, tapi Aku tidak Tuhan. Jika Aku benar-benar seorang dewa, maka tidak akan butuh waktu 10 tahun bagi kami untuk melarikan diri dari mansion.] (ain)
+[Dan Aku sudah banyak menjawab ini, tapi Aku bukan dewa. Jika Aku benar-benar seorang dewa, tidak akan butuh waktu 10 tahun untuk kita melarikan diri dari mansion.] (ain)
 
 Ain berkata begitu, tapi meskipun dia mungkin bukan dewa, aku masih berpikir dia adalah seseorang yang spesial.
 
