@@ -125,23 +125,29 @@ Di bumi, Aku dapat dengan yakin mengatakan bahwa lautan jelas berwarna biru, tet
 
 Bagaimanapun juga, ada dua bulan di dunia ini. Apalagi keduanya berbeda warnanya.
 
-"Lalu mari kita lihat. Jika memungkinkan, Aku ingin melihat lautan yang Ain ketahui tetapi selama Aku bersamamu, lautan apa pun pantas untuk dilihat.
-Ngomong-ngomong, Ain. Bolehkah aku menanyakan sesuatu padamu?"
-" Ada apa?"
-" Aku sudah sering menanyakan ini, tapi Ain bukan dewa, kan?"
-" Dan aku sudah banyak menjawab ini, tapi aku tidak Tuhan. Jika Aku benar-benar seorang dewa, maka tidak akan butuh waktu 10 tahun bagi kami untuk melarikan diri dari mansion."
+[kalau begitu mari kita lihat bersama. Jika memungkinkan, Aku ingin melihat lautan yang Ain ketahui tetapi selama Aku bersamamu, lautan apa pun pantas untuk dilihat. Ngomong-ngomong, Ain. Bolehkah aku menanyakan sesuatu padamu?] (ciel)
+
+[Ada apa?] (ciel)
+
+[Aku sudah sering menanyakan ini, tapi Ain bukan dewa, kan?]  (ciel)
+
+[Dan aku sudah banyak menjawab ini, tapi aku bukan dewa. Jika Aku benar-benar seorang dewa, maka tidak akan butuh waktu 10 tahun bagi kita untuk melarikan diri dari mansion.] (ain)
 
 Ciel sesekali bertanya padaku apakah aku bukan dewa.
-Aku menduga bahwa ini karena sihir untuk menurunkan dewa pada Ciel mengakibatkan Aku menghantuinya tetapi setelah menanyakan ini, Ciel mulai merenungkan tentang hal-hal yang berbeda.
-Setiap kali ini terjadi, Aku selalu menjadi khawatir jika Aku tidak sengaja mengatakan terlalu banyak informasi tentang Aku atau jika Aku menyebabkan kesalahpahaman yang besar, tetapi dia tidak pernah menanyakan pertanyaan serius kepada Aku setelah itu.
+
+Aku menduga bahwa ini karena sihir untuk membuat dewa pada Ciel mengakibatkanku menghantuinya tetapi setelah menanyakan ini, Ciel mulai merenungkan tentang hal-hal yang berbeda.
+
+Setiap kali ini terjadi, Aku selalu menjadi khawatir jika Aku tidak sengaja mengatakan terlalu banyak informasi tentangku atau jika Aku menyebabkan kesalahpahaman yang besar, tetapi dia tidak pernah menanyakan pertanyaan serius kepadaku setelah itu.
 
 Tepat ketika Aku berpikir bahwa kami sedang dalam suasana hati yang agak serius, Ciel tiba-tiba mengulurkan tangannya ke dadanya.
-Dan seolah-olah untuk memeriksa ukurannya, dia kemudian mulai membelai itu. Itu di sisi kecil, tapi itu tumbuh lebih besar sejak saat itu.
-Lebih penting lagi, Aku merasakan rasa frustrasi yang tak terlukiskan, atau lebih tepatnya seperti pikiran dan tubuh Aku tidak sinkron satu sama lain, dan itu memalukan.
-Iklan
 
-"Ciel ...... Apa yang kamu lakukan?"
-"Apa? Kamu mengatakan bahwa itu akan menjadi lebih besar jika Aku memijatnya, kan?"
+Dan seolah-olah untuk memeriksa ukurannya, dia kemudian mulai membelai itu. Itu masih kecil, tapi itu tumbuh lebih besar sejak saat itu.
+
+Aku merasakan rasa frustrasi yang tak terlukiskan, atau lebih tepatnya seperti pikiran dan tubuhku tidak sinkron satu sama lain, dan itu memalukan.
+
+[Ciel ...... Apa yang kamu lakukan?] (ain)
+
+[Apa? Kamu mengatakan bahwa itu akan menjadi lebih besar jika Aku memijatnya, kan?] (ain)
 
 Baik. Akulah yang mengatakan itu. Tidak perlu dipertanyakan lagi, tapi bagaimana Ciel bisa begitu tenang seperti ini? Karena itu, semakin sulit untuk mengganggunya. Yah, tentu, jika Ciel benar-benar merasakan hal yang sama sepertiku, maka pasti akan sulit untuk mengganggunya juga.
 
