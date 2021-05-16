@@ -10,23 +10,23 @@
 
 "Aku tidak punya tempat untuk menyimpan furnitur dan kerajinan tangan. Jika memungkinkan, Aku ingin bertanya tentang banyak hal. Aku baru saja datang dari pedesaan, jadi ada banyak hal yang masih belum Aku ketahui." (ain)
 
-Sebelumnya di jalan menuju ibu kota kerajaan, kami menemukan pelatih diserang oleh beberapa serigala hutan dan menyelamatkan pelatih.
+di jalan menuju ibu kota kerajaan, kami menemukan pasangan diserang oleh beberapa serigala hutan dan menyelamatkannya.
 
-Sebagai ungkapan rasa syukur, dua pedagang keliling paruh baya yang sudah menikah yang menungganginya mengundang kami untuk berwisata bersama mereka karena kami berjalan tanpa ditemani.
+Sebagai ungkapan rasa terima kasih, dua pedagang keliling paruh baya yang sudah menikah mengundang kami untuk ikut bersama mereka karena kami berjalan sendiri.
 
-Dan saat ini, Aku duduk di sebelah suami di kursi pengemudi dan mendengarkan saat dia berbicara kepada Aku. Namun, yang menjawabnya bukanlah aku.
+Dan saat ini, Aku duduk di sebelah si suami di kursi pengemudi dan mendengarkannya berbicara kepadaku. tapi, yang menjawabnya bukanlah aku.
 
-Sejak Aku lahir, ada orang lain di dalam diri Aku. Menurutnya, dia sepertinya menghantui Aku.
+Sejak Aku lahir, ada orang lain di dalam diriku. menurut orang tersebut, dia sepertinya menghantuiku.
 
-Sedangkan untuk Aku, Aku tidak keberatan selama Aku bersama dengan Ain, jadi Aku tidak terlalu peduli jika dia menghantui Aku atau bahkan jika dia mengambil alih tubuh Aku. Pertama-tama, jika bukan karena Ain, Aku pasti sudah mati.
+Sedangkan untukku, Aku tidak keberatan selama Aku bersama dengan Ain, jadi Aku tidak terlalu peduli jika dia menghantuiku atau bahkan jika dia mengambil alih tubuhku. jika bukan karena Ain, Aku pasti sudah mati.
 
-Dengan itu, orang yang berbicara dengan pedagang sekarang, adalah orang tersayang Ainsel. Karena kami telah bersama sejak Aku lahir, sudah 12 tahun sejak kami bertemu.
+orang yang berbicara dengan pedagang sekarang, adalah orang yang paling kusayang, Ainsel. Karena kami telah bersama sejak Aku lahir, sudah 12 tahun sejak kami bertemu.
 
-Cielmer adalah nama Aku yang dipikirkan oleh Ain untuk Aku.
+Cielmer adalah namaku yang dipikirkan oleh Ain untukku.
 
-Adapun mengapa Ain berbicara sekarang, itu karena Aku androfobik — atau lebih tepatnya Ain mengira Aku.
+Adapun mengapa Ain berbicara sekarang, itu karena Aku androfobik — atau lebih tepatnya Ainlah yang mengira aku androfobik.
 
-Lebih tepatnya, Aku sedikit lebih buruk dengan pria tetapi Aku tidak suka orang. Padahal, akhir-akhir ini aku semakin pandai berbicara.
+Aku sedikit lebih buruk dengan pria tetapi pada dasarnya Aku hanya tidak suka orang. Padahal, akhir-akhir ini aku semakin pandai berbicara.
 
 "Tetap saja, Aku tidak melihat hutan di dekatnya tetapi apakah serigala hutan biasanya muncul di sekitar sini?" (ain)
 
