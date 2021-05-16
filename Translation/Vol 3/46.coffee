@@ -84,25 +84,25 @@ Atau mungkin preferensi Ciel juga memengaruhi seleraku.
 
 Lagi pula, Aku tidak benar-benar menginginkan nasi yang biasa Aku makan setiap hari saat ini. jika Aku kelaparan untuk makanan Jepang, Aku mungkin akan menjadi gila selama 10 tahun pertama.
 
-"Jadi apa yang harus kita lakukan sekarang? Haruskah kita mencoba pergi ke guild?" (ciel)
+[Jadi apa yang harus kita lakukan sekarang? Haruskah kita mencoba pergi ke guild?] (ciel)
 
 Setelah kenyang, Ciel bertanya padaku saat kami sedang istirahat di alun-alun.
 
-"Meskipun ini agak canggung dari segi waktu, seharusnya ada lebih sedikit orang yang mungkin mengganggu kita, jadi Aku pikir tidak apa-apa juga." (ain)
+[Meskipun ini agak canggung dari segi waktu, seharusnya ada lebih sedikit orang yang mungkin mengganggu kita, jadi Aku pikir tidak apa-apa juga.] (ain)
 
-"Entah bagaimana, sepertinya itu bukan perasaanmu yang sebenarnya." (ciel)
+[Entah bagaimana, sepertinya itu bukan perasaanmu yang sebenarnya.] (ciel)
 
-"Aku sedikit lelah mulai pagi ini, jadi Aku tidak benar-benar ingin pergi ke guild di mana ada kemungkinan besar kita akan dikacaukan, itulah yang Aku rasakan. " (ain)
+[Aku sedikit lelah mulai pagi ini, jadi Aku tidak benar-benar ingin pergi ke guild di mana ada kemungkinan besar kita akan dikacaukan, itulah yang Aku rasakan.] (ain)
 
-" Kalau begitu, mari kita istirahat sebentar. bermalas-malasan hari ini juga terdengar bagus. Apakah kamu punya tempat yang ingin kamu kunjungi, Ain? " (ciel)
+[Kalau begitu, mari kita istirahat sebentar. bermalas-malasan hari ini juga terdengar bagus. Apakah kamu punya tempat yang ingin kamu kunjungi, Ain?] (ciel)
 
 Meskipun Aku mengatakan itu, itu hanya kelelahan mental, jadi Aku bisa menahannya jika Aku mau, tetapi sepertinya Ciel memahamiku.
 
 menerima kebaikan Ciel, Aku kira kami menutup bisnis Hunter untuk hari ini.
 
-"Karena kita berada di ibu kota kerajaan, bisakah kita pergi ke istana? Aku membayangkan mereka tidak akan membiarkan kita masuk, tetapi Aku ingin mencoba sedekat mungkin." (ain)
+[Karena kita berada di ibu kota kerajaan, bisakah kita pergi ke istana? Aku membayangkan mereka tidak akan membiarkan kita masuk, tetapi Aku ingin mencoba sedekat mungkin.] (ain)
 
-" Begitu ya.. yah kita juga sedang berada disini. " (ciel)
+[Begitu ya.. yah kita juga sedang berada disini.] (ciel)
 
 Mungkin senang karena Aku meminta sesuatu, Ciel berdiri dan berjalan menuju ke arah istana terlihat.
 
@@ -116,17 +116,17 @@ Karena ada cukup banyak orang biasa - petualang - yang hampir berkeliaran ke dis
 
 Tetap saja, meskipun kami tidak mendapatkan apa-apa sama sekali dari ini, aku tidak merasa senang, jadi Aku pribadi merasa berkonflik tentang hal itu.
 
-"Kita akan memiliki kesempatan untuk melihatnya lain kali." (ciel)
+[Kita akan memiliki kesempatan untuk melihatnya lain kali.] (ciel)
 
-"Aku berterima kasih atas perhatiannya, tetapi itu bukan sesuatu yang benar-benar ingin Aku lihat, jadi tidak apa-apa." (ain)
+[Aku berterima kasih atas perhatiannya, tetapi itu bukan sesuatu yang benar-benar ingin Aku lihat, jadi tidak apa-apa.] (ain)
 
-"Begitukah? Tapi kamu terdengar kecewa lho, Ain. " (ciel)
+[Begitukah? Tapi kamu terdengar kecewa lho, Ain.] (ciel)
 
-" Aku menyadarinya ketika kita agak dekat dengan istana, tapi sepertinya mereka memiliki semacam tempat yang membuat sihir tidak dapat digunakan. " (ain)
+[Aku menyadarinya ketika kita agak dekat dengan istana, tapi sepertinya mereka memiliki semacam tempat yang membuat sihir tidak dapat digunakan.] (ain)
 
-" Jadi hal-hal seperti itu ada juga ya. Begitu, itu akan menjadi masalah jika itu digunakan pada kita, kan ?. " (ciel)
+[Jadi hal-hal seperti itu ada juga ya. Begitu, itu akan menjadi masalah jika itu digunakan pada kita, kan ?.] (ciel)
 
-" Sihir adalah garis hidup kita. Aku tidak yakin seberapa banyak itu akan membatasi sihir, tetapi mengingat itu digunakan di bagian istana, akan lebih baik untuk berpikir bahwa itu memiliki efek yang signifikan. "
+[Sihir adalah garis hidup kita. Aku tidak yakin seberapa banyak itu akan membatasi sihir, tetapi mengingat itu digunakan di bagian istana, akan lebih baik untuk berpikir bahwa itu memiliki efek yang signifikan.] (ain)
 
 Bagaimanapun, +BARRIERku dan serangan Ciel adalah sihir. Tanpanya, Ciel hanyalah seorang gadis kecil ... yah tidak juga, tapi itu tidak mengubah fakta bahwa itu bermasalah.
 
