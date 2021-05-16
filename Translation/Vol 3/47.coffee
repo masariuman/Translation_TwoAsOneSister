@@ -12,10 +12,12 @@ Dalam hal ukuran yang kami inginkan, Aku rasa kami tidak dapat membelinya dengan
 
 kami diberi tahu harganya mahal bahkan Kamu dapat membangun rumah atau istana. Ukuran yang ideal adalah yang memungkinkan kami membawa beberapa lusin mayat monster.
 
-Dengan itu, kami bisa menguras darah dan, setelah membayar biaya komisi yang diperlukan, serahkan yang lainnya ke Hunter Guild.
+Dengan itu, kami bisa menguras darahnya dan setelah membayar biaya komisi yang diperlukan, sisanya diserahkan ke Hunter Guild.
 
 Di kota-kota kecil, biasanya ada satu dari setiap toko perkakas dan toko senjata. Tapi di ibu kota kerajaan, seperti halnya ada berbagai toko senjata, sepertinya juga ada berbagai toko alat.
+
 Ini dibagi menurut jenis pelanggan.
+
 Terutama karena, dalam kasus pemburu, hanya memasuki toko kemungkinan akan mengintimidasi pelanggan lain. Mungkin yang terbaik bagi manajemen dan pelanggan untuk melakukannya dengan cara itu. Karena pemburu juga memiliki penghasilan yang sangat berbeda tergantung pada rank mereka, ada kasus ketika toko-toko juga membedakan berdasarkan itu.
 
 Jadi dengan kasus ini, sekarang menjadi pertanyaan ke toko mana Ciel harus pergi, tapi Aku katakan satu untuk pemburu rank tinggi adalah pilihan yang lebih aman.
