@@ -172,39 +172,39 @@ Dan yang terpenting, Ain tidak tahu apa-apa tentang Jobs.
 
 Jika Ain hanyalah orang mati biasa, maka tidak mungkin dia tidak tahu tentang Jobs.
 
-Lagipula, tuhan memberi orang Pekerjaan sejak lama sekali. Meskipun Aku tidak tahu apa yang terjadi pada jiwa setelah kematian, Aku tidak dapat membayangkan bahwa jiwa dari masa ketika Jobs belum ada akan tetap seperti mereka hingga usia ini.
+Lagipula, dewa memberi orang job sejak lama sekali. Meskipun Aku tidak tahu apa yang terjadi pada jiwa setelah kematian, Aku tidak dapat membayangkan bahwa jiwa dari masa ketika Jobs belum ada akan tetap seperti itu hingga usia sekarang.
 
-Itulah mengapa terkadang Aku berpikir bahwa Ain bisa jadi dewa, atau mungkin dia datang dari dunia tanpa Job.
+Itulah mengapa terkadang Aku berpikir bahwa Ain bisa saja dewa, atau mungkin dia datang dari dunia tanpa Job.
 
 Tetap saja, selama Aku bersama Ain, Aku sama sekali tidak peduli dari mana asalnya.
 
 Berbicara tentang rahasia Ain, masih ada satu hal lagi. Itu jenis kelaminnya sebelum dia meninggal.
 
-Meskipun Aku tidak pernah menanyakannya secara langsung, ketika Aku mencoba menyinggungnya, dia akhirnya menghindari pertanyaan itu.
+Meskipun Aku tidak pernah menanyakannya secara langsung, ketika Aku mencoba menyinggungnya, dia menghindari pertanyaan itu.
 
-Aku benar-benar tidak akan keberatan meskipun Ain adalah seorang pria sekalipun. Dengan pemikiran itu, Aku membawa tangan Aku ke payudara Aku dan memijatnya ke atas, mengangkatnya dari bawah.
+Aku benar-benar tidak akan keberatan meskipun Ain adalah seorang pria sekalipun. Dengan pemikiran itu, Aku membawa tanganku ke payudaraku dan memijatnya ke atas, mengangkatnya dari bawah.
 
-Ini kecil jika dibandingkan dengan orang dewasa, tapi Aku rasa sekarang lebih besar dibandingkan dengan sebelumnya.
+ukurannya kecil jika dibandingkan dengan orang dewasa, tapi Aku rasa sekarang lebih besar dibandingkan dengan sebelumnya.
 
-Sementara Aku serius memikirkannya, Aku tidak begitu murni untuk tidak menyadari apa sebenarnya arti tindakan ini.
+Sementara Aku serius memikirkannya, Aku tidak begitu polos untuk tidak menyadari apa sebenarnya arti tindakan ini.
 
 [Ciel ...... Apa yang kamu lakukan?] (ain)
 
 [Apa? Kamu mengatakan bahwa itu akan menjadi lebih besar jika Aku memijatnya, kan?] (ciel)
 
-Saat Aku terus membelai mereka, Aku mulai merasakan gatal yang merambat ketika Ain mengajukan keberatan.
+Saat Aku terus memijat mereka, Aku mulai merasakan gatal yang merambat ketika Ain mengajukan keberatan.
 
-Karena itu, Aku melakukan yang terbaik untuk menjawab dengan nada yang membuat Aku seolah-olah tidak merasakan apa-apa.
+Karena itu, Aku melakukan yang terbaik untuk menjawab dengan nada yang membuatku seolah-olah tidak merasakan apa-apa.
 
 [Aku, sudah bilang sebelumnya, itu hanya rumor.] (ain)
 
-[Itu benar. Tetapi Kamu juga mengatakan Kamu belum menguji apakah itu benar atau tidak. Lalu dalam hal ini, kita bisa mencobanya dengan mengujinya, kan?] (ciel)
+[iya. Tetapi Kamu juga mengatakan Kamu belum menguji apakah itu benar atau tidak. Lalu dalam hal ini, kita bisa mencobanya dengan mengujinya, kan?] (ciel)
 
-Saat Aku menjawab, Aku menyentuh ujungnya dan "Hyu!" Ain berteriak.
+Saat Aku menjawab itu, Aku menyentuh ujungnya dan "Hyu!" Ain berteriak.
 
-Itu benar, seolah-olah Ain "tidak berpengalaman" dengan apa yang Aku lakukan, sepertinya meninggikan suaranya dalam kebingungan dan keterkejutan.
+seolah-olah Ain "tidak berpengalaman" dengan apa yang Aku lakukan, dia sepertinya meninggikan suaranya dalam kebingungan dan keterkejutan.
 
-Itu sangat lucu, sangat menggemaskan, itu membuatku ingin semakin menggodanya. Sungguh, aku gadis yang nakal.
+Itu sangat imut, sangat menggemaskan, itu membuatku ingin semakin menggodanya. aku sungguh gadis yang nakal.
 
 Tetap saja, bukannya aku ingin melakukan hal-hal yang kejam pada Ain. Lagipula, aku tidak ingin menyakitinya dan aku juga tidak ingin dia menderita.
 
