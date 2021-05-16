@@ -210,11 +210,11 @@ Tetap saja, bukannya aku ingin melakukan hal-hal yang kejam pada Ain. Lagipula, 
 
 Puas mendengar suara menggemaskan Ain, "Fufu" Aku sedikit menyuarakan emosiku.
 
-Jika Ain benar-benar seorang laki-laki, maka alasan dia tidak mau mengungkapkan jenis kelaminnya kemungkinan besar karena dia mengira aku androfobia.
+Jika Ain benar-benar seorang pria, maka alasan dia tidak mau mengungkapkan jenis kelaminnya kemungkinan besar karena dia mengira aku androfobia.
 
 Aku yakin Ain berpikir bahwa jika Aku mengetahui bahwa seorang pria bersamaku selama ini, itu akan menyebabkan pengaruh negatif bagiku.
 
-tapi, Aku pikir alasan Ain tidak berbicara keras terhadapku ketika Aku melakukan hal-hal seperti ini, adalah karena dia menyembunyikan fakta bahwa dia adalah laki-laki.
+tapi, Aku pikir alasan Ain tidak berbicara keras terhadapku ketika Aku melakukan hal-hal seperti ini, adalah karena dia menyembunyikan fakta bahwa dia adalah pria.
 
 Itu sebabnya, mengingat aku sama sekali tidak keberatan jika dia tidak pernah mengatakan yang sebenarnya, aku benar-benar gadis yang nakal.
 
@@ -236,4 +236,10 @@ Bangun dari seprai yang sekarang kusut, aku memutuskan untuk pergi dan mengisi b
 
 heyhoooo, kali ini kita kembali ke POV nya dedek Ciel. dalam cerita ini, sebenarny ada sedikit beberapa perubahan dari authornya tapi saya menyesuaikan dengan cerita sebelumnya. dan cerita ini tidak saya masukkan ke volume 3 karena saya akan memasukkannya ke volume khusus karena cerita ini hanya berfokus ke pergi ke laut tapi dari POV nya dedek ciel. makanya tidak terlalu membahas pandangan ciel terhadap ain yang menyelesaikan kasus yang ingin menculiknya, hanya cerita yang berfokus ke laut. dan ini akan di update setelah cerita utama nya lewat agar tidak terjadi spoiler.
 
-sudah kuduga ain hanya terlalu overprotektif, bahkan ciel sendiri sebenarnya tidak terlalu takut dengan laki-laki
+sudah kuduga ain hanya terlalu overprotektif, bahkan ciel sendiri sebenarnya tidak terlalu takut dengan pria hanya saja ciel agak malas kalau bertemu orang dan berinteraksi dengan orang-orang. yaah anggap aja efek introvert karena 10 tahun ciel tidak ada teman lain selain ain didalam ruangannya. hanya ain saja yang berfikir dia memiliki trauma akan pria.
+
+yaa benar memang ain mungkin bukanlah dewa, tapi memang orang yang spesial untuk dedek kita, tanpanya mungkin dedek ciel sudah tiada. tanpanya mungkin dedek ciel sudah tidak waras sekarang. makanya seperti pada chapter sebelumnya saya mengatakan mungkin bagi dedek ciel ain adalah dewa/malaikat penyelamat hidupnya.
+
+dedek ciel sekarang sudah nakal ya, sudah paham dari apa yang dimaksud dengan memijat payudara, hehehe... dan dedek ciel jenius juga, bisa memprediksi bahwa ain adalah pria. di umur yang masih muda yang memiliki kejeniusan orang dewasa. ya saya masih belum bisa menganggap ain wanita sih dan masih menganggapnya pria, hanya karena sense nya kegabung dengan ciel yang wanita makanya ain merasakan apa yang wanita rasakan. sungguh nakal dedek ciel kita satu ini, mengganggu ain dengan cara nakalnya :)
+
+sekian chapter kali ini, selamat membaca, jika ada saran atau diskusi silahkan komentar dibawah, terima kasih !
