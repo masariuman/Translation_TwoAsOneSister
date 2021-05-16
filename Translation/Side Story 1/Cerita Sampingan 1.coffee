@@ -1,14 +1,12 @@
-"Kamu benar-benar menyelamatkan kami di sana. Aku tidak pernah membayangkan kita akan bertemu serigala hutan di tempat ini, paham?
+"Kamu benar-benar menyelamatkan kami di sana. Aku tidak pernah membayangkan kita akan bertemu serigala hutan di tempat ini, paham? Jika bukan karena Kamu menemukan kami, istri Aku dan Aku akan mati saat itu." (anicet)
 
-Jika bukan karena Kamu menemukan kami, istri Aku dan Aku akan mati saat itu."
+"Aku tidak bisa bergerak maju bersama mereka di jalan. Selain itu, hanya bisa berkendara sudah sangat membantu." (ain)
 
-"Aku tidak bisa bergerak maju bersama mereka di jalan. Selain itu, hanya bisa berkendara sudah sangat membantu."
-
-"Aku sangat senang mendengarnya. Aku minta maaf untuk mengatakan ini tetapi kami hanya memiliki barang dagangan yang sedang digunakan, kami hampir tidak punya uang sungguhan."
+"Aku sangat senang mendengarnya. Aku minta maaf untuk mengatakan ini tetapi kami hanya memiliki barang dagangan yang sedang digunakan, kami hampir tidak punya uang sungguhan." (anicet)
 
 "Kalau dipikir-pikir, ini juga dianggap permintaan pendamping, kan? Dalam hal ini, mungkin buruk jika Aku tidak meminta hadiah. Terlepas dari penampilanku, aku berafiliasi dengan Hunter Guild, jadi aku akan dimarahi karena membuat pengecualian."
 
-"Hmm…… Mengapa tidak memilih sesuatu dari belakang? …… Padahal, Aku tidak tahu apakah kami memiliki sesuatu yang Kamu butuhkan, Cielmer- chan ."
+"Hmm...... Mengapa tidak memilih sesuatu dari belakang? ...... Padahal, Aku tidak tahu apakah kami memiliki sesuatu yang Kamu butuhkan, Cielmer- chan ."
 
 "Aku tidak punya tempat untuk menyimpan furnitur dan kerajinan tangan ini setelah semua. Jika memungkinkan, Aku ingin bertanya tentang banyak hal. Aku baru saja datang dari pedesaan, jadi ada banyak hal yang masih belum Aku ketahui."
 
@@ -36,7 +34,7 @@ Lebih tepatnya, Aku sedikit lebih buruk dengan pria tetapi Aku tidak suka orang.
 
 Meskipun demikian, mengalahkan serigala hutan pada usia itu, Aku kira itu berkat Pekerjaan Kamu, kan?"
 
-"Berbicara tentang Pekerjaan agak ……"
+"Berbicara tentang Pekerjaan agak ......"
 
 "Ahh , benar. Itu pelanggaran etiket, bukan?"
 
@@ -230,7 +228,7 @@ Tetap saja, aku pasti tidak akan memberitahunya.
 
 "Maafkan aku. Aku agak tenggelam dalam pikiran Aku."
 
-" Jangan khawatir, Aku hanya ingin mengatakan itu: jika Kamu ingin tidur, bagaimana kalau mandi lebih awal? Itu saja."
+"Jangan khawatir, Aku hanya ingin mengatakan itu: jika Kamu ingin tidur, bagaimana kalau mandi lebih awal? Itu saja."
 
 "Sudah lama sejak kita memilikinya, ya . Air panas membutuhkan koin tambahan tetapi bisa menggunakan sihir sejujurnya sangat nyaman untuk situasi seperti ini."
 
