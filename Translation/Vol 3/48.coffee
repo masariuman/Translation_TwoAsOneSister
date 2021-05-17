@@ -74,31 +74,31 @@ bukan hanya sihir, ini lebih tentang sihir, atau lebih tepatnya jobku.
 
 Apa yang Aku lakukan adalah menguji bagaimana menerapkan buff dari Song Princess ke sihirku(sorcery)... atau apakah mungkin itu sihir(magic)?
 
-song princess sama-sama dapat menerapkan buff, atau debuff, untuk setiap makhluk yang mendengar lagunya. Aku akan menyertakan status abnormal dalam debu ff di sini. Meskipun ini mungkin tidak berlaku untuk semuanya, karena Aku juga dapat menarik monster, kemungkinan besar ada lebih dari itu.
+song princess sama-sama dapat menerapkan buff, atau debuff, untuk setiap makhluk yang mendengar lagunya. Aku akan menyertakan status abnormal dalam debuff di sini. Meskipun ini mungkin tidak berlaku untuk semuanya, karena Aku juga dapat menarik monster.
 
-Cara mudah untuk menjelaskan status abnormal adalah dengan lagu pengantar tidur Aku — termasuk lagu seperti lagu pengantar tidur. Saat menyanyikan lagu pengantar tidur dengan kekuatan Putri Lagu, Aku bisa membuat orang tertidur jika Aku mau. Apa yang dibutuhkan untuk melawannya tidak diketahui.
+Cara mudah untuk menjelaskan status abnormal adalah dengan lagu pengantar tidurku. Saat menyanyikan lagu pengantar tidur dengan kekuatan song princess, Aku bisa membuat orang tertidur jika Aku mau. Apa yang dibutuhkan untuk melawannya tidak diketahui.
 
-Karena itu, Aku pikir jika Aku menyanyikan lagu yang meludahi kepala atau lagu gila dan gila, itu mungkin bagi Aku untuk menimbulkan kekacauan dan kebingungan. Aku tidak akan melakukannya.
+Karena itu, Aku pikir jika Aku menyanyikan lagu yang menghancurkan kepala atau lagu gila, itu mungkin untuk menimbulkan kekacauan dan kebingungan. Aku tidak akan melakukannya.
 
 Jadi, masalahnya ada fakta bahwa setiap makhluk yang mendengar lagu itu terpengaruh secara sepihak.
 
-Tentang ini, tidak peduli bagaimana Aku melihatnya, Aku benar-benar dibebaskan darinya. Daripada Aku, mungkin Song Princess yang kebal, atau mungkin menyanyikannya membuat Aku menolak efek tetapi pada akhirnya, Aku, sendiri, tidak menerima manfaat dari buff.
+tidak peduli bagaimana Aku melihatnya, Aku benar-benar tidak terpengaruh. mungkin Song Princess yang kebal dengan efeknya, atau mungkin menyanyikannya membuat Aku menolak efeknya tetapi pada akhirnya, Aku, sendiri, tidak menerima manfaat dari buff.
 
-Padahal, mungkin seperti ini karena akan menjadi masalah jika tidak.
+mungkin menjadi seperti ini karena akan menjadi masalah jika aku juga terpengaruh.
 
-Misalnya, jika Aku ingin membuat seseorang tidur dan ini tidak terjadi, hasilnya akan seperti: Aku bernyanyi, pendengar dan Aku tertidur, nyanyian berhenti, kami bangun, Aku bernyanyi lagi, dan mengulang.
+Misalnya, jika Aku ingin membuat seseorang tidur dan aku terkena efeknya juga, hasilnya akan seperti: Aku bernyanyi, pendengar dan Aku tertidur, nyanyian berhenti, kami bangun, Aku bernyanyi lagi, dan mengulang hal yang sama.
 
-Singkatnya, yang ingin Aku katakan adalah bahwa Aku benar-benar ingin memperkuat penghalang Aku dengan kekuatan Song Princess, tetapi Aku tidak akan berhasil seperti sekarang.
+Singkatnya, yang ingin Aku katakan adalah bahwa Aku benar-benar ingin memperkuat +BARRIERku dengan kekuatan Song Princess, tetapi Aku tidak berhasil.
 
 Kekuatan buffing Song Princess tidak masuk akal, sampai-sampai Ciel mampu mencegat beberapa tombak es hanya dengan sihir biasa.
 
-Saat ini, Aku lebih mahir dengan penghalang Aku — dan deteksi — daripada Ciel dengan sihirnya, jadi jika Aku bisa menerapkan buff ke penghalang Aku, kita seharusnya bisa sepenuhnya menutup tombak es Carol-san hanya dengan penghalang.
+Saat ini, Aku lebih mahir dengan +BARRIERku — dan +DETECTION — daripada Ciel dengan sihirnya, jadi jika Aku bisa menerapkan buff ke +BARRIERku, kami seharusnya bisa sepenuhnya menutup tombak es Carol-san hanya dengan +BARRIER.
 
 Justru karena alasan inilah aku menghasut Carol-san untuk mempelajari tentang hubungan antara sihir dan Jobs.
 
-Dengan itu, Aku sekali lagi melanjutkan penelitian malam Aku sendirian, tetapi Aku tidak dapat menemukan terobosan.
+Dengan itu, Aku sekali lagi melanjutkan penelitian malamku sendirian, tetapi Aku tidak dapat menemukan hal baru.
 
-Apakah Putri Lagu benar-benar kebal terhadap kekuatan mereka sendiri? Apakah ada hambatan lagu? Apakah Aku hanya kurang mahir dengan Song Princess? Apakah itu tidak efektif untuk orang lain dengan Pekerjaan Putri Nyanyian? Apakah ada faktor lain yang terlibat?
+Apakah song princess benar-benar kebal terhadap kekuatan mereka sendiri? Apakah ada hambatan di lagu? Apakah Aku hanya kurang mahir sebagai Song Princess? Apakah itu tidak efektif untuk orang lain dengan Pekerjaan Putri Nyanyian? Apakah ada faktor lain yang terlibat?
 
 Aku akan menjadi hebat jika Aku dapat menentukan yang mana, tetapi satu-satunya yang dapat Aku uji segera adalah resistensi melalui teori nyanyian.
 
