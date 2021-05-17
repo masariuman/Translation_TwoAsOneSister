@@ -6,23 +6,23 @@ Untuk mengeringkan rambutnya yang basah, Aku meminta Ciel untuk berganti dengank
 
 Saat aku menyisir rambutnya dengan tanganku di udara hangat, rambut Ciel berubah menjadi lurus dan halus dengan memuaskan. Aku yakin mengubur wajahku di dalamnya akan terasa sangat menyenangkan.
 
-Meskipun Aku tidak akan, karena Ciel mungkin akan terkejut jika Aku melakukan itu.
+Aku tidak akan melakukannya, karena Ciel mungkin akan terkejut jika Aku melakukan itu.
 
 Setelah mengeringkan rambutnya dan mengembalikan tubuhnya ke Ciel, makan malam diantarkan masuk.
 
-Dan setelah menyelesaikan makan malam — tidak ada apa-apa di dalamnya — Ciel mengajukan pertanyaan padaku.
+Dan setelah menyelesaikan makan malam — Ciel mengajukan pertanyaan padaku.
 
-"Apa yang harus kita lakukan besok?"
+[Apa yang harus kita lakukan besok?] (ciel)
 
-"Kita pergi ke guild atau mengumpulkan informasi, kurasa. Kalau tidak, haruskah kita berkeliling ibu kota lagi? "
+[mungkin Kita pergi ke guild atau mengumpulkan informasi. Kalau tidak, haruskah kita berkeliling ibu kota lagi?] (ain)
 
-" Akankah pengumpulan informasi tentang serigala hutan yang datang dari utara? "
+[mengumpulkan informasi tentang serigala hutan yang datang dari utara?] (ciel)
 
-" Ya. Tampaknya ada sesuatu yang mencurigakan tentang itu. "
+[Ya. Tampaknya ada sesuatu yang mencurigakan tentang itu.] (ain)
 
-" Benar, akan lebih baik untuk menyelidikinya terlebih dahulu. Tetap saja, itu bukanlah sesuatu yang bisa kita selesaikan dengan segera. Bagaimana kalau kita pergi ke guild besok untuk memeriksa permintaan? "
+[Benar, akan lebih baik untuk menyelidikinya terlebih dahulu. Tetap saja, itu bukanlah sesuatu yang bisa kita selesaikan dengan segera. Bagaimana kalau kita pergi ke guild besok untuk memeriksa permintaan?] (ciel)
 
-" Benar, mungkin ada beberapa yang bisa membantu kita naik Rank juga. "
+[Benar, mungkin ada beberapa yang bisa membantu kita naik Rank juga.] (ain)
 
 Berdasarkan tingkat prioritas, mencapai Rank B jauh lebih tinggi daripada melihat lautan. Itulah mengapa memprioritaskan pemeriksaan permintaan daripada pengumpulan informasi bukanlah hal yang aneh.
 
