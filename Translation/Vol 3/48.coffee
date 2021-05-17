@@ -282,3 +282,10 @@ Setelah berhasil menerima permintaan tersebut, kami membeli cukup makanan untuk 
 
 ------------------------
 
+maamaaan~~~ dedek ciel kita akhirnya bisa bergerak sendiri walau masih membutuhkan pendapat dari ain. apakah waktu dimana ain akan mendapatkan tubuh sendiri sudah dekat ?? atau apakah akan ada waktunya dimana ketika dedek ciel sudah bisa bergerak mandiri, maka ain akan menghilang dari diri ciel ?????? aaaaa kalau terjadi saya tidak bisa membayangkan apa yang akan dirasakan dedek ciel. yaah kesampingkan hal itu dulu untuk saat ini karena dedek ciel akhirnya bekerja ~
+
+hmmm saya jadi penasaran apa rumor yang disebarkan yang membuat sampai mereka takut sama dedek ciel. apakah rumor itu tentang membuat rank hunter turun ? atau rumor dedek ciel yang mengalahkan anak buah faneed ??? nah apapun itu semoga tidak menjadi masalah untuk dedek ciel di masa depan.
+
+uh uh betapa serakahnya yaaa dedek ciel mau 2 ain ?? 1 saja cukup jgn serakah lho, serakah itu tidak baik lho dek ciel ~ yaah tapi menurutku memang tidak ada job yg useless hanya saja mungkin belum dapat penggunaannya bagaimana... mungkin ain kedepannya mendapatkan cara penggunaannya untuk dirinya sendiri... GANBATTE NE AIN !!
+
+YAAAAY sekian untuk chapter kali ini,
