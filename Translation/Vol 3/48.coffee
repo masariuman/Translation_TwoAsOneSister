@@ -202,9 +202,9 @@ Melihat lebih dekat, bahkan ada permintaan pengumpulan herb Rank-D. Aku kira ala
 
 Saat Aku berdiskusi dengan Ciel dalam perjalanan ke sudut Rank-C, "Tempat ini untuk Hunter Rank-C." seseorang memanggil kami.
 
-Mungkin party yang Aku lihat sebelumnya. Kelompok itu terdiri dari seorang pria-swordsman, seorang penyihir-wanita, seorang pria pembawa perisai yang sedikit tegas, dan seorang wanita yang memegang tombak eksposur yang sedikit tinggi. Orang yang berbicara dengan kami adalah pendekar pedang.
+Mungkin party yang Aku lihat sebelumnya. Kelompok itu terdiri dari seorang pria-swordsman, seorang penyihir-wanita, seorang pria pembawa perisai yang sedikit tegas, dan seorang wanita yang memegang tombak eksposur yang sedikit tinggi. Orang yang berbicara dengan kami adalah swordman.
 
-"Terima kasih, tidak apa-apa."
+[Terima kasih, tidak apa-apa.] (ciel)
 
 Hanya membalas dengan itu, Ciel mengalihkan pandangannya kembali ke papan permintaan sementara party itu saling memandang dan melontarkan senyum tegang.
 
@@ -212,19 +212,19 @@ Dia tidak mengatakan apapun selain itu. Meskipun dia mungkin mengatakan itu kare
 
 Alangkah baiknya jika mereka hanya berpikir bahwa Ciel adalah Hunter Rank rendah yang mengintip untuk referensi.
 
-Itulah yang kuharapkan, tapi sepertinya pendekar pedang itu memikirkan sesuatu saat dia menunjukkan tatapan yakin.
+Itulah yang kuharapkan, tapi sepertinya swordman itu memikirkan sesuatu saat dia menunjukkan tatapan yakin.
 
-"Biar Aku tebak, Kamu Rank-C, bukan?"
+"Biar Aku tebak, Kamu Rank-C, bukan?" (swordman)
 
-"Ya."
+"Ya." (ciel)
 
-"Jadi, kaulah yang dirumorkan. Maaf mengganggu Kamu. Luangkan waktu Kamu untuk memilih. "
+"Jadi, kaulah yang dirumorkan. Maaf mengganggumu. Luangkan waktumu untuk memilih." (swordman)
 
 Mendengar itu, anggota party lain dari swordsman tampaknya juga yakin tentang sesuatu, karena mereka mengambil jarak untuk menghindari mengganggu Ciel.
 
-Aku bertanya-tanya, apa yang mereka maksud dengan rumor? Meskipun alangkah baiknya jika Aku bisa bermain bodoh seperti itu, sudah ada beberapa hal yang terlintas di pikiran Aku, jadi Aku ingin tahu yang mana yang dia maksud.
+Aku penasaran, apa yang mereka maksud dengan rumor? Meskipun alangkah baiknya jika Aku bisa bermain bodoh seperti itu, sudah ada beberapa hal yang terlintas di pikiranku, jadi Aku ingin tahu yang mana yang dia maksud.
 
-Aku pikir itu tidak mungkin buruk, tapi jujur ​​saya tidak bisa mengatakan dengan pasti. Jika fakta bahwa kita mendapatkan beberapa Hunter yang diturunkan pangkatnya tersebar, kita bahkan mungkin disebut perusak tingkat rendah, siapa tahu?
+Aku pikir itu tidak mungkin buruk, tapi jujur Aku tidak bisa mengatakan dengan pasti. Jika fakta bahwa kami membuat beberapa Hunter yang rangnya menurun tersebar, kami bahkan mungkin disebut perusak tingkat rendah, mungkin?
 
 Dalam pertahanan kami, kami hanya menerima perkelahian yang mereka mulai.
 
@@ -234,9 +234,9 @@ Kembali ke apa yang kami lakukan, Aku melihat papan permintaan dan melihat permi
 
 Ini memiliki hadiah tinggi untuk permintaan penaklukan serigala tanpa batas penerimaan, jadi kebanyakan orang pasti sudah menerimanya. Untuk alasan itu, kami tidak akan menerimanya.
 
-"Bagaimana dengan yang ini?"
+[Bagaimana dengan yang ini?] (ciel)
 
-Mengatakan demikian, Ciel menunjuk ke formulir permintaan tertentu. Ini adalah permintaan pengumpulan ramuan untuk ramuan yang digunakan untuk ramuan tingkat menengah dan di atasnya yang juga memiliki perkiraan habitat ramuan yang dipetakan bersama dengan formulirnya. Dengan kecepatan berjalan biasa kami, jika kami pergi ke sana sekarang, kami pasti harus berkemah semalaman. Jika kita berangkat saat matahari terbit, kita seharusnya dapat kembali sebelum matahari terbenam meskipun mempertimbangkan waktu yang dibutuhkan untuk mengumpulkan herba, tetapi juga tertulis bahwa mempersiapkan berkemah dianjurkan.
+Ciel menunjuk ke formulir permintaan tertentu. Ini adalah permintaan pengumpulan ramuan untuk ramuan yang digunakan untuk ramuan tingkat menengah dan di atasnya yang juga memiliki perkiraan habitat ramuan yang dipetakan bersama dengan formulirnya. Dengan kecepatan berjalan biasa kami, jika kami pergi ke sana sekarang, kami pasti harus berkemah semalaman. Jika kita berangkat saat matahari terbit, kita seharusnya dapat kembali sebelum matahari terbenam meskipun mempertimbangkan waktu yang dibutuhkan untuk mengumpulkan herba, tetapi juga tertulis bahwa mempersiapkan berkemah dianjurkan.
 
 Formulir permintaan sangat rinci, dengan karakteristik ramuan dan informasi tentang kemungkinan pertemuan monster yang tertulis, jadi masih menjadi misteri bagaimana ini masih tertinggal di sini.
 
