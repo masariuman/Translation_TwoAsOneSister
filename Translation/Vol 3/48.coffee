@@ -288,4 +288,4 @@ hmmm saya jadi penasaran apa rumor yang disebarkan yang membuat sampai mereka ta
 
 uh uh betapa serakahnya yaaa dedek ciel mau 2 ain ?? 1 saja cukup jgn serakah lho, serakah itu tidak baik lho dek ciel ~ yaah tapi menurutku memang tidak ada job yg useless hanya saja mungkin belum dapat penggunaannya bagaimana... mungkin ain kedepannya mendapatkan cara penggunaannya untuk dirinya sendiri... GANBATTE NE AIN !!
 
-YAAAAY sekian untuk chapter kali ini,
+YAAAAY sekian untuk chapter kali ini, kalau ada saran silahkan komen komen ~~ SELAMAT MEMBACA ~~!
