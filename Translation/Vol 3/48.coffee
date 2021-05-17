@@ -24,13 +24,13 @@ Dan setelah menyelesaikan makan malam — Ciel mengajukan pertanyaan padaku.
 
 [Benar, mungkin ada beberapa yang bisa membantu kita naik Rank juga.] (ain)
 
-Berdasarkan tingkat prioritas, mencapai Rank B jauh lebih tinggi daripada melihat lautan. Itulah mengapa memprioritaskan pemeriksaan permintaan daripada pengumpulan informasi bukanlah hal yang aneh.
+Berdasarkan tingkat prioritas, menjadi Rank B jauh lebih tinggi daripada melihat lautan. Itulah mengapa memprioritaskan memeriksa permintaan daripada pengumpulan informasi bukanlah hal yang aneh.
 
-Dan karena kami adalah Hunter, mungkin itu hanya praktik standar untuk pergi ke guild untuk sementara waktu ketika tiba di kota baru.
+Dan karena kami adalah Hunter, mungkin normal untuk pergi ke guild untuk sementara waktu ketika tiba di kota baru.
 
-Masalahnya di sini adalah waktu kita memasuki guild. Jika kita melakukannya pada waktu sibuk pagi dan sore hari, secara praktis dapat dipastikan bahwa kita akan diganggu oleh seseorang, dan itu hanya akan membuang-buang waktu.
+Masalahnya di sini adalah waktu kami memasuki guild. Jika kami melakukannya pada waktu sibuk pagi dan sore hari, dapat dipastikan kami akan diganggu oleh seseorang, dan itu hanya akan membuang-buang waktu.
 
-Kita harus pergi ketika tidak ada orang di sekitar, menyelesaikan permintaan Rank-C yang mudah diselesaikan, dan kembali sebelum waktu puncak. Jika seseorang masih mengganggu kami bahkan setelah melakukan itu, kami akan menanganinya saat itu terjadi. Jika tidak, mungkin lebih baik untuk berkemah semalam saja dan kembali pada suatu saat ketika tidak ada banyak orang.
+kami harus pergi ketika tidak ada orang, menyelesaikan permintaan Rank-C yang mudah diselesaikan, dan kembali sebelum waktu puncak. Jika seseorang masih mengganggu kami bahkan setelah melakukan itu, kami akan menanganinya saat itu terjadi. Jika tidak, mungkin lebih baik untuk berkemah semalam saja dan kembali pada suatu saat ketika tidak ada banyak orang.
 
 Pedang itu akan habis dalam lima hari. Bahkan jika kita berkemah besok, kita masih punya tiga hari tersisa, jadi kita harus punya banyak waktu ekstra untuk mengumpulkan informasi setelah ini.
 
