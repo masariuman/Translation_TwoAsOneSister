@@ -236,46 +236,49 @@ Ini memiliki hadiah tinggi untuk permintaan penaklukan serigala tanpa batas pene
 
 [Bagaimana dengan yang ini?] (ciel)
 
-Ciel menunjuk ke formulir permintaan tertentu. Ini adalah permintaan pengumpulan ramuan untuk ramuan yang digunakan untuk ramuan tingkat menengah dan di atasnya yang juga memiliki perkiraan habitat ramuan yang dipetakan bersama dengan formulirnya. Dengan kecepatan berjalan biasa kami, jika kami pergi ke sana sekarang, kami pasti harus berkemah semalaman. Jika kita berangkat saat matahari terbit, kita seharusnya dapat kembali sebelum matahari terbenam meskipun mempertimbangkan waktu yang dibutuhkan untuk mengumpulkan herba, tetapi juga tertulis bahwa mempersiapkan berkemah dianjurkan.
+Ciel menunjuk ke formulir permintaan tertentu. Ini adalah permintaan pengumpulan herb untuk herb yang digunakan untuk potion tingkat menengah yang juga memiliki perkiraan habitat herb yang dipetakan bersama dengan formulirnya. Dengan kecepatan berjalan biasa kami, jika kami pergi ke sana sekarang, kami pasti harus berkemah semalaman. Jika kami berangkat saat matahari terbit, kami seharusnya dapat kembali sebelum matahari terbenam meskipun mempertimbangkan waktu yang dibutuhkan untuk mengumpulkan herb, tetapi juga tertulis bahwa persiapan untuk berkemah dianjurkan.
 
-Formulir permintaan sangat rinci, dengan karakteristik ramuan dan informasi tentang kemungkinan pertemuan monster yang tertulis, jadi masih menjadi misteri bagaimana ini masih tertinggal di sini.
+Formulir permintaannya sangat rinci, dengan karakteristik herb dan informasi tentang kemungkinan pertemuan monster yang tertulis, jadi masih menjadi misteri bagaimana ini masih tertinggal di sini.
 
 Jawabannya jelas terlihat dari hadiah yang kecil. Mempertimbangkan bagaimana memakan waktu itu, itu memiliki hadiah terendah di antara Rank C.
 
-"Aku yakin kita harus berkemah semalaman, tapi apakah itu baik-baik saja?"
+[Aku yakin kita akan berkemah semalaman, tapi apakah kamu yakin?] (ain)
 
-"Ain akan melindungiku kan?"
+[Ain akan melindungiku kan?] (ciel)
 
-"Yah tentu saja."
+[Yah tentu saja.] (ain)
 
-"Maka tidak apa-apa."
+[kalau begitu tidak masalah.] (ciel)
 
-Karena Ciel memberi Aku senyuman yang benar-benar tidak diragukan lagi, Aku setuju untuk menerima permintaan itu.
+Karena Ciel memberiku senyuman yang benar-benar tidak diragukan lagi, Aku setuju untuk menerima permintaan itu.
 
 Saat Ciel melepas formulir permintaan dan membawanya ke meja resepsionis, resepsionis itu menatap Ciel dengan tidak senang.
 
-"Lihat sekarang, ini permintaan Rank-C, kamu tahu?"
+"hey, ini permintaan Rank-C, kamu tahu?"
 
-"Ahh , anak itu baik-baik saja. Maukah Kamu menunjukkan kartu Kamu? "
+"Ahh, anak itu baik-baik saja. Maukah Kamu menunjukkan kartumu? "
 
-Sebelum Ciel bisa menjawab resepsionis, pendekar pedang tadi menjawab.
+Sebelum Ciel bisa menjawab resepsionis, swordman tadi menjawab.
 
 Ciel mengeluarkan Kartu Hunternya seperti yang diinstruksikan dan menyerahkannya kepada resepsionis.
 
 Saat menerimanya, resepsionis memeriksa kartunya dengan baik sebelum mengatakan "Kami akan segera memprosesnya!" Dan bergerak dengan panik.
 
-"Terima kasih. Aku kira. "
+"Terima kasih. mungkin." (ciel)
 
-" Yah, Kamu kemungkinan besar akan berhasil bahkan tanpa Aku. "
+"Yah, Kamu kemungkinan besar akan berhasil bahkan tanpa Aku." (ain)
 
-" Yup. Sudah terbiasa. "
+"Yup. aku Sudah terbiasa." (ciel)
 
-" Itu sebabnya, ini hanya aku yang usil. Ini seharusnya mempersingkat waktu yang Kamu ambil, jadi Aku harap Kamu dapat menerima ini sebagai permintaan maaf Aku sebelumnya. "
+"Itu sebabnya, aku hanya usil. Ini seharusnya mempersingkat waktu yang Kamu ambil, jadi Aku harap Kamu dapat menerima ini sebagai permintaan maafku sebelumnya." (swordman)
 
-Pria itu hanya meninggalkan kata-kata itu dan melambaikan tangan saat dia kembali ke pestanya.
+Pria itu hanya meninggalkan kata-kata itu dan melambaikan tangan saat dia kembali ke partynya.
 
 Apakah mereka tidak menerima permintaan apapun? Mungkin mereka di sini dalam keadaan siaga, untuk memastikan bahwa situasi di mana sama sekali tidak ada Hunter di Guild Hunter dapat dicegah.
 
 Lagi pula, meski seharusnya ada beberapa orang di pub, hanya sekelompok pemabuk yang mungkin tidak berguna selama keadaan darurat.
 
 Setelah berhasil menerima permintaan tersebut, kami membeli cukup makanan untuk bertahan hingga besok pagi dan meninggalkan gerbang ibukota.
+
+------------------------
+
