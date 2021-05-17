@@ -100,7 +100,7 @@ Dengan itu, Aku sekali lagi melanjutkan penelitian malamku sendirian, tetapi Aku
 
 Apakah song princess benar-benar kebal terhadap kekuatan mereka sendiri? Apakah ada hambatan di lagunya? Apakah Aku hanya kurang mahir sebagai Song Princess? Apakah itu tidak efektif untuk orang lain dengan Pekerjaan Putri Nyanyian? Apakah ada faktor lain yang terlibat?
 
-Aku akan menjadi hebat jika Aku dapat menentukan yang mana, tetapi satu-satunya yang dapat Aku uji segera adalah resistensi melalui teori nyanyian.
+Aku akan menjadi hebat jika Aku dapat menentukannya, tetapi satu-satunya yang dapat Aku uji segera adalah resistensi melalui teori nyanyian.
 
 Aku terus merenungkannya selama berjam-jam, dan ketika Aku lelah dan hampir menyerah, sinar matahari bersinar melalui jendela.
 
