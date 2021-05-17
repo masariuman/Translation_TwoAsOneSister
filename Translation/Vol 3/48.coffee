@@ -108,75 +108,75 @@ Aku terus merenungkannya selama berjam-jam, dan ketika Aku lelah dan hampir meny
 
 Ciel terbangun beberapa saat setelah matahari pagi mulai bersinar.
 
-Saat rajin, atau kesulitan finansial, para Hunter pergi ke Hunter Guild pada pagi hari, karena kami tidak rajin atau terdesak secara finansial, itu bukan masalah kami.
+ketika rajin, atau kesulitan finansial, para Hunter pergi ke Guild Hunter di pagi hari, karena kami tidak rajin atau terdesak secara finansial, itu bukan masalah kami.
 
-Setelah makan pagi dan keluar dari penginapan, Aku mencoba berbicara dengan Ciel tentang perlawanan lagu.
+Setelah makan pagi dan keluar dari penginapan, Aku mencoba berbicara dengan Ciel tentang pertahanan dari lagu.
 
-"Ciel, ada satu hal yang aku ingin kamu coba, tapi apakah itu baik-baik saja?"
+[Ciel, aku ada sesuatu yang ingin kamu mencobanya, tapi apakah itu boleh?] (ain)
 
-"Apa itu? Jika itu permintaan darimu Ain, aku siap untuk apa saja. "
+[Apa itu? Jika itu permintaan darimu Ain, aku siap untuk apa saja.] (ciel)
 
-" Aku ingin kamu mencoba bernyanyi bersama denganku sementara aku menggunakan kekuatan Putri Lagu. "
+[Aku ingin kamu mencoba bernyanyi bersama denganku sementara aku menggunakan kekuatan song princess.] (ain)
 
-" Kenapa begitu? "
+[Kenapa ?] (ciel)
 
-Saat Ciel memiringkan kepalanya dengan bingung, aku memberitahunya tentang tadi malam dan dia kemudian mengangguk yakin.
+Ciel memiringkan kepalanya dengan bingung. aku memberitahunya tentang tadi malam dan dia kemudian mengangguk yakin.
 
-"Kalau begitu, tidak perlu melakukannya. Efek Song Princess berlaku dengan benar. "
+[Kalau begitu, tidak perlu melakukannya. Efek Song Princess berlaku dengan benar.] (ciel)
 
-" Benarkah? "
+[Benarkah?] (ain)
 
-" Lagipula, ketika Ain bernyanyi, aku terkadang ikut bernyanyi juga. "
+[ketika Ain bernyanyi, aku terkadang ikut bernyanyi juga.] (ciel)
 
-Sekarang setelah dia menyebutkannya, Aku ingat sesuatu seperti itu di masa lalu.
+ah, aku baru ingat hal seperti itu pernah terjadi.
 
-"Dalam hal ini, maka Aku tidak menerima efek Song Princess atau tidak memiliki cukup keahlian atas Pekerjaan Aku ......"
+[Dalam hal ini, Aku tidak menerima efek Song Princess atau tidak memiliki cukup keahlian atas jobku ......] (ain)
 
-"Mungkin akan lebih baik jika ada Kamu berdua, Ain."
+[Mungkin akan lebih baik jika ada Kamu ada dua, Ain.] (ciel)
 
-"Dua dari Aku ...... "
+[aku ada dua...] (ain)
 
-" Jika itu terjadi, bisakah aku memiliki keduanya? "
+[kalau itu terjadi, bolehkah aku memiliki keduanya ?] (ciel)
 
-" Bukan hanya satu? "
+[Bukan hanya satu ?] (ain)
 
-" Maksudku, aku menginginkan keduanya. "
+[maksudny, aku ingin keduanya.] (ciel)
 
-Aku bukan apa-apa, kamu tahu? Adalah sesuatu yang tidak akan Aku katakan.
+Aku bukan benda lho... Adalah sesuatu yang tidak akan Aku katakan.
 
-Ini bukan seolah-olah Ciel serius dan bahkan sekarang, aku praktis hanya aksesori untuk Ciel. Yang terpenting, Ciel sedang dalam suasana hati yang baik sekarang dan itu cukup untukku.
+ciel tidak begitu terlihat serius dan bahkan sekarang, aku hanya aksesori untuk Ciel. Yang terpenting, Ciel sedang dalam suasana hati yang baik sekarang dan itu cukup untukku.
 
-Lebih penting lagi, Aku tidak boleh mengabaikan gagasan bahwa ada Aku berdua.
+Lebih penting lagi, Aku tidak boleh mengabaikan gagasan bahwa ada Aku ada 2.
 
-Jika ada salah satu dariku dan kekuatan Putri Song akan bekerja padaku, maka aku akan mampu menghasilkan perisai yang jauh lebih kuat. Tetap saja, tidak ada yang mengubah fakta bahwa itu hanya omong kosong yang tidak masuk akal.
+Jika ada salah satu dariku dan kekuatan Song Princess akan bekerja padaku, maka aku akan mampu menghasilkan +BARRIER yang jauh lebih kuat. Tetap saja, tidak ada yang mengubah fakta bahwa itu hanya omong kosong yang tidak masuk akal.
 
-Bahkan jika memungkinkan, itu akan berada dalam ranah sihir. Aku mungkin juga meminta Duke Rispelgia agar yang lain menghantui kita pada saat itu.
+Bahkan jika memungkinkan, itu akan berada dalam ranah magic*. Aku mungkin juga meminta Duke Rispelgia agar memiliki orang lain menghantui kami pada saat itu.
 
-Saat pikiranku tersesat, Ciel tiba di Hunter Guild.
+Saat pikiranku tersesat, Ciel tiba di Guild Hunter.
 
-Di antara yang kita lihat sejauh ini, itu adalah gedung guild terbesar, memiliki dua pintu masuk. Melihat lebih dekat, tampaknya satu untuk digunakan Hunter sementara yang lain untuk pemohon, atau lebih tepatnya untuk penggunaan umum.
+Di antara yang kami lihat sejauh ini, itu adalah gedung guild terbesar, memiliki dua pintu masuk. Melihat lebih dekat, tampaknya satu untuk digunakan Hunter sementara yang lain untuk pemberi permintaan, atau lebih tepatnya untuk penggunaan umum.
 
-Kalau dipikir-pikir, orang-orang selain Hunter juga datang ke Hunter Guild untuk membuat permintaan, jadi memiliki pintu masuk terpisah memudahkan untuk menghindari masalah.
+Kalau dipikir-pikir, orang-orang selain Hunter juga datang ke Guild Hunter untuk membuat permintaan, jadi memiliki pintu masuk terpisah memudahkan untuk menghindari masalah.
 
-"Bagaimana Aku harus mengatakan ini, orang-orang yang mengacaukan kita di masa lalu sangat ceroboh, ya ."
+[Bagaimana Aku harus mengatakan ini, orang-orang yang mengacaukan kita di masa lalu sangat ceroboh, ya.] (ain)
 
-"Apa yang membuatmu berpikir begitu, Ain?"
+[Apa yang membuatmu berpikir begitu, Ain?] (ciel)
 
-"Guild yang pernah kita kunjungi sejauh ini hanya memiliki satu pintu masuk, kan? Jadi itu berarti, orang-orang yang membawa permintaan juga akan masuk melalui pintu itu. "
+[Guild yang pernah kita kunjungi sejauh ini hanya memiliki satu pintu masuk, kan? Jadi itu berarti, orang-orang yang membawa permintaan juga akan masuk melalui pintu itu.] (ain)
 
-" Benar. "
+[Benar.] (ciel)
 
-" Dan karena berusia 12 tahun, orang jarang melihatmu sebagai Hunter, kan Ciel? "
+[Dan karena berusia 12 tahun, orang jarang melihatmu sebagai Hunter, kan Ciel?] (ain)
 
-" Aku tidak bisa menahannya , kamu tahu? "
+[aku tidak bisa mengatasi hal itu, kan ?] (ciel)
 
-" Dengan kata lain, meskipun mereka seharusnya melihatmu sebagai pemohon, mereka masih mengacaukan kami. Jika kamu seorang bangsawan, mereka akan kehilangan nyawanya di sana. "
+[Dengan kata lain, meskipun mereka seharusnya melihatmu sebagai pemberi permintaan, mereka masih mengacaukan kita. Jika kamu seorang bangsawan, mereka akan kehilangan nyawanya di sana.] (ain)
 
-" Yah, aku memang memiliki darah bangsawan dalam diriku. Jika hanya dengan penampilan, tidak aneh jika Aku dilihat sebagai bangsawan. "
+[Yah, aku memang memiliki darah bangsawan dalam diriku. Jika hanya dengan penampilan, tidak aneh jika Aku dilihat sebagai bangsawan.] (ciel)
 
-Pakaian Ciel mungkin mencegah mereka melihatnya sebagai satu kesatuan. Kalau tidak, mungkin putri bangsawan tidak akan pernah pergi ke Hunter Guild sendirian.
+Pakaian Ciel mungkin mencegah mereka melihatnya sebagai anak bangsawan. atau, mungkin anak bangsawan tidak akan pernah pergi ke Guild Hunter sendirian.
 
-Meskipun demikian, Aku pikir putri seorang pedagang akan membuat permintaan pendamping setidaknya adalah situasi yang memungkinkan.
+Meskipun demikian, Aku pikir anak seorang pedagang akan membuat permintaan pendamping setidaknya adalah situasi yang memungkinkan.
 
 Kami sebenarnya bukan peminta, jadi mereka sebenarnya tidak salah menilai kami dalam hal ini tapi ...... Aku rasa tidak ada gunanya memikirkannya.
 
@@ -272,7 +272,7 @@ Saat menerimanya, resepsionis memeriksa kartunya dengan baik sebelum mengatakan 
 
 Pria itu hanya meninggalkan kata-kata itu dan melambaikan tangan saat dia kembali ke pestanya.
 
-Apakah mereka tidak menerima permintaan apapun? Mungkin mereka di sini dalam keadaan siaga, untuk memastikan bahwa situasi di mana sama sekali tidak ada Hunter di Hunter Guild dapat dicegah.
+Apakah mereka tidak menerima permintaan apapun? Mungkin mereka di sini dalam keadaan siaga, untuk memastikan bahwa situasi di mana sama sekali tidak ada Hunter di Guild Hunter dapat dicegah.
 
 Lagi pula, meski seharusnya ada beberapa orang di pub, hanya sekelompok pemabuk yang mungkin tidak berguna selama keadaan darurat.
 
