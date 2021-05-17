@@ -2,9 +2,9 @@ CHAPTER 48: SONG PRINCESS AND THE ROYAL CAPITAL REQUESTS
 
 Mandi kami berakhir dengan damai tanpa insiden apa pun.
 
-Untuk mengeringkan rambutnya yang basah, Aku meminta Ciel untuk pindah dengan Aku sehingga Aku bisa menggunakan sihir pengering rambut Aku.
+Untuk mengeringkan rambutnya yang basah, Aku meminta Ciel untuk berganti denganku agar Aku bisa menggunakan sihir pengering rambutku.
 
-Saat aku mengekspos rambutnya ke udara hangat saat menyisir tanganku, rambut Ciel berubah lurus dan halus dengan memuaskan. Aku yakin mengubur wajahku di dalamnya akan terasa sangat menyenangkan.
+Saat aku menyisir rambutnya dengan tanganku di udara hangat, rambut Ciel berubah menjadi lurus dan halus dengan memuaskan. Aku yakin mengubur wajahku di dalamnya akan terasa sangat menyenangkan.
 
 Meskipun Aku tidak akan, karena Ciel mungkin akan terkejut jika Aku melakukan itu.
 
