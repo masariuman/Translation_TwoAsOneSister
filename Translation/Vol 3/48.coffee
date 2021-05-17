@@ -30,33 +30,33 @@ Dan karena kami adalah Hunter, mungkin normal untuk pergi ke guild untuk sementa
 
 Masalahnya di sini adalah waktu kami memasuki guild. Jika kami melakukannya pada waktu sibuk pagi dan sore hari, dapat dipastikan kami akan diganggu oleh seseorang, dan itu hanya akan membuang-buang waktu.
 
-kami harus pergi ketika tidak ada orang, menyelesaikan permintaan Rank-C yang mudah diselesaikan, dan kembali sebelum waktu puncak. Jika seseorang masih mengganggu kami bahkan setelah melakukan itu, kami akan menanganinya saat itu terjadi. Jika tidak, mungkin lebih baik untuk berkemah semalam saja dan kembali pada suatu saat ketika tidak ada banyak orang.
+kami harus pergi ketika tidak ada orang, menyelesaikan permintaan Rank-C yang mudah diselesaikan, dan kembali sebelum batas waktunya. Jika seseorang masih mengganggu kami bahkan setelah melakukan itu, kami akan menanganinya saat itu terjadi. Jika tidak, mungkin lebih baik untuk berkemah semalam saja dan kembali pada suatu saat ketika tidak ada banyak orang.
 
-Pedang itu akan habis dalam lima hari. Bahkan jika kita berkemah besok, kita masih punya tiga hari tersisa, jadi kita harus punya banyak waktu ekstra untuk mengumpulkan informasi setelah ini.
+Pedang itu akan selesai dalam lima hari. Bahkan jika kami berkemah besok, kami masih punya tiga hari tersisa, jadi kami punya banyak waktu ekstra untuk mengumpulkan informasi setelah ini.
 
-"Akan lebih bagus jika ada permintaan yang sempurna."
+[Akan lebih bagus jika ada permintaan yang sempurna.] (ciel)
 
-"Lagipula ini adalah ibu kota kerajaan. Aku ingin berharap dalam hal ini tetapi, pada saat yang sama, kita mungkin tidak boleh berharap terlalu banyak. "
+[ini adalah ibu kota kerajaan. Aku ingin berharap hal yang sama tetapi pada saat yang sama, kita mungkin tidak boleh berharap terlalu banyak.] (ain)
 
-" Mengapa demikian? "
+[Mengapa?] (ciel)
 
-" Karena ada banyak orang, kami tahu bahwa ada peluang yang lebih tinggi agar Guild Hunter di sini memiliki lebih banyak permintaan. Namun, karena ini adalah ibu kota kerajaan, mereka pasti telah berusaha keras untuk menjaga ketertiban dan keamanan di daerah sekitarnya."
+[Karena ada banyak orang, kita tahu bahwa ada peluang yang lebih tinggi untuk Guild Hunter memiliki lebih banyak permintaan. tapi, karena ini adalah ibu kota kerajaan, mereka pasti telah berusaha keras untuk menjaga ketertiban dan keamanan di daerah sekitarnya.] (ain)
 
-" Kalau begitu, monster di sekitarnya mungkin sudah diburu sampai kelelahan. "
+[Kalau begitu, monster di sekitarnya mungkin sudah diburu.] (ciel)
 
-" Tepat. Mungkin ada banyak permintaan pendamping, tetapi kami tidak dapat benar-benar menerima semua ini sekarang. "
+[Benar. Mungkin ada banyak permintaan mengawal, tetapi kita tidak dapat benar-benar menerima permintaan seperti ini sekarang.] (ain)
 
-" Jadi, harap berharap yang terbaik untuk besok. Aku bisa mengambil waktu Aku berjalan, kan? "
+[Jadi, berharaplah yang terbaik untuk besok. Aku bisa bersantai waktu Aku berjalan, kan?] (ciel)
 
-"Kami sama sekali tidak ingin direcoki."
+[kita sama sekali tidak ingin diganggu.] (ain)
 
-"Dimengerti. Baiklah, Ain. Selamat malam. "
+[Baiklah. kalau begitu Ain, Selamat malam.] (ciel)
 
-" Benar. Selamat malam."
+[Selamat malam.] (ain)
 
 Ciel mematikan lampu dan merangkak ke tempat tidur.
 
-Karena Aku tidak pergi tidur, Aku memutuskan untuk menyanyikan lagu pengantar tidur untuk setidaknya membantu Ciel mendapatkan istirahat yang nyaman.
+Karena Aku tidak tidur, Aku memutuskan untuk menyanyikan lagu pengantar tidur untuk setidaknya membantu Ciel mendapatkan istirahat yang nyaman.
 
 Meskipun mungkin bukan lagu pengantar tidur tepatnya, Aku menyanyikan lagu santai yang tidak akan mengganggu tidurnya. Jika Aku menerapkan efek tidur dengan Song Princess, orang-orang yang mendengar ini mungkin akan tertidur dalam sekejap.
 
@@ -70,11 +70,11 @@ Dia bernapas dan berbalik sesekali, jadi dia pasti terlihat hidup di sudut manap
 
 Untuk sisa waktu hari ini, kurasa aku akan mengerjakan penelitian sihirku sambil tetap waspada.
 
-Padahal, bukan hanya sihir, ini lebih tentang sihir, atau lebih tepatnya Pekerjaan Aku.
+bukan hanya sihir, ini lebih tentang sihir, atau lebih tepatnya jobku.
 
-Apa yang Aku lakukan adalah menguji bagaimana menerapkan buff dari Song Princess ke sihir saya… atau apakah itu sihir?
+Apa yang Aku lakukan adalah menguji bagaimana menerapkan buff dari Song Princess ke sihirku(sorcery)... atau apakah mungkin itu sihir(magic)?
 
-Putri Lagu sama-sama dapat menerapkan buff, atau debuff, untuk setiap makhluk yang mendengar lagunya. Aku akan menyertakan status abnormal dalam debuff di sini. Meskipun ini mungkin tidak berlaku untuk semuanya, karena Aku juga dapat menarik monster, kemungkinan besar ada lebih dari itu.
+song princess sama-sama dapat menerapkan buff, atau debuff, untuk setiap makhluk yang mendengar lagunya. Aku akan menyertakan status abnormal dalam debu ff di sini. Meskipun ini mungkin tidak berlaku untuk semuanya, karena Aku juga dapat menarik monster, kemungkinan besar ada lebih dari itu.
 
 Cara mudah untuk menjelaskan status abnormal adalah dengan lagu pengantar tidur Aku — termasuk lagu seperti lagu pengantar tidur. Saat menyanyikan lagu pengantar tidur dengan kekuatan Putri Lagu, Aku bisa membuat orang tertidur jika Aku mau. Apa yang dibutuhkan untuk melawannya tidak diketahui.
 
