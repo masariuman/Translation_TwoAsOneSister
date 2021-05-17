@@ -176,31 +176,33 @@ Kalau dipikir-pikir, orang-orang selain Hunter juga datang ke Guild Hunter untuk
 
 Pakaian Ciel mungkin mencegah mereka melihatnya sebagai anak bangsawan. atau, mungkin anak bangsawan tidak akan pernah pergi ke Guild Hunter sendirian.
 
-Meskipun demikian, Aku pikir anak seorang pedagang akan membuat permintaan pendamping setidaknya adalah situasi yang memungkinkan.
+Meskipun demikian, Aku pikir anak seorang pedagang akan membuat permintaan pengawal setidaknya adalah situasi yang memungkinkan.
 
-Kami sebenarnya bukan peminta, jadi mereka sebenarnya tidak salah menilai kami dalam hal ini tapi ...... Aku rasa tidak ada gunanya memikirkannya.
+Kami sebenarnya bukan pemberi permintaan, jadi mereka sebenarnya tidak salah menilai kami dalam hal ini tapi ...... Aku rasa tidak ada gunanya memikirkannya.
 
-"Untuk saat ini, ayo masuk ke dalam."
+[Untuk saat ini, ayo masuk ke dalam.] (ciel)
 
-"Benar, maaf telah menyisihkan banyak waktu."
+[Benar, maaf telah menghabiskan banyak waktu.] (ain)
 
-"Kamu tidak perlu meminta maaf pada Ain. Berbicara denganmu itu menyenangkan. "
+[Kamu tidak perlu meminta maaf, Ain. Berbicara denganmu itu menyenangkan.] (ciel)
 
 Setelah berkata demikian, Ciel membuka pintu. Meskipun ini adalah guild ibu kota kerajaan, selain dua pintu masuk yang terpisah, sepertinya tidak terlalu berbeda dari guild lain. Sekilas saja, Aku sudah mengerti cara kerja guild ini.
 
-Selain resepsionis, hampir tidak ada orang di sini. Hanya satu pihak di depan papan permintaan, kurasa.
+Selain resepsionis, hampir tidak ada orang di sini. Hanya satu party di depan papan permintaan, kurasa.
 
 Melihat Ciel, resepsionis menatap kami dengan ekspresi bingung di wajahnya tetapi Ciel mengabaikannya dan langsung menuju ke papan permintaan.
 
-Kami mulai memeriksa secara berurutan, dari Rank F pertama, tetapi banyak permintaan adalah pengumpulan ramuan untuk penggunaan salep dan ramuan.
+Kami mulai memeriksa secara berurutan, dari Rank F pertama, tetapi banyak permintaan adalah pengumpulan herb untuk penggunaan salep dan potion.
 
-Dari fakta bahwa ini berlanjut hingga Rank-E, sepertinya mereka membutuhkan herbal bahkan dari tempat-tempat yang memiliki peluang pertemuan monster yang tinggi.
+Dari fakta bahwa ini berlanjut hingga Rank-E, sepertinya mereka membutuhkan herb bahkan dari tempat-tempat yang memiliki peluang pertemuan monster yang tinggi.
 
-Melihat lebih dekat, bahkan ada permintaan pengumpulan ramuan Rank-D. Aku kira alasan dari tidak adanya permintaan penaklukan di sini adalah karena permintaan ini benar-benar membayar dengan baik dan dapat membangun reputasi seseorang.
+Melihat lebih dekat, bahkan ada permintaan pengumpulan herb Rank-D. Aku kira alasan dari tidak adanya permintaan penaklukan di sini adalah karena permintaan ini benar-benar membayar dengan baik dan dapat membangun reputasi seseorang.
 
-"Jika kita menerima permintaan, kita harus memilih yang meminta jamu di tempat yang sulit untuk dipanen." Saat Aku berdiskusi dengan Ciel dalam perjalanan ke sudut Rank-C, "Tempat ini untuk Rank-C Hunter. "seseorang memanggil kami.
+[Jika kita menerima permintaan, kita harus memilih yang meminta herb di tempat yang sulit untuk didapat.] (ain)
 
-Mungkin pesta yang Aku lihat sebelumnya. Kelompok itu terdiri dari seorang swordsman-ish man, seorang penyihir-wanita-ish, seorang pria pembawa perisai yang sedikit tegas, dan seorang wanita yang memegang tombak eksposur yang sedikit tinggi. Orang yang berbicara dengan kami adalah pendekar pedang.
+Saat Aku berdiskusi dengan Ciel dalam perjalanan ke sudut Rank-C, "Tempat ini untuk Hunter Rank-C." seseorang memanggil kami.
+
+Mungkin party yang Aku lihat sebelumnya. Kelompok itu terdiri dari seorang pria-swordsman, seorang penyihir-wanita, seorang pria pembawa perisai yang sedikit tegas, dan seorang wanita yang memegang tombak eksposur yang sedikit tinggi. Orang yang berbicara dengan kami adalah pendekar pedang.
 
 "Terima kasih, tidak apa-apa."
 
