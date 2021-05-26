@@ -224,41 +224,59 @@ Bentuk daunnya pun ikut berubah sehingga kini tampak seperti hiasan rambut.
 Ini tidak seperti Aku ahli dengan warna atau apa pun, tetapi bahkan jika Kamu meletakkan sesuatu yang transparan di atas sesuatu yang putih, itu hanya akan menjadi putih dan tidak akan menonjol.
 
 "Aku tidak terlalu memahaminya, tetapi akan lebih baik jika itu memiliki warna, kan?"
-"Mengenai mode, Aku pikir memiliki beberapa warna akan membuatnya lebih manis bagi Kamu, tetapi dalam arti tidak menonjol, itu transparansi mungkin bagus juga.
-Padahal, jika orang memperhatikan Kamu mengenakan bunga transparan, itu bisa membuat kita menonjol dalam dirinya sendiri. "
+
+"Mengenai mode, Aku pikir memiliki beberapa warna akan membuatnya lebih manis bagi Kamu, tetapi dalam arti tidak menonjol, itu transparansi mungkin bagus juga. Padahal, jika orang memperhatikan Kamu mengenakan bunga transparan, itu bisa membuat kita menonjol dalam dirinya sendiri. "
+
 " Warna apa yang cocok untuk Aku? "
+
 " Pada warna, Aku pikir hitam akan membuat aksen yang bagus. Tetapi jika Aku mendasarkannya dengan bunga ini, maka kuning kecoklatan atau hijau untuk daun dengan bunga menjadi biru yang berubah menjadi lebih terang saat mencapai ujungnya akan menyenangkan, Aku kira. "
+
 " Itu sangat khusus, bukan? "
 
-Iklan
 Ciel terkikik, tetapi jika diberi kesempatan, Aku sangat ingin mendandani Ciel.
+
 Sementara sebagian alasan Aku memilih biru adalah karena matanya, itu juga karena Aku pernah melihat bunga sakura dengan warna itu sebelumnya.
+
 Aku hanya melihatnya dari sebuah gambar, tapi Aku ingat itu terlihat aneh dan mistis. Kalau begitu, maka seharusnya bisa menonjolkan kecantikan Ciel tanpa kehilangan dirinya.
 
 "Maka mungkin kita harus mencoba menemukan jepit rambut bunga biru ketika kita kembali ke ibukota."
+
 "Kalau begitu, akan lebih baik untuk bertanya kepada orang yang bekerja di toko pakaian. Lagipula aku hanya memberikan pendapat amatir. "
+
 " Ain, aku menginginkannya persis karena itu warna yang baru saja kamu katakan. Aku tidak peduli dengan pendapat orang lain. "
 
 Mendengar kata-kata lugas Ciel, aku tidak bisa membalasnya. Yah, ya, aku membuat ini "Uu, aa ……" rengekan yang tidak bisa dimengerti.
+
 Terkadang, kemurnian Ciel benar-benar menggangguku. Apa cara yang tepat untuk bereaksi dalam situasi ini?
+
 Sebelum Aku bisa mengatakan apa-apa, dia berkata "Aku akan mengenakan ini agar tidak menghalangi." Dan membawa bunga transparan ke dekat rambutnya.
 
 Detik berikutnya, bunga, atau lebih tepatnya daunnya, terjalin erat ke rambut Ciel. Kemudian berubah menjadi gelap dan bunganya berubah menjadi biru yang semakin gelap saat mendekati tengah.
+
 Dengan bunganya yang tembus cahaya, sekilas tampak seperti permata.
+
 Dan meski hanya dalam jumlah kecil, sepertinya itu menyerap kekuatan sihir dari rambut Ciel. Padahal, karena sepertinya menyerap kekuatan sihirku, aku tidak terlalu mempermasalahkannya. Lagipula, bahkan setelah mempertimbangkan kebutuhan pemeliharaan penghalang dan deteksi, keseimbangan kekuatan sihirku masih hitam.
 
 "Umm , Ain? Apa yang terjadi? "
+
 " Bunga itu berubah menjadi semacam jepit rambut dan berubah menjadi warna yang Aku katakan sebelumnya. "
+
 " Apakah ini ... masih akan kembali? "
 
 Saat dia berkata demikian, Ciel membawa tangannya ke dekat bunga, yang kemudian membuka daunnya dan mendarat di tangannya.
+
 Benar-benar jepit rambut yang misterius. Saat mendarat di telapak tangan Ciel, warnanya juga kembali normal.
 
 "Sepertinya sudah kembali normal. Sayang sekali Aku tidak bisa melihatnya sendiri, tetapi apakah itu cocok untuk Aku? "
+
 " Ya, itu indah. "
+
 " Begitu, begitu. Kalau begitu, Aku akan memakainya sebentar. Akankah itu baik-baik saja? "
+
 " Tidak membutuhkan banyak kekuatan sihir, jadi seharusnya baik-baik saja.
+
 Juga, karena itu menyerap kekuatan sihir, maka itu bisa berarti itu tidak akan layu. "
 
 Setelah mendengar kata-kataku, Ciel meletakkan kembali bunga itu di rambutnya. Dan seperti sebelumnya, itu melekat dengan sendirinya.
+
 Tampaknya puas dengan ini, Ciel kembali memanen ramuan yang diminta.
