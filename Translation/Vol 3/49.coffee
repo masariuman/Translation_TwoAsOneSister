@@ -16,17 +16,17 @@ menurutku, tidak ada yang istimewa dibandingkan dengan penyerbuan monster di kon
 
 [Kalau begitu, aku akan menyalakan api.] (ciel)
 
-Meskipun Aku mengatakan berkemah, kami tidak akan terkena bahaya apa pun berkat penghalang Aku, jadi biasanya kami tidak memiliki hal lain untuk dipersiapkan.
+Meskipun Aku mengatakan berkemah, kami tidak akan terkena bahaya apa pun berkat +BARRIERku, jadi biasanya kami tidak memiliki hal lain untuk dipersiapkan.
 
-Aku pikir kantong tidur mungkin cukup untuk membuat Ciel tidur nyenyak, tetapi karena itu hanya akan menambah barang bawaan kami seperti sekarang, kami tidak memilikinya.
+kantong tidur mungkin cukup untuk membuat Ciel tidur nyenyak, tetapi karena itu hanya akan menambah barang bawaan kami seperti sekarang, kami tidak memilikinya.
 
-Namun, alasan kita menyalakan api bukanlah untuk mengusir hewan atau monster — itu tidak ada artinya karena mereka tidak benar-benar takut dengan api — tetapi untuk mempersiapkan makan malam.
+Tapi, alasan kami menyalakan api bukanlah untuk mengusir hewan atau monster — itu tidak ada artinya karena mereka tidak benar-benar takut dengan api — tetapi untuk mempersiapkan makan malam.
 
-Dan sementara Ciel mengatakan nyalakan api , yang dia lakukan hanyalah menggunakan lingkaran sihir untuk menjaga nyala api yang konstan menyala.
+adapun Ciel mengatakan akan menyalakan api, yang dia lakukan hanyalah menggunakan lingkaran sihir untuk menjaga nyala api yang konstan menyala.
 
-Setelah ini, kita cukup menambahkan sayuran kering, daging kering, dan garam ke dalam panci kecil berisi air dan memanaskannya.
+Setelah ini, kami cukup menambahkan sayuran kering, daging kering, dan garam ke dalam panci kecil berisi air dan memanaskannya.
 
-Dalam situasi ini, kita mungkin bisa membuat sesuatu yang sangat enak jika kita punya kaldu kubus tapi itu tidak ada di dunia ini.
+Dalam situasi ini, kami mungkin bisa membuat sesuatu yang sangat enak jika kami punya kaldu kubus tapi itu tidak ada di dunia ini.
 
 Meski begitu, sayuran dan daging kering sudah menambah rasa dengan sendirinya, dan itu benar-benar bisa dimakan bagi orang yang terbiasa dengan rasa yang lembut.
 
@@ -69,9 +69,9 @@ Setelah mengatakannya sambil tersenyum, Ciel meneguk semua sup yang tersisa.
 
 Pagi hari dan langit cerah. Ciel bangun saat matahari terbit ketika tidur di luar, jadi kami dapat berakting tanpa membuang waktu.
 
-Namun, apa yang biasanya dilakukan orang jika hujan malah turun? Karena mereka mungkin punya tenda, apakah mereka akan menghabiskan sepanjang hari di dalam atau keluar sambil basah kuyup?
+Tapi, apa yang biasanya dilakukan orang jika hujan malah turun? Karena mereka mungkin punya tenda, apakah mereka akan menghabiskan sepanjang hari di dalam atau keluar sambil basah kuyup?
 
-Dalam kasus kami, penghalang juga berfungsi sebagai jas hujan, jadi energi kami tidak akan terkikis oleh hujan dingin. Meskipun karena itu akan memperburuk pijakan dan visibilitas kita, bukan berarti kita sama sekali tidak terpengaruh olehnya. Tetap saja, penghalang itu benar-benar nyaman. Kami belum pernah melihat orang lain menggunakan penghalang seperti ini, jadi mungkin cara Aku menggunakannya tidak normal.
+Dalam kasus kami, +BARRIER juga berfungsi sebagai jas hujan, jadi energi kami tidak akan terkikis oleh hujan dingin. Meskipun karena itu akan memperburuk pijakan dan visibilitas kita, bukan berarti kita sama sekali tidak terpengaruh olehnya. Tetap saja, +BARRIER itu benar-benar nyaman. Kami belum pernah melihat orang lain menggunakan +BARRIER seperti ini, jadi mungkin cara Aku menggunakannya tidak normal.
 
 Bagaimanapun, untuk jadwal hari ini, kami akan mencari jamu di pagi hari, makan siang, dan mudah-mudahan segera kembali ke ibu kota setelah itu.
 
@@ -102,7 +102,7 @@ Dan kemudian Ciel akan memarahiku karena itu akan mengalahkan arti dari latihan 
 
 "Jika kita membawa semuanya ke sini, kita harus bisa menyelesaikan permintaan, kan?"
 
-"Itu benar. Namun, tidak mungkin untuk membawa semua ini, jadi tolong lakukan yang terbaik. "
+"Itu benar. Tapi, tidak mungkin untuk membawa semua ini, jadi tolong lakukan yang terbaik. "
 
 " Oka ~ y …… "
 
@@ -255,7 +255,7 @@ Detik berikutnya, bunga, atau lebih tepatnya daunnya, terjalin erat ke rambut Ci
 
 Dengan bunganya yang tembus cahaya, sekilas tampak seperti permata.
 
-Dan meski hanya dalam jumlah kecil, sepertinya itu menyerap kekuatan sihir dari rambut Ciel. Padahal, karena sepertinya menyerap kekuatan sihirku, aku tidak terlalu mempermasalahkannya. Lagipula, bahkan setelah mempertimbangkan kebutuhan pemeliharaan penghalang dan deteksi, keseimbangan kekuatan sihirku masih hitam.
+Dan meski hanya dalam jumlah kecil, sepertinya itu menyerap kekuatan sihir dari rambut Ciel. Padahal, karena sepertinya menyerap kekuatan sihirku, aku tidak terlalu mempermasalahkannya. Lagipula, bahkan setelah mempertimbangkan kebutuhan pemeliharaan +BARRIER dan deteksi, keseimbangan kekuatan sihirku masih hitam.
 
 "Umm , Ain? Apa yang terjadi? "
 
