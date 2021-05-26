@@ -67,101 +67,99 @@ Setelah mengatakannya sambil tersenyum, Ciel meneguk semua sup yang tersisa.
 
 ◇
 
-Pagi hari dan langit cerah. Ciel bangun saat matahari terbit ketika tidur di luar, jadi kami dapat berakting tanpa membuang waktu.
+Pagi hari dan langit cerah. Ciel bangun saat matahari terbit ketika tidur di luar, jadi kami dapat bergerak tanpa membuang waktu.
 
-Tapi, apa yang biasanya dilakukan orang jika hujan malah turun? Karena mereka mungkin punya tenda, apakah mereka akan menghabiskan sepanjang hari di dalam atau keluar sambil basah kuyup?
+Tapi, apa yang biasanya dilakukan orang jika hujan turun? Karena mereka mungkin punya tenda, apakah mereka akan menghabiskan sepanjang hari di dalam tenda atau keluar sambil basah kuyup?
 
-Dalam kasus kami, +BARRIER juga berfungsi sebagai jas hujan, jadi energi kami tidak akan terkikis oleh hujan dingin. Meskipun karena itu akan memperburuk pijakan dan visibilitas kita, bukan berarti kita sama sekali tidak terpengaruh olehnya. Tetap saja, +BARRIER itu benar-benar nyaman. Kami belum pernah melihat orang lain menggunakan +BARRIER seperti ini, jadi mungkin cara Aku menggunakannya tidak normal.
+Dalam kasus kami, +BARRIER juga berfungsi sebagai jas hujan, jadi energi kami tidak akan terkikis oleh dingin hujan. Meskipun karena itu akan memperburuk pijakan dan visibilitas kami, bukan berarti kami sama sekali tidak terpengaruh olehnya. Tetap saja, +BARRIER benar-benar nyaman. Kami belum pernah melihat orang lain menggunakan +BARRIER seperti ini, jadi mungkin caraku menggunakannya tidak normal.
 
-Bagaimanapun, untuk jadwal hari ini, kami akan mencari jamu di pagi hari, makan siang, dan mudah-mudahan segera kembali ke ibu kota setelah itu.
+untuk jadwal hari ini, kami akan mencari herb di pagi hari, makan siang, dan berharap segera kembali ke ibu kota setelah itu.
 
-"Kalau begitu, tolong lakukan yang terbaik."
+[Kalau begitu, lakukanlah yang terbaik.] (ain)
 
-"Kali ini Aku pasti akan menemukannya dalam sekejap."
+[Kali ini Aku pasti akan menemukannya dalam sekejap.] (ciel)
 
 Ciel menenangkan dirinya saat dia memasuki hutan.
 
-Meskipun Aku ingin kembali lebih awal, itu belum tentu baik untuk Ciel jika Aku hanya menemukan herbal dan mengakhiri ini secepat kami bisa.
+Meskipun Aku ingin kembali lebih awal, itu belum tentu baik untuk Ciel jika Aku hanya menemukan herb dan mengakhiri ini secepat mungkin.
 
-Banyak tumbuhan memiliki kekuatan gaib di dalamnya tetapi karena hanya dalam jumlah kecil, mencarinya adalah cara sempurna untuk melatih kemampuan seseorang untuk mendeteksi kekuatan gaib.
+Banyak tumbuhan memiliki kekuatan sihir di dalamnya tetapi karena hanya dalam jumlah kecil, mencarinya adalah cara sempurna untuk melatih kemampuan seseorang untuk mendeteksi kekuatan sihir.
 
-Peran Aku di hutan ini adalah untuk mengetahui apakah monster akan datang.
+Peranku di hutan ini adalah untuk mengetahui apakah monster akan datang.
 
-Setelah melakukan itu, Ciel menuai leher mereka dalam satu pukulan.
+Setelah melakukan itu, Ciel menebas leher mereka dalam satu tebasan.
 
-Itu hanya pekerjaan rutin sederhana. Dunia yang menyedihkan.
-Iklan
+Itu hanya pekerjaan rutin yang sederhana. Dunia yang menyedihkan.
 
-Ngomong-ngomong, tentang permintaan pengumpulan ramuan ini, tidak terlalu sulit jika kita mengabaikan monster.
+Ngomong-ngomong, tentang permintaan pengumpulan herb ini, tidak terlalu sulit jika kami mengabaikan monster.
 
-Bagaimanapun, tumbuhan tampaknya tumbuh hampir di mana-mana di sini. Aku kira permintaan itu tidak naik Rank, setelah diabaikan begitu lama sehingga monsternya meningkat, untuk apa-apa. Sebaliknya, karena ada tumbuhan di mana-mana, menemukan ramuan target kita mungkin mengganggu.
+tumbuhan tampaknya tumbuh hampir di mana-mana di sini. Aku kira permintaan itu tidak naik Rank, setelah diabaikan begitu lama sehingga monsternya meningkat. Sebaliknya, karena ada tumbuhan di mana-mana, menemukan herb target kita mungkin mengganggu.
 
-Saat Aku berkonsentrasi pada monster, yang hampir tidak bisa Aku rasakan adalah lokasi umum ramuan itu. Aku bisa melihat lebih dekat ke dalamnya, tetapi jika Aku melakukan itu, Aku akhirnya akan secara tidak sengaja mengisyaratkan itu kepada Ciel.
+Saat Aku berkonsentrasi pada monster, yang hampir tidak bisa Aku rasakan adalah lokasi umum herb itu. Aku bisa melihat lebih dekat ke dalamnya, tetapi jika Aku melakukan itu, Aku akhirnya akan secara tidak sengaja mengisyaratkan itu kepada Ciel.
 
 Dan kemudian Ciel akan memarahiku karena itu akan mengalahkan arti dari latihan ini.
 
-"Jika kita membawa semuanya ke sini, kita harus bisa menyelesaikan permintaan, kan?"
+[Jika kita membawa semuanya yang ada disini, kita bisa menyelesaikan permintaan, kan?] (ciel)
 
-"Itu benar. Tapi, tidak mungkin untuk membawa semua ini, jadi tolong lakukan yang terbaik. "
+[Itu benar. Tapi, tidak mungkin untuk membawa semua ini, jadi tolong lakukan yang terbaik. ] (ain)
 
-" Oka ~ y …… "
+[Oka ~ y .......] (ciel)
 
 Ciel jelas merasa sedih sekarang, tapi aku mengerti perasaan itu. Aku terus mengawasinya dengan senyum tegang.
 
 Meskipun demikian, hutan ini memiliki banyak jenis tumbuhan.
 
-Ramuan seharusnya berharga bagi Hunter dan ksatria, jadi jika ini ditinggalkan sampai ditumbuhi seperti ini, apakah mereka sebenarnya memiliki cadangan ramuan yang cukup?
+herb seharusnya berharga bagi Hunter dan knight, jadi jika ini ditinggalkan sampai ditumbuhi seperti ini, apakah mereka sebenarnya memiliki cadangan herb yang cukup?
 
-Kalau dipikir-pikir, aku hampir tidak melihat ramuan apa pun di toko perkakas. Jika toko dengan level itu hanya memiliki sedikit ramuan yang tersedia, maka mungkin sulit bagi Hunter Rank rendah untuk datang satu per satu.
+Kalau dipikir-pikir, aku hampir tidak melihat herb apa pun di toko alat. Jika toko dengan level itu hanya memiliki sedikit herb yang tersedia, maka mungkin sulit bagi Hunter Rank rendah untuk datang satu per satu.
 
-Sementara orang-orang bisa saja lukanya sembuh di gereja-gereja di dalam kota, mereka tidak bisa melakukannya di luar. Ada kalanya menyembuhkan luka bisa menjadi masalah hidup atau mati.
+Sementara orang bisa menyembuhkan lukanya di gereja di dalam kota, mereka tidak bisa melakukannya di luar kota. Ada kalanya menyembuhkan luka bisa menjadi masalah hidup atau mati.
 
 Meskipun itu tidak perlu bagi kami, jadi itu bukan masalah kami.
 
 Untuk kesembilan kalinya, Ciel sekali lagi berjongkok untuk mengamati beberapa daun dari dekat.
 
-Kali ini, itu adalah tanaman yang terlihat seperti semanggi di bumi, memiliki tiga daun berbentuk hati yang menempel satu sama lain. Tapi dibandingkan dengan yang ada dalam ingatanku, itu sangat kental dan berair. Bunganya juga berbeda, terlihat seperti mawar kecil yang bulat dan berwarna putih.
+Kali ini, itu adalah tanaman yang terlihat seperti semanggi di bumi, memiliki tiga daun berbentuk hati yang menempel satu sama lain. Tapi dibandingkan dengan yang ada dalam ingatanku, itu sangat tebal dan berair. Bunganya juga berbeda, terlihat seperti mawar kecil yang bulat dan berwarna putih.
 
-"Apakah ini?"
+[ini?] (ciel)
 
-"Sepertinya begitu. Formulir permintaan hanya memiliki sketsa bunganya, tetapi fiturnya cocok. "
+[Sepertinya begitu. Formulir permintaan hanya memiliki sketsa bunganya, tetapi bentuknya cocok.] (ain)
 
-" Dalam hal ini, akan baik-baik saja untuk membawa sebanyak mungkin yang kami bisa. Ada banyak sekali. "
+[Dalam hal ini, tidak masalah untuk membawa sebanyak mungkin yang kita bisa. Ada banyak sekali disini.] (ciel)
 
-" Itu benar. Seharusnya tidak ada masalah selama Kamu tidak merusak akarnya. Dengan jumlah sebanyak ini, itu benar-benar membuatku ingin mencari daun empat. "
+[benar. Seharusnya tidak ada masalah selama Kamu tidak merusak akarnya. Dengan jumlah sebanyak ini, itu benar-benar membuatku ingin mencari yang berdaun empat.] (ain)
 
-" Maksudmu ada beberapa dengan empat daun di atasnya? "
+[Maksudmu ada yang memiliki empat daun?] (ciel)
 
-Aku tidak sengaja akhirnya mengatakan demikian, tetapi semanggi berdaun empat yang menjadi simbol keberuntungan bukanlah sesuatu dari dunia ini. Ini mungkin berarti sama di sini juga, tetapi karena Ciel tidak tahu tentang itu, Aku tentu tidak akan tahu apakah itu juga.
+Aku tidak sengaja akhirnya mengatakan itu, tetapi semanggi berdaun empat yang menjadi simbol keberuntungan bukanlah sesuatu dari dunia ini. Ini mungkin berarti sama di sini juga, tetapi karena Ciel tidak tahu tentang itu, Aku tentu tidak akan tahu apakah itu juga ada didunia ini.
 
-Bahkan di kehidupan Aku sebelumnya, mereka dapat dilihat berbeda tergantung pada negara dan budayanya, jadi Aku memutuskan untuk menjelaskannya apa adanya sambil menyembunyikan fakta bahwa yang Aku bicarakan adalah tentang dunia lain.
+Bahkan di kehidupanku sebelumnya, mereka dapat dilihat berbeda tergantung pada negara dan budayanya, jadi Aku memutuskan untuk menjelaskannya apa adanya sambil menyembunyikan fakta bahwa yang Aku bicarakan adalah tentang dunia lain.
 
-"Ini tentang tanaman yang mirip dengan yang ini. Di tempat Aku berada di masa lalu, tanaman yang awalnya hanya memiliki tiga daun terkadang memiliki empat, dan dikatakan bahwa jika Kamu menemukannya, itu akan membawa keberuntungan bagi Kamu. "
+[Ini tentang tanaman yang mirip dengan yang ini. Di tempatku berada di masa lalu, tanaman yang awalnya hanya memiliki tiga daun terkadang memiliki empat, dan dikatakan bahwa jika Kamu menemukannya, itu akan membawa keberuntungan untukmu.] (ain)
 
-" Haruskah kita mencoba menemukannya? "
+[Haruskah kita mencoba menemukannya?] (ciel)
 
-" Tidak ada jaminan bahwa itu ada, Kamu tahu? "
+[Tidak ada jaminan bahwa itu ada...] (ain)
 
-" Sejujurnya, Aku mungkin sudah menemukannya, Kamu tahu? "
+[Sejujurnya, Aku mungkin sudah menemukannya...] (ciel)
 
 Ciel tersenyum penuh kemenangan, dengan percaya diri bergerak beberapa langkah ke depan, dan berjongkok sekali lagi.
 
-Dan tepat di depan matanya, pasti ada semanggi berdaun empat berdaun berkilauan karena embun pagi.
+Dan tepat di depan matanya, ada semanggi berdaun empat berdaun berkilauan karena embun pagi.
 
-"Luar biasa. Kamu melakukannya dengan sangat baik menemukan ini. "
+[Luar biasa. Kamu melakukannya dengan sangat baik menemukan ini.] (ain)
 
 Saat aku dengan jujur ​​memujinya dengan takjub, Ciel memasang tampang malu-malu, yang kemudian berubah menjadi senyuman tegang.
 
-"Aku pikir Ain akan segera menemukannya, Kamu tahu?
-Bagaimanapun, itu memiliki lebih banyak kekuatan sihir daripada yang lain. "
+[Aku pikir Ain akan segera menemukannya lho... Bagaimanapun juga, itu memiliki lebih banyak kekuatan sihir daripada yang lain.] (ciel)
 
-Sekarang dia menyebutkannya, aku mencoba merasakan kekuatan sihirnya dengan benar, dan seperti yang dikatakan Ciel, itu memiliki kekuatan sihir lebih dari yang lain di sini.
+Setelah dia menyebutkannya, aku mencoba merasakan kekuatan sihirnya dengan benar, dan seperti yang dikatakan Ciel, itu memiliki kekuatan sihir lebih dari yang lain di sini.
 
 Juga, Aku merasa itu memiliki properti yang sedikit berbeda juga.
 
-"Ini benar-benar berbeda. Karena kita benar-benar menemukannya, mengapa kita tidak menyimpannya untuk diri kita sendiri? "
+[Ini benar-benar berbeda. Karena kita benar-benar menemukannya, mengapa kita tidak menyimpannya untuk diri kita sendiri?] (ain)
 
-" Benar, kenapa tidak kita. "
+[ok] (ciel)
 
 Kali ini, Ciel menunjukkan senyuman yang agak menggoda, dan melihatnya benar-benar menikmati dirinya sendiri membuatku merasa lega.
 
@@ -189,7 +187,7 @@ Saat kami mendekatinya, kami terpesona oleh kehadirannya.
 
 "Jika kita mengambil kembali bunga ini dan layu, itu hanya ...... benar, entah kenapa sedih."
 
-"Ada cara untuk mempertahankan kondisinya saat ini sebanyak mungkin, tapi ……"
+"Ada cara untuk mempertahankan kondisinya saat ini sebanyak mungkin, tapi ......."
 
 Misalnya menekannya dan semacamnya. Menekannya di dalam buku adalah yang Aku tahu.
 
@@ -245,7 +243,7 @@ Aku hanya melihatnya dari sebuah gambar, tapi Aku ingat itu terlihat aneh dan mi
 
 " Ain, aku menginginkannya persis karena itu warna yang baru saja kamu katakan. Aku tidak peduli dengan pendapat orang lain. "
 
-Mendengar kata-kata lugas Ciel, aku tidak bisa membalasnya. Yah, ya, aku membuat ini "Uu, aa ……" rengekan yang tidak bisa dimengerti.
+Mendengar kata-kata lugas Ciel, aku tidak bisa membalasnya. Yah, ya, aku membuat ini "Uu, aa ......." rengekan yang tidak bisa dimengerti.
 
 Terkadang, kemurnian Ciel benar-benar menggangguku. Apa cara yang tepat untuk bereaksi dalam situasi ini?
 
