@@ -28,40 +28,40 @@ Setelah ini, kami cukup menambahkan sayuran kering, daging kering, dan garam ke 
 
 Dalam situasi ini, kami mungkin bisa membuat sesuatu yang sangat enak jika kami punya kaldu kubus tapi itu tidak ada di dunia ini.
 
-Meski begitu, sayuran dan daging kering sudah menambah rasa dengan sendirinya, dan itu benar-benar bisa dimakan bagi orang yang terbiasa dengan rasa yang lembut.
+Meski begitu, sayuran dan daging kering sudah menambah rasa dengan sendirinya juga, dan itu benar-benar bisa dimakan bagi orang yang terbiasa dengan rasa yang lembut.
 
-Dan dengan sup yang sudah jadi dan roti keras yang kita miliki, makan malam hari ini disajikan.
+dengan sup yang sudah jadi dan roti keras yang kami miliki, makan malam hari ini disajikan.
 
-"Bahkan dengan ini saja, sudah cukup enak untuk dimakan, ya .
-Mengapa makanan di rumah besar itu terasa begitu hambar? "
+[Bahkan dengan ini saja, sudah cukup enak untuk dimakan ya.
+Mengapa makanan di rumah besar itu terasa begitu hambar?] (ciel)
 
-" Seperti, pada saat itu, mereka pasti membuatnya terasa hambar dengan sengaja, bukan begitu? "
+[Seperti, pada saat itu, mereka pasti membuatnya terasa hambar dengan sengaja, kan?] (ain)
 
-" Mereka benar-benar mengalami banyak masalah saat itu. "
+[Mereka benar-benar mengalami banyak masalah saat itu mungkin.] (ciel)
 
 Saat Ciel membawa sup ke mulutnya, Aku secara alami merasakan rasanya juga.
 
-Makan malam kita malam ini sama sekali tidak enak. Jika ini disajikan di bumi, orang-orang kemungkinan besar akan menilai itu sangat buruk. Tetap saja, ini adalah makanan pokok di dunia ini.
+Makan malam kami malam ini sama sekali tidak enak. Jika ini disajikan di bumi, orang-orang kemungkinan besar akan menilai itu sangat buruk. Tetap saja, ini adalah makanan pokok di dunia ini.
 
-Makanan enak di sini bisa terasa sama enaknya dengan makanan di bumi sekalipun. Dunia ini memiliki perbedaan yang cukup besar.
+Makanan enak di sini bisa terasa sama enaknya dengan makanan di bumi juga. Dunia ini memiliki perbedaan yang cukup besar.
 
-"Ngomong-ngomong, bagaimana monsternya?"
+[Ngomong-ngomong, bagaimana monsternya?] (ciel)
 
-"Ada cukup banyak di dalam hutan. Tidak sebanyak penyerbuan. "
+[Ada cukup banyak di dalam hutan. tapi Tidak sebanyak penyerbuan seperti sebelumnya.] (ain)
 
-" Bagaimana dengan keselamatan kita? "
+[Bagaimana dengan keselamatan kita?] (ciel)
 
-" Sepertinya tidak ada Rank B ke atas, jadi seharusnya baik-baik saja. "
+[Sepertinya tidak ada monster Rank B ke atas, jadi seharusnya baik-baik saja.] (ain)
 
 Tidak seperti manusia, kekuatan monster mudah diukur.
 
-Bagaimanapun, semakin kuat monster, semakin kuat monster yang setara dengan kekuatan sihir manusia dan mereka tidak berusaha menyembunyikannya.
+Bagaimanapun juga, semakin kuat monster, semakin kuat monster yang setara dengan kekuatan sihir manusia dan mereka tidak berusaha menyembunyikannya.
 
-"Maka itu melegakan."
+[itu melegakan.] (ciel)
 
-"Serahkan padaku."
+[Serahkan padaku.] (ain)
 
-"Tolong."
+[ok.] (ciel)
 
 Setelah mengatakannya sambil tersenyum, Ciel meneguk semua sup yang tersisa.
 
