@@ -1,20 +1,20 @@
 CHAPTER 49: HERBS, CLOVERS, AND THE MYSTERIOUS HAIRPIN
 
-Kami berada di pintu masuk hutan yang ditentukan dalam permintaan. Itu di sebelah timur dari ibu kota kerajaan, jadi sepertinya tidak ada banyak serigala hutan di sini.
+Kami berada di pintu masuk hutan yang ditentukan dalam permintaan. Itu berada di sebelah timur dari ibu kota kerajaan, jadi sepertinya tidak ada banyak serigala hutan di sini.
 
 Meskipun Aku tidak merasakan kehadiran serigala hutan, Aku masih merasakan begitu banyak monster sampai-sampai Aku bahkan tidak ingin menghitungnya.
 
-Seorang Hunter peringkat-D mungkin dapat menyelesaikan permintaan ini jika semua ini hanya goblin atau kobold, tetapi jika monster ini semuanya di atas kelas-D, maka itu akan menjadi sembrono.
+Seorang Hunter Rank-D mungkin dapat menyelesaikan permintaan ini jika semua ini hanya goblin atau kobold, tetapi jika monster ini semuanya di atas Rank-D, maka itu akan menjadi tindakan sembrono.
 
-Padahal menurut Aku, tidak ada yang istimewa dibandingkan dengan penyerbuan sebelumnya, jadi tidak terlalu menjadi masalah. Jika ada, masalahnya di sini adalah waktu saat ini.
+menurutku, tidak ada yang istimewa dibandingkan dengan penyerbuan monster di kona sannosis sebelumnya, jadi tidak terlalu menjadi masalah. masalah di sini adalah waktu.
 
-"Kita sudah benar-benar larut malam sekarang."
+[sudah benar-benar larut malam sekarang.] (ain)
 
-"Lagipula kita tidak terlalu peduli dengan waktu."
+[yaah kita tidak terlalu peduli dengan waktu.] (ciel)
 
-"Haruskah kita berkemah di sekitar sini malam ini?"
+[Haruskah kita berkemah di sekitar sini malam ini ?] (ain)
 
-"Kalau begitu, aku akan menyalakan api."
+[Kalau begitu, aku akan menyalakan api.] (ciel)
 
 Meskipun Aku mengatakan berkemah, kami tidak akan terkena bahaya apa pun berkat penghalang Aku, jadi biasanya kami tidak memiliki hal lain untuk dipersiapkan.
 
@@ -51,7 +51,7 @@ Makanan enak di sini bisa terasa sama enaknya dengan makanan di bumi sekalipun. 
 
 " Bagaimana dengan keselamatan kita? "
 
-" Sepertinya tidak ada kelas B ke atas, jadi seharusnya baik-baik saja. "
+" Sepertinya tidak ada Rank B ke atas, jadi seharusnya baik-baik saja. "
 
 Tidak seperti manusia, kekuatan monster mudah diukur.
 
@@ -94,7 +94,7 @@ Iklan
 
 Ngomong-ngomong, tentang permintaan pengumpulan ramuan ini, tidak terlalu sulit jika kita mengabaikan monster.
 
-Bagaimanapun, tumbuhan tampaknya tumbuh hampir di mana-mana di sini. Aku kira permintaan itu tidak naik peringkat, setelah diabaikan begitu lama sehingga monsternya meningkat, untuk apa-apa. Sebaliknya, karena ada tumbuhan di mana-mana, menemukan ramuan target kita mungkin mengganggu.
+Bagaimanapun, tumbuhan tampaknya tumbuh hampir di mana-mana di sini. Aku kira permintaan itu tidak naik Rank, setelah diabaikan begitu lama sehingga monsternya meningkat, untuk apa-apa. Sebaliknya, karena ada tumbuhan di mana-mana, menemukan ramuan target kita mungkin mengganggu.
 
 Saat Aku berkonsentrasi pada monster, yang hampir tidak bisa Aku rasakan adalah lokasi umum ramuan itu. Aku bisa melihat lebih dekat ke dalamnya, tetapi jika Aku melakukan itu, Aku akhirnya akan secara tidak sengaja mengisyaratkan itu kepada Ciel.
 
@@ -112,7 +112,7 @@ Meskipun demikian, hutan ini memiliki banyak jenis tumbuhan.
 
 Ramuan seharusnya berharga bagi Hunter dan ksatria, jadi jika ini ditinggalkan sampai ditumbuhi seperti ini, apakah mereka sebenarnya memiliki cadangan ramuan yang cukup?
 
-Kalau dipikir-pikir, aku hampir tidak melihat ramuan apa pun di toko perkakas. Jika toko dengan level itu hanya memiliki sedikit ramuan yang tersedia, maka mungkin sulit bagi Hunter peringkat rendah untuk datang satu per satu.
+Kalau dipikir-pikir, aku hampir tidak melihat ramuan apa pun di toko perkakas. Jika toko dengan level itu hanya memiliki sedikit ramuan yang tersedia, maka mungkin sulit bagi Hunter Rank rendah untuk datang satu per satu.
 
 Sementara orang-orang bisa saja lukanya sembuh di gereja-gereja di dalam kota, mereka tidak bisa melakukannya di luar. Ada kalanya menyembuhkan luka bisa menjadi masalah hidup atau mati.
 
@@ -175,7 +175,7 @@ Sebaliknya, memanen jamu yang kita butuhkan sambil menerima permintaan pada kese
 
 Ciel dengan riang mendekati bunga tertentu.
 
-Bahkan di antara semua tumbuhan di sini, yang satu ini memiliki kekuatan sihir yang sangat besar. Mungkin bahkan mencapai level yang sama dengan monster kelas rendah.
+Bahkan di antara semua tumbuhan di sini, yang satu ini memiliki kekuatan sihir yang sangat besar. Mungkin bahkan mencapai level yang sama dengan monster Rank rendah.
 
 Tampaknya hijau muda dari kejauhan tetapi dari dekat, Aku perhatikan bahwa bunganya sebenarnya transparan.
 
