@@ -156,13 +156,13 @@ Setelah meninggalkan perpustakaan, Aku berganti dengan Ciel dan dia mulai berjal
 
 ◇
 
-[Apa yang Kamu ketahui hari ini?] (ciel)
+[Apa yang Kamu dapatkan hari ini?] (ciel)
 
-Ketika kami kembali ke kamar kami, itu adalah hal pertama yang ditanyakan Ciel kepada Aku.
+Ketika kami kembali ke kamar kami, itu adalah hal pertama yang ditanyakan Ciel kepadaku.
 
-Karena aku sudah diam sejauh ini, tebak wajar baginya untuk penasaran tentang itu. Sebaliknya, dia mungkin benar-benar menahan diri untuk bertanya selama ini.
+Karena aku sudah diam sejauh ini, wajar baginya untuk penasaran. dia mungkin benar-benar menahan diri untuk bertanya sampai sekarang.
 
-"Aku pikir Kamu sudah melihatnya sebelumnya, tetapi terakhir kali penyerbuan menghantam ibu kota kerajaan adalah lima puluh tahun yang lalu. Sebelum itu terjadi, berbagai skala, baik besar maupun kecil, terjadi dalam selang waktu setiap sepuluh tahun ganjil. "
+[kupikir Kamu sudah melihatnya sebelumnya, tetapi terakhir kali penyerbuan menghantam ibu kota kerajaan adalah lima puluh tahun yang lalu. Sebelum itu terjadi, berbagai skala, baik besar maupun kecil, terjadi dalam selang waktu setiap sepuluh tahun ganjil.]
 
 "Benar. "
 
