@@ -104,57 +104,59 @@ Aku mengucapkan terima kasih sebelum berpisah dengan asisten toko.
 
 Sepertinya Aku akhirnya menyadari sesuatu yang benar-benar merepotkan. Kalau saja Aku tidak menyadarinya, Aku bisa terus berjalan tanpa peduli apa pun di dunia ini. Padahal, hanya karena aku menyadari ini tidak berarti aku berencana untuk menjulurkan kepalaku ke dalamnya.
 
-Lagipula, jika kita memulai sesuatu di sini di ibukota kerajaan, itu pasti akan lebih merepotkan.
+Lagipula, jika kami memulai sesuatu di sini di ibukota kerajaan, itu pasti akan lebih merepotkan.
 
 Setelah membeli satu potion untuk setiap tingkatan, Aku memutuskan untuk meninggalkan toko.
 
 ◇
 
-Tujuan kita selanjutnya adalah perpustakaan. Kami hampir tidak punya waktu tersisa, tetapi ini seharusnya cukup waktu untuk mencari tahu hal-hal yang ingin Aku ketahui. Aku sudah menanyakan lokasinya di toko, jadi seharusnya baik-baik saja.
+Tujuan kami selanjutnya adalah perpustakaan. Kami hampir tidak punya waktu tersisa, tetapi ini seharusnya cukup waktu untuk mencari tahu hal-hal yang ingin Aku ketahui. Aku sudah menanyakan lokasinya di toko, jadi seharusnya baik-baik saja.
 
-"Jadi kamu membeli potion, Ain."
+[Jadi kamu membeli potion, Ain.] (ciel)
 
-"Tidak membeli apa pun setelah pergi ke toko yang sama beberapa kali sepertinya, benar-benar tidak sopan"
-"Itu cukup rumit."
+[Tidak membeli apa pun setelah pergi ke toko yang sama beberapa kali sepertinya, benar-benar tidak sopan] (ain)
 
-"Menurutku juga begitu. Tetap saja, tidak ada kerugian memiliki persediaan potion. "
+[Itu cukup rumit.] (ciel)
 
-" Aku sudah mendengarnya sebelumnya, tapi kita akan pergi ke perpustakaan berikutnya, kan? "
+[Menurutku juga begitu. Tetap saja, tidak ada ruginya memiliki persediaan potion.] (ain)
 
-" Aku sedang berpikir untuk melakukan penyelidikan cepat sebelum kita kembali ke penginapan . "
+[Aku sudah mendengarnya sebelumnya, tapi kita akan pergi ke perpustakaan berikutnya, kan?] (ciel)
 
-Sekarang, tentang perpustakaan, letaknya cukup dekat dengan distrik bangsawan.
+[Aku sedang berpikir untuk melakukan penyelidikan cepat sebelum kita kembali ke penginapan.] (ain)
 
-Dengan kata lain, ini adalah tempat yang sangat aman di mana orang kaya pergi.
+tentang perpustakaan, letaknya cukup dekat dengan distrik bangsawan.
 
-Apakah akan sulit bagi orang yang tidak memiliki banyak uang untuk membaca buku? Berpikir seperti itu, kita mungkin beruntung telah membaca buku selama lima tahun di mansion.
+Dengan kata lain, ini adalah tempat yang sangat aman di mana orang kaya berada.
+
+Apakah akan sulit bagi orang yang tidak memiliki banyak uang untuk membaca buku? Berpikir seperti itu, kami mungkin beruntung telah membaca buku selama lima tahun di mansion.
 
 Mengenai cara kerja perpustakaan, kami akan diminta untuk membayar setoran satu koin emas dan biaya penggunaan satu perak besar saat masuk. Koin emas itu kemudian akan dikembalikan saat kita pergi.
 
 Buku-buku hanya bisa dibaca di dalam perpustakaan. Untuk meminjam buku, perlu memiliki registrasi khusus dan dengan kami memiliki latar belakang yang ambigu, kami pasti tidak akan bisa mendaftar.
 
-Saat Aku memasuki perpustakaan, melihat rak buku yang penuh dengan buku mengingatkan Aku pada hari-hari kami di mansion.
+Saat Aku memasuki perpustakaan, melihat rak buku yang penuh dengan buku mengingatkanku pada hari-hari kami di mansion.
 
-Bagaimanapun, Aku menangkap pustakawan dan meminta buku tentang cap monster.
+Aku bertemu pustakawan dan meminta buku tentang penyerbuan monster.
 
-Setelah beberapa menit, pustakawan memberi kami buku tentang stempel masa lalu yang melanda ibu kota kerajaan dan makalah penelitian tentang stempel. Juga, semacam catatan sejarah.
+Setelah beberapa menit, pustakawan memberi kami buku tentang penyerbuan masa lalu yang melanda ibu kota kerajaan dan makalah penelitian tentang penyerbuan. Juga, semacam catatan sejarah.
 
-Diterangi oleh matahari terbenam, Aku dengan anggun membaca di sisi jendela. Ini hampir seperti adegan dari manga atau anime, tetapi tidak ada orang di sini yang dapat Aku bagikan sentimen ini.
+Diterangi oleh matahari terbenam, Aku dengan anggun membaca di sisi jendela. Ini hampir seperti adegan dari manga atau anime, tetapi tidak ada orang di sini yang dapat Aku bagikan perasaan ini.
 
-Cukup memalukan, terutama karena seseorang secantik Ciel menjadi sorotan. Akulah yang di dalam.
+Cukup memalukan, terutama karena seseorang secantik Ciel menjadi sorotan. Akulah yang sebenarnya mengendalikannya.
 
-Mengumpulkan pikiran Aku, Aku melihat-lihat dokumen.
-Aku mengabaikan informasi yang lebih mendetail tentang hal-hal yang secara kasar Aku ketahui, membaca sekilas beberapa hal menarik seperti efek setelah penyerbuan pada ekosistem dan hanya membakar semua informasi yang Aku butuhkan di kepala Aku.
+Mengumpulkan pikiranku, Aku melihat-lihat dokumen.
 
-Tahun-tahun terjadinya pencaplokan, keadaan selama periode tersebut, dan terakhir, tanggal saat penyerbuan terakhir ibu kota kerajaan terjadi.
+Aku mengabaikan informasi yang lebih mendetail tentang hal-hal yang secara kasar Aku ketahui, membaca sekilas beberapa hal menarik seperti efek setelah penyerbuan pada ekosistem dan hanya membakar semua informasi yang Aku butuhkan di kepalaku.
+
+Tahun-tahun terjadinya penyerbuan, keadaan selama periode tersebut, dan terakhir, tanggal saat penyerbuan terakhir ibu kota kerajaan terjadi.
 
 Aku entah bagaimana berhasil membaca semuanya sebelum matahari benar-benar terbenam, yang Aku asumsikan karena betapa berbakatnya tubuh Ciel.
 
-Setelah meninggalkan perpustakaan, Aku beralih dengan Ciel dan dia mulai berjalan kembali ke penginapan.
+Setelah meninggalkan perpustakaan, Aku berganti dengan Ciel dan dia mulai berjalan kembali ke penginapan.
 
 ◇
 
-"Apa yang Kamu ketahui hari ini?"
+[Apa yang Kamu ketahui hari ini?] (ciel)
 
 Ketika kami kembali ke kamar kami, itu adalah hal pertama yang ditanyakan Ciel kepada Aku.
 
