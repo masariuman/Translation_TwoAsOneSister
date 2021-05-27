@@ -48,57 +48,57 @@ Meskipun ini mungkin didasarkan pada sentimentalitas dunia lamaku, setelah Aku m
 
 Aku tahu bahwa membuat Ciel memahami nilai ini sulit, jadi Aku hanya bisa membalasnya dengan senyum samar.
 
-Saat kami melanjutkan, kami tiba di toko perkakas dari sebelumnya, jadi Aku membuka pintu dan masuk ke dalam.
+kami tiba di toko alat sebelumnya, jadi Aku membuka pintu dan masuk ke dalam.
 
-Jajaran produk mereka tidak berubah selama beberapa hari ini, jadi Aku segera menuju ke lantai dua. Setelah melihat lebih dekat lagi di sekitar lantai dua, Aku menemukan ramuan di tempat perban dan salep dijual.
+Jajaran produk mereka tidak berubah selama beberapa hari ini, jadi Aku segera menuju ke lantai dua. Setelah melihat lebih dekat lagi di sekitar lantai dua, Aku menemukan potion di tempat perban dan salep dijual.
 
-Sebaliknya, Aku kira mungkin lebih baik untuk menggambarkannya sebagai area ramuan dengan perban dan salep yang dijual juga.
+mungkin lebih baik untuk menggambarkannya sebagai area potion dengan perban dan salep yang dijual juga.
 
-Apa yang mereka miliki untuk dijual adalah ramuan tingkat dasar dan menengah.
+Apa yang mereka miliki untuk dijual adalah potion tingkat dasar dan menengah.
 
-Aku ingat salep itu untuk Hunter dengan peringkat lebih rendah, jadi aku yakin bahkan ramuan tingkat dasar bekerja dengan efek yang bagus.
+Aku ingat salep itu untuk Hunter dengan peringkat lebih rendah, jadi aku yakin bahkan potion tingkat dasar bekerja dengan efek yang bagus.
 
-Buktinya, ramuan bermutu dasar masih sedikit lebih mahal dibandingkan salep bermutu tinggi.
+Buktinya, potion dasar masih sedikit lebih mahal dibandingkan salep berkualitas tinggi.
 
-Sedangkan untuk ramuan tingkat menengah, harganya bahkan lebih mahal dari itu.
+Sedangkan untuk potion tingkat menengah, harganya bahkan lebih mahal dari itu.
 
-Bahkan jika mereka memiliki ramuan bermutu tinggi, itu mungkin sangat mahal sehingga mereka tidak akan menampilkannya bersama ini.
+Bahkan jika mereka memiliki potion berkualitas tinggi, itu mungkin sangat mahal sehingga mereka tidak akan memajangnya disini.
 
-"Ini adalah masalah."
+[sungguh bermasalah.] (ain)
 
-"Ada apa?"
+[Ada apa?] (ciel)
 
-"Karena Aku berharap ramuan mahal di sini di ibukota, Aku berpikir untuk melihat harga sebenarnya sebagai dasar penilaian Aku tetapi ..."
+[Karena Aku berharap potion harganya mahal di sini di ibukota, Aku berpikir untuk melihat harga sebenarnya sebagai dasar penilaianku tetapi ...] (ain)
 
-"Ain tidak tahu berapa banyak biaya ramuan di kota lain, kan? "
+[Ain tidak tahu berapa harga potion di kota lain, kan?] (ciel)
 
-" Benar ...... Persis seperti itu. "
+[Benar .......] (ain)
 
-Ini benar-benar mematikan semangat Aku, membuat Aku merasa hampa di dalam.
+Ini benar-benar mematikan semangatku, membuatku merasa hampa.
 
-Sejak kami meninggalkan mansion, kami tidak mengalami cedera parah, jadi mengetahui harga ramuan tidak pernah terlintas dalam pikiranku.
+Sejak kami meninggalkan mansion, kami tidak mengalami cedera parah, jadi mengetahui harga potion tidak pernah terlintas dalam pikiranku.
 
-Dan bahkan jika kami mendapat luka parah, kami mungkin tidak akan menggunakan ramuan lagi.
+Dan bahkan jika kami mendapat luka parah, kami mungkin tidak akan menggunakan potion lagi.
 
-Sekarang hal itu memakan korban, mungkin hanya reaksi berlebihan, tetapi sepertinya Aku tidak punya pilihan selain mengambil bidikan dalam kegelapan.
+Sekarang hal itu terasa berat, mungkin hanya reaksi berlebihan, tetapi sepertinya Aku tidak punya pilihan selain bertanya.
 
-Aku mencari asisten toko yang berbeda dari sebelumnya dan 「Bisakah Aku bertanya sesuatu?" Memanggilnya.
+Aku mencari asisten toko yang berbeda dari sebelumnya dan "Bisakah Aku bertanya sesuatu?" dengan Memanggilnya.
 
-Tanpa keengganan dalam nada bicaranya, dia berkata 「Apa itu?" Dengan senyuman di wajahnya.
+Tanpa keengganan dalam nada bicaranya, dia berkata "ada apa?" Dengan senyuman di wajahnya.
 
-「Apakah ramuan yang dijual di sini dibuat di ibu kota kerajaan?"
+"Apakah potion yang dijual di sini dibuat di ibu kota kerajaan?" (ain)
 
-「Ya. Itu diproduksi oleh seorang alkemis yang tinggal di ibukota. Apakah ada masalah tentang itu? "
+"Ya. Itu diproduksi oleh seorang alkemis yang tinggal di ibukota. Apakah ada masalah tentang itu?"
 
-"Tidak juga, sepertinya ramuan di sini harganya lebih mahal daripada yang Aku lihat di kota lain. Namun, sepertinya itu hanya imajinasi Aku. Aku minta maaf tentang itu. "
+"Tidak juga, sepertinya potion di sini harganya lebih mahal daripada yang Aku lihat di kota lain. Tapi, sepertinya itu hanya imajinasiku. Aku minta maaf tentang itu." (ain)
 
-"Kamu mungkin tidak salah. Aku percaya bahwa ramuan yang Kamu lihat adalah ramuan dari kota-kota dengan ramuan yang tersedia di sekitar mereka. Di masa lalu, tampaknya ada tempat di dekatnya di mana bahan untuk ramuan tingkat menengah dapat dipanen, tetapi karena tidak ada panen akhir-akhir ini, bahan-bahannya sekarang diperoleh dari kota lain. "
+"Kamu mungkin tidak salah. Aku percaya bahwa potion yang Kamu lihat adalah potion dari kota-kota dengan herb yang tersedia di sekitar mereka. Dulu, ada tempat disekitar sini di mana bahan untuk potion tingkat menengah dapat dipanen, tetapi karena tidak ada yang mengumpulkannya akhir-akhir ini, bahan-bahannya sekarang diperoleh dari kota lain."
 
-"Jadi harganya mahal karena memerlukan uang untuk mendapatkannya dari tempat lain,ya . Tahukah Kamu kapan harga mulai naik? "
+"Jadi harganya mahal karena memerlukan uang untuk mendapatkannya dari tempat lain, ya. Tahukah Kamu kapan harganya mulai naik?" (ain)
 
-"Aku yakin itu sekitar dua hingga tiga tahun yang lalu, tetapi Aku tidak tahu banyak tentang detail pastinya. "
+"Aku yakin itu sekitar dua hingga tiga tahun yang lalu, tetapi Aku tidak tahu banyak tentang detail pastinya."
 
-"Terima kasih banyak. Aku ... akan melihat-lihat lagi. "
+"Terima kasih banyak. Aku ... akan melihat-lihat lagi." (ain)
 
 Aku mengucapkan terima kasih sebelum berpisah dengan asisten toko.
 
@@ -106,18 +106,18 @@ Sepertinya Aku akhirnya menyadari sesuatu yang benar-benar merepotkan. Kalau saj
 
 Lagipula, jika kita memulai sesuatu di sini di ibukota kerajaan, itu pasti akan lebih merepotkan.
 
-Setelah membeli satu ramuan untuk setiap tingkatan, Aku memutuskan untuk meninggalkan toko.
+Setelah membeli satu potion untuk setiap tingkatan, Aku memutuskan untuk meninggalkan toko.
 
 ◇
 
 Tujuan kita selanjutnya adalah perpustakaan. Kami hampir tidak punya waktu tersisa, tetapi ini seharusnya cukup waktu untuk mencari tahu hal-hal yang ingin Aku ketahui. Aku sudah menanyakan lokasinya di toko, jadi seharusnya baik-baik saja.
 
-"Jadi kamu membeli ramuan, Ain."
+"Jadi kamu membeli potion, Ain."
 
 "Tidak membeli apa pun setelah pergi ke toko yang sama beberapa kali sepertinya, benar-benar tidak sopan"
 "Itu cukup rumit."
 
-"Menurutku juga begitu. Tetap saja, tidak ada kerugian memiliki persediaan ramuan. "
+"Menurutku juga begitu. Tetap saja, tidak ada kerugian memiliki persediaan potion. "
 
 " Aku sudah mendengarnya sebelumnya, tapi kita akan pergi ke perpustakaan berikutnya, kan? "
 
@@ -154,7 +154,7 @@ Setelah meninggalkan perpustakaan, Aku beralih dengan Ciel dan dia mulai berjala
 
 ◇
 
-「Apa yang Kamu ketahui hari ini?"
+"Apa yang Kamu ketahui hari ini?"
 
 Ketika kami kembali ke kamar kami, itu adalah hal pertama yang ditanyakan Ciel kepada Aku.
 
@@ -170,7 +170,7 @@ Karena aku sudah diam sejauh ini, tebak wajar baginya untuk penasaran tentang it
 
 Ketika Ciel segera menemukan arti kata-kata Aku, "Ya." Aku memberikan penegasan Aku padanya.
 
-"Itu hanya kemungkinan, tapi Aku mengharapkan satu terjadi dalam waktu sekitar, mungkin beberapa tahun dari sekarang. Lagipula, mark-up ramuan terjadi dua sampai tiga tahun yang lalu. "
+"Itu hanya kemungkinan, tapi Aku mengharapkan satu terjadi dalam waktu sekitar, mungkin beberapa tahun dari sekarang. Lagipula, mark-up potion terjadi dua sampai tiga tahun yang lalu. "
 
 "Jadi Ain, apa yang kamu rencanakan? "
 
@@ -192,11 +192,11 @@ Sebaliknya, ini adalah ibu kota kerajaan, jadi seharusnya ada banyak orang di si
 
 Pokoknya, kita harus menuju tenggara setelah melihat lautan dan memastikan kita bisa melintasi perbatasan kerajaan segera setelah kita mencapai peringkat B.
 
-「Ngomong-ngomong Ain, bisakah aku menanyakan sesuatu?"
+"Ngomong-ngomong Ain, bisakah aku menanyakan sesuatu?"
 
 "Ada apa?"
 
-「Bagaimana kita akan mengeringkan tanaman?"
+"Bagaimana kita akan mengeringkan tanaman?"
 
 "Oh benar. Menekan mereka seharusnya cukup berhasil, tapi bagaimana kalau kita melakukannya dengan sihir? "
 
@@ -208,7 +208,7 @@ Pokoknya, kita harus menuju tenggara setelah melihat lautan dan memastikan kita 
 
 Aku beralih dengan Ciel dan mengambil salah satu dari benda-benda semanggi berdaun tiga yang kami simpan sebagai cadangan untuk menguji ide Aku.
 
-Mantra yang akan Aku gunakan adalah 「Sharol Calesfi Ougua", mantra yang artinya seperti memanaskan dan menguapkan kelembapan untuk mengeringkan benda ini .
+Mantra yang akan Aku gunakan adalah "Sharol Calesfi Ougua", mantra yang artinya seperti memanaskan dan menguapkan kelembapan untuk mengeringkan benda ini .
 
 Ini mungkin akan berakhir buruk jika digunakan pada orang, tapi tidak akan berpengaruh signifikan dengan Aku menggunakannya.
 
@@ -226,7 +226,7 @@ Dalam kasus tumbuhan, mereka dianggap tidak hidup setelah dipanen dan dalam kasu
 
 Meskipun di tempat pertama, bahkan jika memungkinkan untuk menggunakan ini pada makhluk hidup, itu sudah cukup sulit untuk menggunakan sihir di tempat yang tidak terlihat.
 
-「Sharol Calesfi Ougua"
+"Sharol Calesfi Ougua"
 
 Aku langsung mencobanya pada semanggi berdaun tiga, tapi mengingat betapa sederhananya kelihatannya, ini agak rumit.
 
@@ -234,11 +234,11 @@ Itu membutuhkan kontrol kekuatan sihir yang tepat dan jika terlambat, itu bahkan
 
 Bagaimanapun, yang pertama ternyata memiliki kualitas yang cukup baik.
 
-「Yah, ini jelas bukan sesuatu yang akan kamu lakukan dengan mantra sihir."
+"Yah, ini jelas bukan sesuatu yang akan kamu lakukan dengan mantra sihir."
 
 "Apakah itu sulit bahkan untukmu Ain?"
 
-「Saya pikir itu akan semakin mudah semakin Aku mencoba, tetapi jika Kamu ingin melakukannya Ciel , akan lebih baik jika kamu menggunakan lingkaran sihir sehingga kamu dapat membuat penyesuaian yang lebih tepat.
+"Saya pikir itu akan semakin mudah semakin Aku mencoba, tetapi jika Kamu ingin melakukannya Ciel , akan lebih baik jika kamu menggunakan lingkaran sihir sehingga kamu dapat membuat penyesuaian yang lebih tepat.
 
 Aku bisa membayangkannya sebagai latihan yang baik, jadi mungkin bagus untuk mencobanya ketika kamu memiliki waktu luang. "
 
