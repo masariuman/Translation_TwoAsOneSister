@@ -12,28 +12,29 @@ Aku tidak yakin apakah guild sedang ramai sekarang karena kami datang pada waktu
 
 Resepsionisnya sama dengan yang kemarin dan sepertinya dia ingin mengatakan sesuatu, tetapi setelah melihat bungkusan besar herb, dia terkejut dan dengan cepat mulai menanganinya.
 
-Kebetulan, kami juga mencoba menanyakan kepadanya tentang metode pengawetan tanaman untuk jangka waktu yang lama dan seperti yang diharapkan, pengeringan tampaknya menjadi cara terbaik. Dia berkata bahwa herbal akan bertahan sekitar satu sampai dua tahun seperti itu.
+Kebetulan, kami juga mencoba menanyakan kepadanya tentang metode pengawetan tanaman untuk jangka waktu yang lama dan seperti yang diharapkan, pengeringan tampaknya cara terbaik. Dia berkata bahwa herb akan bertahan sekitar satu sampai dua tahun seperti itu.
 
-Namun, jamu kering tidak pernah diterima dalam permintaan kecuali pemohon mengizinkannya. Karena sulit dilacak saat herba dikeringkan, hal itu dapat menyebabkan masalah inventaris dan semacamnya.
+tapi, herb kering tidak pernah diterima dalam permintaan kecuali pemohon mengizinkannya. Karena sulit dilacak saat herb dikeringkan, hal itu dapat menyebabkan masalah inventaris dan semacamnya.
 
-Begitu validasi selesai, kami meninggalkan Hunter Guild. Kami tidak ingin ada orang aneh yang menyerang kami.
+Begitu validasi selesai, kami meninggalkan Guild Hunter. Kami tidak ingin ada orang aneh yang menyerang kami.
+
 Dan setelah itu, Aku bertanya kepada Ciel apakah Aku bisa meminjam tubuhnya sepanjang hari.
 
 ◇
 
-"Ain ingin meminjam tubuh Aku, itu sangat tidak biasa."
+[Ain ingin meminjam tubuhku, itu sangat tidak biasa.] (ciel)
 
 Suara senang Ciel bergema di kepalaku.
 
-"Ada sesuatu yang secara pribadi membuatku penasaran, tapi agak sulit untuk dijelaskan."
+[Ada sesuatu yang secara pribadi membuatku penasaran, tapi agak sulit untuk dijelaskan.] (ain)
 
-"Ini terkait dengan ramuan, kan?"
+[potion, kan?] (ciel)
 
-"Itu benar. Tapi aku sendiri tidak tahu bagaimana memulainya, jadi aku berpikir untuk bertanya kepada orang lain sambil membuat penilaianku. "
+[benar. Tapi aku sendiri tidak tahu bagaimana memulainya, jadi aku berpikir untuk bertanya kepada orang lain sambil membuat penilaianku.] (ain)
 
-" Jadi, memiliki aku di antara akan membuat ini memakan banyak waktu, kan? "
+[Jadi, jika itu aku, itu akan memakan banyak waktu, kan?] (ciel)
 
-" Aku Maaf."
+[maaf] (ain)
 
 Aku mengambil kendali tubuh berarti Aku mengambil waktu Ciel.
 
