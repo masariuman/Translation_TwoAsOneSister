@@ -163,13 +163,13 @@ Juga, Aku merasa itu memiliki properti yang sedikit berbeda juga.
 
 Kali ini, Ciel menunjukkan senyuman yang agak menggoda, dan melihatnya benar-benar menikmati dirinya sendiri membuatku merasa lega.
 
-Menyimpan sesuatu yang diminta dalam permintaan agak terasa seperti Aku melakukan sesuatu yang buruk, tetapi Aku berharap mereka akan memaafkan kami karena mengambil satu untuk bagian kami.
+Menyimpan sesuatu yang diminta dalam permintaan agak terasa seperti Aku melakukan sesuatu yang buruk, tetapi Aku berharap mereka akan memaafkan kami karena mengambil satu untuk kami saja.
 
-Sebaliknya, memanen jamu yang kita butuhkan sambil menerima permintaan pada kesempatan sebenarnya lebih efisien untuk jujur.
+jujur, mendapatkan herb yang kami butuhkan sambil menerima permintaan sebenarnya lebih efisien.
 
-"Kalau begitu, ada satu hal lagi yang ingin Aku bawa kembali bersama kami juga."
+[Kalau begitu, ada satu hal lagi yang ingin Aku bawa kembali bersama kita juga.] (ciel)
 
-"Begitu. Mari kita bawa kembali nanti. "
+[Begitu ya. baiklah.] (ain)
 
 Ciel dengan riang mendekati bunga tertentu.
 
@@ -179,23 +179,23 @@ Tampaknya hijau muda dari kejauhan tetapi dari dekat, Aku perhatikan bahwa bunga
 
 Dekat dengan tanah, ia memiliki daun sebesar telapak tangan Ciel dan di atasnya ada bunga yang indah. Bunganya memiliki bentuk yang mirip dengan bunga sakura, tetapi kelopaknya tidak berwarna, hanya memiliki kelembutan tanaman. Aku dengan ringan memeriksa area itu, tapi sepertinya tidak ada yang seperti itu.
 
-"Cantik."
+[bunga ini Cantik.] (ciel)
 
-"Benar-benar."
+[iya.] (ain)
 
 Saat kami mendekatinya, kami terpesona oleh kehadirannya.
 
-"Jika kita mengambil kembali bunga ini dan layu, itu hanya ...... benar, entah kenapa sedih."
+[Jika kita mengambil bunga ini dan layu, itu hanya ...... benar, entah kenapa rasanya sedih.] (ciel)
 
-"Ada cara untuk mempertahankan kondisinya saat ini sebanyak mungkin, tapi ......."
+[Ada cara untuk mempertahankan kondisinya saat ini sebisa mungkin, tapi .......] (ain)
 
 Misalnya menekannya dan semacamnya. Menekannya di dalam buku adalah yang Aku tahu.
 
-Jika kita memiliki pot bunga atau sesuatu, kita mungkin bisa memindahkannya dan membawanya juga, tapi itu sulit dengan gaya hidup kita saat ini.
+Jika kami memiliki pot bunga atau sesuatu, kami mungkin bisa memindahkannya dan membawanya juga, tapi itu sulit dengan gaya hidup kami saat ini.
 
-"Maksudmu mengolah bunga ini, kan Ain?"
+[Maksudmu mengolah bunga ini, kan Ain?] (ciel)
 
-"Mengeringkannya akan membuatnya bertahan lebih lama, Kamu tahu."
+[Mengeringkannya akan membuatnya bertahan lebih lama.] (ain)
 
 Saat Aku menjawab pertanyaannya, Ciel mulai memikirkannya.
 
@@ -207,74 +207,90 @@ Bunga itu mengendarai angin dan terbang dengan lembut menuju Ciel.
 
 Hampir merasakan semacam niat dari bunga itu, itu membuat Ciel benar-benar bingung.
 
-Di tangannya, bunga itu ada tanpa batang dan kelopaknya tampak lebih anorganik, tidak seperti beberapa detik yang lalu.
+Di tangannya, bunga itu tanpa batang dan kelopaknya tampak lebih anorganik, tidak seperti beberapa detik yang lalu.
 
 Bentuk daunnya pun ikut berubah sehingga kini tampak seperti hiasan rambut.
 
-"Katakan, Ain. Apakah tanaman ... melakukan ini? "
+[Ain. Apakah tanaman ... melakukan ini?] (ciel)
 
-" Ini pertama kalinya Aku melihatnya. Aku belum pernah mendengar hal ini terjadi juga. "
+[Ini pertama kalinya Aku melihatnya. Aku belum pernah mendengar hal ini terjadi juga.] (ain)
 
-" Aku tahu kan? Ini ... apa yang harus Aku lakukan dengan itu? "
+[kan? Ini ... apa yang harus Aku lakukan dengan ini?] (ciel)
 
-" Karena ternyata seperti itu, Aku pikir Kamu bisa meletakkannya di rambut Kamu, tetapi dengan itu menjadi transparan, itu tidak akan terlalu bersinar, bukan? "
+[Aku pikir Kamu bisa meletakkannya di rambutmu, tetapi karena itu transparan, itu tidak akan terlalu bersinar, kan?] (ain)
 
-Ini tidak seperti Aku ahli dengan warna atau apa pun, tetapi bahkan jika Kamu meletakkan sesuatu yang transparan di atas sesuatu yang putih, itu hanya akan menjadi putih dan tidak akan menonjol.
+Aku tidak ahli dengan warna atau apa pun, tetapi bahkan jika Kamu meletakkan sesuatu yang transparan di atas sesuatu yang putih, itu hanya akan menjadi putih dan tidak akan menonjol.
 
-"Aku tidak terlalu memahaminya, tetapi akan lebih baik jika itu memiliki warna, kan?"
+[Aku tidak terlalu memahaminya, tetapi akan lebih baik jika itu memiliki warna, kan?] (ciel)
 
-"Mengenai mode, Aku pikir memiliki beberapa warna akan membuatnya lebih manis bagi Kamu, tetapi dalam arti tidak menonjol, itu transparansi mungkin bagus juga. Padahal, jika orang memperhatikan Kamu mengenakan bunga transparan, itu bisa membuat kita menonjol dalam dirinya sendiri. "
+[Mengenai warna, Aku pikir memiliki beberapa warna akan membuatnya lebih manis untukmu, tetapi dalam arti tidak menonjol, transparan mungkin bagus juga. Padahal, jika orang memperhatikanmu mengenakan bunga transparan, itu bisa membuat kita menonjol dengan sendirinya.] (ain)
 
-" Warna apa yang cocok untuk Aku? "
+[Warna apa yang cocok untukku?] (ciel)
 
-" Pada warna, Aku pikir hitam akan membuat aksen yang bagus. Tetapi jika Aku mendasarkannya dengan bunga ini, maka kuning kecoklatan atau hijau untuk daun dengan bunga menjadi biru yang berubah menjadi lebih terang saat mencapai ujungnya akan menyenangkan, Aku kira. "
+[untuk warna, Aku pikir hitam akan membuat aksen yang bagus. Tetapi jika Aku mendasarkannya dengan bunga ini, maka kuning kecoklatan atau hijau untuk daun dengan bunga menjadi biru yang berubah menjadi lebih terang saat mencapai ujungnya akan bagus, mungkin.] (ain)
 
-" Itu sangat khusus, bukan? "
+[Itu sangat khusus, kan?] (ciel)
 
 Ciel terkikik, tetapi jika diberi kesempatan, Aku sangat ingin mendandani Ciel.
 
-Sementara sebagian alasan Aku memilih biru adalah karena matanya, itu juga karena Aku pernah melihat bunga sakura dengan warna itu sebelumnya.
+Sementara sebagian alasanku memilih biru adalah karena matanya, itu juga karena Aku pernah melihat bunga sakura dengan warna itu sebelumnya.
 
-Aku hanya melihatnya dari sebuah gambar, tapi Aku ingat itu terlihat aneh dan mistis. Kalau begitu, maka seharusnya bisa menonjolkan kecantikan Ciel tanpa kehilangan dirinya.
+Aku hanya melihatnya dari sebuah gambar, tapi Aku ingat itu terlihat aneh dan mistis. itu seharusnya bisa menonjolkan kecantikan Ciel tanpa kalah dari dirinya sendiri.
 
-"Maka mungkin kita harus mencoba menemukan jepit rambut bunga biru ketika kita kembali ke ibukota."
+[mungkin kita harus mencoba menemukan jepit rambut bunga biru ketika kita kembali ke ibukota.] (ciel)
 
-"Kalau begitu, akan lebih baik untuk bertanya kepada orang yang bekerja di toko pakaian. Lagipula aku hanya memberikan pendapat amatir. "
+[Kalau begitu, akan lebih baik untuk bertanya kepada orang yang bekerja di toko pakaian. Lagipula aku hanya memberikan pendapat amatir.] (ain)
 
-" Ain, aku menginginkannya persis karena itu warna yang baru saja kamu katakan. Aku tidak peduli dengan pendapat orang lain. "
+[Ain, aku menginginkannya persis karena itu warna yang baru saja kamu katakan. Aku tidak peduli dengan pendapat orang lain.] (ciel)
 
-Mendengar kata-kata lugas Ciel, aku tidak bisa membalasnya. Yah, ya, aku membuat ini "Uu, aa ......." rengekan yang tidak bisa dimengerti.
+Mendengar kata-kata lugas Ciel, aku tidak bisa membalasnya. Yah, ya, aku membuat suara "Uu, aa ......." yang tidak bisa dimengerti.
 
-Terkadang, kemurnian Ciel benar-benar menggangguku. Apa cara yang tepat untuk bereaksi dalam situasi ini?
+Terkadang, kepolosan Ciel benar-benar menggangguku. Apa cara yang tepat untuk bereaksi dalam situasi ini?
 
-Sebelum Aku bisa mengatakan apa-apa, dia berkata "Aku akan mengenakan ini agar tidak menghalangi." Dan membawa bunga transparan ke dekat rambutnya.
+Sebelum Aku bisa mengatakan apa-apa, dia berkata "Aku akan mengenakan ini." Dan membawa bunga transparan ke dekat rambutnya.
 
 Detik berikutnya, bunga, atau lebih tepatnya daunnya, terjalin erat ke rambut Ciel. Kemudian berubah menjadi gelap dan bunganya berubah menjadi biru yang semakin gelap saat mendekati tengah.
 
 Dengan bunganya yang tembus cahaya, sekilas tampak seperti permata.
 
-Dan meski hanya dalam jumlah kecil, sepertinya itu menyerap kekuatan sihir dari rambut Ciel. Padahal, karena sepertinya menyerap kekuatan sihirku, aku tidak terlalu mempermasalahkannya. Lagipula, bahkan setelah mempertimbangkan kebutuhan pemeliharaan +BARRIER dan deteksi, keseimbangan kekuatan sihirku masih hitam.
+Dan meski hanya dalam jumlah kecil, sepertinya itu menyerap kekuatan sihir dari rambut Ciel. karena sepertinya menyerap kekuatan sihirku, aku tidak terlalu mempermasalahkannya. Lagipula, bahkan setelah mempertimbangkan kebutuhan mempertahankan +BARRIER dan +DETECTION, keseimbangan kekuatan sihirku masih kuat.
 
-"Umm , Ain? Apa yang terjadi? "
+[Umm , Ain? Apa yang terjadi?] (ciel)
 
-" Bunga itu berubah menjadi semacam jepit rambut dan berubah menjadi warna yang Aku katakan sebelumnya. "
+[Bunga itu berubah menjadi semacam jepit rambut dan berubah menjadi warna yang Aku katakan sebelumnya.] (ain)
 
-" Apakah ini ... masih akan kembali? "
+[Apakah ini ... masih akan berubah kembali?] (ciel)
 
-Saat dia berkata demikian, Ciel membawa tangannya ke dekat bunga, yang kemudian membuka daunnya dan mendarat di tangannya.
+Saat dia berkata itu, Ciel membawa tangannya ke dekat bunga, yang kemudian membuka daunnya dan mendarat di tangannya.
 
 Benar-benar jepit rambut yang misterius. Saat mendarat di telapak tangan Ciel, warnanya juga kembali normal.
 
-"Sepertinya sudah kembali normal. Sayang sekali Aku tidak bisa melihatnya sendiri, tetapi apakah itu cocok untuk Aku? "
+[Sepertinya sudah kembali normal. Sayang sekali Aku tidak bisa melihatnya sendiri, tetapi apakah itu cocok untukku?] (ciel)
 
-" Ya, itu indah. "
+[Ya, itu sungguh indah.] (ain)
 
-" Begitu, begitu. Kalau begitu, Aku akan memakainya sebentar. Akankah itu baik-baik saja? "
+[Begitu, begitu. Kalau begitu, Aku akan memakainya sementara waktu. bolehkah?] (ciel)
 
-" Tidak membutuhkan banyak kekuatan sihir, jadi seharusnya baik-baik saja.
-
-Juga, karena itu menyerap kekuatan sihir, maka itu bisa berarti itu tidak akan layu. "
+[bunga ini Tidak membutuhkan banyak kekuatan sihir, jadi seharusnya baik-baik saja. karena itu menyerap kekuatan sihir, bunga ini bisa berarti itu tidak akan layu.] (ain)
 
 Setelah mendengar kata-kataku, Ciel meletakkan kembali bunga itu di rambutnya. Dan seperti sebelumnya, itu melekat dengan sendirinya.
 
-Tampaknya puas dengan ini, Ciel kembali memanen ramuan yang diminta.
+Tampaknya puas dengan ini, Ciel kembali memanen herb yang diminta.
+
+-------------------------
+
+Yak kita kembali lagi ke suasana teeteee dedek ciel dan babang ain ~~ duh jujur saya ingin sekali ngajak dedek ciel kerumah terus saya masakin makanan enak !! rendang, gulai, dan sebagainya !!! daaang hanya dengan makanan itu saja masih dibilang enak, sedih saya membacanya ... andai saja si duke tidak separah itu... 
+
+yeah, kemanisan chapter ini benar benar membuat saya tidak jadi meminum susu rasa stroberi yang sudah saya tempatkan di sebelah saya !!! jujur daritadi saya senyum senyum sendiri ga jelas, untung saja saya sendirian disini... bisa gawat kalau ada yg lihat saya senyum-senyum ga jelas baca chapter ini... awwwwww...
+
+yeah bunga itu telah memilih tuannya !!! mungkin bunga tersebut memilih karena kecantikan dedek ciel... dan sungguh sangat kebetulan warna yang disebutkan ain menjadi warna bunga ketika dipakai.. SUPER SEKALI !!! 
+
+jujur saya sendiri tidak tahu ada bunga sakura biru... tapi setelah saya cek sendiri di akang google, saya sendiri tersepona melihatnya... saya ingin sekali melihat illus yang berwarna untuk gambar dedek ciel dengan bunga di rambutnya !!! TOLONG DONG AUTHOR CARI ARTIST YG BISA GAMBARIIN !!!! AAAAAAAAAA SAYA MENGGILA MEMBAYANGKANNYA !!!!
+
+nah sekian untuk chapter kali ini, jika ada saran, silahkan coret coret di komen ~~ terima kasih banyak !!! SEMOGA SEHAT SELALU !!! DAN SEMOGA HARI-HARI KALIAN MENYENANGKAN !!!
+
+^brb meluk guling terus mutar-mutar di kasur^
+
+noted : bisa dicari di google "blue cherry blossom" untuk yang penasaran bentuk bunganya.. atau bisa lihat dibawah ini..
+
+gambar : https://www.google.com/search?q=blue+cherry+blossom&tbm=isch&ved=2ahUKEwjpp4yL9-bwAhUH73MBHYeFCDMQ2-cCegQIABAA&oq=blue+cherry+blossom&gs_lcp=CgNpbWcQAzICCAAyAggAMgIIADICCAAyAggAMgIIADICCAAyAggAMgIIADICCAA6BQgAELEDOggIABCxAxCDAToECAAQQzoHCAAQsQMQQ1D1SligYWDOYmgAcAB4AIABW4gB_QeSAQIxOZgBAKABAaoBC2d3cy13aXotaW1nwAEB&sclient=img&ei=8AauYOnvHYfez7sPh4uimAM&bih=657&biw=1400&client=opera&hs=vZs&safe=strict
