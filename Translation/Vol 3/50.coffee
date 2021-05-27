@@ -56,7 +56,7 @@ mungkin lebih baik untuk menggambarkannya sebagai area potion dengan perban dan 
 
 Apa yang mereka miliki untuk dijual adalah potion tingkat dasar dan menengah.
 
-Aku ingat salep itu untuk Hunter dengan peringkat lebih rendah, jadi aku yakin bahkan potion tingkat dasar bekerja dengan efek yang bagus.
+Aku ingat salep itu untuk Hunter dengan rank lebih rendah, jadi aku yakin bahkan potion tingkat dasar bekerja dengan efek yang bagus.
 
 Buktinya, potion dasar masih sedikit lebih mahal dibandingkan salep berkualitas tinggi.
 
@@ -162,57 +162,57 @@ Ketika kami kembali ke kamar kami, itu adalah hal pertama yang ditanyakan Ciel k
 
 Karena aku sudah diam sejauh ini, wajar baginya untuk penasaran. dia mungkin benar-benar menahan diri untuk bertanya sampai sekarang.
 
-[kupikir Kamu sudah melihatnya sebelumnya, tetapi terakhir kali penyerbuan menghantam ibu kota kerajaan adalah lima puluh tahun yang lalu. Sebelum itu terjadi, berbagai skala, baik besar maupun kecil, terjadi dalam selang waktu setiap sepuluh tahun ganjil.]
+[kupikir Kamu sudah melihatnya sebelumnya, tetapi terakhir kali penyerbuan menghantam ibu kota kerajaan adalah lima puluh tahun yang lalu. Sebelum itu terjadi, berbagai skala, baik besar maupun kecil, terjadi dalam selang waktu setiap sepuluh tahun ganjil.] (ain)
 
-"Benar. "
+[Benar.] (ciel)
 
-" Setiap kali penyerbuan skala besar terjadi, tampaknya ada masalah diplomatik yang memburuk dengan tetangga negara, penyakit yang menyebar ke seluruh ibu kota, atau kelalaian pemusnahan monster yang terjadi sekitar lima tahun sebelum kejadian tersebut terjadi. "
+[Setiap kali penyerbuan skala besar terjadi, tampaknya ada masalah diplomatik yang memburuk dengan negara tetangga, penyakit yang menyebar ke seluruh ibu kota, atau kelalaian pemusnahan monster yang terjadi sekitar lima tahun sebelum kejadian tersebut terjadi.] (ain)
 
-"Jadi dengan kata lain, Ain curiga bahwa penyerbuan akan segera terjadi di sini? "
+[Jadi dengan kata lain, Ain curiga bahwa penyerbuan akan segera terjadi di sini?] (ciel)
 
-Ketika Ciel segera menemukan arti kata-kata Aku, "Ya." Aku memberikan penegasan Aku padanya.
+Ketika Ciel segera menemukan arti dari kata-kataku, "Ya." Aku memberikan penegasanku padanya.
 
-"Itu hanya kemungkinan, tapi Aku mengharapkan satu terjadi dalam waktu sekitar, mungkin beberapa tahun dari sekarang. Lagipula, mark-up potion terjadi dua sampai tiga tahun yang lalu. "
+[Itu hanya kemungkinan, tapi Aku rasa akan terjadi dalam waktu dekat, mungkin beberapa tahun dari sekarang. Lagipula, kenaikan harga potion terjadi dua sampai tiga tahun yang lalu.] (ain)
 
-"Jadi Ain, apa yang kamu rencanakan? "
+[Jadi Ain, apa yang kamu rencanakan?] (ciel)
 
-" Tidak ada sama sekali. Aku akan membencinya jika kita berdiri di sini di ibukota kerajaan, dan jika ini benar-benar terjadi, skalanya tidak akan sebanding dengan yang ada di Sannois. Lebih penting lagi, kita mungkin tidak akan berada di sini saat penyerbuan benar-benar terjadi. Padahal, jika kamu ingin melakukan sesuatu tentang itu Ciel, maka aku akan membantu. "
+[Tidak ada sama sekali. Aku akan membencinya jika kita menonjol di sini di ibukota kerajaan, dan jika ini benar-benar terjadi, skalanya tidak akan sebanding dengan yang ada di Sannois. Lebih penting lagi, kita mungkin tidak akan berada di sini saat penyerbuan benar-benar terjadi. jika kamu ingin melakukan sesuatu tentang itu Ciel, maka aku akan membantu.] (ain)
 
-"Kalau begitu, mengapa kamu mencari ini, Ain? "
+[Kalau begitu, mengapa kamu mencari informasi ini, Ain?] (ciel)
 
-Daripada dia mengkritik Aku karena tidak ingin melakukan apa pun, Ciel hanya bertanya karena minat murni.
+ciel tidak mengkritikku karena tidak ingin melakukan apa pun, Ciel hanya bertanya karena minat murni.
 
-"Itu karena jika kebetulan ini terjadi besok, kita harus segera membuat persiapan sekarang. Selain itu, akan sangat mengerikan jika kita menuju ke utara, pergi ke laut, dan kemudian secara tidak sengaja menabrak penyerbuan dalam perjalanan pulang. "
+[Itu karena jika kebetulan ini terjadi besok, kita harus segera membuat persiapan sekarang. Selain itu, akan sangat mengerikan jika kita menuju ke utara, pergi ke laut, dan kemudian secara tidak sengaja bertemu penyerbuan dalam perjalanan pulang.] (ain)
 
-"Begitu. Terima kasih Ain. "
+[Begitu. Terima kasih Ain.] (ciel)
 
-" Aku hanya sedikit terganggu olehnya, itu saja. "
+[Aku hanya sedikit terganggu oleh itu, itu saja.] (ciel)
 
-Meskipun kita mungkin hanya memiliki waktu yang sedikit, kita harus bisa mencapai peringkat B sebelum penyerbuan terjadi. Setelah itu, apa yang terjadi pada negara ini bukanlah urusan Aku.
+Meskipun kami mungkin hanya memiliki waktu yang sedikit, kami harus bisa mencapai rank B sebelum penyerbuan terjadi. Setelah itu, apa yang terjadi pada negara ini bukanlah urusanku.
 
-Sebaliknya, ini adalah ibu kota kerajaan, jadi seharusnya ada banyak orang di sini yang lebih kuat dari Ciel.
+ini adalah ibu kota kerajaan, jadi seharusnya ada banyak orang di sini yang lebih kuat dari Ciel.
 
-Pokoknya, kita harus menuju tenggara setelah melihat lautan dan memastikan kita bisa melintasi perbatasan kerajaan segera setelah kita mencapai peringkat B.
+kami harus menuju tenggara setelah melihat lautan dan memastikan kami bisa melintasi perbatasan kerajaan segera setelah kami mencapai rank B.
 
-"Ngomong-ngomong Ain, bisakah aku menanyakan sesuatu?"
+[Ngomong-ngomong Ain, bisakah aku menanyakan sesuatu?] (ciel)
 
-"Ada apa?"
+[Ada apa?] (ain)
 
-"Bagaimana kita akan mengeringkan tanaman?"
+[Bagaimana cara kita mengeringkan tanaman?] (ciel)
 
-"Oh benar. Menekan mereka seharusnya cukup berhasil, tapi bagaimana kalau kita melakukannya dengan sihir? "
+[Oh. Menekan mereka seharusnya sudah cukup, tapi bagaimana kalau kita melakukannya dengan sihir?] (ain)
 
-"Dengan sihir? Bagaimana kita melakukannya? "
+[Dengan sihir? Bagaimana kita melakukannya?] (ciel)
 
-" Tentang itu, Aku sudah memikirkan sesuatu, jadi bisakah Aku mengujinya sebentar? "
+[Tentang itu, Aku sudah memikirkan sesuatu, jadi bisakah Aku mengujinya sebentar?] (ain)
 
-"Tentu, Aku mengandalkan Kamu Ain. "
+[Tentu, Aku mengandalkanmu Ain.] (ciel)
 
-Aku beralih dengan Ciel dan mengambil salah satu dari benda-benda semanggi berdaun tiga yang kami simpan sebagai cadangan untuk menguji ide Aku.
+Aku berganti dengan Ciel dan mengambil salah satu dari semanggi berdaun tiga yang kami simpan sebagai cadangan untuk menguji ideku.
 
 Mantra yang akan Aku gunakan adalah "Sharol Calesfi Ougua", mantra yang artinya seperti memanaskan dan menguapkan kelembapan untuk mengeringkan benda ini .
 
-Ini mungkin akan berakhir buruk jika digunakan pada orang, tapi tidak akan berpengaruh signifikan dengan Aku menggunakannya.
+Ini mungkin akan berakhir buruk jika digunakan pada orang, tapi tidak akan berpengaruh signifikan kalau Aku yang menggunakannya.
 
 Selain itu, bahkan jika Ciel menggunakan ini pada seseorang, kemungkinan besar akan gagal.
 
@@ -226,7 +226,7 @@ Karena fakta ini, mantra ini hanya bisa digunakan pada benda mati.
 
 Dalam kasus tumbuhan, mereka dianggap tidak hidup setelah dipanen dan dalam kasus monster dan hewan, bagian yang dipisahkan dari tubuh dan bangkai pada akhirnya akan kehilangan ketahanannya terhadap mantra dan akan terpengaruh olehnya.
 
-Meskipun di tempat pertama, bahkan jika memungkinkan untuk menggunakan ini pada makhluk hidup, itu sudah cukup sulit untuk menggunakan sihir di tempat yang tidak terlihat.
+Meskipun pada dasarnya, bahkan jika memungkinkan untuk menggunakan ini pada makhluk hidup, itu sudah cukup sulit untuk menggunakan sihir di tempat yang tidak terlihat.
 
 "Sharol Calesfi Ougua"
 
@@ -234,29 +234,36 @@ Aku langsung mencobanya pada semanggi berdaun tiga, tapi mengingat betapa sederh
 
 Itu membutuhkan kontrol kekuatan sihir yang tepat dan jika terlambat, itu bahkan mungkin terbakar.
 
-Bagaimanapun, yang pertama ternyata memiliki kualitas yang cukup baik.
+percobaan pertama ternyata memiliki kualitas yang cukup baik.
 
-"Yah, ini jelas bukan sesuatu yang akan kamu lakukan dengan mantra sihir."
+[Yah, ini jelas bukan sesuatu yang akan kamu lakukan dengan mantra sihir.] (ain)
 
-"Apakah itu sulit bahkan untukmu Ain?"
+[Apakah itu sulit bahkan untukmu Ain?] (ciel)
 
-"Saya pikir itu akan semakin mudah semakin Aku mencoba, tetapi jika Kamu ingin melakukannya Ciel , akan lebih baik jika kamu menggunakan lingkaran sihir sehingga kamu dapat membuat penyesuaian yang lebih tepat.
+[kupikir itu akan semakin mudah semakin Aku mencobanya, tetapi jika Kamu ingin melakukannya Ciel, akan lebih baik jika kamu menggunakan lingkaran sihir sehingga kamu dapat membuat penyesuaian yang lebih tepat. Aku bisa membayangkannya sebagai latihan yang baik, jadi mungkin bagus untuk mencobanya ketika kamu memiliki waktu luang.] (ain)
 
-Aku bisa membayangkannya sebagai latihan yang baik, jadi mungkin bagus untuk mencobanya ketika kamu memiliki waktu luang. "
+[Melihat Ain melakukannya, itu benar-benar tampak sederhana.] (ciel)
 
-" Melihat Ain melakukannya, itu benar-benar tampak sederhana. "
+[Aku cukup percaya diri dengan kemampuanku untuk mengontrol kekuatan sihir.] (ain)
 
-"Aku cukup percaya diri dengan kemampuan Aku untuk mengontrol kekuatan sihir setelah semua. "
+Lagipula, itu semua yang pernah Aku lakukan di masa lalu. Caraku menggunakan +BARRIER dan +DETECTION sepanjang waktu tidak banyak berubah sejak saat itu.
 
-Lagipula, itu semua yang pernah Aku lakukan di masa lalu. Cara Aku menggunakan penghalang dan deteksi sepanjang waktu tidak banyak berubah sejak saat itu.
+[Kalau begitu Aku akan mencoba mengeringkan beberapa setelah makan malam. Bisakah kamu melakukan itu ke yang berdaun empat, ain?] (ciel)
 
-"Kalau begitu Aku kira Aku akan mencoba mengeringkan beberapa dari mereka setelah makan malam. Bisakah kamu melakukan Ain yang berdaun empat? "
-
-"Tentu, tidak masalah. "
+[Tentu, tidak masalah.] (ain)
 
 Setelah pertukaran ini, Aku berlatih sekitar dua hingga tiga kali lagi sebelum mengeringkan semanggi berdaun empat.
 
-Aku bisa mengeringkannya sambil mempertahankan rona hijaunya yang cerah, jadi Aku rasa ini bisa sukses.
-Jelas, itu tidak memiliki satu karakter pun.
+Aku bisa mengeringkannya sambil mempertahankan warna hijaunya yang cerah, jadi Aku rasa ini bisa disebut sukses.
 
 Kemudian, Ciel mencoba mengeringkan tiga tanaman tersisa yang kami miliki setelah menyelesaikan makan malam, tetapi semuanya benar-benar hangus.
+
+---------------------------
+
+yeey waktu luang lainnya tanpa ada konflik yang tegang... tentu saja babang ain overprotektif, hanya dengan mencari info tentang penyerbuan monster untuk melindungi dedek ciel... tentu saja semuanya terasa aneh bahkan dari chapter sebelumnya dimana tidak banyak orang yang menyelesaikan permintaan pengumpulan herb... dan tentu saja karena itu harga-harga yang memiliki hubungan dengan herb menjadi mahal... patut dicurigai.. hmmm... dan tentu untuk masalah potion yang mahal bisa saja dengan monopoli dari pembuatnya juga, karena masih belum banyak informasi yang didapat karena mereka juga baru datang, jadi belum tau penyebab sebenarnya...
+
+dedek ciel kali ini tidak nakal ya, tapi menunjukkan rasa penasaran layaknya seorang anak yang penasaran dengan perilaku orang dewasa... pengen rasanya lihat muka penasaran dedek ciel :3 ..
+
+yaaaaaayyyy dedek ciel kali ini belajar mengawetkan bunga dengan mengeringkannya... walau akhirnya membakar semua bunganya hehehe. babang ciel pede sekali dengan kontrol sihirnya... tapi menghasilkan hal yang bagus,, yah pada dasarnya kontrolnya bagus sekali untuk tetap membuat barrier dan detection aktif setiap waktu bersamaan..
+
+welp silahkan nikmati chapter kali ini, terima kasih telah singgah di terjemahan saya ~~ kalau ada saran silahkan coret-coret di komentar ~~ TERIMA KASIH !!!
