@@ -42,9 +42,9 @@ Idealnya, Ciel harus menjadi orang yang menjalani hidupnya sendiri dan Aku harus
 
 Tapi Ciel hanya bertanya padaku "Mengapa kamu meminta maaf?" Seperti itu bukan masalah besar.
 
-12 tahun adalah seusia dengan siswa SD di kehidupan Aku sebelumnya dan individu pada usia ini juga masih dianggap anak-anak bahkan di sini.
+12 tahun adalah usia sekitar siswa SD di kehidupanku sebelumnya dan individu pada usia ini juga masih dianggap anak-anak bahkan di sini.
 
-Meskipun ini mungkin didasarkan pada sentimentalitas dunia lama Aku, setelah Aku merenungkannya, setiap hari pada usia ini sangatlah berharga.
+Meskipun ini mungkin didasarkan pada sentimentalitas dunia lamaku, setelah Aku merenungkannya, setiap hari pada usia ini sangatlah berharga.
 
 Aku tahu bahwa membuat Ciel memahami nilai ini sulit, jadi Aku hanya bisa membalasnya dengan senyum samar.
 
