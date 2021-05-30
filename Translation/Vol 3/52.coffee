@@ -58,13 +58,13 @@ Juga, ada satu alasan lagi mengapa Aku tidak berniat memberikan informasi sampai
 
 [benar.] (ain)
 
-Jika kita tidak perlu menggunakannya, maka akan lebih baik begitu. Namun, saat kita berada di ibu kota, masih ada kemungkinan untuk berselisih dengan Guild Hunter.
+Jika kami tidak perlu menggunakannya, maka akan lebih baik begitu. Tapi, saat kita berada di ibu kota, masih ada kemungkinan untuk berselisih dengan Guild Hunter.
 
 Meskipun akan lebih baik jika hal-hal tidak mencapai titik itu, tidak ada alasan khusus bagi kami untuk menyia-nyiakan keuntungan ini.
 
-[Ngomong-ngomong, bagaimana kabar pengejar kita?] (ciel)
+[Ngomong-ngomong, bagaimana kabar pengikut kita?] (ciel)
 
-[Masih menjaga jarak. Bahkan setelah kami menunjukkan pembukaan yang disengaja, seolah-olah dia tidak berencana untuk melakukan kontak lebih lanjut, itu cukup menakutkan.] (ain)
+[Masih menjaga jarak. Bahkan setelah kita menunjukkan kelengahan yang disengaja, seolah-olah dia tidak berencana untuk melakukan kontak lebih lanjut, itu cukup menakutkan.] (ain)
 
 [Jadi sudah dipastikan bahwa dia mengikuti kita?] (ciel)
 
