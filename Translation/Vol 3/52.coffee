@@ -170,47 +170,47 @@ mata pria itu bersinar dengan sedikit kecerdasan.
 
 Sepertinya dia memikirkan ide yang tidak berharga, tapi sayangnya aku tidak bisa membaca pikirannya.
 
-"Jika Kamu Rank-C pada usia itu, maka Kamu memiliki Job yang cukup bagus, bukan? Katakan. Aku akan mengambil kata-katamu untuk itu."
+"Jika Kamu Rank-C pada usiamu, berarti Kamu memiliki Job yang cukup bagus, bukan? beritahu aku. Aku akan percaya padamu untuk itu."
 
-" Aku tidak memiliki kewajiban untuk memberi tahu Kamu dan Aku bahkan tidak membutuhkan pengakuan Kamu." (ciel)
+"Aku tidak memiliki kewajiban untuk memberi tahu Kamu dan Aku bahkan tidak membutuhkan pengakuanmu." (ciel)
 
-" Itu masalah, Aku hanya mengatakan ini dari kebaikan hati Aku."
+"Itu akan menjadi masalah, Aku hanya mengatakan ini dari kebaikan hatiku."
 
-Tampaknya kebaikannya memiliki definisi yang berbeda dengan Aku.
+Tampaknya kebaikannya memiliki definisi yang berbeda denganku.
 
 Saat pria itu menyeringai ketika dia dengan sengaja menghalangi jalan Ciel, kami berada pada titik di mana sekarang dapat diterima untuk menyingkirkannya dengan cara seperti Hunter.
 
-Namun, Aku menunggu penguntit untuk bergerak kali ini. Juga, Ciel tampaknya juga memikirkan apa yang harus dilakukan.
+tapi, Aku menunggu penguntit untuk bergerak kali ini. Ciel tampaknya juga memikirkan apa yang harus dilakukan.
 
 Tepat ketika aku mulai meragukan kemungkinan terjadinya sesuatu, sebuah suara yang mengatakan "Nona Song Princess." Datang dari belakang kami.
 
-Melihat asal suara itu, itu adalah penguntit seperti yang diharapkan. Namun, perkembangan ini jelas jauh dari yang Aku harapkan.
+Melihat asal suara itu, itu adalah penguntit seperti yang diharapkan. tapi, perkembangan ini jelas jauh dari yang Aku harapkan.
 
-Pekerjaan Ciel bukanlah Putri Lagu, tetapi sama sekali tidak ada masalah dengan orang-orang yang memiliki kesalahpahaman itu.
+job Ciel bukanlah song princess, tetapi aku sama sekali tidak ada masalah dengan orang-orang yang memiliki kesalahpahaman itu.
 
-Namun, mengekspos Job seseorang dalam situasi di mana ada banyak orang, seperti sekarang, bisa berakibat fatal bagi karier seorang Hunter.
+tapi, mengekspos Job seseorang dalam situasi di mana ada banyak orang, seperti sekarang, bisa berakibat fatal bagi karier seorang Hunter.
 
-Apalagi kalau itu adalah"Putri Lagu". Jika demikian, ada risiko hal ini berakibat fatal bagi kehidupan orang tersebut juga.
+Apalagi kalau itu adalah "song princess". Jika demikian, ada risiko hal ini berakibat fatal bagi kehidupan orang tersebut juga.
 
 Lagi pula, saat kami tidak ada di sana ketika itu terjadi, kami hampir digantung di kota Sannois hanya karena dituduh sebagai Putri Song.
 
 "Apa itu?" (ciel)
 
-"Ini Pekerjaanmu, nona."
+"itu jobmu, nona."
 
 Penguntit tampaknya memiliki semacam keyakinan di balik kata-katanya, dia tidak mundur.
 
-Maka alasan dia mengikuti kami mungkin karena dia berpikir untuk menyingkirkan kami setelah mengidentifikasi bahwa aku adalah Putri Song. Tetapi mengingat itu, dia seharusnya memiliki banyak kesempatan lain untuk melakukannya.
+Maka alasan dia mengikuti kami mungkin karena dia berpikir untuk menyingkirkan kami setelah mengidentifikasi bahwa aku adalah song princess. Tetapi mengingat itu, dia seharusnya memiliki banyak kesempatan lain untuk melakukannya.
 
 Mengesampingkan itu, seperti ikan yang dilempar kembali ke air, kata-kata penguntit itu akhirnya memberi energi pada para Hunter yang mengganggu.
 
 Suara pria itu keras pada awalnya, tapi kali ini dia berbicara lebih keras sehingga semua orang di guild bisa mendengarnya.
 
-"Kamu dengar itu? Seorang Hunter Rank-C dengan Pekerjaan Putri Lagu, katanya! Bahkan tidak menyebutkan Rank-C, dia mungkin bahkan tidak dapat melakukan permintaan Rank-G dengan benar!"
+"Kamu dengar itu? Seorang Hunter Rank-C dengan job song princess, katanya! jangankan Rank-C, dia mungkin bahkan tidak dapat melakukan permintaan Rank-G dengan benar!"
 
 Seolah menjawab pria itu, tawa bergema dari sekitar kami.
 
-Namun, reaksi orang lain cukup beragam, mulai dari yang setuju dengan kata-kata lelaki itu, yang mencemooh lelaki itu, dan yang terus-menerus tanpa mempedulikan apa yang terjadi. Seorang staf staf pergi ke belakang guild juga, mungkin untuk memanggil guild master atau semacamnya.
+tapi, reaksi orang lain cukup beragam, mulai dari yang setuju dengan kata-kata lelaki itu, yang mencemooh lelaki itu, dan yang terus-menerus tanpa mempedulikan apa yang terjadi. Seorang staf pergi ke belakang guild juga, mungkin untuk memanggil guild master atau semacamnya.
 
 Aku berani bersumpah bahwa aku pernah mendengar tentang guild ibu kota yang juga baik hati untuk mengecewakan Jobs, tapi pria ini sangat berisik mengingat hal itu.
 
