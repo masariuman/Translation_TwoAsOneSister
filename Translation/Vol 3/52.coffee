@@ -262,10 +262,13 @@ Aku memelototi penguntit yang hanya terdiam setelah memperburuk situasi. Dosa be
 
 Jika dia menyerang bersama dengan Valbar, Ciel akan mengalahkannya dan itu akan membuatku merasa lebih baik, tetapi sebaliknya, pria ini diam-diam tetap berada di dalam zona amannya.
 
-Aku akan memastikan untuk setidaknya berbicara dengannya... itulah yang kupikirkan, tapi staf staf yang pergi ke suatu tempat kembali dengan seorang pria paruh baya di belakangnya.
+Aku akan memastikan untuk setidaknya berbicara dengannya... itulah yang kupikirkan, tapi staf yang pergi ke suatu tempat kembali dengan seorang pria paruh baya di belakangnya.
 
 Pria beruban, meski tidak sama dengan Hunter, memiliki kekuatan besar di belakang matanya.
 
-"Oi, Valbar. Kamu, masalah apa yang kamu sebabkan ini..... Heck, apa yang baru saja terjadi di sini......"
+"Oi, Valbar. masalah apa yang kau sebabkan ..... apa?! apa yang baru saja terjadi di sini......"
 
-Pria yang tampaknya bermartabat itu tidak bisa berkata-kata ketika dia dihadapkan dengan seorang gadis yang bahkan belum dewasa berdiri di depan seorang pria yang meratap saat dia berlumuran darah, pria lain di sebelahnya duduk kosong di lantai, dan pria lain yang berbeda meringkuk ketakutan karena dia sedang ditatap oleh gadis itu.
+Pria yang tampaknya bermartabat itu tidak bisa berkata-kata ketika dia dihadapkan dengan seorang gadis yang bahkan belum dewasa berdiri di depan seorang pria yang meratap dengan berlumuran darah, pria lain di sebelahnya duduk termenung di lantai, dan pria lain yang berbeda meringkuk ketakutan karena dia sedang ditatap oleh gadis itu.
+
+----------------------------------------
+
