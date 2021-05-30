@@ -272,3 +272,12 @@ Pria yang tampaknya bermartabat itu tidak bisa berkata-kata ketika dia dihadapka
 
 ----------------------------------------
 
+kali ini dedek ciel kita mempelajari apa itu kartu truf atau kartu andalan... ya memang untuk berjaga-jaga saja misalnya ada masalah mereka dengan guild, ain bisa mengancam dengan itu... mengancam disini maksudnya karena itu tanggung jawab besar untuk guild, jadi ain bisa menyebarkan isu seperti guild mengabaikan dan menyebabkan penyerbuan terjadi.. mungkin, menurutku... dan memang sih tujuan mereka jadi hunter agar bisa keluar dari negara itu saja, mungkin setelah ke negara sebelah lebih baik pergi ke ujung negara tersebut ke desa terpencil dan pensiun dari hunter seperti novel sebelah dan menikmati hidup santai ;) 
+
+ingin rasanya nelepon polisi karena penguntit ini ... tapi dia cukup pintar juga tidak ikut ngerusuh, hanya menebarkan minyak di api saja... dan seperti biasa pasti ada hunter yg menganggap remeh ciel... tapi kemana party yg sebelumnya bersikap netral kepada ciel ? apakah tidak lagi ada di guild ? kalau ada mungkin akan membela ciel ?? entahlah party tersebut belum jelas disisi mana...
+
+dan saya berpikir untuk penguntit ini, ada 2 kemungkinan, mungkin dia tahu tentang rumor dan isu di sannosis waktu alejo menuduh ciel adalah song princess... atau, bisa saja karena kecurigaannya dengan ain yg bernyanyi dengan baik dan diterima banyak orang di pub ??? hmmmm mari kita lihat di chapter selanjutnya... dan kemana orang dari organisasi underground sebelumnya yg takut sama ain ???? hmmmmmm.. mungkin lebih baik ainciel segera keluar dari kota merepotkan ini... tapi kalu mereka keluar, volume 3 nya selesai dong hehehehe ;) ..
+
+daan mari katakan selamat datang kepada master guild kita yang nampak kuat dan tua yang baru saja menunjukkan mukanya ~~~ yaaaaay... apakah dia tetap membela ciel karena job mengecewakannya atau apakah dia akan memanfaatkan ciel ???? mari kita lihat maksud dari tujuannya yang membela job mengecewakan karena apa...
+
+YAY demikian chapter kali ini, semoga kalian menikmatinya ~~ kalau ada saran silahkan coret coret di komentar ~~~ doakan saya agar tetap sehat dan bisa menerjemahkan yak, saya juga doakan semoga kalian sehat dan kaya dong tentunya.. hehe.. TERIMA KASIH !!!
