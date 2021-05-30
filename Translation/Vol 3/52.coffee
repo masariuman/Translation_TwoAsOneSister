@@ -136,37 +136,37 @@ Saat Ciel melirik ke pintu masuk, seorang pria muda kurus sedang menatap kami da
 
 Meskipun Aku dapat mengatakan hal yang sama untuk kami, dia sama sekali tidak terlihat seperti Hunter.
 
-Karena dia mengikuti kami sejak kami meninggalkan pub resmi, aku curiga dia mungkin anggota guild tapi....... jika bukan begitu, dia mungkin seorang staf. Dia tidak memakai seragam.
+Karena dia mengikuti kami sejak kami meninggalkan pub resmi, aku curiga dia mungkin anggota guild tapi....... jika bukan begitu, dia mungkin seorang staf. tapi Dia tidak memakai seragam.
 
-"Nona, menurutmu untuk apa kau mengabaikanku, eh ?"
+"Nona, menurutmu mengapa kau mengabaikanku, eh ?"
 
 "Apa?" (ciel)
 
-Saat pria yang mendekati kami mengatakannya dengan nada kesal, Ciel menjawab dengan jawaban singkat.
+Saat pria yang mendekati kami berkata dengan nada kesal, Ciel menjawab dengan jawaban singkat.
 
-Tampaknya kembali ke alur setelah mendapat reaksi dari kami, pria itu kembali ke nada merendahkan sebelumnya.
+setelah mendapat reaksi dari kami, pria itu kembali ke nada merendahkan sebelumnya.
 
-"Ini bukan taman bermain. Scram."
+"Ini bukan taman bermain. sana pergi."
 
-" Aku seorang Hunter. Urutkan urusanmu sendiri." (ciel)
+"Aku seorang Hunter. Urus urusanmu sendiri." (ciel)
 
-" Maka kamu akan berada di daerah Rank rendah, kan? Kamu bahkan tidak tahu itu? Maka Aku tidak akan keberatan membimbing Kamu dengan tangan, kaki, dan pinggul, Kamu tahu?"
+"kalau begitu kamu berada di daerah Rank rendah, kan? Kamu bahkan tidak tahu itu? Aku tidak akan keberatan membimbingmu dengan tangan, kaki, dan pinggul lho..."
 
-Orang yang menyertainya mengejek mengatakan"Kamu akan puas dengan yang kerdil?" Dan sebagainya, tetapi orang itu menjawab"Aku akan menaikkan sementara dia masih muda!" Membela diri.
+Orang yang bersamanya mengejek mengatakan "Kamu akan puas dengan yang kerdil?" Dan sebagainya, tetapi orang itu menjawab "Aku akan membesarkannya sementara dia masih muda!" Membela diri.
 
-Sepertinya diskusi akan segera dimulai, tetapi karena kami tidak punya alasan untuk menunggu itu, Ciel memotong pertukaran mereka dan menunjukkan kartunya.
+Sepertinya diskusi akan segera dimulai, tetapi karena kami tidak punya alasan untuk menunggu itu, Ciel memotong perkataan mereka dan menunjukkan kartunya.
 
 "Aku adalah Hunter Rank C. Aku cocok di sini." (ciel)
 
-" Kamu, Rank-C? Kartu itu terlihat asli tetapi memalsukan kartu akan membuat Kamu dikeluarkan secara permanen, jadi lebih baik Kamu hentikan itu."
+"Kamu, Rank-C? Kartu itu terlihat asli tetapi memalsukan kartu akan membuatmu dikeluarkan secara permanen, jadi lebih baik Kamu hentikan itu."
 
 Pria itu tertawa keras, dan orang-orang yang bersamanya juga tertawa.
 
-"Ini nyata, tetapi tidak seperti Kamu akan mempercayainya." (ciel)
+"Ini asli, tetapi Kamu sepertinya tidak akan mempercayainya." (ciel)
 
 Dengan nada yang sama yang dia gunakan saat berbicara denganku, Ciel bergumam begitu. Dia tampaknya sangat tercengang, atau lebih tepatnya sudah muak dengan ini.
 
-Tampaknya mendengar ini, mata pria itu bersinar dengan sedikit kecerdasan.
+mata pria itu bersinar dengan sedikit kecerdasan.
 
 Sepertinya dia memikirkan ide yang tidak berharga, tapi sayangnya aku tidak bisa membaca pikirannya.
 
