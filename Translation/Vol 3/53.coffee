@@ -2,63 +2,63 @@ CHAPTER 53: SONG PRINCESS, DISCUSSION, AND THE FOOL
 
 "Seseorang, jelaskan ini padaku."
 
-Pria paruh baya yang datang bertanya bukan kepada kami, pihak yang bersangkutan, tetapi para saksi di sekitar kami tentang apa yang baru saja terjadi.
+Pria paruh baya yang datang bertanya bukan kepada kami, pihak yang bersangkutan, tetapi kepada para saksi di sekitar kami tentang apa yang baru saja terjadi.
 
-Dan di tengah keheningan yang tiba-tiba, seorang pria berkata,"Biarkan aku yang menjelaskan, guild master." Dan mengangkat tangannya.
+Dan di tengah keheningan yang tiba-tiba, seorang pria berkata, "Biarkan aku yang menjelaskan, Ketua Guild." Dan mengangkat tangannya.
 
 "Oi, Chasse. Jika Kamu berada di sini selama ini, Kamu seharusnya menghentikannya sebelum semuanya berakhir seperti ini."
 
 Ketua guild menatap Chasse-san dengan tidak percaya.
 
-Ya, Aku tahu dia ada di sana. Sementara Aku lebih suka jika dia membantu kami sebelum hal-hal meningkat ke titik ini; Pada akhirnya, hubungan kami hanyalah hubungan kenalan yang mengobrol singkat di pub.
+Ya, Aku tahu dia ada di sana. Aku lebih suka jika dia membantu kami sebelum hal-hal meningkat ke titik ini, tapi Pada akhirnya, hubungan kami hanyalah kenalan yang mengobrol singkat di pub.
 
 Kami tidak cukup dekat untuk meminta bantuannya, dan jika dia menyelamatkan kami melalui koneksi yang begitu dangkal, kami akan merasa agak tidak nyaman.
 
-Chasse-san mengabaikan guild master kali ini,"Cielmer, short time no see." Dan melambaikan tangannya dengan ringan.
+Chasse-san mengabaikan Ketua Guild kali ini dan, "Cielmer, lama tidak berjumpa.", melambaikan tangannya dengan ringan.
 
-"Terima kasih telah berusaha keras untuk melakukan ini." (ain)
+"Terima kasih karena kamu maju untuk menjelaskannya." (ain)
 
 "Seperti yang Aku pikirkan, Kamu memperhatikan bahwa Aku ada di sini, ya." (chasse)
 
-"Padahal, Aku tidak tahu mengapa Kamu ada di sini. Kamu baru saja minum di pub beberapa saat yang lalu, kan?" (ain)
+"Aku tidak tahu mengapa Kamu ada di sini. Kamu baru saja minum di pub beberapa saat yang lalu, kan?" (ain)
 
-"Yah tidak persis beberapa saat yang lalu, tapi ini ini dan itu. Kami, the Fool's Gathering, umumnya berada di guild hampir sepanjang waktu." (chasse)
+"Yah tidak persis beberapa saat yang lalu, tapi ini ya ini dan itu ya itu. Kami, the Fool's Gathering, umumnya berada di guild hampir sepanjang waktu." (chasse)
 
-Jadi itulah mengapa mereka ada di sana ketika kami pertama kali datang ke sini untuk melihat permintaan. Mereka mungkin berada dalam posisi yang mirip dengan Carol-san . Mungkin justru karena mereka adalah pihak B-Rank sehingga mereka tinggal di sini jika terjadi sesuatu yang tidak terduga. Saat Chasse-san dan Aku sedang mengobrol santai, guild master memotong percakapan kami "Chasse, apakah Kamu kenal gadis ini?" Karena dia tampaknya kehilangan kesabaran.
+Jadi itulah mengapa mereka ada di sana ketika kami pertama kali datang ke sini untuk melihat permintaan. Mereka mungkin berada dalam posisi yang mirip dengan Carol-san. Mungkin justru karena mereka adalah pihak rank-B sehingga mereka tinggal di sini untuk berjaga jika terjadi sesuatu yang tidak terduga. Saat Chasse-san dan Aku sedang mengobrol santai, Ketua Guild memotong percakapan kami "Chasse, apakah Kamu kenal gadis ini?" Karena dia tampaknya kehilangan kesabaran.
 
-"Kami telah mengobrol di pub. Dia tampaknya cukup populer, jadi Aku mengalami kesulitan tak terduga untuk datang ke sini setelah dia meninggalkan pub. Lebih penting lagi, ketua serikat. Kamu lebih baik mempersiapkan diri. Gadis ini cukup pintar, paham? Jika Kamu memperlakukannya hanya dengan penampilannya, Kamu akan mengalami waktu yang buruk." (chasse)
+"Kami telah mengobrol di pub. Dia tampaknya cukup populer, jadi Aku mengalami kesulitan tak terduga untuk datang ke sini setelah dia meninggalkan pub. Lebih penting lagi, Ketua Guild, Kamu lebih baik mempersiapkan diri. Gadis ini cukup pintar. Jika Kamu memperlakukannya hanya dengan penampilannya, Kamu akan mengalami waktu yang buruk." (chasse)
 
-" Apakah itu seharusnya pujian?" (ain)
+"Apakah itu seharusnya pujian?" (ain)
 
-" Ini benar-benar pujian. Menurut pendapat pribadi Aku, Kamu adalah Hunter yang patut diperhatikan, dan para Hunter di pub mungkin memiliki sentimen yang sama juga. Namun, meski begitu ......" (chasse)
+"Ini benar-benar pujian. Menurut pendapat pribadiku, Kamu adalah Hunter yang patut diperhatikan, dan para Hunter di pub mungkin memiliki sentimen yang sama juga. Namun, meski begitu ......" (chasse)
 
-Chasse-san, pembicara yang dulu ramah, kemudian merengut ke arah penguntit.
+Chasse-san, pembicara yang ramah, kemudian merengut ke arah penguntit.
 
 Tatapannya tampaknya memiliki campuran haus darah juga, karena penguntit berwajah pucat itu sekarang gemetar di kakinya.
 
-Tampaknya menyadari sesuatu, guild master mengalihkan pandangannya ke penguntit dan berkata "Tolt ...... kamu juga bagian dari ini? ......." Dengan tatapan jauh.
+Tampaknya menyadari sesuatu, Ketua Guild mengalihkan pandangannya ke penguntit dan berkata "Tolt ...... kamu juga bagian dari ini? ......." Dengan tatapan jauh.
 
 Setelah itu, Valbar dan pengikutnya dikirim ke ruang perawatan, dan kami, Chasse-san , ketua guild, dan penguntit (Tolt) menuju ke bagian dalam gedung guild.
 
 ◇
 
-"Mari kita mulai dari awal, oke? Dan Cielmer, Aku tahu Kamu memiliki sesuatu untuk dikatakan pada diri Kamu sendiri, tetapi maukah Kamu tetap diam kecuali Aku telah mengatakan sesuatu yang salah?" (chasse)
+"Mari kita mulai dari awal, oke? Dan Cielmer, Aku tahu Kamu memiliki sesuatu untuk dikatakan pada dirimu sendiri, tetapi maukah Kamu tetap diam kecuali Aku telah mengatakan sesuatu yang salah?" (chasse)
 
-"Dimengerti. Sudut pandang pihak yang bersangkutan bisa jadi memiliki beberapa subjektivitas. Selama Chasse-san tidak menempatkan Aku dalam posisi yang sangat tidak menguntungkan, Aku akan tetap diam." (ain)
+"Baiklah. Sudut pandang pihak yang bersangkutan bisa jadi memiliki beberapa subjektivitas. Selama Chasse-san tidak menempatkanku dalam posisi yang sangat tidak menguntungkan, Aku akan tetap diam." (ain)
 
-"Tentu. Mari kita lakukan." (chasse)
+"Tentu. Mari kita mulai." (chasse)
 
 Kami dibawa ke tempat yang tampak seperti ruang resepsi.
 
-Ini adalah tempat yang lebih sederhana daripada tempat Faneed di bawah tanah menemui kami. Ada dua sofa besar yang saling berhadapan dengan meja yang serasi di antaranya.
+Ini adalah tempat yang lebih sederhana daripada tempat Faneed menemui kami. Ada dua sofa besar yang saling berhadapan dengan meja yang serasi di antaranya.
 
-Chasse-san dan aku duduk di satu sisi di dekat pintu masuk, sementara ketua serikat dan Tolt duduk di sisi yang berlawanan.
+Chasse-san dan aku duduk di satu sisi di dekat pintu masuk, sementara Ketua Guild dan Tolt duduk di sisi yang berlawanan.
 
 Chasse-san memiliki nada yang sangat berbeda saat dia berbicara dengan ketua serikat dibandingkan saat dia berbicara denganku.
 
-Saat dia berurusan dengan guild master, dia terdengar agak bermusuhan, kurasa.
+Saat dia berurusan dengan Ketua Guild, dia terdengar agak bermusuhan, kurasa.
 
-"Awal dari semuanya bukanlah sesuatu yang istimewa. Valbar memperhatikan Cielmer dan menabraknya. Aku tidak mendengar alasannya, tapi itu mungkin karena penampilannya. Ini adalah konflik antara para Hunter, jadi kami tidak punya alasan untuk campur tangan kecuali jika semuanya berjalan terlalu jauh, dan karena Cielmer adalah yang lebih kuat, Valbar dan rekan-rekannya membuat tabel pada mereka. Dari sudut pandang Cielmer, dia hanya diganggu, tetapi Valbar baru saja menuai apa yang dia tabur. Dan tepat ketika tabel diputar, guild master datang." (chasse)
+"Awal dari semuanya bukanlah sesuatu yang istimewa. Valbar memperhatikan Cielmer dan menabraknya. Aku tidak mendengar alasannya, tapi itu mungkin karena penampilannya. Ini adalah konflik antara para Hunter, jadi kami tidak punya alasan untuk campur tangan kecuali jika semuanya berjalan terlalu jauh, dan karena Cielmer adalah yang lebih kuat, Valbar dan rekan-rekannya membuat tabel pada mereka. Dari sudut pandang Cielmer, dia hanya diganggu, tetapi Valbar baru saja menuai apa yang dia tabur. Dan tepat ketika tabel diputar, Ketua Guild datang." (chasse)
 
 "Tidak bisakah kamu menghentikan mereka sebelum terjadi kekerasan?"
 
@@ -76,11 +76,11 @@ Sebenarnya, memberi tahu seseorang dengan Job non-combat untuk menghadapi pertar
 
 Aku mempertimbangkan untuk memberinya tatapan celaan atau semacamnya, tetapi aku mungkin akan membahayakan posisiku jika aku mulai menjadi emosional di sini, jadi aku menahan diri dan tersenyum.
 
-Sementara guild master mengerutkan alisnya saat dia melihat ekspresiku, dia melanjutkan diskusi.
+Sementara Ketua Guild mengerutkan alisnya saat dia melihat ekspresiku, dia melanjutkan diskusi.
 
 "Lalu, di mana Tolt ikut bermain? Dari apa yang baru saja Kamu katakan, dia sama sekali tidak terkait dengan ini."
 
-"Itu karena Aku sengaja meninggalkan informasi itu. Sebaliknya, dialah yang menyebabkan masalah ini. Guild master, Kamu tahu Pekerjaan Tolt, bukan?" (chasse)
+"Itu karena Aku sengaja meninggalkan informasi itu. Sebaliknya, dialah yang menyebabkan masalah ini. Ketua Guild, Kamu tahu Pekerjaan Tolt, bukan?" (chasse)
 
 "Tidak, Aku tidak tahu. Padahal, Aku tahu bahwa dia adalah anggota staf yang muda tapi menjanjikan."
 
@@ -104,21 +104,21 @@ Ketua serikat terdiam saat rahangnya jatuh karena terkejut.
 
 Tetap saja, Chasse-san tampaknya menegaskan bahwa yang terjadi bukanlah tanggung jawabnya. Aku tidak terlalu keberatan, tapi mungkin dia dalam posisi di mana dia harus campur tangan dengan hal-hal semacam ini.
 
-Master guild yang diam akhirnya bertindak bersama dan berkata "Apakah ini benar?" Meminta konfirmasi Tolt.
+Ketua Guild yang diam akhirnya bertindak bersama dan berkata "Apakah ini benar?" Meminta konfirmasi Tolt.
 
 "Iya."
 
-Kontras antara anggukan bangga Tolt dan guild master yang kebingungan memegangi kepalanya dengan kedua tangannya cukup lucu.
+Kontras antara anggukan bangga Tolt dan Ketua Guild yang kebingungan memegangi kepalanya dengan kedua tangannya cukup lucu.
 
-Pada saat ini, Aku agak merasa kasihan pada guild master.
+Pada saat ini, Aku agak merasa kasihan pada Ketua Guild.
 
-Tolt kemudian melanjutkan serangan mentalnya pada guild master.
+Tolt kemudian melanjutkan serangan mentalnya pada Ketua Guild.
 
 "Dalam situasi itu, jika dia hanya memberi tahu Pekerjaannya segera, itu akan menyelesaikan masalah itu. Tetapi sebaliknya, dia tidak akan mengatakannya sama sekali, jadi Aku mengatakannya sebagai gantinya. Aku tidak tahu mengapa tiba-tiba hal-hal meningkat, tetapi tidak perlu malu dengan pekerjaan apa pun yang dimiliki seseorang, bukan?" (Tolt)
 
 "Kamu, apakah kamu tidak menyadari apa yang baru saja kamu lakukan?"
 
-"Kamu mengatakan bahwa tidak ada Job yang lebih baik atau lebih buruk dari yang lain, kan guild master? Itu juga ditulis dengan benar sebagai salah satu prinsip Guild Hunter.[Diskriminasi oleh Jobs sangat tidak dapat diterima.] Namun meskipun demikian, dia menyebabkan masalah bagi semua orang dengan menyembunyikan Job-nya. Aku hanya melakukan apa yang benar." (Tolt)
+"Kamu mengatakan bahwa tidak ada Job yang lebih baik atau lebih buruk dari yang lain, kan Ketua Guild? Itu juga ditulis dengan benar sebagai salah satu prinsip Guild Hunter.[Diskriminasi oleh Jobs sangat tidak dapat diterima.] Namun meskipun demikian, dia menyebabkan masalah bagi semua orang dengan menyembunyikan Job-nya. Aku hanya melakukan apa yang benar." (Tolt)
 
 "Lalu bagaimana Kamu tahu apa pekerjaannya?"
 
@@ -126,15 +126,15 @@ Tolt kemudian melanjutkan serangan mentalnya pada guild master.
 
 "Begitu, diam saja."
 
-Mendengar amarah dalam suara guild master, Tolt menjauh dan menelan kata-katanya.
+Mendengar amarah dalam suara Ketua Guild, Tolt menjauh dan menelan kata-katanya.
 
 Ketua serikat menggaruk kepalanya dengan kedua lengan karena iritasi yang tak terkendali, tapi karena semua usahanya baru saja dihancurkan oleh Tolt, itu bisa dimengerti.
 
-Meskipun saat ini, menurutku pertanyaan terakhir guild master adalah upaya untuk menjauhkan dirinya dari Tolt, jadi jawaban Tolt tidak mungkin salah.
+Meskipun saat ini, menurutku pertanyaan terakhir Ketua Guild adalah upaya untuk menjauhkan dirinya dari Tolt, jadi jawaban Tolt tidak mungkin salah.
 
 "Jadi singkatnya, Tolt memiliki Pekerjaan Penilai. Selain itu, dia secara khusus adalah Penilai Pekerjaan. Kemudian setelah memanfaatkan pekerjaannya untuk mengungkap Pekerjaan gadis ini, dia mengungkapkannya kepada publik. Bagaimanapun, mengapa Tolt ada di sini ketika dia seharusnya tidak bertugas hari ini?"
 
-Aku lebih suka jika guild master tidak mengabaikannya dengan Be seperti itu , tapi berdasarkan apa yang aku lihat dari Chasse-san sejauh ini, dia mungkin tidak akan membiarkan itu meluncur, jadi aku tidak terlalu peduli.
+Aku lebih suka jika Ketua Guild tidak mengabaikannya dengan Be seperti itu , tapi berdasarkan apa yang aku lihat dari Chasse-san sejauh ini, dia mungkin tidak akan membiarkan itu meluncur, jadi aku tidak terlalu peduli.
 
 Entah karena ketegangan yang luar biasa atau karena dia disuruh tutup mulut, Tolt tampaknya mengalami kesulitan dalam berbicara.
 
@@ -198,8 +198,8 @@ Meskipun dengan itu, penemuan penghalang itu disebabkan oleh kegagalan Aku, jadi
 
 "Meskipun setidaknya akan merusak kesan orang terhadap orang tersebut, meminta seseorang dihukum karena alasan itu akan sangat sulit. Namun dalam kasus ini, penguntitan setidaknya bisa berfungsi sebagai bahan tambahan untuk penilaian." (chasse)
 
-Sementara aku diabaikan begitu saja oleh guild master, dari apa yang baru saja Chasse-san katakan, sepertinya itu bisa dihukum.
+Sementara aku diabaikan begitu saja oleh Ketua Guild, dari apa yang baru saja Chasse-san katakan, sepertinya itu bisa dihukum.
 
-Untuk beberapa alasan, semakin kita melanjutkan, semakin banyak kotoran yang kita gali di guild master.
+Untuk beberapa alasan, semakin kita melanjutkan, semakin banyak kotoran yang kita gali di Ketua Guild.
 
-Dan dia mungkin merasakan ini sendiri saat guild master tiba-tiba menundukkan kepalanya.
+Dan dia mungkin merasakan ini sendiri saat Ketua Guild tiba-tiba menundukkan kepalanya.

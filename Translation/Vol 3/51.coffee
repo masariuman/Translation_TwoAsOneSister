@@ -1,4 +1,4 @@
-CHAPTER 51: PUB, INFORMATION, AND THE GUILD MASTER
+CHAPTER 51: PUB, INFORMATION, AND THE Ketua Guild
 
 Aku biasanya ingin Ciel yang memegang kendali, tetapi pengecualian untuk ini adalah ketika Aku ingin pengumpulan info di pub.
 
@@ -224,23 +224,23 @@ Tas sihir guild, huh. Ini sebenarnya bukan sesuatu yang bisa kami dapatkan jika 
 
 paling tidak akan melegakan jika ada yang cukup besar untuk memuat barang bawaan yang kami butuhkan untuk bepergian.
 
-"Kalau dipikir-pikir, orang macam apa guild master di sini, di ibu kota?" (ain)
+"Kalau dipikir-pikir, orang macam apa Ketua Guild di sini, di ibu kota?" (ain)
 
 Karena kami masuk ke topik tentang guild, Aku mengambil kesempatan untuk bertanya tentang itu.
 
 Karena hutan tempat kami memanen herb dibiarkan tidak terkendali, ini berarti bahwa guild sepertinya tidak terlalu mementingkan tempat itu, tetapi bagiku tampaknya tidak diperlakukan seperti itu di masa lalu.
 
-Itu sebabnya, daripada bertanya tentang guild master, aku sebenarnya ingin bertanya apakah ada perubahan dalam kebijakan umum guild, tapi tiba-tiba menanyakan itu mungkin terdengar mencurigakan.
+Itu sebabnya, daripada bertanya tentang Ketua Guild, aku sebenarnya ingin bertanya apakah ada perubahan dalam kebijakan umum guild, tapi tiba-tiba menanyakan itu mungkin terdengar mencurigakan.
 
-Jika aku mengetahui orang macam apa guild master itu, aku mungkin bisa mengetahui motif guild master.
+Jika aku mengetahui orang macam apa Ketua Guild itu, aku mungkin bisa mengetahui motif Ketua Guild.
 
-"Dia adalah pria yang menilai orang dengan benar terlepas dari apakah mereka memiliki job yang Mengecewakan, mungkin. Meskipun demikian, itu adalah hal standar bagi Hunter untuk menyembunyikan job mereka, jadi dia mengutamakan menjadikan ini sebagai hal yang lebih menyeluruh. Sudah lebih dari lima tahun sejak guild master menduduki posisinya saat ini, tetapi Aku belum pernah mendengar ada orang yang memaksa untuk mengetahui Job orang lain sejak itu." (chasse)
+"Dia adalah pria yang menilai orang dengan benar terlepas dari apakah mereka memiliki job yang Mengecewakan, mungkin. Meskipun demikian, itu adalah hal standar bagi Hunter untuk menyembunyikan job mereka, jadi dia mengutamakan menjadikan ini sebagai hal yang lebih menyeluruh. Sudah lebih dari lima tahun sejak Ketua Guild menduduki posisinya saat ini, tetapi Aku belum pernah mendengar ada orang yang memaksa untuk mengetahui Job orang lain sejak itu." (chasse)
 
-"Chasse-san, apa pendapatmu tentang guild master?" (ain)
+"Chasse-san, apa pendapatmu tentang Ketua Guild?" (ain)
 
 "Untuk alasan pribadiku, Aku mendukung dia. Tapi akhir-akhir ini, dia terlalu terbawa suasana dan itu menakutkan. Dia terlalu menyukai job yang Mengecewakan dan dia menjadi lebih ketat dengan orang-orang di job Tempur. Aku khawatir dia akan mendapat reaksi keras di masa depan." (chasse)
 
-Meskipun belum terlalu baru sejak guild master diubah, itu lima tahun yang lalu.
+Meskipun belum terlalu baru sejak Ketua Guild diubah, itu lima tahun yang lalu.
 
 Dia berusaha melawan penghinaan terhadap job yang Mengecewakan.
 
@@ -274,6 +274,6 @@ yaay akhirnya ain menyanyi lagi... wew 5 lagu dan masih kurang puas ?? menyanyi 
 
 untuk kali ini yang mendekati dan membagikan informasi bukanlah orang tua tapi party rank-b eh ?? mungkin mereka penasaran orang seperti apa 'cielmer' yang dirumorkan.. dan ya memang ain tidak mengkonfirmasi atau menolak rumor tersebut, bisa dibilang ain mengkonfirmasi rumor tersebut dengan cara halus.. kalau mereka bisa berpikir sedikit tentu mereka akan mendapatkan "jadi dia tidak menyangkalnya ya berarti benar"... walau begitu baguslah mereka tidak arrogant, dan bersikap netral... dan nama timnya super sekali.. bahkan saya sendiri bingung kenapa mereka ok dengan nama begitu, tapi sepertinya alasannya cocok juga dan mereka juga tidak mempermasalahkannya... dan mereka sendiri mengaku mereka kurang memiliki akal sehat... biasanya yg tidak masuk akal kalau didunia isekai tentu MC kan ? menurutku mungkin mereka biasa saja, bahkan jelas kalau dilihat tentu tidak masuk akal seorang anak umur 12 tahun sudah rank-c tanpa party... jadi saya rasa mereka hanya merendah saja... sungguh mereka kali ini memiliki tata krama bahkan sama seorang gadis belasan tahun atau sama yang lebih muda dari mereka...
 
-jadi, master guild adalah orang yg menjunjung tinggi anti rasis eh ? tapi akhir-akhir ini lebih mendukung ke job mengecewakan ??? sangat super duper sus.... antara ada hubunga sama duke, atau ada hubungan dengan rumor dan master guildnya tau dirumor tersebut gadis yg dibicarakan memiliki job mengecewakan... tapi kalau memang begitu, wajar dia menjadi senang dan membela job mengecewakan, atau master guild sendiri juga memiliki job mengecewakan ? atau anak ? atau keluarganya ?? dan dengan mendukung itu dia bisa memberi semangat utk dirinya/keluarganya sendiri ??? sepertinya saya bisa mencium bau-bau dimana nanti tas sihir guild akan diberikan ke ainciel eh ??? menarik..... atau jangan jangan yg ngestalking ainciel guild masternya ?? BAHAHAHAHA 
+jadi, Ketua Guild adalah orang yg menjunjung tinggi anti rasis eh ? tapi akhir-akhir ini lebih mendukung ke job mengecewakan ??? sangat super duper sus.... antara ada hubunga sama duke, atau ada hubungan dengan rumor dan master guildnya tau dirumor tersebut gadis yg dibicarakan memiliki job mengecewakan... tapi kalau memang begitu, wajar dia menjadi senang dan membela job mengecewakan, atau Ketua Guild sendiri juga memiliki job mengecewakan ? atau anak ? atau keluarganya ?? dan dengan mendukung itu dia bisa memberi semangat utk dirinya/keluarganya sendiri ??? sepertinya saya bisa mencium bau-bau dimana nanti tas sihir guild akan diberikan ke ainciel eh ??? menarik..... atau jangan jangan yg ngestalking ainciel guild masternya ?? BAHAHAHAHA 
 
 yep, sekian chapter kali ini.. semoga kalian menikmatinya ~~ kalau ada saran silahkan coret-coret di komentar. semoga kalian tetap sehat yaa dan doakan agar saya tetap punya kesempatan menerjemahkan... TERIMA KASIH !!!!

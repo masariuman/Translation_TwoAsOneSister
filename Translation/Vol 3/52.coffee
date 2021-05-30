@@ -1,6 +1,6 @@
-CHAPTER 52: STALKING, UNMASKING, AND GUILD MASTER
+CHAPTER 52: STALKING, UNMASKING, AND Ketua Guild
 
-[Tampaknya hutan diabaikan setelah pergantian Guild Master saat ini. Dengan asumsi bahwa hutan berubah dua sampai tiga tahun yang lalu, kemungkinan besar hutan itu tidak langsung diabaikan setelah guild master berada di posisinya, melainkan secara bertahap diabaikan.] (ain)
+[Tampaknya hutan diabaikan setelah pergantian Ketua Guild saat ini. Dengan asumsi bahwa hutan berubah dua sampai tiga tahun yang lalu, kemungkinan besar hutan itu tidak langsung diabaikan setelah Ketua Guild berada di posisinya, melainkan secara bertahap diabaikan.] (ain)
 
 [Tapi, jika tempat bahan potion ada disekitar sini, seharusnya hutan itu, kan? Mereka tetap mengabaikan itu?] (ciel)
 
@@ -52,7 +52,7 @@ Juga, ada satu alasan lagi mengapa Aku tidak berniat memberikan informasi sampai
 
 [Kartu truf? Apa artinya itu?] (ciel)
 
-[Dalam istilah sederhana, materi ancaman. Bagaimanapun juga, kemungkinan terjadinya penyerbuan harus menjadi tanggung jawab master guild karena mengabaikan hutan, kemungkinan besar tidak kecil.] (ain)
+[Dalam istilah sederhana, materi ancaman. Bagaimanapun juga, kemungkinan terjadinya penyerbuan harus menjadi tanggung jawab Ketua Guild karena mengabaikan hutan, kemungkinan besar tidak kecil.] (ain)
 
 [Jadi, sebagai asuransi.] (ciel)
 
@@ -210,7 +210,7 @@ Suara pria itu keras pada awalnya, tapi kali ini dia berbicara lebih keras sehin
 
 Seolah menjawab pria itu, tawa bergema dari sekitar kami.
 
-tapi, reaksi orang lain cukup beragam, mulai dari yang setuju dengan kata-kata lelaki itu, yang mencemooh lelaki itu, dan yang terus-menerus tanpa mempedulikan apa yang terjadi. Seorang staf pergi ke belakang guild juga, mungkin untuk memanggil guild master atau semacamnya.
+tapi, reaksi orang lain cukup beragam, mulai dari yang setuju dengan kata-kata lelaki itu, yang mencemooh lelaki itu, dan yang terus-menerus tanpa mempedulikan apa yang terjadi. Seorang staf pergi ke belakang guild juga, mungkin untuk memanggil Ketua Guild atau semacamnya.
 
 Aku berani bersumpah bahwa aku pernah mendengar tentang guild ibu kota yang juga baik hati untuk Jobs mengecewakan, tapi pria ini sangat berisik mengingat hal itu.
 
@@ -278,6 +278,6 @@ ingin rasanya nelepon polisi karena penguntit ini ... tapi dia cukup pintar juga
 
 dan saya berpikir untuk penguntit ini, ada 2 kemungkinan, mungkin dia tahu tentang rumor dan isu di sannosis waktu alejo menuduh ciel adalah song princess... atau, bisa saja karena kecurigaannya dengan ain yg bernyanyi dengan baik dan diterima banyak orang di pub ??? hmmmm mari kita lihat di chapter selanjutnya... dan kemana orang dari organisasi underground sebelumnya yg takut sama ain ???? hmmmmmm.. mungkin lebih baik ainciel segera keluar dari kota merepotkan ini... tapi kalu mereka keluar, volume 3 nya selesai dong hehehehe ;) ..
 
-daan mari katakan selamat datang kepada master guild kita yang nampak kuat dan tua yang baru saja menunjukkan mukanya ~~~ yaaaaay... apakah dia tetap membela ciel karena job mengecewakannya atau apakah dia akan memanfaatkan ciel ???? mari kita lihat maksud dari tujuannya yang membela job mengecewakan karena apa...
+daan mari katakan selamat datang kepada Ketua Guild kita yang nampak kuat dan tua yang baru saja menunjukkan mukanya ~~~ yaaaaay... apakah dia tetap membela ciel karena job mengecewakannya atau apakah dia akan memanfaatkan ciel ???? mari kita lihat maksud dari tujuannya yang membela job mengecewakan karena apa...
 
 YAY demikian chapter kali ini, semoga kalian menikmatinya ~~ kalau ada saran silahkan coret coret di komentar ~~~ doakan saya agar tetap sehat dan bisa menerjemahkan yak, saya juga doakan semoga kalian sehat dan kaya dong tentunya.. hehe.. TERIMA KASIH !!!
