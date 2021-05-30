@@ -53,7 +53,7 @@ Kami dibawa ke tempat yang tampak seperti ruang resepsi.
 Ini adalah tempat yang lebih sederhana daripada tempat Faneed menemui kami. Ada dua sofa besar yang saling berhadapan dengan meja yang serasi di antaranya.
 
 Chasse-san dan aku duduk di satu sisi di dekat pintu masuk, sementara Ketua Guild dan Tolt duduk di sisi yang berlawanan.
-
+----------------
 Chasse-san memiliki nada yang sangat berbeda saat dia berbicara dengan ketua serikat dibandingkan saat dia berbicara denganku.
 
 Saat dia berurusan dengan Ketua Guild, dia terdengar agak bermusuhan, kurasa.
