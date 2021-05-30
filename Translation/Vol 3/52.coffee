@@ -212,55 +212,55 @@ Seolah menjawab pria itu, tawa bergema dari sekitar kami.
 
 tapi, reaksi orang lain cukup beragam, mulai dari yang setuju dengan kata-kata lelaki itu, yang mencemooh lelaki itu, dan yang terus-menerus tanpa mempedulikan apa yang terjadi. Seorang staf pergi ke belakang guild juga, mungkin untuk memanggil guild master atau semacamnya.
 
-Aku berani bersumpah bahwa aku pernah mendengar tentang guild ibu kota yang juga baik hati untuk mengecewakan Jobs, tapi pria ini sangat berisik mengingat hal itu.
+Aku berani bersumpah bahwa aku pernah mendengar tentang guild ibu kota yang juga baik hati untuk Jobs mengecewakan, tapi pria ini sangat berisik mengingat hal itu.
 
-Aku kira Song Princess adalah pengecualian untuk itu, ya. Seorang Putri Song adalah penyebab kehancuran ibu kota di masa lalu, jadi seharusnya tidak aneh jika ada tingkat kebencian yang berbeda untuk mereka. Tetap saja, alasan asli mengapa itu terjadi sebenarnya karena ada diskriminasi terhadap Putri Song di tempat pertama.
+kukira Song Princess adalah pengecualian untuk itu, ya. Seorang Song princess adalah penyebab kehancuran ibu kota di masa lalu, jadi seharusnya tidak aneh jika ada tingkat kebencian yang berbeda untuk mereka. Tetap saja, alasan asli mengapa itu terjadi sebenarnya karena ada diskriminasi terhadap song princess.
 
-Pria yang memburu kami dengan gembira berbicara kepada kami sekali lagi.
+Pria yang mengganggu kami dengan gembira berbicara kepada kami sekali lagi.
 
-"Oi, nona. Mengacaukan kami lebih awal, eh?"
+"Oi, nona. kamu berurusan dengan kami terlalu cepat, eh?"
 
-" Aku tidak mengatakan apa-apa selain kebenaran." (ciel)
+"Aku tidak mengatakan apa-apa selain kebenaran." (ciel)
 
-" Apakah Kamu tidak bermain-main dengan Aku, bocah."
+"jangan bermain-main denganku, bocah."
 
-Aku tidak tahu apakah dia hanya berakting atau dia benar-benar marah, tetapi pria itu tiba-tiba datang untuk menangkap kami. Namun, Ciel mengelak dengan langkah ringan, dan, yang terpenting, menendang kakinya saat dia melewatinya.
+Aku tidak tahu apakah dia hanya berakting atau dia benar-benar marah, tetapi pria itu tiba-tiba bergerak untuk menangkap kami. tapi, Ciel mengelak dengan langkah ringan, dan menendang kakinya saat dia melewatinya.
 
-Kehilangan keseimbangan, pria itu membuat suara keras saat dia jatuh ke tanah, dan saat itu terjadi, Ciel menghunus pisau yang tergantung di pinggangnya dan menempelkannya ke leher pria itu.
+Kehilangan keseimbangan, pria itu membuat suara keras saat dia jatuh ke lantai, dan saat itu terjadi, Ciel menghunus pisau yang tergantung di pinggangnya dan menempelkannya ke leher pria itu.
 
 Melihat gerakan Ciel yang halus dan mengalir, orang-orang di sekitar kami tiba-tiba terdiam.
 
-Pria di tanah tercengang, kemungkinan tidak memahami apa yang baru saja terjadi padanya, tetapi dia kemudian memelototi Ciel dengan penuh kebencian ketika dia secara bertahap memahami situasinya.
+Pria di lantai tercengang, kemungkinan tidak memahami apa yang baru saja terjadi padanya, tetapi dia kemudian memelototi Ciel dengan penuh kebencian dan dia secara bertahap memahami situasinya.
 
-Ayo, kalah dari Ciel yang bahkan tidak menggunakan sihir. Ada batasan seberapa banyak seseorang harus lengah.
+Ayolaah, kalah dari Ciel yang bahkan tidak menggunakan sihir. Ada batasan seberapa banyak seseorang harus lengah.
 
-"Maka kamu, yang kalah Rank-G, lebih lemah dari orang normal." (ciel)
+"kalau begitu, kamu, yang kalah dari Rank-G, lebih lemah dari orang normal." (ciel)
 
-"Dengan seberapa lemah kamu, apa yang membuatmu sombong a-...... GyAaaAa !?"
+"Dengan lemahnya kau, apa yang membuatmu sombong a-...... GyAaaAa !?"
 
-Ketika pria itu berusaha untuk keluar dari situasi, Ciel menebas lengannya. Dengan kekuatannya, tidak mungkin bagi Ciel untuk menahan pria itu sejak awal, jadi ini adalah tindakan yang wajar.
+Ketika pria itu berusaha untuk keluar dari situasi ini, Ciel menebas lengannya. Dengan kekuatannya, tidak mungkin bagi Ciel untuk menahan pria itu sejak awal, jadi ini adalah tindakan yang wajar.
 
-Lengan itu tampaknya menjadi yang dominan, yang aku tidak tahu apakah itu pilihan yang disengaja atau tidak, jadi ini seharusnya menurunkan kemampuan bertarungnya secara besar-besaran.
+Lengan itu tampaknya menjadi lengan yang dominan, yang aku tidak tahu apakah itu pilihan yang disengaja atau tidak, jadi ini pasti menurunkan kemampuan bertarungnya secara besar-besaran.
 
-Saat pria itu menggeliat dan berteriak karena lengannya dipotong, Ciel menatapnya dengan tatapan sedingin es. Tetap saja, kurasa itu wajar saja karena dia banyak menangis hanya karena luka kecil itu. Bagaimanapun, Ciel telah mengalami luka yang lebih mengerikan dibandingkan dengan ini.
+Saat pria itu menggeliat dan berteriak karena lengannya dipotong, Ciel menatapnya dengan tatapan sedingin es. Tetap saja, kurasa itu wajar saja karena dia menangis hanya karena luka kecil itu. Bagaimanapun juga, Ciel telah mengalami luka yang lebih mengerikan dibandingkan dengan ini.
 
-Namun, membiarkannya berdarah seperti itu mungkin akan berdampak buruk. Tepat ketika Aku memikirkan itu,"Oi, Valbar." Seorang pria yang tampaknya adalah temannya mendekat dan berlutut di samping pria yang meratap itu.
+tapi, membiarkannya berdarah seperti itu mungkin akan berdampak buruk. Tepat ketika Aku memikirkan itu, "Oi, Valbar." Seorang pria yang tampaknya adalah temannya mendekat dan berlutut di samping pria yang meratap itu.
 
-Akan lebih bagus jika dia hanya merawat luka Valbar, tetapi untuk beberapa alasan"Kamu bocah!" Dia melotot ke arah Ciel.
+Akan lebih bagus jika dia hanya merawat luka Valbar, tetapi untuk beberapa alasan "bocah!" Dia melotot ke arah Ciel.
 
-Ciel bahkan tidak akan tersentak dari itu pada saat ini, jadi dia hanya melemparkan pisaunya ke pria yang berlutut sebagai balasan.
+Ciel bahkan tidak tersentak, jadi dia hanya melemparkan pisaunya ke pria yang berlutut sebagai balasan.
 
-Pisau itu menyapu rambut pria itu, dan memantul ke tanah saat mendarat.
+Pisau itu menyapu rambut pria itu, dan memantul ke lantai saat mendarat.
 
-Ini seharusnya menjadi akhir dari peran Ciel. Bagaimanapun, setelah melangkah sejauh ini, siapa pun harus mau mendengarkan apa yang kita katakan.
+Ini seharusnya menjadi akhir dari peran Ciel. setelah melangkah sejauh ini, siapa pun pasti mau mendengarkan apa yang kami katakan.
 
-Dengan mengatakan itu, [Silakan beralih dengan Aku.] Aku bertanya pada Ciel dan beralih dengannya.
+Dengan mengatakan itu, [bergantilah denganku.], Aku berkata pada Ciel dan berganti dengannya.
 
-Aku tidak tahu kemana aku harus pergi mulai sekarang, tapi kurasa kita bisa mengabaikan para Hunter yang terukir ketakutan untuk saat ini.
+Aku tidak tahu darimana aku harus mulai sekarang, tapi kurasa kami bisa mengabaikan para Hunter yang ketakutan untuk saat ini.
 
-Aku memelototi penguntit yang hanya terdiam setelah memperburuk situasi. Dosa berdiri diam setelah mengekspos Ciel pada bahaya sangat berat. Juga, eksposur pekerjaan seseorang biasanya menjadi subyek hukuman.
+Aku memelototi penguntit yang hanya terdiam setelah memperburuk situasi. Dosa berdiri diam setelah mengekspos Ciel pada bahaya sangat berat. Juga, eksposur job seseorang biasanya menjadi subyek hukuman.
 
-Jika dia hanya menyerang bersama dengan Valbar, Ciel akan mengalahkannya dan itu akan membuat Aku merasa lebih baik, tetapi sebaliknya, pria ini diam-diam tetap berada di dalam zona amannya.
+Jika dia menyerang bersama dengan Valbar, Ciel akan mengalahkannya dan itu akan membuatku merasa lebih baik, tetapi sebaliknya, pria ini diam-diam tetap berada di dalam zona amannya.
 
 Aku akan memastikan untuk setidaknya berbicara dengannya... itulah yang kupikirkan, tapi staf staf yang pergi ke suatu tempat kembali dengan seorang pria paruh baya di belakangnya.
 
