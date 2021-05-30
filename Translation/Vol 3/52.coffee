@@ -1,64 +1,62 @@
 CHAPTER 52: STALKING, UNMASKING, AND GUILD MASTER
 
-[Tampaknya hutan ditinggalkan setelah pergantian Guild Master saat ini. Dengan asumsi bahwa hutan berubah dua sampai tiga tahun yang lalu, kemungkinan besar hutan itu tidak diabaikan segera setelah guild master berada di posisinya, melainkan secara bertahap diabaikan.] (ain)
+[Tampaknya hutan diabaikan setelah pergantian Guild Master saat ini. Dengan asumsi bahwa hutan berubah dua sampai tiga tahun yang lalu, kemungkinan besar hutan itu tidak langsung diabaikan setelah guild master berada di posisinya, melainkan secara bertahap diabaikan.] (ain)
 
-[Tapi, jika tempat bahan ramuan dipanen adalah di dekatnya, seharusnya hutan itu, kan? Mereka akan mengabaikan itu?] (ciel)
+[Tapi, jika tempat bahan potion ada disekitar sini, seharusnya hutan itu, kan? Mereka tetap mengabaikan itu?] (ciel)
 
-Sambil merasakan bahwa penguntit itu mengikuti dari belakang, Aku mulai berbicara dengan Ciel.
+Sambil merasakan penguntit itu mengikuti dari belakang, Aku mulai berbicara dengan Ciel.
 
 Ini sebenarnya bukan topik untuk didiskusikan saat dikejar oleh penguntit, tapi juga bukan topik yang akan kusimpan secara khusus sampai kita kembali ke penginapan, jadi aku memutuskan untuk terus berbicara.
 
-[Meskipun kami tidak tahu bagaimana keadaannya di masa lalu, mereka tampaknya tidak khawatir tentang kekurangannya saat ini, jadi mungkin ini bukan prioritas bagi mereka. Meskipun Aku berpikir bahwa mengabaikan hutan adalah masalah bagi negara, apakah ini kesalahan kerajaan atau kesalahan Guild Hunter, Aku tidak tahu pasti.] (ain)
+[Meskipun kita tidak tahu bagaimana keadaannya di masa lalu, mereka tampaknya tidak khawatir tentang kekurangannya saat ini, jadi mungkin ini bukan prioritas bagi mereka. Meskipun Aku berpikir bahwa mengabaikan hutan adalah masalah bagi negara, apakah ini kesalahan kerajaan atau kesalahan Guild Hunter, Aku tidak tahu pasti.] (ain)
 
-[Bereaksi hanya setelah sesuatu terjadi sudah terlambat menurut Aku .] (ciel)
+[Bereaksi hanya setelah sesuatu terjadi sudah terlambat.] (ciel)
 
-[Meskipun kami dapat mengatakan bahwa dari sudut pandang orang luar, karena organisasi memiliki agenda mereka sendiri, semuanya tidak selalu berjalan mulus.] (ain)
+[Meskipun kita dapat mengatakan bahwa dari sudut pandang orang luar, karena organisasi memiliki agenda mereka sendiri, semuanya tidak selalu berjalan mulus.] (ain)
 
 Bahkan dari sudut pandang sejarah, hal-hal yang menyimpang karena politik bukanlah hal yang aneh untuk dilihat.
 
 Dan sementara Aku tidak yakin apakah hal yang sama berlaku untuk dunia ini, setidaknya Aku berpikir bahwa kerajaan ini tidak memiliki sistem manajemen risiko yang baik.
 
-Apakah mereka tidak dapat memobilisasi kecuali sesuatu telah terjadi? Ataukah bahkan jika mereka menyadari sesuatu akan terjadi, mereka terlalu sibuk menyebarkan kesalahan untuk membuat kemajuan?
+Apakah mereka tidak dapat memobilisasi kecuali sesuatu telah terjadi? Ataukah bahkan jika mereka menyadari sesuatu akan terjadi, mereka terlalu sibuk melemparkan kesalahan untuk membuat kemajuan?
 
-[Kalau begitu, Aku tidak ingin berada dalam suatu organisasi. Lagipula, Aku tidak ingin memikirkan hal lain selain Kamu dan Aku, Ain. Aku kira Aku harus berhenti menjadi Hunter juga.] (ciel)
+[Kalau begitu, Aku tidak ingin berada dalam suatu organisasi. Lagipula, Aku tidak ingin memikirkan hal lain selain Kamu dan Aku, Ain. Aku bahkan berpikir Aku harus berhenti menjadi Hunter juga.] (ciel)
 
-Ciel mengatakannya dengan cekikikan bercanda, tetapi Aku juga tidak akan keberatan jika kami berhenti dari pertunjukan Hunter setelah kami melarikan diri dari Kerajaan Estock.
+Ciel mengatakannya dengan cekikikan bercanda, tetapi Aku juga tidak akan keberatan jika kami berhenti dari Hunter setelah kami melarikan diri dari Kerajaan Estock.
 
 Meskipun saat ini kami tidak benar-benar memiliki alasan untuk berhenti secara khusus, jadi kami mungkin akan melanjutkan sampai kami menemukannya.
 
-[Mari kita lakukan itu setidaknya setelah kita meninggalkan negara itu. Kembali ke topik kita, mengingat ibu kota kerajaan, akan lebih baik untuk melaporkan informasi tentang penyerbuan dalam waktu dekat.] (ain)
+[Mari kita lakukan itu setidaknya setelah kita meninggalkan negara ini. Kembali ke topik kita, mengingat ibu kota kerajaan, akan lebih baik untuk melaporkan informasi tentang penyerbuan dalam waktu dekat.] (ain)
 
-[Bagaimanapun, mereka perlu waktu untuk bersiap.] (ciel)
+[Bagaimanapun juga, mereka perlu waktu untuk bersiap.] (ciel)
 
-[Karena masih ada kemungkinan yang sangat kecil bahwa kita mungkin terpengaruh dengan penyerbuan, memberi tahu guild tentang hal itu seharusnya mencegah kami dari masalah di masa depan.] (ain)
+[Karena masih ada kemungkinan yang sangat kecil bahwa kita mungkin terpengaruh dengan penyerbuan, memberi tahu guild tentang hal ini seharusnya mencegah kita dari masalah di masa depan.] (ain)
 
-[Tetap saja, Kamu tidak ingin memberi tahu mereka tentang hal itu, kan?] (ciel)
+[Tetap saja, Kamu tidak ingin memberi tahu mereka tentang itu, kan?] (ciel)
 
-[Tidak juga, Aku pikir akan lebih baik untuk memberi tahu guild pada akhirnya. Namun, menyampaikan informasi sebelum kita meninggalkan ibu kota kerajaan seharusnya menjadi pilihan terbaik kita. Memiliki surat atau sesuatu yang dikirimkan untuk kita sepertinya tidak terlalu merepotkan.] (ain)
+[Tidak juga, Aku pikir akan lebih baik untuk memberi tahu guild juga. tapi, menyampaikan informasi sebelum kita meninggalkan ibu kota kerajaan seharusnya menjadi pilihan terbaik kita. Memiliki surat atau sesuatu yang dikirimkan untuk kita sepertinya tidak terlalu merepotkan.] (ain)
 
-[Jika kita mengatakan" Penyerbuan mungkin terjadi."Atau sesuatu, bagaimanapun juga kita akan menonjol.
-Sebaliknya, mereka bahkan mungkin tidak menganggapnya serius.] (ciel)
+[Jika kita mengatakan "Penyerbuan mungkin terjadi." Atau seperti itu, bagaimanapun juga kita akan menonjol. Sebaliknya, mereka bahkan mungkin tidak menganggapnya serius.] (ciel)
 
 Sayangnya, seperti yang dikatakan Ciel, perkataan seorang gadis berusia 12 tahun akan sangat sulit dipercaya orang.
 
-Ada banyak orang yang dengan cepat mengubah sikap mereka begitu mereka mengetahui bahwa kita adalah Hunter Rank-C, tetapi meyakinkan orang. bahwa kita benar-benar Rank C akan membutuhkan waktu dan tenaga juga. Paling buruk, ini akan menjadi pesta besar-besaran lagi.
+Ada banyak orang yang dengan cepat mengubah sikap mereka begitu mereka mengetahui bahwa kami adalah Hunter Rank-C, tetapi meyakinkan orang bahwa kami benar-benar Rank C akan membutuhkan waktu dan tenaga juga. situasi terburuk, ini akan menjadi sparring besar-besaran lagi.
 
 Daripada mengalami masalah seperti itu, pergi diam-diam jauh lebih baik.
 
-Dan karena ini mungkin menjadi bumerang kali ini, kami dapat memilih untuk memberi tahu mereka melalui surat dalam kasus terburuk. Itu adalah Welas Asih bukan untuk kebaikan orang lain . Mungkin dalam beberapa hal.
+Dan karena ini mungkin menjadi bumerang kali ini, kami dapat memilih untuk memberi tahu mereka melalui surat dalam kasus terburuk. Itu adalah rasa iba bukan untuk kebaikan orang lain. Mungkin dalam beberapa hal.
 
 Juga, ada satu alasan lagi mengapa Aku tidak berniat memberikan informasi sampai saat-saat terakhir.
 
-[Itu juga poin yang adil. Juga, Aku ingin menyimpannya sebagai kartu truf melawan guild.] (ain)
+[Itu juga poinnya. Juga, Aku ingin menyimpannya sebagai kartu truf melawan guild.] (ain)
 
 [Kartu truf? Apa artinya itu?] (ciel)
 
-[Dalam istilah sederhana, materi pemerasan.
-Bagaimanapun, kemungkinan terjadinya penyerbuan harus menjadi tanggung jawab ketua serikat karena mengabaikan hutan, kemungkinan besar tidak kecil.] (ain)
+[Dalam istilah sederhana, materi ancaman. Bagaimanapun juga, kemungkinan terjadinya penyerbuan harus menjadi tanggung jawab master guild karena mengabaikan hutan, kemungkinan besar tidak kecil.] (ain)
 
 [Jadi, sebagai asuransi.] (ciel)
 
-[Itu akan benar.] (ain)
+[benar.] (ain)
 
 Jika kita tidak perlu menggunakannya, maka akan lebih baik begitu. Namun, saat kita berada di ibu kota, masih ada kemungkinan untuk berselisih dengan Guild Hunter.
 
@@ -138,7 +136,7 @@ Saat Ciel melirik ke pintu masuk, seorang pria muda kurus sedang menatap kami da
 
 Meskipun Aku dapat mengatakan hal yang sama untuk kami, dia sama sekali tidak terlihat seperti Hunter.
 
-Karena dia mengikuti kami sejak kami meninggalkan pub resmi, aku curiga dia mungkin anggota guild tapi ....... jika bukan begitu, dia mungkin seorang staf. Dia tidak memakai seragam.
+Karena dia mengikuti kami sejak kami meninggalkan pub resmi, aku curiga dia mungkin anggota guild tapi....... jika bukan begitu, dia mungkin seorang staf. Dia tidak memakai seragam.
 
 "Nona, menurutmu untuk apa kau mengabaikanku, eh ?"
 
@@ -176,7 +174,7 @@ Sepertinya dia memikirkan ide yang tidak berharga, tapi sayangnya aku tidak bisa
 
 " Aku tidak memiliki kewajiban untuk memberi tahu Kamu dan Aku bahkan tidak membutuhkan pengakuan Kamu." (ciel)
 
-" Itu masalah, Aku hanya mengatakan ini dari kebaikan hati Aku ."
+" Itu masalah, Aku hanya mengatakan ini dari kebaikan hati Aku."
 
 Tampaknya kebaikannya memiliki definisi yang berbeda dengan Aku.
 
@@ -238,7 +236,7 @@ Ayo, kalah dari Ciel yang bahkan tidak menggunakan sihir. Ada batasan seberapa b
 
 "Maka kamu, yang kalah Rank-G, lebih lemah dari orang normal." (ciel)
 
-"Dengan seberapa lemah kamu, apa yang membuatmu sombong a- ...... GyAaaAa !?"
+"Dengan seberapa lemah kamu, apa yang membuatmu sombong a-...... GyAaaAa !?"
 
 Ketika pria itu berusaha untuk keluar dari situasi, Ciel menebas lengannya. Dengan kekuatannya, tidak mungkin bagi Ciel untuk menahan pria itu sejak awal, jadi ini adalah tindakan yang wajar.
 
@@ -264,10 +262,10 @@ Aku memelototi penguntit yang hanya terdiam setelah memperburuk situasi. Dosa be
 
 Jika dia hanya menyerang bersama dengan Valbar, Ciel akan mengalahkannya dan itu akan membuat Aku merasa lebih baik, tetapi sebaliknya, pria ini diam-diam tetap berada di dalam zona amannya.
 
-Aku akan memastikan untuk setidaknya berbicara dengannya ... itulah yang kupikirkan, tapi staf staf yang pergi ke suatu tempat kembali dengan seorang pria paruh baya di belakangnya.
+Aku akan memastikan untuk setidaknya berbicara dengannya... itulah yang kupikirkan, tapi staf staf yang pergi ke suatu tempat kembali dengan seorang pria paruh baya di belakangnya.
 
 Pria beruban, meski tidak sama dengan Hunter, memiliki kekuatan besar di belakang matanya.
 
-"Oi, Valbar. Kamu, masalah apa yang kamu sebabkan ini ..... Heck, apa yang baru saja terjadi di sini ......"
+"Oi, Valbar. Kamu, masalah apa yang kamu sebabkan ini..... Heck, apa yang baru saja terjadi di sini......"
 
 Pria yang tampaknya bermartabat itu tidak bisa berkata-kata ketika dia dihadapkan dengan seorang gadis yang bahkan belum dewasa berdiri di depan seorang pria yang meratap saat dia berlumuran darah, pria lain di sebelahnya duduk kosong di lantai, dan pria lain yang berbeda meringkuk ketakutan karena dia sedang ditatap oleh gadis itu.
