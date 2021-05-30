@@ -72,61 +72,61 @@ Meskipun akan lebih baik jika hal-hal tidak mencapai titik itu, tidak ada alasan
 
 [Lagipula akan canggung untuk masuk untuk orang-orang non-Hunter.] (ciel)
 
-[Selain itu, jika ada yang lain Hunter di sekitar, Aku membayangkan bahwa kita hampir pasti akan diburu, dan jika itu terjadi, itu akan menyebabkan semacam kekacauan pada kebuntuan kita saat ini. Aku tidak tahu apakah dia akan berkelahi atau hanya dengan santai mendekati kita.] (ain)
+[Selain itu, jika ada yang Hunter lain di sekitar, Aku membayangkan bahwa kita hampir pasti akan diganggu, dan jika itu terjadi, itu akan menyebabkan semacam kekacauan pada kebuntuan kita saat ini. Aku tidak tahu apakah dia akan berkelahi atau hanya dengan santai mendekati kita.] (ain)
 
 Sementara Aku masih sangat berkonflik tentang mengapa kami harus melalui upaya sebanyak ini, penginapan kami akan terbuka jika kami tidak melakukan apa-apa, dan kami tidak akan dapat bersantai di malam hari.
 
-Jika penguntit tidak datang sebelum kita bahkan setelah kita pergi ke guild, aku mungkin harus meminta Ciel untuk langsung menghadapinya.
+Jika penguntit tidak datang menemui kami bahkan setelah kami pergi ke guild, aku mungkin harus meminta Ciel untuk langsung menghadapinya.
 
-[Jika memang begitu, maka haruskah Aku beralih dari awal?] (ciel)
+[Jika memang begitu, haruskah Aku mengabil alih dari awal?] (ciel)
 
-[Mengingat kemungkinan kita akan diburu, itu pilihan yang lebih aman. Aku akan mempercayakan ini padamu.] (ain)
+[Mengingat kemungkinan kita akan diganggu, itu pilihan yang lebih aman. Aku akan mempercayakan ini padamu.] (ain)
 
-[Tentu, serahkan padaku. Aku akan menunjukkan kepada Kamu apa yang bisa Aku lakukan.] (ciel)
+[Tentu, serahkan padaku. Aku akan menunjukkan kepadamu apa yang bisa Aku lakukan.] (ciel)
 
 Sambil merasakan sedikit ketidaknyamanan setelah melihat Ciel sangat bersemangat, Aku masih memutuskan untuk mempercayakan masalah ini kepada Ciel karena kami tidak punya pilihan lain.
 
 ◇
 
-Kami tiba sebelum Guild Hunter.
+Kami tiba di Guild Hunter.
 
-Untuk memastikan seseorang akan mengganggu kami kali ini, kami sengaja tiba di waktu dengan lalu lintas Hunter biasa-biasa saja. Tetap saja, bahkan saat kami sedang menghabiskan waktu, penguntit tidak meninggalkan kami sama sekali.
+Untuk memastikan seseorang akan mengganggu kami kali ini, kami sengaja tiba di waktu dimana tidak terlalu sepi. Tetap saja, bahkan saat kami sedang menghabiskan waktu, penguntit tidak meninggalkan kami sama sekali.
 
-Sungguh, apa yang dia inginkan? Pada titik ini, aku akan lega jika dia menyerang kita.
+Sungguh, apa yang dia inginkan? Pada titik ini, aku akan lega jika dia menyerang kami.
 
-Jadi, karena tidak ada perubahan sama sekali, Ciel beralih denganku dan menuju ke pintu masuk gedung Guild Hunter.
+Jadi, karena tidak ada perubahan sama sekali, Ciel berganti denganku dan menuju ke pintu masuk gedung Guild Hunter.
 
-Dia membuka pintu keluar kayu dan masuk ke dalam. Di penginapan dan beberapa tempat lain, pintu akan terbuka ke dalam.
+Dia membuka pintu kayu dan masuk ke dalam. Di penginapan dan beberapa tempat lain, pintu akan terbuka ke dalam.
 
-Aku mendengar bahwa alasan mengapa sebagian besar Guild Hunter memiliki pintu keluar adalah karena pintu dalam dengan sendirinya menyebabkan masalah meningkat.
+Aku mendengar bahwa alasan mengapa sebagian besar Guild Hunter memiliki pintu terbuka keluar adalah karena pintu terbuka kedalam dengan sendirinya menyebabkan masalah meningkat.
 
-Bunyinya seperti ini: Seorang pemula akan dengan antusias membuka pintu, yang kemudian mengenai beberapa bajingan Hunter.
+seperti: Seorang pemula akan dengan antusias membuka pintu, yang kemudian pintunya terkena beberapa hunter bajingan.
 
 Kami tidak pernah memukul siapa pun ketika kami membuka pintu, tetapi meskipun demikian, masuk saja membuat kami menjadi sorotan banyak orang.
 
-Seperti menguntit, bukankah ini sesuatu yang orang bisa panggil polisi untuk kehidupan masa lalu Aku?
+Seperti menguntit, bukankah ini sesuatu yang bisa memanggil polisi untuk kehidupan masa laluku?
 
-Meskipun jika ini seperti kehidupan masa laluku, itu berarti aku tidak akan bisa menggunakan metode penyelesaian masalah yang berorientasi pada Hunter cepat karena aku samar-samar ingat ada hukum yang melarang duel juga.
+Meskipun jika ini seperti kehidupan masa laluku, itu berarti aku tidak akan bisa menggunakan metode penyelesaian masalah yang berorientasi pada Hunter karena aku samar-samar mengingat ada hukum yang melarang berkelahi juga.
 
 Setelah memasuki gedung, Ciel menuju ke papan permintaan Rank-C tanpa alasan tertentu.
 
-Ini mungkin, seperti, kebiasaan sekarang. Menjadi seorang Hunter, seseorang melihat papan permintaan ketika masuk ke dalam guild.
+Ini mungkin, seperti, kebiasaan kami sekarang. Menjadi seorang Hunter, seseorang melihat papan permintaan ketika masuk ke dalam guild.
 
-Itu adalah perilaku yang normal, sepenuhnya alami.
+Itu adalah perilaku yang normal, dan sepenuhnya alami.
 
-"Oi , nona."
+"Oi, nona."
 
-Namun, itu hanya dalam kasus orang-orang yang terlihat sesuai dengan rank mereka.
+tapi, itu hanya dalam kasus orang-orang yang terlihat sesuai dengan rank mereka.
 
-Memiliki seseorang yang segera memanggil kami, untuk kali ini, cukup beruntung untuk berbicara.
+Memiliki seseorang yang segera memanggil kami, untuk kali ini, kami cukup beruntung.
 
-Saat suara itu datang dari seorang pria dengan pakaian compang-camping, rambut tidak terawat, tampilan vulgar yang menghina yang membuatnya sulit untuk mengetahui bahwa hanya wajahnya yang jelek untuk memulai atau tidak, dan tatapan menjijikkan; Aku tidak bisa menyebut ini beruntung.
+suara itu datang dari seorang pria dengan pakaian compang-camping, rambut tidak terawat, tampilan vulgar yang menghina yang membuatnya sulit untuk dikatakan bahwa hanya wajahnya yang jelek atau tidak, dan tatapan menjijikkan; Aku tidak bisa menyebut ini beruntung.
 
 Mengabaikan suara pria itu, Ciel bertanya padaku sebuah pertanyaan.
 
-[Apakah orang tersebut telah memasuki guild?] (ciel)
+[Apakah orang tersebut sudah memasuki guild?] (ciel)
 
-[Dia melakukannya. Karena itu tidak menimbulkan keributan, dia mungkin berhubungan dengan guild.] (ain)
+[iya. Karena itu tidak menimbulkan keributan, dia mungkin berhubungan dengan guild.] (ain)
 
 [Di mana dia sekarang?] (ciel)
 
