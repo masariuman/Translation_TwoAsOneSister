@@ -1,35 +1,43 @@
 CHAPTER 52: STALKING, UNMASKING, AND GUILD MASTER
 
-[Tampaknya hutan ditinggalkan setelah pergantian Guild Master saat ini.
-Dengan asumsi bahwa hutan berubah dua sampai tiga tahun yang lalu, kemungkinan besar hutan itu tidak diabaikan segera setelah guild master berada di posisinya, melainkan secara bertahap diabaikan.]
-[Tapi, jika tempat bahan ramuan dipanen adalah di dekatnya, seharusnya hutan itu, kan? Mereka akan mengabaikan itu?
+[Tampaknya hutan ditinggalkan setelah pergantian Guild Master saat ini. Dengan asumsi bahwa hutan berubah dua sampai tiga tahun yang lalu, kemungkinan besar hutan itu tidak diabaikan segera setelah guild master berada di posisinya, melainkan secara bertahap diabaikan.] (ain)
+
+[Tapi, jika tempat bahan ramuan dipanen adalah di dekatnya, seharusnya hutan itu, kan? Mereka akan mengabaikan itu?] (ciel)
 
 Sambil merasakan bahwa penguntit itu mengikuti dari belakang, Aku mulai berbicara dengan Ciel.
+
 Ini sebenarnya bukan topik untuk didiskusikan saat dikejar oleh penguntit, tapi juga bukan topik yang akan kusimpan secara khusus sampai kita kembali ke penginapan, jadi aku memutuskan untuk terus berbicara.
 
-[Meskipun kami tidak tahu bagaimana keadaannya di masa lalu, mereka tampaknya tidak khawatir tentang kekurangannya saat ini, jadi mungkin ini bukan prioritas bagi mereka. Meskipun Aku berpikir bahwa mengabaikan hutan adalah masalah bagi negara, apakah ini kesalahan kerajaan atau kesalahan Guild Hunter, Aku tidak tahu pasti.]
-[Bereaksi hanya setelah sesuatu terjadi sudah terlambat menurut Aku .]
-[Meskipun kami dapat mengatakan bahwa dari sudut pandang orang luar, karena organisasi memiliki agenda mereka sendiri, semuanya tidak selalu berjalan mulus.]
+[Meskipun kami tidak tahu bagaimana keadaannya di masa lalu, mereka tampaknya tidak khawatir tentang kekurangannya saat ini, jadi mungkin ini bukan prioritas bagi mereka. Meskipun Aku berpikir bahwa mengabaikan hutan adalah masalah bagi negara, apakah ini kesalahan kerajaan atau kesalahan Guild Hunter, Aku tidak tahu pasti.] (ain)
+
+[Bereaksi hanya setelah sesuatu terjadi sudah terlambat menurut Aku .] (ciel)
+
+[Meskipun kami dapat mengatakan bahwa dari sudut pandang orang luar, karena organisasi memiliki agenda mereka sendiri, semuanya tidak selalu berjalan mulus.] (ain)
 
 Bahkan dari sudut pandang sejarah, hal-hal yang menyimpang karena politik bukanlah hal yang aneh untuk dilihat.
+
 Dan sementara Aku tidak yakin apakah hal yang sama berlaku untuk dunia ini, setidaknya Aku berpikir bahwa kerajaan ini tidak memiliki sistem manajemen risiko yang baik.
+
 Apakah mereka tidak dapat memobilisasi kecuali sesuatu telah terjadi? Ataukah bahkan jika mereka menyadari sesuatu akan terjadi, mereka terlalu sibuk menyebarkan kesalahan untuk membuat kemajuan?
 
-[Kalau begitu, Aku tidak ingin berada dalam suatu organisasi.
-Lagipula, Aku tidak ingin memikirkan hal lain selain Kamu dan Aku, Ain. Aku kira Aku harus berhenti menjadi Hunter juga.]
+[Kalau begitu, Aku tidak ingin berada dalam suatu organisasi. Lagipula, Aku tidak ingin memikirkan hal lain selain Kamu dan Aku, Ain. Aku kira Aku harus berhenti menjadi Hunter juga.] (ciel)
 
 Ciel mengatakannya dengan cekikikan bercanda, tetapi Aku juga tidak akan keberatan jika kami berhenti dari pertunjukan Hunter setelah kami melarikan diri dari Kerajaan Estock.
+
 Meskipun saat ini kami tidak benar-benar memiliki alasan untuk berhenti secara khusus, jadi kami mungkin akan melanjutkan sampai kami menemukannya.
 
-[Mari kita lakukan itu setidaknya setelah kita meninggalkan negara itu.
-Kembali ke topik kita, mengingat ibu kota kerajaan, akan lebih baik untuk melaporkan informasi tentang penyerbuan dalam waktu dekat.]
-[Bagaimanapun, mereka perlu waktu untuk bersiap.]
-[Karena masih ada kemungkinan yang sangat kecil bahwa kita mungkin terpengaruh dengan penyerbuan, memberi tahu guild tentang hal itu seharusnya mencegah kami dari masalah di masa depan.]
-[Tetap saja, Kamu tidak ingin memberi tahu mereka tentang hal itu, kan?]
-[Tidak juga, Aku pikir akan lebih baik untuk memberi tahu guild pada akhirnya .
-Namun, menyampaikan informasi sebelum kita meninggalkan ibu kota kerajaan seharusnya menjadi pilihan terbaik kita. Memiliki surat atau sesuatu yang dikirimkan untuk kita sepertinya tidak terlalu merepotkan.]
+[Mari kita lakukan itu setidaknya setelah kita meninggalkan negara itu. Kembali ke topik kita, mengingat ibu kota kerajaan, akan lebih baik untuk melaporkan informasi tentang penyerbuan dalam waktu dekat.] (ain)
+
+[Bagaimanapun, mereka perlu waktu untuk bersiap.] (ciel)
+
+[Karena masih ada kemungkinan yang sangat kecil bahwa kita mungkin terpengaruh dengan penyerbuan, memberi tahu guild tentang hal itu seharusnya mencegah kami dari masalah di masa depan.] (ain)
+
+[Tetap saja, Kamu tidak ingin memberi tahu mereka tentang hal itu, kan?] (ciel)
+
+[Tidak juga, Aku pikir akan lebih baik untuk memberi tahu guild pada akhirnya. Namun, menyampaikan informasi sebelum kita meninggalkan ibu kota kerajaan seharusnya menjadi pilihan terbaik kita. Memiliki surat atau sesuatu yang dikirimkan untuk kita sepertinya tidak terlalu merepotkan.] (ain)
+
 [Jika kita mengatakan" Penyerbuan mungkin terjadi."Atau sesuatu, bagaimanapun juga kita akan menonjol.
-Sebaliknya, mereka bahkan mungkin tidak menganggapnya serius.]
+Sebaliknya, mereka bahkan mungkin tidak menganggapnya serius.] (ciel)
 
 Sayangnya, seperti yang dikatakan Ciel, perkataan seorang gadis berusia 12 tahun akan sangat sulit dipercaya orang.
 Ada banyak orang yang dengan cepat mengubah sikap mereka begitu mereka mengetahui bahwa kita adalah Hunter Rank-C, tetapi meyakinkan orang. bahwa kita benar-benar Rank C akan membutuhkan waktu dan tenaga juga. Paling buruk, ini akan menjadi pesta besar-besaran lagi.
