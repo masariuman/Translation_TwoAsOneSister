@@ -1,6 +1,6 @@
 Side Story 2
 
-Setelah keluar dari kamar mandi, Ain mengeringkan rambut basahku dengan sihir. Meskipun sihir Ain lemah, dengan beberapa pengecualian tertentu, kelemahan kekuatan ini cukup membantu dalam utilitas sehari-hari. Seperti saat kita ingin memanaskan minuman, itu sangat nyaman.
+Setelah keluar dari kamar mandi, Ain mengeringkan rambut basahku dengan sihir. Meskipun sihir Ain lemah, dengan beberapa pengecualian tertentu, kelemahan ini cukup membantu dalam utilitas sehari-hari. Seperti saat kami ingin memanaskan minuman, itu sangat nyaman.
 
 Bukan tidak mungkin bagi Aku untuk melakukan hal yang sama tetapi karena itu membutuhkan tingkat presisi yang tinggi, itu membuat Aku sangat lelah ketika Aku mencobanya.
 
