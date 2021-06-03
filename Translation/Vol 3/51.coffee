@@ -76,7 +76,7 @@ Masing-masing meminum minuman beralkohol mereka sendiri, tetapi Aku hanya minum 
 
 "Nama party yang sangat luar biasa." (ain)
 
-"Itu karena kami semua dengan keras kepala fokus pada satu hal. kami pada awalnya cukup bingung, karena tidak ada dari kami yang memiliki akal sehat."
+"Itu karena kami semua dengan keras kepala fokus pada satu hal. kami pada awalnya cukup bingung, karena tidak ada dari kami yang memiliki akal sehat." (chasse)
 
 Dalam istilah yang lebih baik, mereka adalah sekelompok pekerja keras.
 
