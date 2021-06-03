@@ -53,38 +53,38 @@ Kami dibawa ke tempat yang tampak seperti ruang resepsi.
 Ini adalah tempat yang lebih sederhana daripada tempat Faneed menemui kami. Ada dua sofa besar yang saling berhadapan dengan meja yang serasi di antaranya.
 
 Chasse-san dan aku duduk di satu sisi di dekat pintu masuk, sementara Ketua Guild dan Tolt duduk di sisi yang berlawanan.
-----------------
-Chasse-san memiliki nada yang sangat berbeda saat dia berbicara dengan ketua serikat dibandingkan saat dia berbicara denganku.
 
-Saat dia berurusan dengan Ketua Guild, dia terdengar agak bermusuhan, kurasa.
+Chasse-san memiliki nada yang sangat berbeda saat dia berbicara dengan Ketua Guild dibandingkan saat dia berbicara denganku.
 
-"Awal dari semuanya bukanlah sesuatu yang istimewa. Valbar memperhatikan Cielmer dan menabraknya. Aku tidak mendengar alasannya, tapi itu mungkin karena penampilannya. Ini adalah konflik antara para Hunter, jadi kami tidak punya alasan untuk campur tangan kecuali jika semuanya berjalan terlalu jauh, dan karena Cielmer adalah yang lebih kuat, Valbar dan rekan-rekannya membuat tabel pada mereka. Dari sudut pandang Cielmer, dia hanya diganggu, tetapi Valbar baru saja menuai apa yang dia tabur. Dan tepat ketika tabel diputar, Ketua Guild datang." (chasse)
+Saat dia berurusan dengan Ketua Guild, dia terdengar agak bermusuhan, mungkin.
+
+"Awal dari semuanya bukanlah sesuatu yang istimewa. Valbar melihat Cielmer dan mendatanginya. Aku tidak mendengar alasannya, tapi itu mungkin karena penampilannya. Ini adalah konflik antara para Hunter, jadi kami tidak punya alasan untuk campur tangan kecuali jika menjadi terlalu jauh, dan karena Cielmer lebih kuat, Valbar dan rekan-rekannya kalah dengannya. Dari sudut pandang Cielmer, dia hanya diganggu, tetapi Valbar baru saja menuai apa yang dia tabur. Dan tepat ketika valbar dikalahkan, Ketua Guild datang." (chasse)
 
 "Tidak bisakah kamu menghentikan mereka sebelum terjadi kekerasan?"
 
 "Cielmer lebih kuat dari yang Aku harapkan, Kamu mengerti?" (chasse)
 
-Setelah mengatakan ini, Chasse-san mengalihkan pandangannya ke arahku tapi itu bukan salahku, atau lebih tepatnya Ciel, salah.
+Setelah mengatakan ini, Chasse-san mengalihkan pandangannya ke arahku tapi itu bukan salahku, atau lebih tepatnya salah, ciel.
 
-Aku mengklaim segalanya, termasuk garis miring, sebagai pembelaan diri yang sah. Aku tidak tahu apakah pembelaan diri secara hukum diakui di sini.
+Aku mengklaim segalanya, termasuk menebas, sebagai pembelaan diri yang sah. Aku tidak tahu apakah pembelaan diri secara hukum diakui di sini.
 
-Tetap saja, tidak boleh dilarang untuk melindungi diri sendiri.
+Tetap saja, tidak masalah untuk melindungi diri sendiri.
 
-"Nah, pada level Valbar, bahkan seorang gadis seusiamu seharusnya bisa mengalahkannya tergantung pada Pekerjaanmu. Meskipun demikian, meretasnya agak tidak masuk akal jika Kamu bertanya kepada Aku."
+"Nah, pada level Valbar, bahkan seorang gadis seusiamu seharusnya bisa mengalahkannya tergantung pada Jobmu. Tapi, merusaknya agak tidak masuk akal jika Kamu bertanya kepadaku."
 
-Sebenarnya, memberi tahu seseorang dengan Job non-combat untuk menghadapi pertarungan Job-ish Valbar tanpa melukainya adalah lebih tidak masuk akal.
+Sebenarnya, memberi tahu seseorang dengan Job non-petarung untuk menghadapi Job-petarung Valbar tanpa melukainya adalah lebih tidak masuk akal.
 
 Aku mempertimbangkan untuk memberinya tatapan celaan atau semacamnya, tetapi aku mungkin akan membahayakan posisiku jika aku mulai menjadi emosional di sini, jadi aku menahan diri dan tersenyum.
 
 Sementara Ketua Guild mengerutkan alisnya saat dia melihat ekspresiku, dia melanjutkan diskusi.
 
-"Lalu, di mana Tolt ikut bermain? Dari apa yang baru saja Kamu katakan, dia sama sekali tidak terkait dengan ini."
+"Lalu, di mana Tolt terlibat? Dari apa yang baru saja Kamu katakan, dia sama sekali tidak terkait dengan ini."
 
-"Itu karena Aku sengaja meninggalkan informasi itu. Sebaliknya, dialah yang menyebabkan masalah ini. Ketua Guild, Kamu tahu Pekerjaan Tolt, bukan?" (chasse)
+"Itu karena Aku sengaja memisahkan tentang Tolt. Sebaliknya, dialah yang menyebabkan masalah ini. Ketua Guild, Kamu tahu Job Tolt, bukan?" (chasse)
 
-"Tidak, Aku tidak tahu. Padahal, Aku tahu bahwa dia adalah anggota staf yang muda tapi menjanjikan."
+"Tidak, Aku tidak tahu. Aku tahu bahwa dia adalah anggota staf yang muda tapi menjanjikan."
 
-Saat ketua serikat membelanya, wajah kaku Tolt sedikit melunak.
+Saat Ketua Guild membelanya, wajah kaku Tolt sedikit melunak.
 
 Karena Guild Hunter menentang diskriminasi Job, mungkin saja atasan tidak menyadari Pekerjaan personel mereka.
 
@@ -100,7 +100,7 @@ Namun, mengingat Aku berspekulasi tentang pekerjaan Tolt, ini adalah sesuatu yan
 
 "Ketika Valbar mencoba memaksa Pekerjaan Cielmer keluar darinya, Tolt mengungkapkannya kepada Valbar sebelum kami bisa turun tangan. Dan meskipun Cielmer mencoba berpura-pura tidak tahu, dia menegaskan dengan keyakinan penuh. Setelah mendengar ini, Valbar dengan keras mengumumkannya ke seluruh guild." (chasse)
 
-Ketua serikat terdiam saat rahangnya jatuh karena terkejut.
+Ketua Guild terdiam saat rahangnya jatuh karena terkejut.
 
 Tetap saja, Chasse-san tampaknya menegaskan bahwa yang terjadi bukanlah tanggung jawabnya. Aku tidak terlalu keberatan, tapi mungkin dia dalam posisi di mana dia harus campur tangan dengan hal-hal semacam ini.
 
@@ -128,7 +128,7 @@ Tolt kemudian melanjutkan serangan mentalnya pada Ketua Guild.
 
 Mendengar amarah dalam suara Ketua Guild, Tolt menjauh dan menelan kata-katanya.
 
-Ketua serikat menggaruk kepalanya dengan kedua lengan karena iritasi yang tak terkendali, tapi karena semua usahanya baru saja dihancurkan oleh Tolt, itu bisa dimengerti.
+Ketua Guild menggaruk kepalanya dengan kedua lengan karena iritasi yang tak terkendali, tapi karena semua usahanya baru saja dihancurkan oleh Tolt, itu bisa dimengerti.
 
 Meskipun saat ini, menurutku pertanyaan terakhir Ketua Guild adalah upaya untuk menjauhkan dirinya dari Tolt, jadi jawaban Tolt tidak mungkin salah.
 
