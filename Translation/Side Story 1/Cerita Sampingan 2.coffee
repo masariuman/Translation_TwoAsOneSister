@@ -210,8 +210,16 @@ Tetap saja, karena kami setidaknya mengetahui apa yang ingin kami ketahui, Ain h
 
 "Aku pikir kita akan memiliki kesempatan lain waktu untuk bertemu lagi, mungkin saja. Terima kasih banyak untuk hari ini." (ain)
 
-"Tentu. Dan jika Kamu mendapat masalah di guild, yang menurut Aku tidak akan Kamu lakukan, Kamu dapat mengandalkan kami. Terutama jika kamu diganggu oleh ketua guild."
+"Tentu. Dan jika Kamu mendapat masalah di guild, yang menurutku tidak akan Kamu lakukan, Kamu dapat mengandalkan kami. Terutama jika kamu diganggu oleh ketua guild."
 
 Ain menoleh ke pemimpin yang berbicara di belakang kami, menundukkan kepalanya dan keluar dari pub.
 
 Di belakangnya, pemimpin diolok-olok oleh yang lain "Ditolak, eh ?" tetapi penampilan mereka yang relatif senang meninggalkan kesan yang mendalam.
+
+----------------------
+
+Cerita lain dari sisi dedek ciel... agak berbeda dengan cerita yang sedang berjalan sekarang, jadi mohon jangan bingung dari cerita sisi dedek ciel ini... kali ini yang banyak berbicara si wanita tersebut daripada si chasse... dan anehnya disini mereka tidak mengetahui nama ainciel sedangkan di cerita aslinya mereka langsung berkenalan ketika baru memulai pembicaraan.
+
+dari sini kita melihat dedek ciel semakin ingin memonopoli ain. dan dari sini bisa dilihat kelalaian ain dalam mempertahankan barriernya juga.. tapi didunia ini umur 12 tahun sudah mulai bekerja kecil-kecilan ??? weew, ya wajar di dunia kita seperti dunia ain dulunya umur segitu masih sekolah, bucin-bucinan, hepi hepi sama sahabat... sepertinya dunia ini agak kejam untuk orang biasa...
+
+naah semoga kalian menikmati chapter kali ini, silahkan komen kalau ada saran ~~ TERIMA KASIH !!
