@@ -176,19 +176,19 @@ Dan sementara Aku tidak memverifikasi rumor tersebut, Aku tidak menyangkalnya, j
 
 "Begitu ya, terima kasih banyak." (ain)
 
-"Berbicara tentang wabah serigala, itu mengingatkanku pada sesuatu. Pembawa pesan ilahi." (viviana)
+"Berbicara tentang wabah serigala, itu mengingatkanku pada sesuatu. Pembawa pesan Dewa." (viviana)
 
-"Pembawa pesan ilahi?" (ain)
+"Pembawa pesan Dewa?" (ain)
 
 Saat Viviana-san tiba-tiba menggumamkan sesuatu yang menarik, Aku secara refleks mengulangi kata-katanya.
 
-Mungkin karena mendengar kata ilahi mengingatkanku pada individu yang tidak menyenangkan.
+Mungkin karena mendengar kata Dewa mengingatkanku pada individu yang tidak menyenangkan.
 
 "Dulu ketika para dewa sering berinteraksi dengan manusia, dikatakan bahwa ada beberapa hewan yang bertindak sebagai pembawa pesan mereka. Di antara mereka juga ada serigala. Itu sebabnya ada juga penelitian yang mengatakan bahwa serigala dulunya disembah sebagai dewa sebelum negara ini ada seperti sekarang." (viviana)
 
 "Tapi serigala adalah monster, kan?" (ain)
 
-"Ada juga teori yang mengatakan bahwa setelah menyelesaikan tugasnya sebagai utusan ilahi, mereka kemudian dinodai oleh kebencian dan diubah menjadi monster. Tetapi dalam kasus serigala, teori yang menonjol adalah bahwa karena kumpulan mereka tiba lebih dulu ketika penyerbuan akan terjadi, mereka mungkin telah dikenali sebagai makhluk yang memberitahu tentang penyerbuan, jadi dengan kata lain, sebagai utusan ilahi." (viviana)
+"Ada juga teori yang mengatakan bahwa setelah menyelesaikan tugasnya sebagai utusan Dewa, mereka kemudian dinodai oleh kebencian dan diubah menjadi monster. Tetapi dalam kasus serigala, teori yang menonjol adalah bahwa karena kumpulan mereka tiba lebih dulu ketika penyerbuan akan terjadi, mereka mungkin telah dikenali sebagai makhluk yang memberitahu tentang penyerbuan, jadi dengan kata lain, sebagai utusan Dewa." (viviana)
 
 "Terima kasih banyak. Bolehkah jika Aku bertanya tentang beberapa hal lain?" (ain)
 
