@@ -22,19 +22,19 @@ Yang paling penting adalah bagaimana seseorang menggunakan job mereka. Meskipun 
 
 Ketua Guild, dengan cara dia menyoroti job yang Mengecewakan, pastinya orang yang luar biasa dan staf Guild Hunter yang patut dicontoh.
 
-Aku akui, ada kemungkinan besar, jika salah satu dari kita memiliki Combat Job, kita akan menjadi terkenal karena Job tersebut.
+Aku akui, ada kemungkinan besar, jika salah satu dari kami memiliki job Combat, kita akan menjadi terkenal karena Job tersebut.
 
-Namun, dia tidak tahu apa Pekerjaan kita. Dia bahkan tidak tahu, tapi bagaimana dia bisa mengatakan itu padaku?
+tapi, dia tidak tahu apa job kami. Dia bahkan tidak tahu, tapi bagaimana dia bisa mengatakan itu padaku?
 
 Aku berencana untuk melindungi Ciel tidak peduli apa yang terjadi, tetapi ini tidak berarti bahwa Aku tidak merasakan apa-apa ketika sesuatu dilakukan terhadapnya.
 
-Meskipun secara objektif lebih baik diekspos sebagai Song Princess daripada Dance Princess, hanya pemikiran bahwa kejadian ini dapat menyebabkan Ciel terkena komentar tidak sensitif membuat Aku sulit untuk tetap tenang.
+Meskipun secara objektif lebih baik diekspos sebagai Song Princess daripada Dance Princess, hanya berpikir bahwa kejadian ini dapat menyebabkan Ciel terkena komentar sensitif membuatku sulit untuk tetap tenang.
 
 Saat aku menekan emosiku, aku malah melengkungkan bibirku menjadi senyuman.
 
-Dan sepertinya aku bukan satu-satunya di sini yang tidak senang dengan guild master, saat Chasse-san yang duduk di sebelahku menghela nafas panjang.
+Dan sepertinya aku bukan satu-satunya di sini yang tidak senang dengan guild master, Chasse-san yang duduk di sebelahku menghela nafas panjang.
 
-"Aku kecewa, ketua Guild. Aku memperlakukan Kamu dengan hormat karena Cielmer ada di sini, tetapi Aku tidak ingin menunjukkan rasa hormat lagi kepada Kamu. Aku lelah, ini benar-benar bodoh." (chasse)
+"Aku kecewa, ketua Guild. Aku memperlakukanmu dengan hormat karena Cielmer ada di sini, tetapi Aku tidak ingin menunjukkan rasa hormat lagi kepadamu. Aku lelah, ini benar-benar bodoh." (chasse)
 
 "Chasse, bukankah kau dan aku sama-sama muak dengan kasta Job? Apakah Kamu lupa hari-hari ketika kita biasa berbicara tentang bagaimana kita harus membuat perubahan?"
 
@@ -46,17 +46,17 @@ Mengatakan demikian, ketua guild mengalihkan pandangannya kepadaku, seseorang ya
 
 Chasse-san menghela nafas panjang sekali lagi dan menggelengkan kepalanya sebagai jawaban.
 
-"Seperti yang Kamu katakan, kami berdua memiliki tujuan yang sama. Itu sebabnya kami berdua bekerja sampai mati, dengan Aku sekarang memimpin pesta Rank-B, dan Kamu sekarang dalam posisi ketua Guild. Kami jauh di usia, tapi Aku menganggap Kamu sebagai pendamping yang hebat." (chasse)
+"Seperti yang Kamu katakan, kita berdua memiliki tujuan yang sama. Itu sebabnya kita berdua bekerja sampai mati, dengan Aku sekarang memimpin party Rank-B, dan Kamu sekarang dalam posisi ketua Guild. usia kita jauh berbeda, tapi Aku menganggapmu sebagai pendamping yang hebat." (chasse)
 
 "Lalu mengapa-"
 
-"Itulah mengapa Aku tidak bisa tidak kecewa. Mengevaluasi kembali mereka yang memiliki Pekerjaan Mengecewakan tidak boleh dilakukan dengan meletakkan Pekerjaan yang sudah berhasil. Ini bukan tentang membuat orang-orang dengan Pekerjaan yang disukai menoleransi hal-hal karena mereka disukai, tidak peduli apa Pekerjaan itu, seorang personel Guild tidak boleh diizinkan untuk mempublikasikan Pekerjaan seseorang tanpa izin yang tepat. Dan jika ini terjadi, sangat penting untuk menghukum dan membebaskan pelakunya, serta memberikan kompensasi yang sesuai dengan kerusakan yang dialami Hunter tersebut. Dalam hal ini, tidak dapat disangkal. Di atas campur tangan personel guild; dan lebih buruk lagi, memihak; dalam perselisihan antara dua Hunter, dia bahkan mengungkapkan Pekerjaan Hunter. Jika ini terungkap, Kamu pasti akan kehilangan kepercayaan dari para Hunter, dan investigasi dari guild master lain dan grand master tidak akan terhindarkan. Dalam situasi seperti ini, tindakan alami adalah menghukum berat anggota staf yang bersangkutan, tetapi sebaliknya Kamu ingin membiarkannya dengan penurunan pangkat yang sederhana. Ini hampir seperti Kamu mengakui betapa berharganya Tolt bagi Kamu." (chasse)
+"Itulah mengapa Aku tidak bisa tidak kecewa. Mengevaluasi kembali mereka yang memiliki job Mengecewakan tidak boleh dilakukan dengan membandingkan job yang sudah berhasil. Ini bukan tentang membuat orang-orang dengan job yang disukai menoleransi hal-hal karena mereka disukai, tidak peduli apa job itu, seorang personel Guild tidak boleh diizinkan untuk mempublikasikan job seseorang tanpa izin yang tepat. Dan jika ini terjadi, sangat penting untuk menghukum dan membebaskan pelakunya, serta memberikan kompensasi yang sesuai dengan kerusakan yang dialami Hunter tersebut. Dalam hal ini, tidak dapat disangkal. Di atas campur tangan personel guild; dan lebih buruk lagi, memihak; dalam perselisihan antara dua Hunter, dia bahkan mengungkapkan job Hunter. Jika ini terungkap, Kamu pasti akan kehilangan kepercayaan dari para Hunter, dan investigasi dari guild master lain dan grand master tidak akan terhindarkan. Dalam situasi seperti ini, tindakan alami adalah menghukum berat anggota staf yang bersangkutan, tetapi sebaliknya Kamu ingin membiarkannya dengan penurunan pangkat yang sederhana. Ini hampir seperti Kamu mengakui betapa berharganya Tolt bagimu." (chasse)
 
 Mendengar penjelasan rinci Chasse-san, wajah ketua guild berubah menjadi seringai.
 
-Aku merasa hampir semua yang ingin Aku katakan baru saja dikatakan untuk Aku.
+Aku merasa hampir semua yang ingin Aku katakan baru saja dikatakan untukku.
 
-Padahal, Aku tidak benar-benar tahu apa yang sebenarnya ingin Aku katakan pada diri Aku sendiri.
+Padahal, Aku tidak benar-benar tahu apa yang sebenarnya ingin Aku katakan pada diriku sendiri.
 
 "Baik. Aku akan memecat Tolt, apakah itu cukup?"
 
@@ -64,75 +64,75 @@ Ketua Guild kemudian mengusulkannya dengan keengganan yang pahit, tetapi tidak m
 
 Chasse-san melirikku seolah bertanya apakah aku setuju dengan ini, jadi aku menggelengkan kepalaku dan menjawab.
 
-"Dengan Jobku yang sudah terungkap, Tolt-san dipecat atau tidak bukan urusanku. Lagi pula, ini hanyalah tindakan yang diperlukan demi para Hunter lainnya, bukan? Di atas ini menjadi prasyarat belaka, bukankah kita seharusnya berbicara tentang kompensasi apa yang harus Aku terima? Sementara Aku tidak benar-benar terluka untuk uang, mengingat kerusakannya, Aku ingin memiliki sesuatu yang cukup berharga untuk membangun sebuah kastil." (ciel)
+"Dengan Jobku yang sudah terungkap, Tolt-san dipecat atau tidak bukan urusanku. Lagi pula, ini hanyalah tindakan yang diperlukan demi para Hunter lainnya, bukan? daripada ini menjadi prasyarat belaka, bukankah kita seharusnya berbicara tentang kompensasi apa yang harus Aku terima? Sementara Aku tidak benar-benar terluka untuk uang, mengingat kerusakannya, Aku ingin memiliki sesuatu yang cukup berharga untuk membangun sebuah istana." (ciel)
 
 "Dasar rank rendahan, itu terlalu berlebihan untuk orang sepertimu..."
 
 Ketua guild bergumam begitu sambil memelototiku dengan kebencian.
 
-Menilai dari senyum tegang Chasse-san, aku mungkin meminta terlalu banyak. Tetap saja, dari sudut pandangku, kami praktis memiliki hak untuk tinggal di ibukota yang dicuri dari kami, jadi kurasa uang tidak bisa mengimbangi ini.
+Menilai dari senyum tegang Chasse-san, aku mungkin meminta terlalu banyak. Tetap saja, dari sudut pandangku, kami memiliki hak untuk tinggal di ibukota yang dicuri dari kami, jadi kurasa uang tidak bisa mengimbangi ini.
 
-Dan jika ini menyebar ke seluruh kerajaan, kita akan kehilangan tempat kita di negara ini. Padahal, kita tidak punya tempat di sini untuk memulai dengan cara apa pun.
+Dan jika ini menyebar ke seluruh kerajaan, kami akan kehilangan tempat kami di negara ini. Pada dasarnya kami tidak punya tempat di sini.
 
-"Pertama-tama, ketua guild. Sejauh ini, kita hanya menyentuh topik yang tidak melibatkan Job dan rank Cielmer. Cielmer di sini adalah C-ranker yang lengkap, dengan kata lain, seorang Hunter tingkat tinggi. Bahkan jika Kamu seorang master guild, bukankah buruk untuk tidak menghormati seorang Hunter Rank tinggi tanpa alasan yang dapat dibenarkan?" (chasse)
+"Pertama-tama, ketua guild. Sejauh ini, kita hanya menyentuh topik yang tidak melibatkan Job dan rank Cielmer. Cielmer di sini adalah individu hunter rank-C, dengan kata lain, seorang Hunter tingkat tinggi. Bahkan jika Kamu seorang Ketua Guild, bukankah buruk untuk tidak menghormati seorang Hunter Rank tinggi tanpa alasan yang dapat dibenarkan?" (chasse)
 
-Seperti yang dikatakan Chasse-san, aku mengeluarkan kartuku, dan menyerahkannya kepada ketua guild.
+ketika Chasse-san mengatakan itu, aku mengeluarkan kartuku, dan menyerahkannya kepada ketua guild.
 
 Ketua guild meragukan kartu itu pada awalnya, tetapi wajahnya berangsur-angsur berubah muram, dan akhirnya "Ap......" dia terdiam.
 
 Bahunya terlihat bergetar.
 
-"Mustahil. Kecuali untuk kasus-kasus tertentu, mencapai C-rank akan memakan waktu setidaknya 10 tahun."
+"Mustahil. Kecuali untuk kasus-kasus tertentu, mencapai rank-C akan memakan waktu setidaknya 10 tahun."
 
-"Kami dapat memeriksa dengan Markas Besar jika Kamu ingin memastikan, tapi jangan bilang Kamu belum pernah mendengar desas-desus tentang gadis berambut putih. ?" (chasse)
+"kita dapat memeriksa dengan Markas Besar jika Kamu ingin memastikan, tapi jangan bilang Kamu belum pernah mendengar desas-desus tentang gadis berambut putih. ?" (chasse)
 
 "...... Dan Kamu mengatakan bahwa itu adalah gadis kecil ini?"
 
-"Fiturnya cocok. Dia bahkan menyelesaikan permintaan pengumpulan ramuan yang sudah lama tidak tersentuh di sini di guild ibukota, jadi kemampuannya dijamin. Kamu bebas memiliki keraguan, tetapi lebih baik Kamu menyadari bahwa membuka mulut tanpa memastikan fakta hanya akan membahayakan posisi Kamu. Lagi pula, Kamu hampir meremehkan Hunter Rank tinggi selain memperlakukannya sebagai seseorang dengan Rank lebih rendah sekarang disemen sebagai fakta." (chasse)
+"penampilannya cocok. Dia bahkan menyelesaikan permintaan pengumpulan herb yang sudah lama tidak tersentuh di sini di guild ibukota, jadi kemampuannya dapat dijamin. Kamu bebas memiliki keraguan, tetapi lebih baik Kamu menyadari bahwa membuka mulut tanpa memastikan fakta hanya akan membahayakan posisimu. Lagi pula, Kamu hampir meremehkan Hunter Rank tinggi dengan memperlakukannya sebagai seseorang dengan Rank lebih rendah." (chasse)
 
 Dan bahkan setelah Chasse-san mengatakan sebanyak ini, ketua guild terus menatapku dengan tidak percaya.
 
 Rasanya seperti aku akan kehilangan sesuatu, jadi tolong berhenti menatapku.
 
-Bagaimanapun, bahkan jika kamu menatap sebanyak itu, itu tidak mengubah fakta bahwa aku adalah Rank-C.
+bahkan jika kamu menatap sebanyak itu, itu tidak mengubah fakta bahwa aku adalah Rank-C.
 
-"Dan sekarang, tentang Pekerjaan Cielmer......" (chasse)
+"Dan sekarang, tentang job Cielmer......" (chasse)
 
-Berhenti di sana, Chasse-san melihat ke arahku.
+berhebti berbicaraa, Chasse-san melihat ke arahku.
 
-Bagaimanapun, ini berhubungan dengan Pekerjaan Aku, jadi dia mungkin menginginkan izin Aku untuk ini.
+Bagaimanapun juga, ini berhubungan dengan jobku, jadi dia mungkin menginginkan izinku untuk ini.
 
-Dalam hal ini, mungkin lebih baik bagi Aku untuk mengatakannya sendiri. Dengan pemikiran itu, Aku memutuskan untuk langsung memberi tahu ketua guild.
+Dalam hal ini, mungkin lebih baik bagiku untuk mengatakannya sendiri. Dengan pemikiran itu, Aku memutuskan untuk langsung memberi tahu ketua guild.
 
-"Pekerjaanku adalah Putri Lagu. Ketua Guild, Kamu tidak dapat memberi tahu Aku bahwa Kamu tidak mengerti apa artinya diketahui bagi Aku, bukan? Tidak peduli berapa banyak Kamu memaksakan perintah pembungkaman, informasi yang telah bocor sekali pun tidak mungkin dikendalikan. Jika, secara kebetulan, ini menyebar ke seluruh ibu kota, Aku mungkin akan dianiaya dan Aku mungkin tidak akan pernah diizinkan untuk masuk ke dalam ibu kota kerajaan lagi. Sekarang dengan pertimbangan ini, apakah permintaan Aku sebelumnya benar-benar Aku melebih-lebihkan diri Aku sendiri?" (ain)
+"jobku adalah song princess. Ketua Guild, Kamu tidak dapat memberi tahuku bahwa Kamu tidak mengerti apa artinya jika jobku ketahuan, bukan? Tidak peduli berapa banyak Kamu memaksakan perintah pembungkaman, informasi yang telah bocor sekali pun tidak mungkin dikendalikan. Jika, secara kebetulan, ini menyebar ke seluruh ibu kota, Aku mungkin akan dianiaya dan Aku mungkin tidak akan pernah diizinkan untuk masuk ke dalam ibu kota kerajaan lagi. Sekarang dengan pertimbangan ini, apakah permintaanku sebelumnya benar-benar Aku melebih-lebihkan diriku sendiri?" (ain)
 
 Bahkan saat aku selesai berbicara, ketua guild tetap diam, dan percakapan terhenti.
 
 Tetap diam saat Kamu dirugikan adalah cara yang baik untuk mengulur waktu. Namun, Aku tidak tahu bagaimana membeli waktu bisa efektif dalam situasi ini.
 
-"Dengan cukup untuk membeli kastil, Kamu menginginkan tas ajaib, bukan?" (chasse)
+"Dengan cukup untuk membeli istana, Kamu menginginkan tas sihir, bukan?" (chasse)
 
-"Ya. Sebagai kompensasi, Aku ingin tas ajaib terbesar yang tersedia di guild ibukota. Juga, tolong pungut uang yang dibutuhkan untuk membeli tas ajaib baru dari orang-orang yang terkait dengan kejadian hari ini. Setidaknya itulah tuntutanku, tapi Chasse-san, kamu cukup penting untuk memiliki keputusan akhir dalam hal ini?" (ain)
+"Ya. Sebagai kompensasi, Aku ingin tas sihir terbesar yang tersedia di guild ibukota. Juga, tolong pungut uang yang dibutuhkan untuk membeli tas sihir baru dari orang-orang yang terkait dengan kejadian hari ini. Setidaknya itulah tuntutanku, tapi Chasse-san, kamu cukup penting untuk memiliki keputusan akhir dalam hal ini?" (ain)
 
-"Daripada aku sendiri yang penting, aku hanya dalam posisi di mana aku bisa memverifikasi dengan orang-orang penting itu. Aku dapat menghubungi mereka segera tetapi, jika Kamu bertanya kepada Aku, mendapatkan tas ajaib terbesar akan menjadi permintaan yang cukup sulit." (chasse)
+"Daripada penting, aku hanya dalam posisi di mana aku bisa memverifikasi dengan orang-orang penting itu. Aku dapat menghubungi mereka segera tetapi, jika Kamu bertanya kepadaku, mendapatkan tas sihir terbesar akan menjadi permintaan yang cukup sulit." (chasse)
 
-Dikatakan bahwa itu bisa dipasang di seluruh gunung, jadi Aku sudah berpikir bahwa itu mungkin tidak mungkin.
+Dikatakan bahwa itu bisa menampung seluruh gunung, jadi Aku sudah berpikir bahwa itu mungkin tidak mungkin.
 
 Dalam kasus terburuk, mungkin sangat jarang sehingga tidak ada orang yang hidup yang dapat membuatnya kembali sekarang.
 
-Meskipun lebih besar pasti akan lebih baik, aku akan puas selama aku bisa mendapatkan tas ajaib yang memiliki kapasitas lebih besar dari yang kita miliki saat ini.
+Meskipun lebih besar pasti akan lebih baik, aku akan puas selama aku bisa mendapatkan tas sihir yang memiliki kapasitas lebih besar dari yang kami miliki saat ini.
 
 Meskipun demikian, Aku masih berniat untuk melakukan yang terbaik untuk mendapatkan yang sebesar mungkin. Tapi sebelum itu, aku harus membuat janji dengan Chasse-san untuk melakukan seminimal mungkin.
 
-"Mengenai tas ajaib, masih ada sesuatu yang Aku ingin Kamu mendengar tentang, jadi mengapa tidak kita mulai dengan hal-hal yang bisa dilakukan segera sebelum pergi ke sana." (ain)
+"Mengenai tas sihir, masih ada sesuatu yang Aku ingin Kamu dengar, jadi mengapa tidak kita mulai dengan hal-hal yang bisa dilakukan segera sebelum itu ?" (ain)
 
-"Apakah master gilda ... penyebab beberapa masalah lain?" (chasse)
+"Apakah ketua guild ... menyebabkan beberapa masalah lain?" (chasse)
 
-"Siapa tahu? Itu bukan sesuatu yang Aku dapat membuat penilaian sendiri, jadi Aku akan senang jika Kamu dapat mengambil informasi yang akan Aku berikan sebagai pertimbangan untuk arbitrase." (ain)
+"entahlah... Itu bukan sesuatu yang Aku nilai sendiri, jadi Aku akan senang jika Kamu dapat mengambil informasi yang akan Aku berikan sebagai pertimbangan untuk arbitrase." (ain)
 
-"Dimengerti. Lantas, bagaimana dengan hal-hal yang bisa segera dilakukan?" (chasse)
+"baiklah. Lantas, apa hal-hal yang bisa segera dilakukan?" (chasse)
 
-"Aku ingin Tolt-san untuk mempublikasikan Kerja dan apa yang dia lakukan kepada Aku sendiri. Lagipula, dia adalah tipe orang yang tidak ragu untuk membocorkan Job orang lain, jadi dia seharusnya tidak memiliki keluhan saat Jobnya dipublikasikan juga. Mempertimbangkan Tolt-sanAyub, jika apa yang terjadi hari ini tidak dipublikasikan, lebih banyak korban seperti Aku dapat muncul di masa depan, jadi harap teliti tentang ini. Selain itu, Aku ingin keselamatan Aku di dalam ibukota kerajaan terjamin, serta perintah pembungkaman diberlakukan sebanyak mungkin." (ain)
+"Aku ingin Tolt-san untuk mempublikasikan jobnya dan apa yang dia lakukan kepadaku sendiri. Lagipula, dia adalah tipe orang yang tidak ragu untuk membocorkan Job orang lain, jadi dia seharusnya tidak memiliki keluhan saat Jobnya dipublikasikan juga. Mempertimbangkan job tolt, jika apa yang terjadi hari ini tidak dipublikasikan, lebih banyak korban sepertiku dapat muncul di masa depan, jadi harap teliti tentang ini. Selain itu, Aku ingin keselamatanku di dalam ibukota kerajaan terjamin, serta perintah pembungkaman diberlakukan sebanyak mungkin." (ain)
 
 "Jika hanya itu, Aku pikir itu akan disetujui." (chasse)
 
@@ -140,9 +140,9 @@ Ini akhirnya menjadi diskusi satu lawan satu antara aku dan Chasse-san, tapi aku
 
 Yah, selama mereka tidak ikut campur, siapa yang peduli?
 
-"Tentang informasi tersebut, ini tentang hutan tempat Aku mengumpulkan tumbuhan." (ain)
+"Tentang informasi tersebut, ini tentang hutan tempat Aku mengumpulkan herb." (ain)
 
-"Hutan itu harus diselidiki secara berkala." (chasse)
+"Hutan itu harusnya diselidiki secara berkala." (chasse)
 
 Chasse-san melirik ketua guild dengan rasa ingin tahu, dan dia dengan jelas mengalihkan pandangannya.
 
