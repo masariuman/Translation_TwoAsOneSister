@@ -248,9 +248,9 @@ Dan aku juga tidak bisa menyuruhnya meminum pil yang akan membuat kekuatan sihir
 
 Mempertimbangkan bahwa dia akan menunjukkan kepada kami sihirnya secara gratis, aku dengan senang hati menurutinya.
 
-Selain itu, Aku juga ingin tahu bagaimana tindakan pengejar kami ketika tidak ada orang di sekitar.
+Selain itu, Aku juga ingin tahu bagaimana tindakan penguntit kami ketika tidak ada orang di sekitar.
 
-Terlebih lagi, aku tertarik untuk melihat apakah Viviana-san dan penguntit kita saling berhubungan, jadi tidak ada alasan untuk menolak.
+Terlebih lagi, aku tertarik untuk melihat apakah Viviana-san dan penguntit kami saling berhubungan, jadi tidak ada alasan untuk menolak.
 
 "Kalau begitu, haruskah kita pergi ke luar?" (ain)
 
@@ -262,18 +262,21 @@ Dengan mataku tertuju padanya, Viviana-san mengangkat tangannya dengan pasrah.
 
 "Viviana-san, izinkan Aku bertanya lagi. Apa yang membawamu ke sini hari ini?" (ain)
 
-"Aku di sini untuk menjagamu. Kami benar-benar perlu menyelesaikan laporan dan investigasi kami besok sore, tetapi ketua guild mungkin mencoba mengganggu Kamu sementara itu. Meskipun sepertinya ini tidak perlu, itu lebih melegakan di pihak kami jika Kamu tinggal di suatu tempat yang bisa kami awasi." (Viviana)
+"Aku di sini untuk menjagamu. Kami benar-benar perlu menyelesaikan laporan dan investigasi kami besok sore, tetapi ketua guild mungkin mencoba mengganggumu. Meskipun sepertinya ini tidak perlu, itu lebih melegakan di pihak kami jika Kamu tinggal di tempat yang bisa kami awasi." (Viviana)
 
-"Namun meskipun begitu, mengapa Kamu meminta Aku untuk melihat sihir Kamu?" (ain)
+"Namun meskipun begitu, mengapa Kamu memintaku untuk melihat sihirmu?" (ain)
 
 Saat Viviana-san menunjukkan keragu-raguan untuk meninggalkan ibu kota, kecurigaanku padanya sudah hilang. Tetap saja, bagian itu tidak terlalu masuk akal.
 
-Memintaku untuk melihat sihirnya secara praktis berarti bahwa kita harus pergi ke luar ibukota, dengan kata lain, ke tanah tanpa hukum.
+Memintaku untuk melihat sihirnya berarti bahwa kita harus pergi ke luar ibukota, dengan kata lain, ke tempat bebas dan tidak memiliki hukum.
 
 Jika aku mati di luar ibu kota, dapat dilaporkan bahwa aku secara sial dibunuh oleh monster atau pencuri, dan bukanlah hal yang aneh jika semuanya berakhir begitu saja.
 
-"Meskipun benar bahwa Aku di sini untuk menjaga Kamu, Aku benar-benar bersungguh-sungguh ketika Aku mengatakan bahwa Aku meminta kesempatan untuk mengobrol dengan Kamu. Sebagai seorang penyihir, Aku berpikir bahwa Aku tidak boleh membiarkan kesempatan ini berlalu begitu saja. Tetapi karena itu, Aku kira Aku menjadi sedikit terlalu bersemangat." (Viviana)
+"Meskipun benar bahwa Aku di sini untuk menjagamu, Aku benar-benar bersungguh-sungguh ketika Aku mengatakan bahwa Aku meminta kesempatan untuk mengobrol denganmu. Sebagai seorang penyihir, Aku berpikir bahwa Aku tidak boleh membiarkan kesempatan ini berlalu begitu saja. tapi Aku kira Aku menjadi sedikit terlalu bersemangat." (Viviana)
 
-"Dan karena ini, Kamu tidak menyadari bahwa Kamu perlu pergi ke luar untuk menunjukkan sihir Kamu, kan?" (Viviana)
+"Dan karena ini, Kamu tidak menyadari bahwa Kamu perlu pergi ke luar untuk menunjukkan sihirmu, kan?" (Viviana)
 
-Viviana-san tidak memberiku jawaban, tapi tatapannya yang mengalihkan menjawabku di tempatnya.
+Viviana-san tidak memberiku jawaban, tapi tatapannya yang beralih menjawabku.
+
+---------------------------------
+
