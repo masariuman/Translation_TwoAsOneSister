@@ -280,3 +280,10 @@ Viviana-san tidak memberiku jawaban, tapi tatapannya yang beralih menjawabku.
 
 ---------------------------------
 
+di chapter kali ini, sepertinya dedek ciel cukup lelah. dan tidak salah jika dedek ciel memutuskan untuk tidur saja. dari perjalanan, datang ke ibukota, sampai saat ini selalu saja ada masalah yang menimpa dedek ciel. walaupun tidak merasakannya, tentu tubuhnya secara otomatis kelelahan tanpa dia sadari. dan syukurlah mereka mendapatkan kamar yang bagus.
+
+dan sekarang viviana, menurutku viviana ini seperti versi sopannya carol. kalau carol menanggapi ainciel biasa saja, sedangkan viviana disini masih sopan bahkan tidak enak untuk meminta ciel mengajarkannya. mungkin viviana tidak terlalu keras kepala seperti carol dalam penelitian sihir ? atau mungking carol tidak malu-malu dalam mencapai ambisinya.
+
+sepertinya ada penguntit lagi yang mengikuti sekarang. tidakkah ainciel kita memiliki waktu santai atau waktu luang paling tidak seminggu saja ? hanya beberapa hari saja tapi sepertinya sudah melewati banyak masalah di ibukota ini. tapi semoga saja viviana benar-benar menjaga mereka juga, tidak berkhianat.
+
+sekian untuk chapter kali ini, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangati, dan terima kasih !!
