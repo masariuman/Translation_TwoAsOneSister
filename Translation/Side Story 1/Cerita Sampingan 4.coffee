@@ -163,60 +163,63 @@ Dihadapkan dengan nada dingin Ain, Ketua Guild terus diam.
 
 Chasse kemudian bergabung untuk menyudutkannya.
 
-"Nona Cielmer. Bisakah Kamu memberi tahu kami pendapat Kamu tentang bagaimana guild harus bertanggung jawab untuk ini? Meskipun itu harus melewati penilaian yang tidak memihak, yah, sebagian besar hal mungkin akan diakui jika kamu bertanya padaku." (chasse)
+"Nona Cielmer. Bisakah Kamu memberi tahu kami pendapatmu tentang bagaimana guild harus bertanggung jawab untuk ini? Meskipun itu harus melewati penilaian yang tidak memihak, yah, sebagian besar hal mungkin akan diakui jika kamu bertanya padaku." (chasse)
 
 "Aku sudah curiga tentang ini, tapi Chasse-san, kamu memiliki posisi yang cukup penting, bukan?" (ain)
 
-"Meskipun penampilan Aku, Aku dikirim oleh Markas Besar sebagai inspektur. Biasanya, Aku hanyalah seorang Hunter biasa, tetapi di saat-saat seperti ini, Aku memiliki cukup wewenang untuk menghentikan seorang Ketua Guild menjadi liar. Sementara Aku akan dihukum di lain waktu jika dinilai Aku menyalahgunakan wewenang itu, kasus hari ini adalah apa adanya." (chasse)
+"Meskipun penampilanku seperti ini, Aku dikirim oleh Markas Besar sebagai inspektur. Biasanya, Aku hanyalah seorang Hunter biasa, tetapi di saat-saat seperti ini, Aku memiliki cukup wewenang untuk menghentikan seorang Ketua Guild menjadi liar. Aku akan dihukum di lain waktu jika dinilai Aku menyalahgunakan wewenang itu, kasus hari ini adalah contohnya." (chasse)
 
-"Lalu sebagai prasyarat, Aku ingin Tolt-san untuk mempublikasikan Ayubnya sendiri dan apa yang telah dia lakukan terhadap Aku. Lagipula, dia adalah tipe orang yang tidak ragu untuk membocorkan Job orang lain, jadi dia seharusnya tidak memiliki keluhan saat Job-nya terungkap juga. Namun, mengingat Tolt-san ‘s Job, jika apa yang terjadi hari ini tidak dipublikasikan, lebih banyak korban seperti Aku bisa muncul di masa depan, jadi harap teliti tentang hal ini. Selain itu, Aku ingin keamanan Aku di dalam ibukota kerajaan terjamin, dan untuk perintah pembungkaman diberlakukan sebanyak mungkin, Aku kira?" (ain)
+"kalau begitu sebagai awalnya, Aku ingin Tolt-san untuk mempublikasikan jobnya sendiri dan apa yang telah dia lakukan terhadapku. Lagipula, dia adalah tipe orang yang tidak ragu untuk membocorkan Job orang lain, jadi dia seharusnya tidak memiliki keluhan saat Job-nya terungkap juga. tapi, mengingat job Tolt-san, jika apa yang terjadi hari ini tidak dipublikasikan, lebih banyak korban sepertiku bisa muncul di masa depan, jadi harap teliti tentang hal ini. Selain itu, Aku ingin keamananku di dalam ibukota kerajaan terjamin, dan untuk perintah pembungkaman diberlakukan sebanyak mungkin, mungkin?" (ain)
 
-"Dan permintaan utama Kamu adalah?" (chasse)
+"Dan permintaan utamamu?" (chasse)
 
-"Aku ingin memiliki tas ajaib terbesar yang tersedia di guild ibukota. Juga, tolong pungut uang yang dibutuhkan untuk mengganti tas ajaib dari orang-orang yang terkait dengan kejadian hari ini. Valbar-sandan para pengikutnya, Tolt-san, dan Ketua Guild. Aku tidak yakin tentang hubungan Wakil Ketua dengan semua ini, jadi Aku akan menyerahkan penilaiannya kepada Kamu." (ain)
+"Aku ingin memiliki tas sihir terbesar yang tersedia di guild ibukota. Juga, tolong gunakan uang yang dibutuhkan untuk mengganti tas sihir dari orang-orang yang terkait dengan kejadian hari ini. Valbar-san dan para pengikutnya, Tolt-san, dan Ketua Guild. Aku tidak yakin tentang hubungan Wakil Ketua dengan semua ini, jadi Aku akan menyerahkan penilaiannya kepadamu." (ain)
 
-Mendengar tuntutan Ain, "Tunggu!" Ketua Guild panik, tapi "Yah, itu mungkin akan terbang". Chasse melanjutkan percakapan kami.
+Mendengar tuntutan Ain, "Tunggu!" Ketua Guild panik, tapi "Yah, itu mungkin terjadi". Chasse melanjutkan percakapan kami.
 
-Tas ajaib adalah, sederhananya, tas yang bisa memuat banyak barang. Karena itu menghilangkan rasa berat juga, hanya memiliki satu membuat perjalanan jauh lebih mudah.
+Tas sihir adalah, sederhananya, tas yang bisa memuat banyak barang. Karena itu menghilangkan rasa berat juga, hanya memiliki satu membuat perjalanan jauh lebih mudah.
 
-Namun, karena itu adalah sesuatu yang akan membuat orang-orang dengan Job tipe Pengrajin Tingkat Raja dan Putri beberapa bulan untuk membuatnya, itu sangat mahal. Bahkan yang lebih murah dikatakan cukup mahal untuk membangun rumah, sedangkan yang mahal akan membutuhkan cukup uang untuk membangun sebuah kastil.
+tapi, karena itu adalah sesuatu yang akan membuat orang-orang dengan Job tipe +CRAFTMEN dalam tingkat raja dan putri membutuhkan beberapa bulan untuk membuatnya, itu sangat mahal. Bahkan yang lebih murah dikatakan cukup mahal untuk membangun rumah, sedangkan yang mahal akan membutuhkan cukup uang untuk membangun sebuah istana.
 
-Ain memberikan permintaan yang cukup keterlaluan kali ini. Apakah kita memprioritaskan perencanaan jangka panjang atau jangka pendek, yang terbaik adalah memiliki salah satunya.
+Ain memberikan permintaan yang cukup besar kali ini. entah kami memprioritaskan perencanaan jangka panjang atau jangka pendek, yang terbaik adalah memilikinya kalau bisa.
 
-Setelah itu, Chasse meminta Ketua Guild menunjukkan kepada kami tas ajaib—yang ini adalah tas bahu yang bisa memuat beberapa monster besar di dalamnya—dan memberikannya kepada kami.
+Setelah itu, Chasse meminta Ketua Guild menunjukkan kepada kami tas sihir — kali ini adalah tas bahu yang bisa memuat beberapa monster besar di dalamnya — dan memberikannya kepada kami.
 
-Untuk memastikan kami tidak terlibat dalam masalah apa pun dalam perjalanan kembali, kami diusir dari pintu masuk yang digunakan pemohon.
+Untuk memastikan kami tidak terlibat dalam masalah apa pun dalam perjalanan kembali, kami keluar dari pintu masuk yang digunakan pemohon.
 
 Pada saat itu, sepertinya mengingat sesuatu, Ain menatap wajah Chasse.
 
 "Aku ... terkejut Kamu berpikir untuk membantu Song Princess." (ain)
 
-"Untuk Hunter, apa pun baik-baik saja selama Kamu kuat, Kamu tahu? Tidak ada Hunter Rank tinggi yang akan menjelek-jelekkan siapa pun yang mencapai Rank C pada usia Kamu meskipun memiliki Pekerjaan yang Mengecewakan. Jika ada, mereka mungkin akan lebih takut padamu." (chasse)
+"Untuk Hunter, apa pun baik-baik saja selama Kamu kuat. Tidak ada Hunter Rank tinggi yang akan menjelek-jelekkan siapa pun yang mencapai Rank C pada usiamu meskipun memiliki job yang Mengecewakan. yang ada, mereka mungkin akan lebih takut padamu." (chasse)
 
-"Begitukah ? Aku cukup lucu menurut Aku." (ain)
+"Begitukah ? menurutku Aku cukup manis." (ain)
 
-Saat Ain tiba-tiba mengatakan itu, itu mengejutkanku.
+ketika Ain tiba-tiba mengatakan itu, itu mengejutkanku.
 
-Ketika dia mengatakan imut, apakah dia mungkin berbicara tentang Aku? Sementara Ain memegang kendali, bagaimanapun juga, tubuhnya adalah milikku, dan jika itu adalah penampilan yang Ain maksudkan, maka itu berarti Ain menganggapku imut, kan?
+Ketika dia mengatakan manis, apakah dia mungkin berbicara tentangku? Sementara Ain memegang kendali, bagaimanapun juga, tubuhnya adalah milikku, dan jika itu adalah penampilan yang Ain maksudkan, maka itu berarti Ain menganggapku manis, kan?
 
-Tapi, jika ini mengacu pada kepribadian Ain, yang pastinya menggemaskan, lalu apakah ini berarti Ain sadar akan kelucuannya sendiri?
+Tapi, jika ini mengacu pada kepribadian Ain, yang pastinya menggemaskan, lalu apakah ini berarti Ain sadar akan dirinya sendiri?
 
-Siapa yang Aku bercanda, Aku yakin ini setidaknya untuk meringankan topik yang lebih berat yang akan datang.
+Aku yakin ini setidaknya untuk meringankan topik yang lebih berat yang akan datang.
 
 "Maksudku, kamu benar, tapi itu bukan sesuatu yang kamu katakan sendiri." (chasse)
 
-"Yah, aku akan mengatakan bahwa kehidupan yang aku jalani bukanlah sesuatu yang lucu." (ain)
+"Yah, aku akan mengatakan bahwa kehidupan yang aku jalani bukanlah sesuatu yang manis." (ain)
 
-"Aku bisa menebaknya. Aku telah mendorong diriku seperti tidak ada hari esok, tapi aku merasa seperti pengalaman Kamu agak berbeda dari Aku." (chasse)
+"Aku bisa menebaknya. Aku telah mendorong diriku seperti tidak ada hari esok, tapi aku merasa seperti pengalamanmu agak berbeda dariku." (chasse)
 
-"Aku akan mengubah topik, tapi aku benar-benar heran mengapa Valbar-san begitu bingung untuk luka hanya ukuran yang." (ain)
+"Aku akan mengubah topik, tapi aku benar-benar heran mengapa Valbar-san menjadi kacau hanya dengan luka seperti itu." (ain)
 
 "...... Apakah Kamu yakin Kamu baru saja mengubah topik?" (chasse)
 
-"Rahasia. Aku mendengar rahasia membuat seorang gadis lebih menarik." (ain)
+"itu Rahasia. Aku dengar rahasia membuat seorang gadis lebih menarik." (ain)
 
-"Oke, tentu. Kamu harus segera pergi, akan buruk jika orang lain melihat Kamu." (chasse)
+"Oke, tentu. Kamu harus segera pergi, akan buruk jika orang lain melihatmu." (chasse)
 
-"Aku akan melakukannya. Sampai jumpa." (ain)
+"Sampai jumpa." (ain)
 
 Melambai selamat tinggal, Ain sekarang meninggalkan guild untuk selamanya.
+
+-------------------------------
+
