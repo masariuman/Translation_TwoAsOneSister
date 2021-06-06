@@ -211,3 +211,13 @@ Setelah mengatakan itu, Chasse cemberut pada pria kurus itu. Mungkin ada rasa ha
 Pria kurus itu sudah berwajah pucat, tapi kali ini kakinya mulai gemetar.
 
 Tampaknya menyadari sesuatu, guildmaster mengalihkan pandangannya ke pria kurus "Tolt ...... kamu juga bagian dari ini? .......". Setelah itu, semua orang yang terlibat dibawa ke bagian dalam gedung guild, tetapi karena Valbar dikirim ke ruang orang sakit, dia tidak bisa ikut.
+
+---------------------
+
+heyyaa, chapter sampingan lainnya dari sisi dedek ciel... untuk kali ini, sepertinya tidak terlalu melenceng dari cerita aslinya. seperti yang sudah dibilang sebelumnya, chapter cerita sampingan kali ini berbeda dengan chapter selingan yang mana chapter selingat masih dalam termasuk volume atau cerita yang dibahas. sedangkan cerita sampingan ini berfokus pada ciel yang akan pergi kepantai, dan juga chapter ini ada di volume yang berbeda, bukan vol 1 atau vol 2, tapi volume tersendiri, silahkan cek di daftar isi nya :3
+
+sepertinya dedek ciel kali ini berbicara atau melakukan percakaan dengan lancar dan semua perkataanya langsung tanpa basa basi. dedek ciel tidak mau repot-repot meyakinkan orang yang susah untuk diyakinkan selain dengan cara kekerasan. dan ain di sini seperti pasif sekali dan hanya seperti system yg memberitahu ciel posisi orang saja...
+
+dan tolt berumur sekitar 15 tahun ? berarti belum dewasa, pantas saja pikirannya masih belum matang dan masih percaya akan pikirannya yang dianggap benar tanpa harus memahami situasi dan akal sehat dari orang lainnya. kenapa anak 15 tahun di pekerjakan sebagai staf guild ? bukankah terlalu muda ? dan jelas sekali kalau tolt masih belum dewasa, tidak seperti perla dan temannya yang masih bisa membaca situasi juga. dan sepertinya chasse agak menikmati juga disini seperti di cerita aslinya... menarik...
+
+Sekian chapter kali ini, semoga kalian menikmatinya ~ kalau ada saran silahkan kobok-kobok di komentar. TETAP SEHAT !! TERIMA KASIH !!
