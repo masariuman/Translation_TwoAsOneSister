@@ -157,7 +157,7 @@ Ketua Guild menatap Ain dengan tidak percaya.
 
 Saat Ketua Guild terdiam, Ain mulai berbicara.
 
-"Aku seorang Putri Lagu. Ketua Guild, Kamu tidak dapat memberi tahu Aku bahwa Kamu tidak mengerti apa artinya diketahui bagi Aku, bukan? Tidak peduli berapa banyak Kamu memaksakan perintah pembungkaman, informasi yang telah bocor sekali pun tidak mungkin dikendalikan. Jika, secara kebetulan, ini menyebar ke seluruh ibu kota, Aku mungkin akan dianiaya dan Aku mungkin tidak akan pernah diizinkan untuk masuk ke dalam ibu kota kerajaan lagi. Sekarang, bagaimana Kamu akan bertanggung jawab untuk ini?" (ain)
+"jobku adalah song princess. Ketua Guild, Kamu tidak bisa bilang bahwa Kamu tidak mengerti apa artinya jika jobku ketahuan, bukan? Tidak peduli berapa banyak Kamu memaksakan perintah pembungkaman, informasi yang telah bocor sekali pun tidak mungkin dikendalikan. Jika, secara kebetulan, ini menyebar ke seluruh ibu kota, Aku mungkin akan dianiaya dan Aku mungkin tidak akan pernah diizinkan untuk masuk ke dalam ibu kota kerajaan lagi. Sekarang, bagaimana Kamu akan bertanggung jawab dengan ini?" (ain)
 
 Dihadapkan dengan nada dingin Ain, Ketua Guild terus diam.
 
