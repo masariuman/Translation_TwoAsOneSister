@@ -125,34 +125,33 @@ Ain dengan kuat menggelengkan kepalanya dan mengangkat bahu.
 
 "Nah, bagaimana Aku akan diberi kompensasi atas apa yang terjadi? aku tidak benar-benar butuh uang, dan pemberhentian anggota staf adalah perhatian guild, itu tidak menguntungkanku sedikit pun." (ain)
 
-"Sial rendah-serdadu, overpricing sendiri ......"
+"Dasar rank rendahan, itu terlalu berlebihan untuk orang sepertimu..."
 
 Mendengar kata-kata Ain, Ketua Guild menggumamkan keluhan sambil menggertakkan giginya.
 
-Rank rendah mengacu pada Hunter Rank D ke bawah, Rank C ke atas disebut Rank tinggi. Alasan untuk ini adalah bahwa mulai dari Rank-C, jumlah Hunter per Rank sangat berkurang. Karena itu, secara umum dikatakan bahwa mencapai C-rank adalah tembok pertama bagi mereka yang ingin menjadi Hunter top.
+Rank rendah mengacu pada Hunter Rank D ke bawah, Rank C ke atas disebut Rank tinggi. Alasan untuk ini adalah bahwa mulai dari Rank-C, jumlah Hunter per-rank tidak lah banyak. Karena itu, secara umum dikatakan bahwa mencapai rank-c adalah tembok pertama bagi mereka yang ingin menjadi Hunter top.
 
-Oleh karena itu, kemampuan Kamu akan dikenali ketika Kamu mencapai Rank-C.
+Oleh karena itu, kemampuanmu akan dikenali ketika Kamu mencapai Rank-C.
 
 Pada saat itu, bahkan guild tidak bisa memperlakukanmu dengan enteng lagi. Sebaliknya, Rank rendah bahkan tidak bisa mengeluh tentang sebagian besar hal yang dilakukan guild.
 
-Aku menjadi Hunter pada usia 10 tahun, jadi dalam kasus normal, anak-anak berusia 12 tahun seperti kita tidak memiliki peluang untuk menjadi Rank-C.
+Aku menjadi Hunter pada usia 10 tahun, jadi dalam kasus normal, anak-anak berusia 12 tahun seperti kami tidak memiliki peluang untuk menjadi Rank-C.
 
-Namun, kami sebenarnya adalah Hunter Rank-C dan kami bahkan diberitahu bahwa satu-satunya alasan kami tidak dapat menjadi Rank-B adalah karena kami tidak memiliki pencapaian yang diperlukan yang mengacu pada jumlah permintaan yang diselesaikan dan evaluasi berdasarkan itu.
+tapi, kami sebenarnya adalah Hunter Rank-C dan kami bahkan diberitahu bahwa satu-satunya alasan kami tidak dapat menjadi Rank-B adalah karena kami tidak memiliki pencapaian yang diperlukan yang mengacu pada jumlah permintaan yang diselesaikan dan evaluasi berdasarkan itu.
 
 Faktanya, Aku sendiri yang memiliki kemampuan untuk mengalahkan monster Rank-C, jadi kata-katanya cukup didasarkan pada asumsi yang salah.
 
-"Pertama-tama, Ketua Guild. Aku hanya menyentuh topik yang tidak melibatkan Pekerjaan dan Rank Cielmer sejauh ini.
-Dan Nona Cielmer di sini, adalah Hunter Rank-C yang lengkap." (chasse)
+"Pertama-tama, Ketua Guild. Aku hanya menyentuh topik yang tidak melibatkan job dan Rank Cielmer sejauh ini. dan Nona Cielmer di sini, adalah Hunter Rank-C." (chasse)
 
-Mencocokkan waktu Chasse, Ain mengeluarkan kartu guild kami. Kartu sederhana ini, jika kamu mengabaikan lingkaran sihir di belakang, pasti ada tulisan C-rank di atasnya.
+Mencocokkan perkataan Chasse, Ain mengeluarkan kartu guild kami. Kartu sederhana ini, jika kamu mengabaikan lingkaran sihir di belakang, pasti ada tulisan rank-C di atasnya.
 
 Ditunjukkan bukti yang sebenarnya, "Apa......" Ketua Guild tidak bisa berkata-kata, dan bahunya tampak gemetar.
 
-"Mustahil. Kecuali untuk kasus-kasus tertentu, mencapai C-rank akan memakan waktu setidaknya 10 tahun."
+"Mustahil. Kecuali untuk kasus-kasus tertentu, mencapai rank-C akan memakan waktu setidaknya 10 tahun."
 
-"Kami dapat memeriksa dengan Markas Besar jika Kamu ingin memastikan, tapi jangan bilang Kamu belum pernah mendengar desas-desus tentang gadis berambut putih. ? Kamu hanya dapat memverifikasi dengan Markas apakah ini benar atau tidak. Lagi pula, mereka secara alami akan diberi tahu ketika Rank Hunter naik ke Rank-C. Sebaiknya Kamu mulai menyadari bahwa membuka mulut tanpa memastikan fakta hanya akan membahayakan posisi Kamu. Dan sekarang, tentang Pekerjaan Nona Cielmer......" (chasse)
+"Kami dapat memeriksa ke Markas Besar jika Kamu ingin memastikannya, tapi jangan bilang Kamu belum pernah mendengar desas-desus tentang gadis berambut putih...? Kamu hanya dapat memverifikasi dengan Markas besar apakah ini benar atau tidak. Lagi pula, mereka secara alami akan diberi tahu ketika Rank Hunter naik ke Rank-C. Sebaiknya Kamu mulai menyadari bahwa membuka mulut tanpa memastikan fakta hanya akan membahayakan posisimu. Dan sekarang, tentang job Nona Cielmer......" (chasse)
 
-Berhenti di sana, Chasse melihat ekspresi Ain. Setelah melihat Ain mengangguk, "Ini Song Princess". Chasse berkata begitu.
+Berhenti berbicara, Chasse melihat ekspresi Ain. Setelah melihat Ain mengangguk, "jobnya adalah Song Princess". Chasse berkata begitu.
 
 Ketua Guild menatap Ain dengan tidak percaya.
 

@@ -104,7 +104,7 @@ Bagaimanapun juga, ini berhubungan dengan jobku, jadi dia mungkin menginginkan i
 
 Dalam hal ini, mungkin lebih baik bagiku untuk mengatakannya sendiri. Dengan pemikiran itu, Aku memutuskan untuk langsung memberi tahu ketua guild.
 
-"jobku adalah song princess. Ketua Guild, Kamu tidak dapat memberi tahuku bahwa Kamu tidak mengerti apa artinya jika jobku ketahuan, bukan? Tidak peduli berapa banyak Kamu memaksakan perintah pembungkaman, informasi yang telah bocor sekali pun tidak mungkin dikendalikan. Jika, secara kebetulan, ini menyebar ke seluruh ibu kota, Aku mungkin akan dianiaya dan Aku mungkin tidak akan pernah diizinkan untuk masuk ke dalam ibu kota kerajaan lagi. Sekarang dengan pertimbangan ini, apakah permintaanku sebelumnya benar-benar Aku melebih-lebihkan diriku sendiri?" (ain)
+"jobku adalah song princess. Ketua Guild, Kamu tidak bisa bilang bahwa Kamu tidak mengerti apa artinya jika jobku ketahuan, bukan? Tidak peduli berapa banyak Kamu memaksakan perintah pembungkaman, informasi yang telah bocor sekali pun tidak mungkin dikendalikan. Jika, secara kebetulan, ini menyebar ke seluruh ibu kota, Aku mungkin akan dianiaya dan Aku mungkin tidak akan pernah diizinkan untuk masuk ke dalam ibu kota kerajaan lagi. Sekarang dengan pertimbangan ini, apakah permintaanku sebelumnya benar-benar Aku melebih-lebihkan diriku sendiri?" (ain)
 
 Bahkan saat aku selesai berbicara, ketua guild tetap diam, dan percakapan terhenti.
 
