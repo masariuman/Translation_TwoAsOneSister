@@ -1,16 +1,16 @@
 CHAPTER 55: VIVIANA, A CHAT, AND A FAVOR
 
-Dengan perselisihan di Guild Hunter, dan karena kami tidak memiliki hal lain yang perlu kami lakukan secara khusus, pilihan yang dimiliki Ciel tentang bagaimana kami dapat menghabiskan sisa hari luang kami adalah tidur atau berlatih dengan sihir dan/atau Pekerjaan.
+Dengan perselisihan di Guild Hunter, dan karena kami tidak memiliki hal lain yang perlu kami lakukan secara khusus, pilihan yang dimiliki Ciel untuk bagaimana kami dapat menghabiskan sisa hari luang kami adalah tidur atau berlatih dengan sihir dan/atau job kami.
 
-Di antara keduanya, karena tidak ada yang tahu berapa banyak peluang yang akan kita miliki, jika ada, untuk tidur di ranjang semewah ini, Ciel secara alami memilih untuk tidur.
+Di antara keduanya, karena tidak ada yang tahu berapa banyak peluang yang akan kami miliki untuk tidur di ranjang semewah ini, Ciel secara alami memilih untuk tidur.
 
 Aku adalah orang yang merekomendasikan ini, karena kami telah mengalami satu demi satu masalah dalam beberapa hari terakhir ini dan Aku pikir Ciel mungkin merasa lelah tanpa menyadarinya.
 
-Ciel mengatakan kepada Aku pagi ini bahwa tidak apa-apa jika Aku menggunakan tubuhnya saat dia tidur — meskipun dari nuansanya, dia mengatakan kepada Aku untuk menggunakannya secara proaktif — jadi sejujurnya, kami sebenarnya tidak mendapatkan yang terbaik dari pengalaman ranjang mewah. sekarang juga.
+Ciel mengatakan kepadaku pagi ini bahwa tidak apa-apa jika Aku menggunakan tubuhnya saat dia tidur — meskipun dari nuansanya, dia mengatakan kepadaku untuk menggunakannya secara proaktif — jadi sejujurnya, kami sebenarnya tidak mendapatkan yang terbaik dari pengalaman ranjang mewah sekarang.
 
-Dari sudut pandang orang luar, sepertinya Ciel cukup banyak tidur. Tapi kenyataannya, menurut Aku, Ciel berada di bawah banyak tekanan yang tidak pantas untuk anak berusia 12 tahun, jadi tidur setiap saat bukanlah hal yang aneh sama sekali.
+Dari sudut pandang orang luar, sepertinya Ciel cukup banyak tidur. Tapi kenyataannya, menurutku, Ciel berada di bawah banyak tekanan yang tidak pantas untuk anak berusia 12 tahun, jadi tidur setiap saat bukanlah hal yang aneh sama sekali.
 
-Lagi pula, meskipun aku mungkin yang memegang kendali selama ini, orang biasanya tidak berkelahi dengan guildmaster dan mereka pasti tidak berbaris ke sarang bos bawah tanah juga.
+Lagi pula, meskipun aku mungkin yang memegang kendali selama ini, orang biasanya tidak berkelahi dengan Ketua Guild dan mereka pasti tidak menyerang ke sarang bos underground juga.
 
 Jika itu Aku di masa lalu, Aku akan muntah karena kecemasan dalam situasi ini.
 
@@ -20,100 +20,101 @@ Aku... pelindung Ciel, hehe.
 
 Saat pikiran bodoh ini melintas di benakku, aku merasakan seseorang mendekati kamar kami.
 
-Tidak seperti yang terjadi beberapa hari yang lalu, itu tidak datang dari langit-langit atau dari luar jendela, jadi kurasa kali ini adalah pengunjung yang tepat.
+Tidak seperti yang terjadi beberapa hari yang lalu, itu tidak datang dari langit-langit atau dari luar jendela, jadi kurasa kali ini benar-benar pengunjung.
 
 Aku mencoba membangunkan Ciel untuk sementara waktu, tetapi dia tidak menunjukkan tanda-tanda bangun sama sekali.
 
 Ketukan akhirnya datang dari pintu kami, dan "Blan-sama, apakah Kamu di dalam?" sebuah suara sopan bertanya kepada kami.
 
-Aku hanya bisa berpura-pura tidak ada orang di ruangan itu, tetapi mungkin ada beberapa kemajuan dari kemarin dan Aku merasa mengabaikan ini hanya akan menunda masalah yang tak terhindarkan.
+Aku bisa berpura-pura tidak ada orang di ruangan itu, tetapi mungkin ada beberapa kemajuan dari kemarin dan Aku merasa mengabaikan ini hanya akan menunda masalah yang tak terhindarkan.
 
-Sementara aku merasa bersalah karena mengganggu istirahat Ciel, aku meminjam tubuhnya dan membalas yang ada di balik pintu.
+Sementara aku merasa bersalah karena mengganggu istirahat Ciel, aku meminjam tubuhnya dan menjawab yang ada di balik pintu.
 
-"Apa itu?" (ain)
+"ada apa?" (ain)
 
 "Kamu punya tamu."
 
-"Apakah mereka memberi Kamu nama mereka?" (ain)
+"Apakah mereka memberimu nama mereka?" (ain)
 
 "Wanita itu menyebut dirinya Viviana dan pakaiannya tampak seperti seorang hunter."
 
-"Bisakah Kamu menyampaikan kepadanya bahwa Aku baru saja bangun? dan mungkin perlu beberapa saat untuk mempersiapkannya? Aku akan menuju ke meja resepsionis setelah Aku selesai." (ain)
+"Bisakah Kamu menyampaikan kepadanya bahwa Aku baru saja bangun? dan mungkin perlu beberapa saat untuk mempersiapkan diri? Aku akan menuju ke meja resepsionis setelah Aku selesai." (ain)
 
 "Dimengerti."
 
-Viviana-san, dia seharusnya menjadi anggota dari Fools Gathering. Jika Aku ingat dengan benar, dia adalah orang yang berbagi bahwa serigala adalah utusan ilahi.
+Viviana-san, dia adalah anggota Fools Gathering. Jika Aku ingat dengan benar, dia adalah orang yang mengatakan bahwa serigala adalah utusan dewa.
 
 Dalam hal ini, bertemu dengannya seharusnya baik-baik saja.
 
 Ah, seharusnya aku bertanya apakah dia mengatakan alasannya berkunjung.
 
-Bagaimanapun, tamu kita sepertinya bukan seorang pembunuh yang dikirim oleh Tolt atau guildmaster.
+Bagaimanapun juga, tamu kita sepertinya bukan seorang pembunuh yang dikirim oleh Tolt atau Ketua Guild.
 
 Mempertimbangkan situasinya, ada kemungkinan yang cukup tinggi untuk hal ini terjadi, tapi kurasa orang-orang seperti itu tidak benar-benar menyerang dari pintu depan.
 
 [Ain, apakah terjadi sesuatu?] (ciel)
 
-[Viviana-san datang ke kunjungan, jadi Aku sedang mempertimbangkan bertemu dengannya.] (ain)
+[Viviana-san datang menemui kita, jadi Aku sedang mempertimbangkan bertemu dengannya.] (ain)
 
 [Viviana?] (ciel)
 
-[The penyihir-seperti wanita dari partai kita bertemu di pub.] (ain)
+[seserorang seperti penyihir wanita dari party yang kita temui di pub.] (ain)
 
-[Oh, orang itu. Apakah lebih baik jika Aku pergi?] (ciel)
+[Oh, orang itu. Apakah lebih baik jika Aku yang menemuinya?] (ciel)
 
-[Aku akan menyerahkan keputusan kepada Kamu. Aku tidak tahu alasan kunjungannya.] (ain)
+[Aku akan menyerahkan keputusannya kepadamu. Aku tidak tahu alasan kunjungannya.] (ain)
 
-[Kalau begitu, mungkin lebih baik Ain pergi. Lagipula, aku tidak pandai berbicara panjang lebar.] (ciel)
+[Kalau begitu, mungkin lebih baik Ain yang menemuinya. Lagipula, aku tidak pandai berbicara panjang lebar.] (ciel)
 
-[Jika kamu memikirkannya, tidak bisakah kamu berbicara untuk waktu yang lama seperti yang aku lakukan?] (ain)
+[tidak bisakah kamu berbicara untuk waktu yang lama seperti yang aku lakukan?] (ain)
 
-[Yah, aku bisa. Tapi repot, jadi Aku tidak mau. Selain itu, Aku benar-benar minta maaf Ain tetapi ketika Aku berbicara dalam kalimat yang panjang seperti yang Aku lakukan sekarang, Aku tidak bisa tidak mengingat tentang bagaimana Aku berbicara denganyang pria. ] (ciel)
+[Yah, aku bisa. Tapi repot, jadi Aku tidak mau. Selain itu, Aku benar-benar minta maaf, Ain, tetapi ketika Aku berbicara dalam kalimat yang panjang seperti yang Aku lakukan sekarang, Aku tidak bisa tidak mengingat tentang bagaimana Aku berbicara denganyang pria.] (ciel)
 
-[Kemudian dalam kasus ini, itu tidak dapat membantu.] (ain)
+[Kemudian dalam kasus ini, yah mau bagaimana lagi.] (ain)
 
-[Yup, tidak dapat membantu.] (ciel)
+[Yup.] (ciel)
 
 Saat dia kembali ke nada suaranya yang biasa, untuk beberapa alasan, rasanya seperti Ciel baru saja memberiku senyuman manis.
 
-Meskipun karena aku yang memegang kendali sekarang, aku tidak bisa benar-benar melihat ekspresi wajah Ciel.
+Meskipun aku yang memegang kendali sekarang, aku tidak bisa benar-benar melihat ekspresi wajah Ciel.
+
 Berdasarkan nada suaranya, itu mungkin senyuman menggoda.
 
-Nah, meskipun umumnya dikatakan bahwa perempuan membutuhkan waktu untuk mempersiapkan, ini tidak benar-benar berlaku untuk kita.
+Nah, meskipun umumnya perempuan membutuhkan waktu untuk bersiap, ini tidak benar-benar berlaku untuk kami.
 
 Kami tidak memiliki pakaian modis, kami juga tidak menggunakan kosmetik dan make-up.
 
-Cepat atau lambat, make-up mungkin menjadi kebutuhan bagi kita tapi... Aku sangat berharap seseorang bisa mengajariku tentang itu.
+Cepat atau lambat, make-up mungkin menjadi kebutuhan bagi kami tapi... Aku sangat berharap seseorang bisa mengajariku tentang itu.
 
-Aku bisa mengandalkan Celia-san untuk ini, tapi dia saat ini di markas, ya. Kurasa ini akan menjadi perlombaan antara kita untuk mendapatkan rank B terlebih dahulu atau Ciel mencapai usia di mana kita harus belajar tentang kosmetik terlebih dahulu.
+Aku bisa mengandalkan Celia-san untuk ini, tapi dia saat ini di markas utama, ya. Kurasa ini akan menjadi perlombaan antara kami untuk mendapatkan rank B terlebih dahulu atau Ciel mencapai usia di mana kita harus belajar tentang kosmetik terlebih dahulu.
 
 Setelah bersiap-siap dengan cepat, Aku meninggalkan kamar dan menuju ke meja resepsionis.
 
 Aku bisa melihat Viviana-san dari kejauhan, tapi menurutku dia sangat cantik.
 
-Meskipun pakaiannya benar-benar seperti hunter, dengan penekanan pada fungsionalitas daripada bentuk, dia memiliki rambut hitam kemerahan dan tampilan yang pantang menyerah yang kontras dengan fiturnya yang halus. Dan mengenai proporsinya, dia benar-benar memiliki lekuk tubuhnya karena tubuhnya benar-benar masuk dan keluar di tempat yang seharusnya.
+Meskipun pakaiannya benar-benar seperti hunter, dengan penekanan pada fungsionalitas daripada bentuk, dia memiliki rambut hitam kemerahan dan tampilan yang pantang menyerah yang kontras dengan penampilannya yang halus. Dan mengenai proporsinya, dia benar-benar memiliki lekuk tubuh yang bagus karena tubuhnya benar-benar masuk dan keluar di tempat yang seharusnya.
 
 Karena dia seorang penyihir, dia mungkin memiliki darah bangsawan dalam dirinya.
 
 Lagipula, orang-orang seperti Perla, orang biasa saat lahir yang menjadi penyihir karena Job mereka, adalah pengecualian yang langka.
 
-"Maaf membuat Kamu menunggu." (ain)
+"Maaf membuatmu menunggu." (ain)
 
-"Jangan khawatir tentang itu. Akulah yang tiba-tiba datang. Sebaliknya, Kamu datang lebih awal dari yang Aku harapkan. Aku mendengar bahwa Kamu baru saja bangun." (Viviana)
+"Jangan khawatir tentang itu. Akulah yang tiba-tiba datang. Sebaliknya, Kamu keluar lebih awal dari yang Aku harapkan. Aku dengar Kamu baru saja bangun." (Viviana)
 
-"Aku benar-benar tidak punya banyak yang harus dilakukan di sepanjang garis persiapan, Kamu tahu." (ain)
+"Aku benar-benar tidak punya banyak yang harus dilakukan selama persiapan." (ain)
 
 "Yah, Kamu masih cukup muda." (Viviana)
 
-Sementara Viviana-san sendiri terlihat cukup muda menurutku, jika dibandingkan dengan Ciel, sulit untuk menyebutnya muda.
+Viviana-san sendiri terlihat cukup muda menurutku, tapi jika dibandingkan dengan Ciel, sulit untuk menyebutnya muda.
 
-Lagi pula, bahkan ada beberapa anak berusia 12 tahun yang akan memanggil gadis sekolah menengah sebagai wanita tua.
+Lagi pula, bahkan ada beberapa anak berusia 12 tahun yang akan memanggil anak sekolah menengah sebagai wanita tua.
 
 "Jadi, apa yang membawamu ke sini hari ini? Apakah karena ada beberapa kemajuan yang dicapai?" (ain)
 
-"Yah, tidak. Aku datang ke sini karena alasan pribadi. Aku hanya ingin mengobrol denganmu." (Viviana)
+"tidak. Aku datang ke sini karena alasan pribadi. Aku hanya ingin mengobrol denganmu." (Viviana)
 
-"Mengobrol ? Tentu, Aku tidak keberatan." (ain)
+"Mengobrol? Tentu, Aku tidak keberatan." (ain)
 
 "Syukurlah. Kalau begitu, kenapa kita tidak pergi ke tempat lain?" (Viviana)
 
@@ -121,71 +122,71 @@ Viviana-san mulai berjalan, jadi aku mengikuti di belakangnya.
 
 Setiap gerakan halus yang dia lakukan terasa sangat halus. Dia mungkin tidak hanya memiliki darah bangsawan, dia mungkin sebenarnya seorang bangsawan.
 
-Juga, tampaknya fakta bahwa aku adalah Song Princess belum tersebar, mengingat aku tidak diburu saat aku berjalan di jalanan. Padahal, ini mungkin karena aku bersama Viviana-san, dan mereka tidak bisa.
+Juga, tampaknya fakta bahwa aku adalah Song Princess belum tersebar, mengingat aku tidak diburu saat aku berjalan di jalanan. ini mungkin karena aku bersama Viviana-san.
 
 [Sepertinya ada seseorang yang mengikuti kita, jadi kita harus bertukar tempat jika keadaan menjadi buruk.] (ain)
 
-[Dimengerti. Tetap saja, apakah Viviana tidak ada hubungannya dengan ini?] (ciel)
+[baiklah. Tetap saja, apakah Viviana tidak ada hubungannya dengan ini?] (ciel)
 
-[Siapa yang tahu. Lagipula, aku bisa memikirkan, seperti, beberapa alasan mengapa seseorang menandai kita.] (ain)
+[entahlah. Lagipula, aku bisa memikirkan, seperti, beberapa alasan mengapa seseorang memantau kita.] (ain)
 
 Dalam kasus Ciel, cukup umum ada orang yang mengikutinya bahkan tanpa alasan tertentu.
 
 Aku bahkan tidak bisa menghitung berapa kali kami bertemu dengan para penculik.
 
-Mungkin juga kita sedang diikuti karena kita bersama dengan Viviana-san. Lagipula, dia juga cantik.
+Mungkin juga kami sedang diikuti karena kami bersama dengan Viviana-san. Lagipula, dia juga cantik.
 
-"Tetap saja, sungguh menakjubkan bagaimana Kamu benar-benar tinggal di penginapan itu. Kami berada di pihak yang lebih terbebani dalam hal uang, tetapi penginapan itu pasti di luar jangkauan. Apalagi kamar terbaik, aku bahkan tidak bisa membayangkannya." (Viviana)
+"Tetap saja, sungguh menakjubkan bagaimana Kamu benar-benar tinggal di penginapan itu. Kami berada di pihak yang lebih terbebani dalam hal uang, tetapi penginapan itu pasti di luar jangkauan kami. Apalagi kamar terbaik, aku bahkan tidak bisa membayangkannya." (Viviana)
 
-"Ini kamar yang bagus, tahu? Tapi karena begitu luas, aku merasa sangat kesepian sendirian. Itu tidak berlebihan dengan dekorasi dan sementara kualitas perabotannya tinggi, kesederhanaannya benar-benar nyaman. Tekstur tempat tidur, menurut Aku, sesuatu yang hanya bisa dialami di penginapan itu juga. Namun, bukan berarti Aku membayar kamar. Aku segera terlibat dalam beberapa masalah segera setelah Aku tiba di sini, jadi aku diberi akomodasi sebagai permintaan maaf." (ain)
+"itu kamar yang bagus. Tapi karena begitu luas, aku merasa sangat kesepian sendirian. kamar Itu tidak memiliki dekorasi berlebihan dan kualitas perabotannya tinggi, kesederhanaannya benar-benar nyaman. Tekstur tempat tidur, menurutku, sesuatu yang hanya bisa dialami di penginapan itu juga. tapi, bukan berarti Aku membayar sewanya. Aku segera terlibat dalam beberapa masalah segera setelah Aku tiba di sini, jadi aku diberi akomodasi sebagai permintaan maaf." (ain)
 
-"Segera terlibat dalam beberapa kesulitan setelah tiba di sini...... Dengan Kamu, Aku kira itu agak tidak dapat dihindari." (Viviana)
+"Segera terlibat dalam beberapa masalah setelah tiba di sini...... kalau kamu, Aku kira itu agak tidak dapat dihindari." (Viviana)
 
 Saat dia menatapku, Viviana-san menyatakan kesimpulannya.
 
-Dan karena praktis tidak ada yang bisa Aku sangkal tentang itu, "Aku sudah terbiasa sekarang." Aku hanya menjawab begitu.
+Dan karena tidak ada yang bisa Aku sangkal tentang itu, "Aku sudah terbiasa sekarang." Aku hanya menjawab begitu.
 
 Untuk beberapa alasan, dia memiliki tampilan yang rumit di wajahnya.
 
 "Kebetulan, Kamu berbicara dalam mode pengumpulan informasi hari ini, ya." (Viviana)
 
-"Maukah Anda... lebih suka mendengarkan Aku yang biasa?" (ain)
+"mungkin kamu... lebih suka mendengarkan Aku yang biasa?" (ain)
 
 "Tidak, Aku lebih suka mendengar Kamu berbicara seperti yang Kamu lakukan sebelumnya." (Viviana)
 
-"Kalau begitu, mari kita lakukan itu." (ain)
+"Kalau begitu, baiklah." (ain)
 
 Sejujurnya, meniru Ciel itu sulit. Tepatnya, menjaga percakapan yang lancar sambil meniru Ciel adalah yang sebenarnya sulit.
 
-Pertama-tama, jika Viviana-san baik-baik saja dengan cara bicara Ciel, maka aku tidak perlu menjadi orang yang mengendalikan sekarang.
+Pada dasarnya, jika Viviana-san baik-baik saja dengan cara bicara Ciel, maka aku tidak perlu mengendalikan tubuh ini sekarang.
 
 Dengan pertimbangan itu, kurasa mungkin lebih baik jika dia mengatakan bahwa cara bicara Ciel lebih baik.
 
-Dan saat kami menghibur diri dalam perjalanan seperti itu, tempat kami dibawa adalah sebuah restoran bergaya.
+Dan saat kami menghibur diri dalam perjalanan seperti itu, tempat yang kami tuju adalah sebuah restoran bergaya.
 
-Meskipun masih terlalu dini untuk makan siang, sudah ada cukup banyak orang di toko, dengan beberapa nyanyian petani, sementara yang lain mendiskusikan berbagai hal dengan wajah serius.
+Meskipun masih terlalu dini untuk makan siang, sudah ada cukup banyak orang di toko, dengan beberapa orang berbicara santai, sementara yang lain mendiskusikan berbagai hal dengan wajah serius.
 
 "Benar-benar toko yang tidak biasa." (ain)
 
-"Bahkan di luar waktu makan siang dan makan malam, toko ini tetap buka sebagai tempat untuk mengobrol, Kamu tahu. Mereka hanya menyajikan minuman dan makanan ringan selama waktu senggang mereka, tetapi karena hanya ada beberapa tempat lain yang dapat digunakan untuk bersantai dan mengobrol, mereka mendapatkan cukup banyak pelanggan." (Viviana)
+"Bahkan di luar waktu makan siang dan makan malam, toko ini tetap buka sebagai tempat untuk mengobrol. Mereka hanya menyajikan minuman dan makanan ringan selama waktu senggang mereka, tetapi karena hanya ada beberapa tempat yang dapat digunakan untuk bersantai dan mengobrol, mereka mendapatkan cukup banyak pelanggan." (Viviana)
 
-Jika Aku harus menggambarkannya, toko itu terasa seperti kafe prototipe.
+Jika Aku harus menggambarkannya, toko itu terasa seperti kafe.
 
-Kemudian, jika permintaan meningkat, toko yang terutama menawarkan minuman dan makanan ringan, seperti kafe, mungkin akan muncul di masa depan.
+jika permintaan meningkat, toko yang terutama menawarkan minuman dan makanan ringan, seperti kafe, mungkin akan muncul di masa depan.
 
-Saat Viviana-san duduk di kursi terbuka, dia bertanya padaku apa yang ingin kumiliki. Aku hanya menjawab dengan mengatakan secangkir teh hitam. Bukannya aku sangat menyukai teh hitam, tapi aku hanya berpikir itu akan cocok dengan suasananya.
+Saat Viviana-san duduk di kursi terbuka, dia bertanya padaku apa yang ingin aku pesan. Aku hanya menjawab dengan mengatakan secangkir teh hitam. Bukannya aku sangat menyukai teh hitam, tapi aku hanya berpikir itu akan cocok dengan suasananya.
 
-Kebetulan, sementara ada teh hitam, tidak ada teh hijau di sini. Tidak ada kopi juga. Minuman yang tersedia adalah air, teh hitam, air buah, dan alkohol, jadi tidak banyak pilihan untuk memulai.
+sementara ada teh hitam, tidak ada teh hijau di sini. Tidak ada kopi juga. Minuman yang tersedia adalah air, teh hitam, air buah, dan alkohol, jadi tidak banyak pilihan untuk dipesan.
 
 Setelah Viviana-san selesai memesan, kami kemudian mulai berbicara saat minuman kami disajikan.
 
-"Sekali lagi, terima kasih telah menanggapi undangan Aku yang tiba-tiba. Sejujurnya Aku tidak bisa cukup berterima kasih." (Viviana)
+"Sekali lagi, terima kasih telah menanggapiku yang tiba-tiba datang. Sejujurnya Aku tidak bisa cukup berterima kasih." (Viviana)
 
 "Kamu ingin membicarakan sesuatu yang pribadi, bukan?" (ain)
 
-"Kanan. Tapi sebelum itu, Aku ingin bertanya tentang ini. Benarkah kamu berkelahi dengan Chasse?" (Viviana)
+"benar. Tapi sebelum itu, Aku ingin bertanya sesuatu. Benarkah kamu berkelahi dengan Chasse?" (Viviana)
 
-"Aku tidak, sungguh. Aku hanya mengatakan yang sebenarnya. Apakah Kamu mungkin datang untuk menantang apa yang Aku katakan?" (ain)
+"tidak. Aku hanya mengatakan yang sebenarnya. Apakah Kamu mungkin datang untuk menantang apa yang Aku katakan?" (ain)
 
 "Tidak, tidak juga." (Viviana)
 
@@ -193,7 +194,7 @@ Viviana-san tersenyum senang.
 
 Akan sangat aneh jika dia benar-benar datang ke sini untuk berkelahi setelah bersikap sopan padaku.
 
-"Sejujurnya, bahkan jika kami berempat menyerang Kamu pada saat yang sama, Kamu mungkin tidak akan mendapatkan goresan sebanyak itu. Sebagai seseorang yang menguasai ilmu sihir, aku sangat tertarik dengan ilmu sihirmu, jadi aku datang untuk menemuimu." (Viviana)
+"Sejujurnya, bahkan jika kami berempat menyerangmu pada saat yang sama, Kamu mungkin tidak akan mendapatkan goresan yang banyak. Sebagai seseorang yang menguasai ilmu sihir, aku sangat tertarik dengan ilmu sihirmu, jadi aku datang untuk menemuimu." (Viviana)
 
 "Bagaimana dengan yang lain?" (ain)
 
@@ -201,51 +202,51 @@ Akan sangat aneh jika dia benar-benar datang ke sini untuk berkelahi setelah ber
 
 "Itu... cukup merepotkan." (ain)
 
-"Meskipun Kamu tidak bersalah di sini, akan lebih baik untuk melihat lebih banyak simpati, Kamu tahu? Bagaimanapun, Aku membuat diri Aku secara khusus dibebaskan untuk mengobrol pribadi dengan Kamu sebagai seorang penyihir tunggal." (Viviana)
+"Meskipun Kamu tidak bersalah di sini, akan lebih baik untuk menunjukkan lebih banyak simpati, Kamu tahu? Bagaimanapun juga, Aku membuat diriku secara khusus dibebaskan untuk mengobrol pribadi denganmu sebagai seorang penyihir tunggal." (Viviana)
 
-Pertemuan Orang Bodoh. Jika party mereka adalah kumpulan orang-orang yang dengan keras kepala terfokus pada satu hal, maka kurasa apa yang keras kepala Viviana-san kemungkinan besar adalah studi tentang sihir.
+fool gathering. Jika party mereka adalah kumpulan orang-orang yang dengan keras kepala terfokus pada satu hal, maka kurasa keras kepala Viviana-san kemungkinan besar adalah studi tentang sihir.
 
 Untuk alasan itu, melihat +BARRIER Ciel, atau lebih tepatnya Aku, telah menarik minatnya.
 
-Aku bisa memahami perasaannya, tetapi keadaan di sekitar +BARRIER itu terlalu unik, dan hal-hal lain seperti peningkatan kekuatan sihir melalui pil yang mengancam nyawa, atau perubahan rambut menjadi sirkuit sihir terlalu tidak teratur sehingga aku tidak berpikir ini. akan benar-benar berfungsi sebagai referensi yang baik untuknya.
+Aku bisa memahami perasaannya, tetapi keadaan di sekitar +BARRIER itu terlalu unik, dan hal-hal lain seperti peningkatan kekuatan sihir melalui pil yang mengancam nyawa, atau perubahan rambut menjadi sirkuit sihir terlalu tidak teratur sehingga aku tidak berpikir ini akan benar-benar berfungsi sebagai referensi yang baik untuknya.
 
-"Menurut pendapat Aku, Aku hampir tidak memiliki apa pun yang dapat Aku ajarkan kepada Kamu, Kamu tahu?" (ain)
+"Menurut pendapatku, Aku hampir tidak memiliki apa pun yang dapat Aku ajarkan kepadamu." (ain)
 
-"Itu wajar saja. Tidak mungkin bagi para penyihir untuk mengungkapkan rahasia mereka sendiri. Misalnya, +BARRIER Kamu itu. Bahkan setelah mengetahui keberadaannya, Aku masih tidak bisa merasakannya. Aku tidak keberatan jika Kamu tidak ingin menjawab, tetapi kapan Kamu mengalahkan monster pertama Kamu?" (Viviana)
+"Itu wajar saja. Tidak mungkin bagi para penyihir untuk mengungkapkan rahasia mereka sendiri. Misalnya, +BARRIERmu itu. Bahkan setelah mengetahui keberadaannya, Aku masih tidak bisa merasakannya. Aku tidak keberatan jika Kamu tidak ingin menjawab, tetapi kapan Kamu mengalahkan monster pertamamu?" (Viviana)
 
 "Aku berusia 10 tahun saat itu. Jadi sekitar 2 tahun yang lalu." (ain)
 
-"Kalau begitu, ini berarti +BARRIERmu sudah bisa melawan Cyclops pada saat itu, kan?" (Viviana)
+"Kalau begitu, ini berarti +BARRIERmu sudah bisa menahan Cyclops pada saat itu, kan?" (Viviana)
 
 "Aku tidak bisa menyangkal itu." (ain)
 
 Untuk monster di level Cyclops, setiap serangan tidak ada artinya terhadap +BARRIERku. Kami sudah menguji ini.
 
-Aku telah meningkatkan +BARRIER sejak itu, jadi kemungkinan tidak ada kemungkinan serangan tingkat itu menerobos pada saat ini.
+Aku telah meningkatkan +BARRIERku sejak itu, jadi kemungkinan tidak ada kemungkinan serangan tingkat itu dapat menerobos pada saat ini.
 
-"Seperti yang Aku pikirkan, Chasse dan Lucie masih tertipu oleh penampilan Kamu. Hanya bisa terus mempertahankan +BARRIER yang bisa bertahan melawan monster kelas-B sudah lebih dari cukup untuk seorang penyihir. Selain itu, Kamu juga memiliki kemampuan ofensif untuk menyelesaikan penyerbuan sendirian. Aku bahkan tidak bisa membayangkan berapa banyak usaha yang telah Kamu lakukan untuk mencapai level itu di usia Kamu." (Viviana)
+"Seperti yang Aku pikirkan, Chasse dan Lucie masih tertipu oleh penampilanmu. Hanya bisa terus mempertahankan +BARRIER yang bisa bertahan melawan monster kelas-B sudah lebih dari cukup untuk seorang penyihir. Selain itu, Kamu juga memiliki kemampuan ofensif untuk menyelesaikan penyerbuan sendirian. Aku bahkan tidak bisa membayangkan berapa banyak usaha yang telah Kamu lakukan untuk mencapai level itu di usiamu." (Viviana)
 
-Jika Aku harus mengatakan, itu adalah kekuatan dance princess yang memainkan peran besar dalam menyelesaikan penyerbuan, tetapi karena Aku tidak berencana untuk memberikan informasi yang tidak perlu, Aku hanya menjawab dengan senyuman.
+kekuatan dance princess adalah yang memainkan peran besar dalam menyelesaikan penyerbuan, tetapi karena Aku tidak berencana untuk memberikan informasi yang tidak perlu, Aku hanya menjawab dengan senyuman.
 
-Pada akhirnya, untuk apa Viviana-san benar-benar mendekati kita? Apakah dia datang untuk mengatakan bahwa mereka akan mengawasiku karena aku berbahaya atau semacamnya?
+Pada akhirnya, untuk apa Viviana-san benar-benar mendekati kami? Apakah dia datang untuk mengatakan bahwa mereka akan mengawasiku karena aku berbahaya atau semacamnya?
 
 Tetap saja, untuk beberapa alasan, Viviana-san tampak merah di pipinya dan agak malu sekarang.
 
-"Aku tidak berharap Kamu memberi tahu Aku tentang sihir Kamu. Jadi, Aku ingin meminta Kamu untuk melihat sihir Aku. Dan jika Kamu melihat sesuatu yang aneh tentang itu, tolong beri tahu Aku tentang itu." (Viviana)
+"Aku tidak berharap Kamu memberi tahuku tentang sihirmu. Jadi, Aku ingin memintamu untuk melihat sihirku. Dan jika Kamu melihat sesuatu yang aneh tentang itu, tolong beri tahu Aku tentang itu." (Viviana)
 
 Mendengar kata-katanya, mataku berkedip karena terkejut.
 
 Bagaimana Aku bisa menggambarkan ini, ini seperti bagaimana seorang pemain bisbol muda akan meminta seorang atlet profesional untuk melihat permainan mereka. Mengabaikan fakta bahwa Viviana-san seharusnya menjadi pro di sini, membuat perbandingan ini agak aneh, tampaknya tujuannya sebenarnya adalah meminta seorang gadis yang lebih muda untuk mengajarinya tentang sihir bahkan jika dia harus menanggung rasa malunya sendiri.
 
-Tetap saja, Ciel lebih baik dariku dalam bagian teoretis dari sihir.
+Tetap saja, Ciel lebih baik dariku dalam bagian sihir.
 
-Dan bukannya aku bisa menyuruhnya meminum pil yang akan membuat kekuatan sihirnya mengamuk dan mengubah rambutnya menjadi sirkuit sihir dan semacamnya.
+Dan aku juga tidak bisa menyuruhnya meminum pil yang akan membuat kekuatan sihirnya mengamuk dan mengubah rambutnya menjadi sirkuit sihir dan semacamnya.
 
-"Aku tidak terlalu keberatan, tetapi cara Aku menggunakan sihir sangat aneh, jadi tidak ada jaminan bahwa apa yang akan Aku katakan akan bermanfaat, oke?" (ain)
+"Aku tidak terlalu keberatan, tetapi caraku menggunakan sihir sangat aneh, jadi tidak ada jaminan bahwa apa yang akan Aku katakan akan bermanfaat, oke?" (ain)
 
 "Aku tidak keberatan." (Viviana)
 
-Mempertimbangkan bahwa dia akan menunjukkan kepada kita sihirnya secara gratis, aku dengan senang hati menurutinya.
+Mempertimbangkan bahwa dia akan menunjukkan kepada kami sihirnya secara gratis, aku dengan senang hati menurutinya.
 
 Selain itu, Aku juga ingin tahu bagaimana tindakan pengejar kami ketika tidak ada orang di sekitar.
 
