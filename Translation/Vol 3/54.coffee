@@ -64,7 +64,7 @@ Ketua Guild kemudian mengusulkannya dengan keengganan yang pahit, tetapi tidak m
 
 Chasse-san melirikku seolah bertanya apakah aku setuju dengan ini, jadi aku menggelengkan kepalaku dan menjawab.
 
-"Dengan Jobku yang sudah terungkap, Tolt-san dipecat atau tidak bukan urusanku. Lagi pula, ini hanyalah tindakan yang diperlukan demi para Hunter lainnya, bukan? daripada ini menjadi prasyarat belaka, bukankah kita seharusnya berbicara tentang kompensasi apa yang harus Aku terima? Sementara Aku tidak benar-benar terluka untuk uang, mengingat kerusakannya, Aku ingin memiliki sesuatu yang cukup berharga untuk membangun sebuah istana." (ciel)
+"Dengan Jobku yang sudah terungkap, Tolt-san dipecat atau tidak bukan urusanku. Lagi pula, ini hanyalah tindakan yang diperlukan demi para Hunter lainnya, bukan? daripada ini menjadi prasyarat belaka, bukankah kita seharusnya berbicara tentang kompensasi apa yang harus Aku terima? Sementara Aku tidak benar-benar butuh uang, mengingat kerusakannya, Aku ingin memiliki sesuatu yang cukup berharga untuk membangun sebuah istana." (ain)
 
 "Dasar rank rendahan, itu terlalu berlebihan untuk orang sepertimu..."
 

@@ -12,60 +12,61 @@ Ain dan Chasse duduk di dekat pintu sementara Ketua Guild dan Tolt duduk di sebe
 
 Saat semua orang duduk di kursi mereka, Chasse mulai berbicara.
 
-"Awal dari semuanya bukanlah sesuatu yang istimewa. Nona Cielmer di sini sedang menuju ke papan permintaan ketika Valbar menabraknya. Karena ini adalah konflik antara Hunter, Aku tidak punya alasan untuk campur tangan kecuali jika semuanya berjalan terlalu jauh, dan karena Nona Cielmer adalah yang lebih kuat, Valbar dan kohortnya mendapatkan meja untuk mereka. Dari sudut pandangnya, dia hanya diganggu, tetapi Valbar hanya menuai apa yang dia tabur." (chasse)
+"Awal dari semuanya bukanlah sesuatu yang istimewa. Nona Cielmer di sini sedang menuju ke papan permintaan dan Valbar menemuinya. Karena ini adalah konflik antara Hunter, Aku tidak punya alasan untuk campur tangan kecuali jika semuanya berjalan terlalu jauh, dan karena Nona Cielmer yang lebih kuat, Valbar dan rekannya kalah darinya. Dari sudut pandangnya, dia hanya diganggu, tetapi Valbar hanya menuai apa yang dia tabur." (chasse)
 
-"Yah, itu saja bukan cerita yang tidak biasa. Tanpa memandang usia, siapa pun dengan tingkat tinggi harus dapat mengalahkan seseorang di level Valbar dengan mudah. Begitu? Di mana Tolt berperan?"
+"Yah, itu saja bukan cerita yang tidak biasa. Tanpa memandang usia, siapa pun dengan tingkat tinggi dapat mengalahkan seseorang di level Valbar dengan mudah. jadi, Di mana Tolt berperan?"
 
-"Sebelum itu, izinkan Aku bertanya ini: Guildmaster, apakah Kamu tahu apa Pekerjaan Tolt?" (chasse)
+"Sebelum itu, izinkan Aku bertanya ini: Ketua Guild, apakah Kamu tahu apa job Tolt?" (chasse)
 
-"Seperti yang Aku lakukan. Di guild, baik Hunter dan staf memiliki kebebasan untuk menyimpan Pekerjaan mereka untuk diri mereka sendiri. Selain itu, Tolt adalah favorit sub-master. Cara sub-master kasar memaksanya ke posisi itu membuat marah pada waktu itu, tetapi pekerjaan Tolt sendiri seharusnya tidak buruk sama sekali."
+"Aku tidak mengetahuinya. Di guild, baik Hunter dan staf memiliki kebebasan untuk menyimpan job mereka untuk diri mereka sendiri. Selain itu, Tolt adalah favorit wakil ketua. Cara wakil ketua dengan paksa memasukkannya ke posisi itu membuatku marah pada waktu itu, tetapi pekerjaan Tolt sendiri seharusnya tidak buruk sama sekali."
 
-Saat guildmaster membelanya, wajah kaku Tolt sedikit melunak.
+Saat Ketua Guild membelanya, wajah kaku Tolt sedikit melunak.
 
 Ain tidak memiliki sesuatu untuk dikatakan secara khusus, jadi dia diam-diam mendengarkan percakapan mereka.
 
-"Nah, ketika Valbar mencoba menjemput wanita kecil kita di sini, dia mencoba memaksa Ayubnya keluar darinya. Tentu saja, Nona Cielmer menyimpannya untuk dirinya sendiri. Meskipun begitu, itu terungkap, entah bagaimana. Dan alasannya adalah karena Tolt di sana yang mengatakannya sendiri." (chasse)
+"Nah, ketika Valbar mencoba mengganggu nona kecil kita di sini, dia mencoba memaksa agar nona kita memberitahu jobnya. Tentu saja, Nona Cielmer menyimpannya untuk dirinya sendiri. Meskipun begitu, jobnya terungkap, entah bagaimana. Dan alasannya adalah karena Tolt di sana yang mengatakannya sendiri." (chasse)
 
 "Apa-......!?"
 
 "Lalu, setelah mendengar Job-nya, Valbar dengan keras mengumumkannya ke seluruh guild." (chasse)
 
-Untuk sementara, guildmaster diam-diam menatap Tolt saat rahangnya jatuh karena syok.
+Untuk sementara, Ketua Guild diam-diam menatap Tolt saat rahangnya jatuh karena syok.
 
 Segera setelah itu, "Apakah ini benar?" dia meminta konfirmasi Tolt dan, untuk beberapa alasan, "Ya". Tolt dengan bangga mengangguk sebelum menunjuk Ain.
 
-"Dalam situasi itu, jika dia hanya memberi tahu Ayubnya segera, itu akan menyelesaikan masalah itu. Tapi sebaliknya, dia tidak akan mengatakannya sama sekali, jadi Aku mengatakannya di tempatnya. Tapi Aku kira waktu Aku buruk karena hal-hal meningkat tiba-tiba." (tolt)
+"Dalam situasi itu, jika dia hanya memberi tahu jobnya segera, itu akan menyelesaikan masalah. Tapi sebaliknya, dia tidak akan mengatakannya sama sekali, jadi Aku mengatakannya sebagai gaintinya. Tapi Aku kira waktuku buruk karena situasi meningkat secara tiba-tiba." (tolt)
 
 "Tolt, Kamu ... Apakah Kamu tidak menyadari apa yang baru saja Kamu lakukan?"
 
-"Tidak ada Pekerjaan yang lebih baik atau lebih buruk daripada yang lain, kan? Itu ditulis dengan benar sebagai salah satu prinsip Hunter Guild. Tapi terlepas dari itu, bukankah aneh kalau dia merahasiakan Job-nya? Dia bahkan menyebabkan masalah bagi semua orang, Aku hanya melakukan apa yang benar. " (tolt)
+"Tidak ada job yang lebih baik atau lebih buruk daripada yang lain, kan? Itu ditulis dengan benar sebagai salah satu prinsip Guild Hunter. Tapi terlepas dari itu, bukankah aneh kalau dia merahasiakan Job-nya? Dia bahkan menyebabkan masalah bagi semua orang, Aku hanya melakukan apa yang benar." (tolt)
 
-"Begitu . Lalu, apa Pekerjaanmu?"
+"Begitu . Lalu, apa Jobmu?"
 
-"I-itu, sub-master menyuruhku untuk tidak mengatakannya......" (tolt)
+"I-itu, Wakil Ketua menyuruhku untuk tidak mengatakannya......" (tolt)
 
-"Kenapa kamu tahu Pekerjaan orang lain? Apakah karena Pekerjaan Kamu? "
+"Kenapa kamu tahu job orang lain? Apakah karena jobmu? "
 
 "Umm ......Uhh ......" (tolt)
 
-"Begitu, diam saja."
+"Begitu, diamlah."
 
-Mendengar kemarahan dalam suara guildmaster, Tolt menyingkir dan menelan kata-katanya.
-Guildmaster menggaruk kepalanya dengan kesal yang tak terkendali dan kemudian mengalihkan pandangannya ke Ain dan Chasse.
+Mendengar kemarahan dalam suara Ketua Guild, Tolt menyingkir dan menelan kata-katanya.
 
-"Singkatnya, Pekerjaan Tolt termasuk dalam kategori Penilai. Dengan menggunakan pekerjaannya, dia mengungkap Job gadis ini, dan kemudian mengungkapkannya ke publik. Namun, mengapa Tolt ada di sini ketika dia seharusnya tidak bertugas hari ini?"
+Ketua Guild menggaruk kepalanya dengan kesal yang tak terkendali dan kemudian mengalihkan pandangannya ke Ain dan Chasse.
 
-"Dia awalnya di sana minum di pub yang sama dengan tempatku berada. Nona Cielmer kemudian memasuki pub untuk mengumpulkan informasi dan pergi setelah menyelesaikan tujuannya. Tapi segera setelah itu, Tolt pergi juga, jadi dia mungkin mengikutinya." (chasse)
+"Singkatnya, job Tolt termasuk dalam kategori Penilai(APPRAISER). Dengan menggunakan jobnya, dia mengungkap Job gadis ini, dan kemudian mengungkapkannya ke publik. tapi, mengapa Tolt ada di sini ketika dia seharusnya tidak bertugas hari ini?"
+
+"Dia awalnya minum di pub yang sama dengan tempatku berada. Nona Cielmer kemudian memasuki pub untuk mengumpulkan informasi dan pergi setelah menyelesaikan tujuannya. Tapi segera setelah itu, Tolt pergi juga, jadi dia mungkin mengikutinya." (chasse)
 
 "Lalu bagaimana denganmu, Chasse. Mengapa Kamu di sini? Kamu juga minum di sana, bukan?"
 
-"Para kakek tua mengatakan bahwa hal-hal mungkin akan menyusahkan, Kamu tahu? Selama itu, mereka juga memberi tahu Aku tentang kekuatan sejati Nona Cielmer, jadi Aku mengikuti sebagian karena rasa ingin tahu." (chasse)
+"Para kakek tua mengatakan bahwa hal-hal mungkin akan menyusahkan, Kamu tahu? mereka juga memberi tahuku tentang kekuatan sejati Nona Cielmer, jadi Aku mengikuti karena rasa ingin tahu." (chasse)
 
-"Pertama-tama, mengapa kamu mengikutinya, Tolt? Apakah Ayubnya adalah sesuatu yang sangat langka? Bahkan jika itu masalahnya, Kamu dapat menemukan pekerjaan langka sebanyak yang Kamu inginkan di guild, Kamu tahu?"
+"Pertama-tama, mengapa kamu mengikutinya, Tolt? Apakah jobnya adalah sesuatu yang sangat langka? Bahkan jika itu masalahnya, Kamu dapat menemukan job langka sebanyak yang Kamu inginkan di guild."
 
-Aku yakin orang-orang yang disebut Chasse sebagai kakek tua adalah orang-orang yang tampak veteran. Jika mereka melihat penghalang Ain, maka mereka mungkin memahami kekuatannya juga. Dalam hal ini, Aku kemudian dikenali sebagai anak misterius yang tidak dikenal, jadi dapat dimengerti bahwa mereka kemudian membagikan informasi ini sebelum insiden terjadi. Terutama karena Chasse tampaknya adalah seseorang yang dipercaya bahkan oleh guild, terlebih lagi alasannya.
+Aku yakin orang-orang yang disebut Chasse sebagai kakek tua adalah orang-orang yang tampak veteran. Jika mereka melihat +BARRIER Ain, maka mereka mungkin memahami kekuatannya juga. Dalam hal ini, Aku kemudian dikenali sebagai anak misterius yang tidak dikenal, jadi dapat dimengerti bahwa mereka kemudian membagikan informasi ini sebelum insiden terjadi. Terutama karena Chasse tampaknya adalah seseorang yang dipercaya bahkan oleh guild.
 
-Guildmaster mengalihkan perhatiannya ke Tolt, tapi Tolt tidak berbicara sama sekali.
+Ketua Guild mengalihkan perhatiannya ke Tolt, tapi Tolt tidak berbicara sama sekali.
 
 Ain sepertinya tidak mengerti ini juga, jadi aku memutuskan untuk mengatakan pendapatku padanya.
 
@@ -73,60 +74,60 @@ Ain sepertinya tidak mengerti ini juga, jadi aku memutuskan untuk mengatakan pen
 
 [Tapi karena dia mengatakannya, dia seharusnya melihatnya, kan?] (ain)
 
-[Jadi, mengapa dia bersikeras bahwa dia melihat "Putri Lagu" dariku?] (ciel)
+[Jadi, mengapa dia bersikeras bahwa dia melihat "Song Princess" dariku?] (ciel)
 
-[Sementara aku setuju bahwa ini aneh , itu mungkin karena dia melihat Job kita di pub tetapi tidak melihatnya sekarang.] (ain)
+[aku setuju bahwa ini aneh, itu mungkin karena dia melihat Job kita di pub tetapi tidak melihatnya sekarang.] (ain)
 
-[Ain terus-menerus memiliki penghalang, tapi saat Ain bernyanyi, celah kecil cenderung muncul, mengerti? Aku yakin dia tidak bisa melihat Job kami ketika penghalang itu sepenuhnya aktif, tetapi ketika penghalang itu melemah, dia mungkin melihat sekilas.] (ciel)
+[Ain terus-menerus memakai +BARRIER, tapi saat Ain bernyanyi, celah kecil cenderung muncul, mengerti? Aku yakin dia tidak bisa melihat Job kita ketika +BARRIER sepenuhnya aktif, tetapi ketika +BARRIER melemah, dia mungkin melihat sekilas.] (ciel)
 
-Menyadari kesalahannya—meskipun aku tidak menganggapnya sebagai kesalahan—wajah Ain menjadi merah padam.
+Menyadari kesalahannya — meskipun aku tidak menganggapnya sebagai kesalahan — wajah Ain menjadi merah padam.
 
-Dia benar-benar menggemaskan, tapi kurasa dia ingat situasi saat ini, karena Ain dengan cepat kembali normal.
+Dia benar-benar menggemaskan, tapi kurasa dia ingat situasi sekarang karena Ain dengan cepat kembali normal.
 
-"Aku pikir alasan Tolt-san mengikuti Aku adalah, mungkin, karena dia tidak bisa melihat Pekerjaan Aku pada awalnya." (ain)
+"Aku pikir alasan Tolt-san mengikutiku adalah, mungkin, karena dia tidak bisa melihat jobku pada awalnya." (ain)
 
 "Ya, Aku pikir juga begitu." (chasse)
 
-"Oh , kau tahu?" (ain)
+"Oh, kau tahu?" (ain)
 
-"Meskipun Aku sendiri, tidak menyadarinya, kakek tua memberitahu Aku tentang hal itu. Kami sedang minum dan sepertinya aku tidak bisa melakukan apa-apa bahkan dengan pengetahuan itu, jadi aku harap kamu akan melepaskanku untuk ini." (chasse)
+"Meskipun Aku sendiri, tidak menyadarinya, kakek tua memberitahuku tentang hal itu. Kami sedang minum dan sepertinya aku tidak bisa melakukan apa-apa bahkan dengan pengetahuan itu, jadi aku harap kamu akan membiarkanku untuk hal ini." (chasse)
 
-"Itu salahku sendiri karena lengah di depan umum juga, jadi aku tidak jangan pedulikan itu." (ain)
+"Itu salahku sendiri karena lengah di depan umum juga, jadi tidak masalah." (ain)
 
 Saat Ain dan Chasse berbicara satu sama lain, mata Tolt terbuka lebar saat dia mendengarkan.
 
-Seolah-olah apa yang mereka berdua katakan tepat sasaran. Dan seperti yang diharapkan, guildmaster tidak mengabaikan situasi ini.
+Seolah-olah apa yang mereka berdua katakan tepat sasaran. Dan seperti yang diharapkan, Ketua Guild tidak mengabaikan situasi ini.
 
-Mungkin menyadari bahwa ini tidak bisa dijelaskan, guildmaster menundukkan kepalanya ke Ain.
+Mungkin menyadari bahwa ini tidak bisa dijelaskan, Ketua Guild menundukkan kepalanya ke Ain.
 
-"Seperti yang Kamu katakan, ini adalah kesalahan kami. Kami akan menurunkan pangkatnya dan memberi Kamu kompensasi atas masalah ini. Pengungkapan Pekerjaan Kamu mungkin tidak menguntungkan tetapi karena Kamu cukup kuat untuk mengalahkan Valbar pada usia Kamu, Kamu akan ditemukan dengan cara apa pun. Dengan mengatakan itu, bisakah Kamu membiarkan insiden ini berlalu?"
+"Seperti yang Kamu katakan, ini adalah kesalahan kami. Kami akan menurunkan pangkatnya dan memberimu kompensasi atas masalah ini. Pengungkapan jobmu mungkin tidak menguntungkan tetapi karena Kamu cukup kuat untuk mengalahkan Valbar pada usiamu, Kamu akan diketahui dengan cara apa pun. Dengan mengatakan itu, bisakah Kamu membiarkan insiden ini berlalu?"
 
-Kedengarannya seperti permintaan maaf yang jujur, tapi senyum Ain hanya meningkat. Kapan terakhir kali aku melihat senyum tanpa emosi ini. Jelas sekali dia sangat marah.
+Kedengarannya seperti permintaan maaf, tapi senyum Ain hanya meningkat. Kapan terakhir kali aku melihat senyum tanpa emosi ini. Jelas sekali dia sangat marah.
 
-Aku sendiri memiliki keraguan tentang permintaan maaf guildmaster, tetapi pada saat yang sama, Aku merasa kasihan padanya.
+Aku sendiri memiliki keraguan tentang permintaan maaf Ketua Guild, tetapi pada saat yang sama, Aku merasa kasihan padanya.
 
-Dan sepertinya Ain bukan satu-satunya yang marah di sini, saat aku mendengar desahan di sampingku.
+Dan sepertinya Ain bukan satu-satunya yang marah di sini, saat aku mendengar helaan nafas di sampingku.
 
-"Haa ...... aku kecewa, Guildmaster. Aku menopangmu sejak kita di depan Nona Cielmer di sini, tapi aku sudah muak dengan ini. Aku sudah lelah, aku merasa bodoh karena memperlakukanmu dengan hormat." (chasse)
+"Haa ...... aku kecewa, Ketua Guild. Aku membantumu sejak kita di depan Nona Cielmer di sini, tapi aku sudah muak dengan ini. Aku sudah lelah, aku merasa bodoh karena memperlakukanmu dengan hormat." (chasse)
 
-"Chasse. Bukankah Kamu dan Aku sama-sama muak dengan kasta Ayub? Apakah Kamu lupa hari-hari ketika kita biasa berbicara tentang bagaimana kita harus membuat perubahan?"
+"Chasse. Bukankah Kamu dan Aku sama-sama muak dengan kasta job? Apakah Kamu lupa hari-hari ketika kita biasa berbicara tentang bagaimana kita harus membuat perubahan?"
 
-"Tentu, kami berdua memiliki tujuan yang sama. Itu sebabnya kami berdua bekerja sampai mati, dengan Aku sekarang memimpin pesta Rank-B, dan Kamu sekarang di posisi Ketua Guild. Kami cukup jauh dalam usia, tetapi Kamu adalah teman baik Aku. Itulah mengapa Aku meminta anggota partai Aku agar kami pindah dari markas besar dan bekerja sebagai inspektur untuk tempat ini." (chasse)
+"Tentu, kita berdua memiliki tujuan yang sama. Itu sebabnya kita berdua bekerja sampai mati, dengan Aku sekarang memimpin party Rank-B, dan Kamu sekarang di posisi Ketua Guild. kita cukup jauh dalam usia, tetapi Kamu adalah teman baikku. Itulah mengapa Aku meminta anggota partyku agar kami pindah dari markas besar dan bekerja sebagai inspektur untuk tempat ini." (chasse)
 
 "Lalu mengapa-"
 
-"Meski begitu, Aku tidak bisa membiarkan ketidakadilan. Fakta bahwa seorang anggota staf guild mempublikasikan Pekerjaan Hunter tanpa izin adalah hal yang tidak masuk akal. Dan jika ini terjadi, praktik yang biasa dilakukan adalah menghukum berat dan memberhentikan anggota staf tersebut. Dalam hal ini, ini dapat diartikan sebagai campur tangan staf guild; dan lebih buruk lagi, memihak; dalam perselisihan antara dua Hunter, seperti mengungkapkan Pekerjaan Hunter. Jika ini keluar, Kamu akan kehilangan kepercayaan dari para Hunter." (chasse)
+"Meski begitu, Aku tidak bisa membiarkan ketidakadilan. Fakta bahwa seorang anggota staf guild mempublikasikan job Hunter tanpa izin adalah hal yang tidak masuk akal. Dan jika ini terjadi, hal yang biasa dilakukan adalah menghukum berat dan memberhentikan anggota staf tersebut. Dalam hal ini, ini dapat diartikan sebagai campur tangan staf guild; dan lebih buruk lagi, memihak; dalam perselisihan antara dua Hunter, seperti mengungkapkan job Hunter. Jika berita ini tersebar keluar, Kamu akan kehilangan kepercayaan dari para Hunter." (chasse)
 
-"Baiklah. Aku akan memecat Tolt dan sub-master karena membawanya ke sini, apakah itu cukup?"
+"Baiklah. Aku akan memecat Tolt dan Wakil Ketua karena membawanya ke sini, apakah itu cukup?"
 
 Dengan keengganan yang pahit, Ketua Guild memberikan proposal ini. Mendengar itu, Chasse melirik ke arah Ain.
 Ain dengan kuat menggelengkan kepalanya dan mengangkat bahu.
 
-"Nah, bagaimana Aku akan diberi kompensasi atas apa yang terjadi? Setelah semua, aku tidak benar-benar menyakiti untuk uang, dan pemberhentian anggota staf adalah perhatian guild, itu tidak menguntungkan Aku sedikit pun." (ain)
+"Nah, bagaimana Aku akan diberi kompensasi atas apa yang terjadi? aku tidak benar-benar butuh uang, dan pemberhentian anggota staf adalah perhatian guild, itu tidak menguntungkanku sedikit pun." (ain)
 
 "Sial rendah-serdadu, overpricing sendiri ......"
 
-Mendengar kata-kata Ain, guildmaster menggumamkan keluhan sambil menggertakkan giginya.
+Mendengar kata-kata Ain, Ketua Guild menggumamkan keluhan sambil menggertakkan giginya.
 
 Rank rendah mengacu pada Hunter Rank D ke bawah, Rank C ke atas disebut Rank tinggi. Alasan untuk ini adalah bahwa mulai dari Rank-C, jumlah Hunter per Rank sangat berkurang. Karena itu, secara umum dikatakan bahwa mencapai C-rank adalah tembok pertama bagi mereka yang ingin menjadi Hunter top.
 
@@ -140,12 +141,12 @@ Namun, kami sebenarnya adalah Hunter Rank-C dan kami bahkan diberitahu bahwa sat
 
 Faktanya, Aku sendiri yang memiliki kemampuan untuk mengalahkan monster Rank-C, jadi kata-katanya cukup didasarkan pada asumsi yang salah.
 
-"Pertama-tama, guildmaster. Aku hanya menyentuh topik yang tidak melibatkan Pekerjaan dan Rank Cielmer sejauh ini.
+"Pertama-tama, Ketua Guild. Aku hanya menyentuh topik yang tidak melibatkan Pekerjaan dan Rank Cielmer sejauh ini.
 Dan Nona Cielmer di sini, adalah Hunter Rank-C yang lengkap." (chasse)
 
 Mencocokkan waktu Chasse, Ain mengeluarkan kartu guild kami. Kartu sederhana ini, jika kamu mengabaikan lingkaran sihir di belakang, pasti ada tulisan C-rank di atasnya.
 
-Ditunjukkan bukti yang sebenarnya, "Apa......" guildmaster tidak bisa berkata-kata, dan bahunya tampak gemetar.
+Ditunjukkan bukti yang sebenarnya, "Apa......" Ketua Guild tidak bisa berkata-kata, dan bahunya tampak gemetar.
 
 "Mustahil. Kecuali untuk kasus-kasus tertentu, mencapai C-rank akan memakan waktu setidaknya 10 tahun."
 
@@ -153,27 +154,27 @@ Ditunjukkan bukti yang sebenarnya, "Apa......" guildmaster tidak bisa berkata-ka
 
 Berhenti di sana, Chasse melihat ekspresi Ain. Setelah melihat Ain mengangguk, "Ini Song Princess". Chasse berkata begitu.
 
-Guildmaster menatap Ain dengan tidak percaya.
+Ketua Guild menatap Ain dengan tidak percaya.
 
 Saat Ketua Guild terdiam, Ain mulai berbicara.
 
 "Aku seorang Putri Lagu. Ketua Guild, Kamu tidak dapat memberi tahu Aku bahwa Kamu tidak mengerti apa artinya diketahui bagi Aku, bukan? Tidak peduli berapa banyak Kamu memaksakan perintah pembungkaman, informasi yang telah bocor sekali pun tidak mungkin dikendalikan. Jika, secara kebetulan, ini menyebar ke seluruh ibu kota, Aku mungkin akan dianiaya dan Aku mungkin tidak akan pernah diizinkan untuk masuk ke dalam ibu kota kerajaan lagi. Sekarang, bagaimana Kamu akan bertanggung jawab untuk ini?" (ain)
 
-Dihadapkan dengan nada dingin Ain, guildmaster terus diam.
+Dihadapkan dengan nada dingin Ain, Ketua Guild terus diam.
 
 Chasse kemudian bergabung untuk menyudutkannya.
 
 "Nona Cielmer. Bisakah Kamu memberi tahu kami pendapat Kamu tentang bagaimana guild harus bertanggung jawab untuk ini? Meskipun itu harus melewati penilaian yang tidak memihak, yah, sebagian besar hal mungkin akan diakui jika kamu bertanya padaku." (chasse)
 
-"Aku sudah curiga tentang ini, tapi Chasse-san , kamu memiliki posisi yang cukup penting, bukan?" (ain)
+"Aku sudah curiga tentang ini, tapi Chasse-san, kamu memiliki posisi yang cukup penting, bukan?" (ain)
 
-"Meskipun penampilan Aku, Aku dikirim oleh Markas Besar sebagai inspektur. Biasanya, Aku hanyalah seorang Hunter biasa, tetapi di saat-saat seperti ini, Aku memiliki cukup wewenang untuk menghentikan seorang guildmaster menjadi liar. Sementara Aku akan dihukum di lain waktu jika dinilai Aku menyalahgunakan wewenang itu, kasus hari ini adalah apa adanya." (chasse)
+"Meskipun penampilan Aku, Aku dikirim oleh Markas Besar sebagai inspektur. Biasanya, Aku hanyalah seorang Hunter biasa, tetapi di saat-saat seperti ini, Aku memiliki cukup wewenang untuk menghentikan seorang Ketua Guild menjadi liar. Sementara Aku akan dihukum di lain waktu jika dinilai Aku menyalahgunakan wewenang itu, kasus hari ini adalah apa adanya." (chasse)
 
 "Lalu sebagai prasyarat, Aku ingin Tolt-san untuk mempublikasikan Ayubnya sendiri dan apa yang telah dia lakukan terhadap Aku. Lagipula, dia adalah tipe orang yang tidak ragu untuk membocorkan Job orang lain, jadi dia seharusnya tidak memiliki keluhan saat Job-nya terungkap juga. Namun, mengingat Tolt-san ‘s Job, jika apa yang terjadi hari ini tidak dipublikasikan, lebih banyak korban seperti Aku bisa muncul di masa depan, jadi harap teliti tentang hal ini. Selain itu, Aku ingin keamanan Aku di dalam ibukota kerajaan terjamin, dan untuk perintah pembungkaman diberlakukan sebanyak mungkin, Aku kira?" (ain)
 
 "Dan permintaan utama Kamu adalah?" (chasse)
 
-"Aku ingin memiliki tas ajaib terbesar yang tersedia di guild ibukota. Juga, tolong pungut uang yang dibutuhkan untuk mengganti tas ajaib dari orang-orang yang terkait dengan kejadian hari ini. Valbar-sandan para pengikutnya, Tolt-san , dan Ketua Guild. Aku tidak yakin tentang hubungan sub-master dengan semua ini, jadi Aku akan menyerahkan penilaiannya kepada Kamu." (ain)
+"Aku ingin memiliki tas ajaib terbesar yang tersedia di guild ibukota. Juga, tolong pungut uang yang dibutuhkan untuk mengganti tas ajaib dari orang-orang yang terkait dengan kejadian hari ini. Valbar-sandan para pengikutnya, Tolt-san, dan Ketua Guild. Aku tidak yakin tentang hubungan Wakil Ketua dengan semua ini, jadi Aku akan menyerahkan penilaiannya kepada Kamu." (ain)
 
 Mendengar tuntutan Ain, "Tunggu!" Ketua Guild panik, tapi "Yah, itu mungkin akan terbang". Chasse melanjutkan percakapan kami.
 
