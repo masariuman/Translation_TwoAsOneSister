@@ -223,3 +223,12 @@ Melambai selamat tinggal, Ain sekarang meninggalkan guild untuk selamanya.
 
 -------------------------------
 
+Yay kali ini dari sisi dedek ciel, ada sedikit, atau banyak ya ? perubahan dari sudut pandang ciel.. seperti kali ini membawa wakil ketua guild sedangkan di pembicaraan sebelumnya tidak ada menyebutkannya.. kemudian tas sihir juga langsung diberikan, serta tidak ada perjanjian 2 hari berikutnya dan ain tidak memberitahu dimana lokasi penginapannya. ada beberapa hal lain juga yang agak sedikit berubah tapi inti utama dari chapter ini serupa dengan pada chapter utama...
+
+dan sejelek apapun perubahannya tetap saja si tolt sama saja... hanya saja ketua guild disini tidak nampak terlalu kacau karena tolt dibebankan sebagian ke wakil ketua guild..
+
+Nah kali ini ain bilang manis, tentu saja maksudnya dengan penampilannya yaitu tubuh dedek ciel... tapi dedek ciel kali ini terlalu memikirkannya dan menuju kesimpulan kalau yg manis adalah sifatnya ain.. yah pada dasarnya dedek ciel memang suka mengerjai ain deh...
+
+dari tugas utama chasse sebagai inspektur disini, berarti dapat disimpulkan di sannosis, carol mungkin memiliki tugas yang sama juga, yaitu sebagai inspektur di kota sannosis, dan mungkin celia dan carol itu seperti satu tim, layaknya tim partynya chasse.. untuk memperhatikan guild dan menahan guild menjadi liar..
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di kolom komentar, TETAP SEHAT !! TETAP SEMANGAT !! TERIMA KASIH !!
