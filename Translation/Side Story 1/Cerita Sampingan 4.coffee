@@ -1,12 +1,12 @@
-"Baiklah, mari kita mulai dari awal, ya? Dan Nona Cielmer, Aku tahu Kamu memiliki hal-hal untuk dikatakan sendiri, tetapi Aku ingin meminta Kamu diam kecuali Aku telah mengatakan sesuatu yang salah." (chasse)
+"Baiklah, mari kita mulai dari awal, ya? Dan Nona Cielmer, Aku tahu Kamu memiliki hal-hal untuk dikatakan sendiri, tetapi Aku ingin meminta Kamu diam kecuali Aku mengatakan sesuatu yang salah." (chasse)
 
-"Dimengerti. Bagaimanapun juga, sudut pandang pihak terkait bisa memiliki beberapa subjektivitas. Selama Chasse- san tidak menempatkanku pada posisi yang sangat tidak menguntungkan, aku akan tetap diam." (ain)
+"Baiklah. Bagaimanapun juga, sudut pandang pihak terkait bisa memiliki beberapa subjektivitas. Selama Chasse-san tidak menempatkanku pada posisi yang sangat tidak menguntungkan, aku akan tetap diam." (ain)
 
 "Tentu. Terima kasih." (chasse)
 
 Kami berada di sebuah ruangan yang terletak di bagian dalam guild. Ada dua sofa besar yang mengapit sebuah meja.
 
-Aku kira ini adalah ruang resepsi yang awalnya dimaksudkan untuk bertemu dengan orang-orang berstatus tinggi. Meski memiliki desain interior yang sederhana, namun tetap berkelas.
+mungkin ini adalah ruang resepsi yang awalnya dimaksudkan untuk bertemu dengan orang-orang berstatus tinggi. Meski memiliki desain interior yang sederhana, namun tetap berkelas.
 
 Ain dan Chasse duduk di dekat pintu sementara Ketua Guild dan Tolt duduk di seberang mereka.
 
@@ -83,7 +83,7 @@ Menyadari kesalahannya—meskipun aku tidak menganggapnya sebagai kesalahan—wa
 
 Dia benar-benar menggemaskan, tapi kurasa dia ingat situasi saat ini, karena Ain dengan cepat kembali normal.
 
-"Aku pikir alasan Tolt- san mengikuti Aku adalah, mungkin, karena dia tidak bisa melihat Pekerjaan Aku pada awalnya." (ain)
+"Aku pikir alasan Tolt-san mengikuti Aku adalah, mungkin, karena dia tidak bisa melihat Pekerjaan Aku pada awalnya." (ain)
 
 "Ya, Aku pikir juga begitu." (chasse)
 
@@ -169,11 +169,11 @@ Chasse kemudian bergabung untuk menyudutkannya.
 
 "Meskipun penampilan Aku, Aku dikirim oleh Markas Besar sebagai inspektur. Biasanya, Aku hanyalah seorang Hunter biasa, tetapi di saat-saat seperti ini, Aku memiliki cukup wewenang untuk menghentikan seorang guildmaster menjadi liar. Sementara Aku akan dihukum di lain waktu jika dinilai Aku menyalahgunakan wewenang itu, kasus hari ini adalah apa adanya." (chasse)
 
-"Lalu sebagai prasyarat, Aku ingin Tolt-san untuk mempublikasikan Ayubnya sendiri dan apa yang telah dia lakukan terhadap Aku. Lagipula, dia adalah tipe orang yang tidak ragu untuk membocorkan Job orang lain, jadi dia seharusnya tidak memiliki keluhan saat Job-nya terungkap juga. Namun, mengingat Tolt- san ‘s Job, jika apa yang terjadi hari ini tidak dipublikasikan, lebih banyak korban seperti Aku bisa muncul di masa depan, jadi harap teliti tentang hal ini. Selain itu, Aku ingin keamanan Aku di dalam ibukota kerajaan terjamin, dan untuk perintah pembungkaman diberlakukan sebanyak mungkin, Aku kira?" (ain)
+"Lalu sebagai prasyarat, Aku ingin Tolt-san untuk mempublikasikan Ayubnya sendiri dan apa yang telah dia lakukan terhadap Aku. Lagipula, dia adalah tipe orang yang tidak ragu untuk membocorkan Job orang lain, jadi dia seharusnya tidak memiliki keluhan saat Job-nya terungkap juga. Namun, mengingat Tolt-san ‘s Job, jika apa yang terjadi hari ini tidak dipublikasikan, lebih banyak korban seperti Aku bisa muncul di masa depan, jadi harap teliti tentang hal ini. Selain itu, Aku ingin keamanan Aku di dalam ibukota kerajaan terjamin, dan untuk perintah pembungkaman diberlakukan sebanyak mungkin, Aku kira?" (ain)
 
 "Dan permintaan utama Kamu adalah?" (chasse)
 
-"Aku ingin memiliki tas ajaib terbesar yang tersedia di guild ibukota. Juga, tolong pungut uang yang dibutuhkan untuk mengganti tas ajaib dari orang-orang yang terkait dengan kejadian hari ini. Valbar- sandan para pengikutnya, Tolt- san , dan Ketua Guild. Aku tidak yakin tentang hubungan sub-master dengan semua ini, jadi Aku akan menyerahkan penilaiannya kepada Kamu." (ain)
+"Aku ingin memiliki tas ajaib terbesar yang tersedia di guild ibukota. Juga, tolong pungut uang yang dibutuhkan untuk mengganti tas ajaib dari orang-orang yang terkait dengan kejadian hari ini. Valbar-sandan para pengikutnya, Tolt-san , dan Ketua Guild. Aku tidak yakin tentang hubungan sub-master dengan semua ini, jadi Aku akan menyerahkan penilaiannya kepada Kamu." (ain)
 
 Mendengar tuntutan Ain, "Tunggu!" Ketua Guild panik, tapi "Yah, itu mungkin akan terbang". Chasse melanjutkan percakapan kami.
 
@@ -209,7 +209,7 @@ Siapa yang Aku bercanda, Aku yakin ini setidaknya untuk meringankan topik yang l
 
 "Aku bisa menebaknya. Aku telah mendorong diriku seperti tidak ada hari esok, tapi aku merasa seperti pengalaman Kamu agak berbeda dari Aku." (chasse)
 
-"Aku akan mengubah topik, tapi aku benar-benar heran mengapa Valbar- san begitu bingung untuk luka hanya ukuran yang." (ain)
+"Aku akan mengubah topik, tapi aku benar-benar heran mengapa Valbar-san begitu bingung untuk luka hanya ukuran yang." (ain)
 
 "...... Apakah Kamu yakin Kamu baru saja mengubah topik?" (chasse)
 
