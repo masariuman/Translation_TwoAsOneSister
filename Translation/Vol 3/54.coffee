@@ -230,3 +230,8 @@ Sekarang hampir matahari terbenam. Untuk beberapa alasan, hari ini adalah hari y
 
 -----------------------------
 
+Yay chapter kali ini benar-benar menegangkan... ketua guild yang satu ini benar-benar kacau... katanya mendukung tinggi untuk job yang mengecewakan tapi masih menganggap ciel rank rendahan... apa tidak curiga kenapa chasse begitu memihak ciel ?? dan kalau memang ciel rank rendahan, tidak mungkin ciel bisa mengalahkan hunter lainnya kan ? apalagi ciel adalah gadis 12 tahun... harusnya dia bisa berpikir kalau ciel bkn rank rendahan atau paling tidak bukan orang biasa... malah mau merendahkan dan menyuruh melupakan insiden ini, noh kan ngegali kuburan sendiri... tapi baguslah akrhirnya ainciel bisa dapat tas baru gratis berkat kekacauan ketua guild dan tolt... 
+
+chasse disini adalah karakter yang lumayan bijak selain celia di kota sebelumnya, walau hanya hunter pemantau tapi bisa mengambil keputusan dan tidak cepat langsung memutuskan juga... dari awal dia hanya mengingatkan ainciel waktu ketika ain ingin mengambil perminttan rank-c tapi setelah diberitahu ain bahwa ainciel bisa menanganinya, si chasse langsung menganggap ainciel bukan gadis biasa dan berhati-hati dalam bersikap kepada ainciel... bahkan sampai diremehkan ain kalau ain bisa mengatasi mereka, chasse pun masih bisa sabar... 
+
+ok sekian dulu untuk chapter kali ini, semoga kalian menikmatinya ~~~ TETAP SEHAT YAA !!! TERIMA KASIH !!
