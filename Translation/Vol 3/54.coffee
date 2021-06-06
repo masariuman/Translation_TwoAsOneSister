@@ -146,23 +146,23 @@ Yah, selama mereka tidak ikut campur, siapa yang peduli?
 
 Chasse-san melirik ketua guild dengan rasa ingin tahu, dan dia dengan jelas mengalihkan pandangannya.
 
-Tindakan ini tentu saja berbicara untuk dirinya sendiri, dan Chasse-san hanya menghela nafas dalam-dalam. Aku bertanya-tanya berapa kali dia menghela nafas hari ini?
+Tindakan ini tentu saja membicarakan dirinya sendiri, dan Chasse-san hanya menghela nafas dalam-dalam. Aku bertanya-tanya berapa kali dia menghela nafas hari ini?
 
 Aku khawatir tentang masa depan rambutnya.
 
-"Ketika Aku pergi ke sana, sepertinya itu diabaikan untuk beberapa waktu. Juga, sementara tidak ada cukup monster untuk menyebutnya penyerbuan, masih ada cukup banyak dari mereka. Saat aku sedang mengumpulkan herbal, aku bahkan tidak ingin menghitung berapa banyak yang aku kalahkan di jalan. Monster yang muncul sebagian besar dari kelas D dan, kadang-kadang, kelas C, Aku pikir." (ain)
+"Ketika Aku pergi ke sana, sepertinya itu diabaikan untuk beberapa waktu. Juga, walaupun tidak ada cukup monster untuk menyebutnya penyerbuan, masih ada cukup banyak dari mereka. Saat aku sedang mengumpulkan herb, aku bahkan tidak ingin menghitung berapa banyak yang aku kalahkan di jalan. Monster yang muncul sebagian besar dari kelas D dan, kadang-kadang, kelas C." (ain)
 
 "Lanjutkan." (chasse)
 
-"Seperti yang Kamu harapkan, Aku merasa sangat tidak biasa, jadi Aku mencoba menyelidikinya sendiri dan sepertinya modal telah mengandalkan sumber eksternal untuk mempertahankan pasokan ramuan tertentu dalam permintaan selama 2 sampai 3 tahun yang lalu. Selanjutnya, Aku juga belajar bahwa kemungkinan penyerbuan terjadi ketika tempat di mana monster tinggal diabaikan selama lebih dari 5 tahun, jadi Aku berharap penyerbuan mungkin terjadi dalam beberapa tahun." (ain)
+"Seperti yang Kamu duga, Aku merasa sangat tidak biasa, jadi Aku mencoba menyelidikinya sendiri dan sepertinya ibukota telah mengandalkan sumber eksternal untuk mempertahankan pasokan herb tertentu dalam permintaan selama 2 sampai 3 tahun yang lalu. Selanjutnya, Aku juga belajar bahwa kemungkinan penyerbuan terjadi ketika tempat di mana monster tinggal diabaikan selama lebih dari 5 tahun, jadi Aku pikir penyerbuan mungkin terjadi dalam beberapa tahun." (ain)
 
-"Itu banteng!"
+"Itu tidak mungkin!"
 
 Ketua Guild, yang diam sampai sekarang, tiba-tiba mengangkat suaranya.
 
-"Aku hanya menyatakan pendapat Aku. Silakan cari sendiri nanti." (ain)
+"Aku hanya menyatakan pendapatku. Silakan cari sendiri nanti." (ain)
 
-"Jika apa yang kamu katakan itu benar, maka kamu mungkin bisa mendapatkan tas ajaib, setidaknya yang terbesar kedua. Dengan mengatakan itu, kita tidak bisa mengabaikan kata-kata seseorang yang menyelesaikan penyerbuan sendirian, dan mulai sekarang, Aku pribadi berpikir bahwa Kamu benar." (chasse)
+"Jika apa yang kamu katakan itu benar, maka kamu mungkin bisa mendapatkan tas sihir, setidaknya yang terbesar kedua. Dengan itu, kita tidak bisa mengabaikan kata-kata seseorang yang menyelesaikan penyerbuan sendirian, dan untuk sekarang, Aku pribadi berpikir bahwa Kamu benar." (chasse)
 
 Chasse-san, sangat lelah, mengangguk setuju.
 
@@ -170,27 +170,27 @@ Jujur, kerja bagus. Sejujurnya aku tidak ingin berada di posisi yang sama dengan
 
 "Itulah akhir dari ceritaku, tetapi apakah akan ada hal lain lagi?" (ain)
 
-"Nah, sementara itu, kami akan suka jika Kamu menyerahkan sesuatu kepada kami, kurasa? Apakah Kamu akan segera meninggalkan ibukota?" (chasse)
+"Nah, sementara itu saja, kami akan suka jika Kamu menyerahkannya kepada kami, kurasa? Apakah Kamu akan segera meninggalkan ibukota?" (chasse)
 
-"Aku harus mengambil pedang yang Aku pesan lusa, jadi setelah itu. Aku tidak punya niat untuk muncul di guild lagi, meskipun." (ain)
+"Aku harus mengambil pedang yang Aku pesan lusa, jadi aku akan pergi setelah itu. Aku tidak punya niat untuk muncul di guild lagi." (ain)
 
-"Kalau begitu, bisakah kita meminta waktu di sore hari dua hari dari sekarang?" (chasse)
+"Kalau begitu, bisakah kami meminta waktu di sore hari dua hari dari sekarang?" (chasse)
 
-"Mengerti. Lalu aku akan memberitahumu di mana aku tinggal setelah ini." (ain)
+"baiklah. aku akan memberitahumu di mana aku tinggal setelah ini." (ain)
 
 "Itu akan banyak membantu, tapi itu bukan sesuatu yang harus kamu katakan dengan mudah, oke?" (chasse)
 
-"Jujur, bahkan jika aku diserang oleh Rank-B Rank seperti Chasse-san dan yang lainnya, aku bisa mengatasinya." (ain)
+"Jujur, bahkan jika aku diserang oleh Rank-B seperti Chasse-san dan yang lainnya, aku bisa mengatasinya." (ain)
 
-Menjadi Rank-B sebagai sebuah party, Aku menduga bahwa setiap orang dari mereka tentang Rank-C secara individual.
+Menjadi Rank-B sebagai sebuah party, Aku menduga bahwa setiap orang dari mereka adalah Rank-C secara individual.
 
-Hanya daya tembak sebanyak itu yang tidak cukup untuk menembus penghalangku.
+Hanya kekuatan sebanyak itu yang tidak cukup untuk menembus +BARRIERku.
 
-Meskipun demikian, itu sangat tidak terpikirkan oleh Aku. Wajar jika Chasse-san tersinggung saat sesama Hunter memberitahunya bahwa mereka bukan tandingan.
+Meskipun demikian, itu sangat tidak terpikirkan olehku. Wajar jika Chasse-san tersinggung saat sesama Hunter memberitahunya bahwa mereka bukan tandingan.
 
-"Aku tidak berpikir kita yang lemah, Kamu tahu?" (chasse)
+"Aku tidak berpikir kami selemah itu, Kamu tahu?" (chasse)
 
-"Maaf. Namun, monster pertama yang Aku kalahkan ... adalah cyclop. Dengan mengingat hal itu, bahkan jika Aku tidak bisa menang, Aku masih bisa melarikan diri dengan mudah." (ain)
+"Maaf. tapi, monster pertama yang Aku kalahkan ... adalah cyclop. Dengan mengingat hal itu, bahkan jika Aku tidak bisa menang, Aku masih bisa melarikan diri dengan mudah." (ain)
 
 "Oke, oke. Ceritakan tentang itu nanti. Untuk saat ini, mari kita akhiri semuanya di sini. Aku sudah lelah. Biarkan aku mengantarmu keluar." (chasse)
 
@@ -204,25 +204,29 @@ Setelah berjalan beberapa langkah dari gedung guild, Chasse-san melanjutkan perc
 
 "Jadi, di mana kamu tinggal?" (chasse)
 
-"Ada penginapan putih cantik di daerah di mana banyak penginapan dibangun, kan?" (ain)
+"Ada penginapan putih yang bagus di daerah di mana banyak penginapan dibangun, kan?" (ain)
 
-"Tempat itu di mana orang-orang kaya tinggal saat itu." (chasse)
+"Tempat di mana orang-orang kaya tinggal." (chasse)
 
 "Aku menggunakan kamar terbaik mereka." (ain)
 
 "...... Benar, sepertinya kamu benar-benar tidak mencari uang." (chasse)
 
-"Kesampingkan itu, aku tinggal dengan nama Blan, jadi tolong gunakan itu ketika memintaku di meja resepsionis. Mereka mungkin akan memandu Kamu ke kamar Aku atau memanggil Aku, Aku pikir." (ain)
+"Kesampingkan itu, aku tinggal dengan nama Blan, jadi tolong gunakan itu ketika mencariku di meja resepsionis. Mereka mungkin akan memandumu ke kamarku atau memanggilku." (ain)
 
-"Mengerti. Aku tidak akan bertanya tentang detailnya." (chasse)
+"baiklah. Aku tidak akan bertanya tentang detailnya." (chasse)
 
-Kelelahan, bukan? Aku merasakannya.
+lelah, kan? Aku merasakannya juga.
 
-Sekarang aku memikirkannya, kita baru berada di ibu kota selama beberapa hari, tapi rasanya kita baru saja berpindah dari masalah ke masalah.
+Sekarang baru kumemikirkannya, kami baru berada di ibu kota selama beberapa hari, tapi rasanya kami baru saja berpindah dari masalah ke masalah.
 
 "Kalau begitu, mari kita bertemu lagi dalam dua hari." (ain)
 
 "Hati-hati." (chasse)
 
 Setelah berpamitan singkat, Aku kembali ke penginapan kami.
-Sekarang hampir matahari terbenam. Untuk beberapa alasan, hari ini adalah hari yang cukup penting.
+
+Sekarang hampir matahari terbenam. Untuk beberapa alasan, hari ini adalah hari yang cukup menyibukkan.
+
+-----------------------------
+
