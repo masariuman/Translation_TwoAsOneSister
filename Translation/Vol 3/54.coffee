@@ -1,26 +1,26 @@
 CHAPTER 54: SONG PRINCESS, DISCUSSION, AND THE FOOL (2ND HALF)
 
-"Seperti yang Kamu katakan, ini adalah kesalahan kami. Kami akan menurunkan pangkatnya dan memberi Kamu kompensasi atas masalah ini. Pengungkapan Pekerjaan Kamu mungkin tidak menguntungkan tetapi karena Kamu cukup kuat untuk mengalahkan Valbar pada usia Kamu, Kamu akan ditemukan dengan cara apa pun. Dengan mengatakan itu, bisakah Kamu membiarkan insiden ini berlalu?"
+"Seperti yang Kamu katakan, ini adalah kesalahan kami. Kami akan menurunkan pangkatnya dan memberimu kompensasi atas masalah ini. Pengungkapan jobmu mungkin tidak menguntungkan tetapi karena Kamu cukup kuat untuk mengalahkan Valbar pada usiamu, Kamu akan ketahuan dengan cara apa pun. Dengan mengatakan itu, bisakah Kamu membiarkan insiden ini berlalu?"
 
 Ketua guild kemungkinan besar tidak akan menundukkan kepalanya pada gadis kecil acak sepertiku dalam kebanyakan situasi. Mungkin ini sebabnya melakukan hal itu akan berfungsi sebagai permintaan maaf.
 
-Namun, itu tidak berhasil dalam situasi ini. Pria ini bermaksud untuk mengakhiri masalah ini hanya dengan sejumlah kecil uang.
+tapi, itu tidak dalam situasi ini. Pria ini bermaksud untuk mengakhiri masalah ini hanya dengan sejumlah kecil uang.
 
 Setelah ini, ketua guild kemungkinan akan mempromosikan Tolt menggunakan beberapa alasan dan menggunakan Tolt untuk ambisinya sendiri.
 
-Aku dapat dengan mudah membayangkan ini bahkan dengan keterampilan deduksi Aku yang buruk. Bagaimanapun, rencana perbaikan Pekerjaan yang Mengecewakan dari guild master akan mendapatkan hasil yang lebih baik dengan bantuan Tolt.
+Aku dapat dengan mudah membayangkan ini bahkan dengan keterampilan deduksiku yang buruk. Bagaimanapun juga, rencana perbaikan job yang Mengecewakan dari guild master akan mendapatkan hasil yang lebih baik dengan bantuan Tolt.
 
-Karena mereka secara alami merahasiakan Pekerjaan mereka, orang-orang dengan Pekerjaan yang Mengecewakan sulit untuk dilacak bahkan oleh serikat pekerja.
+Karena mereka secara alami merahasiakan job mereka, orang-orang dengan job yang Mengecewakan sulit untuk dilacak bahkan oleh guild.
 
-Namun, juga akan sulit bagi guild untuk membantu orang tanpa mengetahui Pekerjaan mereka. Aku mungkin bias karena Aku sendiri memiliki Pekerjaan Mengecewakan, tetapi tidak semua Pekerjaan Mengecewakan tidak cocok untuk bekerja sebagai Hunter.
+Namun, juga akan sulit bagi guild untuk membantu orang tanpa mengetahui job mereka. untuk kasusku mungkin karena Aku sendiri memiliki job Mengecewakan, tetapi tidak semua job Mengecewakan tidak cocok untuk bekerja sebagai Hunter.
 
 Seseorang yang pandai menggambar mungkin menjadi aset berharga untuk pembuatan peta. Mereka mungkin juga memiliki pemahaman yang lebih baik tentang karakteristik monster, membuat mereka mampu membawa kembali informasi rinci yang tepat.
 
 Dan bahkan dalam kasus badut, jika mereka dapat menarik perhatian monster, itu akan menjadi keuntungan besar dalam pertempuran dan dia hanya perlu fokus untuk membela dirinya sendiri.
 
-Yang paling penting adalah bagaimana seseorang menggunakan Pekerjaan mereka. Meskipun dalam kasus kami, ini lebih sedikit tentang cara menggunakannya dan lebih banyak tentang cara meminimalkan kesulitan menggunakannya.
+Yang paling penting adalah bagaimana seseorang menggunakan job mereka. Meskipun dalam kasus kami, ini lebih sedikit tentang cara menggunakannya dan lebih banyak tentang cara meminimalkan kesulitan menggunakannya.
 
-Ketua serikat, dengan cara dia menyoroti Pekerjaan yang Mengecewakan, pastilah orang yang luar biasa dan staf Persekutuan Hunter yang patut dicontoh.
+Ketua Guild, dengan cara dia menyoroti job yang Mengecewakan, pastinya orang yang luar biasa dan staf Guild Hunter yang patut dicontoh.
 
 Aku akui, ada kemungkinan besar, jika salah satu dari kita memiliki Combat Job, kita akan menjadi terkenal karena Job tersebut.
 
@@ -34,7 +34,7 @@ Saat aku menekan emosiku, aku malah melengkungkan bibirku menjadi senyuman.
 
 Dan sepertinya aku bukan satu-satunya di sini yang tidak senang dengan guild master, saat Chasse-san yang duduk di sebelahku menghela nafas panjang.
 
-"Aku kecewa, ketua serikat. Aku memperlakukan Kamu dengan hormat karena Cielmer ada di sini, tetapi Aku tidak ingin menunjukkan rasa hormat lagi kepada Kamu. Aku lelah, ini benar-benar bodoh." (chasse)
+"Aku kecewa, ketua Guild. Aku memperlakukan Kamu dengan hormat karena Cielmer ada di sini, tetapi Aku tidak ingin menunjukkan rasa hormat lagi kepada Kamu. Aku lelah, ini benar-benar bodoh." (chasse)
 
 "Chasse, bukankah kau dan aku sama-sama muak dengan kasta Job? Apakah Kamu lupa hari-hari ketika kita biasa berbicara tentang bagaimana kita harus membuat perubahan?"
 
@@ -46,11 +46,11 @@ Mengatakan demikian, ketua guild mengalihkan pandangannya kepadaku, seseorang ya
 
 Chasse-san menghela nafas panjang sekali lagi dan menggelengkan kepalanya sebagai jawaban.
 
-"Seperti yang Kamu katakan, kami berdua memiliki tujuan yang sama. Itu sebabnya kami berdua bekerja sampai mati, dengan Aku sekarang memimpin pesta Rank-B, dan Kamu sekarang dalam posisi ketua serikat. Kami jauh di usia, tapi Aku menganggap Kamu sebagai pendamping yang hebat." (chasse)
+"Seperti yang Kamu katakan, kami berdua memiliki tujuan yang sama. Itu sebabnya kami berdua bekerja sampai mati, dengan Aku sekarang memimpin pesta Rank-B, dan Kamu sekarang dalam posisi ketua Guild. Kami jauh di usia, tapi Aku menganggap Kamu sebagai pendamping yang hebat." (chasse)
 
 "Lalu mengapa-"
 
-"Itulah mengapa Aku tidak bisa tidak kecewa. Mengevaluasi kembali mereka yang memiliki Pekerjaan Mengecewakan tidak boleh dilakukan dengan meletakkan Pekerjaan yang sudah berhasil. Ini bukan tentang membuat orang-orang dengan Pekerjaan yang disukai menoleransi hal-hal karena mereka disukai, tidak peduli apa Pekerjaan itu, seorang personel serikat tidak boleh diizinkan untuk mempublikasikan Pekerjaan seseorang tanpa izin yang tepat. Dan jika ini terjadi, sangat penting untuk menghukum dan membebaskan pelakunya, serta memberikan kompensasi yang sesuai dengan kerusakan yang dialami Hunter tersebut. Dalam hal ini, tidak dapat disangkal. Di atas campur tangan personel guild; dan lebih buruk lagi, memihak; dalam perselisihan antara dua Hunter, dia bahkan mengungkapkan Pekerjaan Hunter. Jika ini terungkap, Kamu pasti akan kehilangan kepercayaan dari para Hunter, dan investigasi dari guild master lain dan grand master tidak akan terhindarkan. Dalam situasi seperti ini, tindakan alami adalah menghukum berat anggota staf yang bersangkutan, tetapi sebaliknya Kamu ingin membiarkannya dengan penurunan pangkat yang sederhana. Ini hampir seperti Kamu mengakui betapa berharganya Tolt bagi Kamu." (chasse)
+"Itulah mengapa Aku tidak bisa tidak kecewa. Mengevaluasi kembali mereka yang memiliki Pekerjaan Mengecewakan tidak boleh dilakukan dengan meletakkan Pekerjaan yang sudah berhasil. Ini bukan tentang membuat orang-orang dengan Pekerjaan yang disukai menoleransi hal-hal karena mereka disukai, tidak peduli apa Pekerjaan itu, seorang personel Guild tidak boleh diizinkan untuk mempublikasikan Pekerjaan seseorang tanpa izin yang tepat. Dan jika ini terjadi, sangat penting untuk menghukum dan membebaskan pelakunya, serta memberikan kompensasi yang sesuai dengan kerusakan yang dialami Hunter tersebut. Dalam hal ini, tidak dapat disangkal. Di atas campur tangan personel guild; dan lebih buruk lagi, memihak; dalam perselisihan antara dua Hunter, dia bahkan mengungkapkan Pekerjaan Hunter. Jika ini terungkap, Kamu pasti akan kehilangan kepercayaan dari para Hunter, dan investigasi dari guild master lain dan grand master tidak akan terhindarkan. Dalam situasi seperti ini, tindakan alami adalah menghukum berat anggota staf yang bersangkutan, tetapi sebaliknya Kamu ingin membiarkannya dengan penurunan pangkat yang sederhana. Ini hampir seperti Kamu mengakui betapa berharganya Tolt bagi Kamu." (chasse)
 
 Mendengar penjelasan rinci Chasse-san, wajah ketua guild berubah menjadi seringai.
 
@@ -60,7 +60,7 @@ Padahal, Aku tidak benar-benar tahu apa yang sebenarnya ingin Aku katakan pada d
 
 "Baik. Aku akan memecat Tolt, apakah itu cukup?"
 
-Ketua serikat kemudian mengusulkannya dengan keengganan yang pahit, tetapi tidak mungkin ini cukup.
+Ketua Guild kemudian mengusulkannya dengan keengganan yang pahit, tetapi tidak mungkin ini cukup.
 
 Chasse-san melirikku seolah bertanya apakah aku setuju dengan ini, jadi aku menggelengkan kepalaku dan menjawab.
 
@@ -104,7 +104,7 @@ Bagaimanapun, ini berhubungan dengan Pekerjaan Aku, jadi dia mungkin menginginka
 
 Dalam hal ini, mungkin lebih baik bagi Aku untuk mengatakannya sendiri. Dengan pemikiran itu, Aku memutuskan untuk langsung memberi tahu ketua guild.
 
-"Pekerjaanku adalah Putri Lagu. Ketua serikat, Kamu tidak dapat memberi tahu Aku bahwa Kamu tidak mengerti apa artinya diketahui bagi Aku, bukan? Tidak peduli berapa banyak Kamu memaksakan perintah pembungkaman, informasi yang telah bocor sekali pun tidak mungkin dikendalikan. Jika, secara kebetulan, ini menyebar ke seluruh ibu kota, Aku mungkin akan dianiaya dan Aku mungkin tidak akan pernah diizinkan untuk masuk ke dalam ibu kota kerajaan lagi. Sekarang dengan pertimbangan ini, apakah permintaan Aku sebelumnya benar-benar Aku melebih-lebihkan diri Aku sendiri?" (ain)
+"Pekerjaanku adalah Putri Lagu. Ketua Guild, Kamu tidak dapat memberi tahu Aku bahwa Kamu tidak mengerti apa artinya diketahui bagi Aku, bukan? Tidak peduli berapa banyak Kamu memaksakan perintah pembungkaman, informasi yang telah bocor sekali pun tidak mungkin dikendalikan. Jika, secara kebetulan, ini menyebar ke seluruh ibu kota, Aku mungkin akan dianiaya dan Aku mungkin tidak akan pernah diizinkan untuk masuk ke dalam ibu kota kerajaan lagi. Sekarang dengan pertimbangan ini, apakah permintaan Aku sebelumnya benar-benar Aku melebih-lebihkan diri Aku sendiri?" (ain)
 
 Bahkan saat aku selesai berbicara, ketua guild tetap diam, dan percakapan terhenti.
 
@@ -158,7 +158,7 @@ Aku khawatir tentang masa depan rambutnya.
 
 "Itu banteng!"
 
-Ketua serikat, yang diam sampai sekarang, tiba-tiba mengangkat suaranya.
+Ketua Guild, yang diam sampai sekarang, tiba-tiba mengangkat suaranya.
 
 "Aku hanya menyatakan pendapat Aku. Silakan cari sendiri nanti." (ain)
 
