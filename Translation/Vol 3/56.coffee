@@ -301,3 +301,10 @@ Viviana-san mengangguk dan pergi dengan orang-orang di belakangnya.
 
 Akhirnya Ain memiliki murid baru lagi... Setiap Kota dapat 1 murid ?? Kenapa TIDAK !! viviana disini agak normal, tidak seperti perla dan carol yang mana carol terlalu terobsesi dan perla terlalu kagum atau meninggikan ain.
 
+dan sekarang kita memiliki musuh baru lagi.. mungkin mereka kiriman dari ketua guild ? tapi untuk bocah tersebut sepertinya anak dari pedagang yg mau menjual ainciel ketika baru sampai di kota itu ? karena ain mengatakan ingin bertanya ke faned ? apakah arc kali ini duo pedagang itu akan membawa masalah untuk ain ? duo pedagang + tolt + ketua guild.. sepertinya cukup berat...
+
+untuk kali ini ain banyak bergerak, bahkan di pertarungan juga... awalnya saya kira bakalan berganti ke ciel, ternyata ain menggunakan barrier nya untuk menahan musuh dan menyuruh viviana menyelesaikannya, serta sempat juga menyiapkan lingkaran sihir utk dipakai oleh ciel...
+
+untuk chapter kali ini hampir semuanya diperankan oleh ain.. dan viviana hanya bisa terkejut dari awal sampai akhir hahahaha..
+
+sekian untuk chapter kali ini, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!

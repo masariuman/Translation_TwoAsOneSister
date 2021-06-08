@@ -286,4 +286,4 @@ dan sekarang viviana, menurutku viviana ini seperti versi sopannya carol. kalau 
 
 sepertinya ada penguntit lagi yang mengikuti sekarang. tidakkah ainciel kita memiliki waktu santai atau waktu luang paling tidak seminggu saja ? hanya beberapa hari saja tapi sepertinya sudah melewati banyak masalah di ibukota ini. tapi semoga saja viviana benar-benar menjaga mereka juga, tidak berkhianat.
 
-sekian untuk chapter kali ini, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangati, dan terima kasih !!
+sekian untuk chapter kali ini, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
