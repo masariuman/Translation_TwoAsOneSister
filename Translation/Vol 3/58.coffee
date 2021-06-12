@@ -110,32 +110,42 @@ Apakah mencongkel paksa sirkuit menyakitkan?
 [Alasan mengapa Kamu kuat melawan rasa sakit adalah masalah.] (ain)
 
 Bahkan jika dia merasakan sakit, aku punya firasat bahwa Ciel akan menanggungnya tanpa mengeluh.
+
 Itu adalah sesuatu yang Aku sama sekali tidak senang.
 
-Kalau begitu, Aku akan melanjutkan sedikit lagi, jadi tolong beri tahu Aku jika itu terlalu menyakitkan.」 A-Aku
-bisa mengaturnya.
+"Kalau begitu, Aku akan melanjutkan sedikit lagi, jadi tolong beri tahu Aku jika itu terlalu menyakitkan." (ain)
 
-Mempertimbangkan bagaimana dia tergagap sekarang, itu mungkin sangat menyakitkan, ya . Tetap saja, aku sudah memikirkan solusi untuk ini, jadi itu akan baik-baik saja.......Kuharap.
-Aku sekali lagi memegang tangannya dan, sebelum memanipulasi kekuatan sihirnya, aku bernyanyi. Ini adalah sebuah himne......sebenarnya bukan jika Aku ingat dengan benar, melainkan sebuah lagu indah yang menggunakan himne religi sebagai motifnya.
-Viviana-san sepertinya terkejut, tapi aku tidak memperhatikan itu dan terus menggerakkan kekuatan sihirnya.
+"A-Aku bisa menahannya." (Viviana)
+
+Mempertimbangkan bagaimana dia tergagap sekarang, itu mungkin sangat menyakitkan. Tetap saja, aku sudah memikirkan solusi untuk ini, jadi itu akan baik-baik saja.......Kuharap.
+
+Aku sekali lagi memegang tangannya dan, sebelum memanipulasi energi sihirnya, aku bernyanyi. Ini adalah sebuah lagu...... sebenarnya jika Aku ingat dengan benar,ini adalah sebuah lagu indah yang menggunakan himne religi sebagai motifnya.
+
+Viviana-san sepertinya terkejut, tapi aku tidak memperhatikan itu dan terus menggerakkan energi sihirnya.
 
 Singkatnya, Aku mengurangi rasa sakitnya menggunakan Song Princess dan melanjutkan sambil bernyanyi.
-Aku kemudian menggerakkan kekuatan sihirnya dengan cara yang sama seperti yang aku lakukan sebelumnya dan sementara Viviana-san tampaknya merasa geli, sepertinya dia tidak kesakitan, jadi seharusnya tidak apa-apa bagiku untuk melanjutkan.
+
+Aku kemudian menggerakkan energi sihirnya dengan cara yang sama seperti yang aku lakukan sebelumnya dan sementara Viviana-san tampaknya merasa geli, sepertinya dia tidak kesakitan, jadi seharusnya tidak apa-apa bagiku untuk melanjutkan.
 
 Saat aku menyelesaikan lagu, aku selesai dengan tangan kanannya dan aku meminta Viviana-san memeriksa kondisi tangannya.
 
-Aku hanya melakukannya dengan tangan kananmu untuk saat ini, bisakah kamu mencoba mengedarkan kekuatan sihirmu sendiri?」
-Mengerti.
+"Aku hanya melakukannya dengan tangan kananmu untuk saat ini, bisakah kamu mencoba mengedarkan energi sihirmu sendiri?" (ain)
+
+"baiklah." (Viviana)
 
 Viviana dengan cemas menatap tangan kanannya.
-Pada kenyataannya, bahkan tanpa harus menanyakan hal ini padanya, kekuatan sihirnya sudah mengalir melalui sirkuit terbukanya sekarang. Aku senang melihat bahwa dia tidak merasakan sakit apa pun.
-Sepertinya Viviana-san dengan cepat menyadari ini sendiri, saat dia terkejut Ah…「
 
-Iklan
-Sepertinya itu berjalan dengan baik.
-Benar. Aku dapat dengan jelas mengatakan bahwa ada ... lebih banyak energi sihir berkumpul di tangan kanan Aku sekarang.」
-Dalam hal ini, haruskah Aku melanjutkan dengan seluruh tubuh Kamu? Lagi pula, jika kita mengakhirinya di sini belum selesai, itu mungkin memiliki pengaruh negatif pada Kamu.」
-Tolong lakukan.
+Pada kenyataannya, bahkan tanpa harus menanyakan hal ini padanya, energi sihirnya sudah mengalir melalui sirkuit terbukanya sekarang. Aku senang melihat bahwa dia tidak merasakan sakit apa pun.
+
+Sepertinya Viviana-san dengan cepat menyadari ini sendiri, dan dia terkejut "Ah..."
+
+"Sepertinya itu berjalan dengan baik." (ain)
+
+"Benar. Aku dapat dengan jelas mengatakan bahwa ada ... lebih banyak energi sihir berkumpul di tangan kananku sekarang." (viviana)
+
+"Dalam hal ini, haruskah Aku melanjutkan dengan seluruh tubuhmu? Lagi pula, jika kita mengakhirinya di sini belum selesai, itu mungkin memiliki pengaruh negatif padamu." (ain)
+
+"Tolong." (Viviana)
 
 Karena eksperimen ini berakhir dengan baik, Aku sekali lagi mengambil tangan Viviana dan mulai bernyanyi.
 
