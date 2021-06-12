@@ -235,7 +235,7 @@ Jika ini adalah percakapan antara bangsawan, maka penjelasan mungkin tidak diper
 
 Aku tidak merasa perlu untuk merahasiakan ini, jadi Aku membagikan semuanya, termasuk bagian tentang Faneed-san.
 
-Ketika nama Faneed-san disebutkan, ekpresi Viviana-san cloudy sekali lagi.
+Ketika nama Faneed-san disebutkan, ekpresi Viviana-san muram sekali lagi.
 
 Entah bagaimana, Aku merasa bahwa Viviana-san yang bertanggung jawab atas pekerjaan yang merepotkan.
 
@@ -245,42 +245,51 @@ Lucy-san sepertinya yang sering membuat masalah.
 
 "alasannya sama dengan bagaimana Aku bisa tinggal di sini. Aku diserang, jadi Aku mengalahkan mereka dan menyerang ke markas mereka." (ain)
 
-Bahkan atasan bawah tanah tampaknya terkejut.」
-Bagaimanapun, itulah yang terjadi. Aku akan pergi besok, jadi akan sangat bagus jika guild mengerti bahwa Aku hampir dibunuh oleh seorang bangsawan di negara ini.」
-Benar, tidak ada banyak waktu, kan?」
+"Bahkan atasan underground tampaknya terkejut juga." (Viviana)
+
+"Bagaimanapun juga, itulah yang terjadi. Aku akan pergi besok, jadi akan sangat bagus jika guild mengerti bahwa Aku hampir dibunuh oleh seorang bangsawan di negara ini." (ain)
+
+"Benar, kita tidak ada banyak waktu, kan?" (Viviana)
 
 Mendengar semua ini, Viviana-san menghela napas berat.
 
-Ngomong-ngomong, kita sedang membicarakan kompensasiku, kan?」
-Ya, benar. Itulah mengapa aku bergegas ke sini.
+"Ngomong-ngomong, kita sedang membicarakan kompensasiku, kan?" (ain)
+
+"Ya, benar. Itulah mengapa aku bergegas ke sini." (Viviana)
 
 Viviana-san kemudian tiba-tiba mendapat energi kembali. Untuk beberapa alasan, aku bisa merasakan Carol-san dalam dirinya.
+
 Meskipun Aku seharusnya tidak terkejut tentang itu lagi.
 
-Karena Aku mungkin membutuhkannya ketika Aku pergi ke Central, Aku ingin meminta perlindungan dari keluarga Kamu.
-Oh, itu benar. Karena itu kamu, kemungkinan besar kamu akan mencapai Rank B dalam waktu dekat.
-Dan memiliki seseorang yang mendukung Kamu, dalam arti tertentu, akan memudahkan Kamu untuk bergerak. Tetap saja, apa yang Kamu maksud dengan ' mungkin membutuhkannya '?」
-「Saya sudah memiliki orang lain yang mungkin melindungi Aku, jadi itu untuk asuransi.
+"Karena Aku mungkin membutuhkannya ketika Aku pergi ke Central, Aku ingin meminta perlindungan dari keluargamu." (ain)
 
-Carol-san mungkin memiliki pengaruh besar bahkan di Central. Bagaimanapun, dia memiliki moniker.
+"Oh, itu benar. Karena itu kamu, kemungkinan besar kamu akan mencapai Rank B dalam waktu dekat. Dan memiliki seseorang yang mendukungmu, dalam arti tertentu, akan memudahkanmu untuk bergerak. Tetap saja, apa yang Kamu maksud dengan ' mungkin membutuhkannya '?" (Viviana)
 
-Diperlakukan sebagai asuransi cukup kasar, bukan begitu?」
-Aku lebih suka aman daripada bersikap sopan. Selain itu, aku punya firasat bahwa kamu tidak akan marah karena hal seperti itu.」
-Yah, itu benar. Tetap saja, itu bukan sesuatu yang bisa Aku putuskan sendiri, dan bahkan jika Aku mendukung Kamu sendiri, Aku bukan pewaris yang sah, jadi itu tidak akan berarti banyak.
-Jadi sebagai gantinya, maukah Kamu menyelesaikan dengan pengenalan rumah? Jika ada hal lain, maka Aku akan mempertimbangkannya juga.」
-Kalau begitu, bisakah Kamu menulis surat pengantar untuk Aku? Aku tidak yakin kapan Aku akan mencapai Rank B, dan juga tidak ada jaminan bahwa Aku akan dapat menghubungi Kamu ketika saatnya tiba.
+"Aku sudah memiliki orang lain yang mungkin melindungiku, jadi hanya untuk berjaga-jaga." (ain)
+
+Carol-san mungkin memiliki pengaruh besar bahkan di Central. Bagaimanapun juga, dia memiliki julukan.
+
+"Diperlakukan sebagai asuransi cukup kasar, kan?" (Viviana)
+
+"Aku lebih suka aman daripada bersikap sopan. Selain itu, aku punya firasat bahwa kamu tidak akan marah karena hal seperti itu." (ain)
+
+"Yah, itu benar. Tetap saja, itu bukan sesuatu yang bisa Aku putuskan sendiri, dan bahkan jika Aku mendukungmu sendiri, Aku bukan pewaris yang sah, jadi itu tidak akan berarti banyak. Jadi sebagai gantinya, maukah Kamu mengenalkan diri ke tempatku ? Jika ada hal lain, maka Aku akan mempertimbangkannya juga." (Viviana)
+
+"Kalau begitu, bisakah Kamu menulis surat pengantar untukku ? Aku tidak yakin kapan Aku akan mencapai Rank B, dan juga tidak ada jaminan bahwa Aku akan dapat menghubungimu ketika saatnya tiba." (ain)
 
 Viviana-san merenung sejenak sebelum mengangguk.
+
 Bagaimanapun juga, surat pengantar bisa disalahgunakan, jadi aku mengerti kekhawatirannya.
+
 Tetap saja, aku senang dia setuju dengan itu sebagai pembayaran atas permintaannya.
+
 Akan lebih baik jika kita tidak perlu menggunakannya, tetapi lebih baik menyiapkan sesuatu.
 
-Juga, tolong rahasiakan apa pun yang kita bicarakan di sini.」
-Tentu saja.
+"Juga, tolong rahasiakan apa pun yang kita bicarakan di sini." (ain)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Tentu saja." (Viviana)
 
-(Katakan tidak pada pencuri konten!)
+Dengan persetujuan Viviana-san, Aku memutuskan untuk mendiskusikan masalah yang dimilikinya.
 
-Iklan
-Dengan persetujuan Viviana-san, Aku memutuskan untuk mendiskusikan masalahnya.
+-----------------------------------
+
