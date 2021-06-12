@@ -293,3 +293,16 @@ Dengan persetujuan Viviana-san, Aku memutuskan untuk mendiskusikan masalah yang 
 
 -----------------------------------
 
+Waah kita kembali lagi ke organisasi yang ainciel temui ketika pertama kali masuk ke ibukota. kali ini percakapannya sungguh lancar layaknya orang dewasa yang membeli informasi dari pedagang informasi gelap. bahkan bayarannya adalah anak gadis yg ditangkap ainciel.
+
+uniknya anak gadis ini dianggak benda ketika mereka sedang melakukan transaksi atau bisnis informasi. kasihan sekali, hanya bisa menatap benci saja… bahkan ciel saja berkomentar tapi untungnya ciel tidak mempermasalahkannya… faneed juga bujur arus saja mengikuti gaya omonga ain… tapi setidaknya ada orang yang bisa memahami cara bicara ain dan tidak sembarangan… 
+
+untuk kali ini melibatkan bangsawan lagi… tapi kenapa bangsawan ikut campur juga? bahkan kata faneed kalau tidak ada untungnya untuk apa ikut campur ? kalau memang tidak suka bahkan bisa usir saja dengan isu… apakah ketuga guild salah satu dari bangsawan itu ? atau rencana penyerbuan itu adalah permintaan dari bangsawan ke ketua guild terus karena hampir gagal karena ainciel, jadi mereka ingin membunuh ainciel kita ???? tapi semoga saja rispelgia tidak ikut-ikutan deh.. tunggu jauh dulu deh atau tunggu rank-b dulu … tapi kalau bisa jangan, kasihan ainciel kita yang hanya mau hidup santai dan tenang… yaaah kali ini ainciel ada pisau bukti kalau bangsawan ortis ini, jadi mungkin bisa jadi ancaman seperti ancaman hutan yang tidak diurus ke ketua guild… jadi walaupun nanti ada kerusuhan dan si bangsawan mau acuh tak acuh, tidak semudah itu...
+
+sepertinya viviana sudah tidak terlalu terkejut setelah mendengar ain memiliki koneksi dengan faneed... mungkin dia sudah terbiasa dengan ainciel, yaah mungkin baginya tidak aneh karena baginya keberadaan ainciel sendiri mungkin aneh, jadi tentu saja sesuatu yang aneh menghasilkan yang aneh juga kaan ??? maaf logika saya aneh .. hehehe...
+
+untuk kali ini bayaran yang diminta ain bukanlah benda seperti tas sihir atau semacamnya, tapi ain hanya meminta keselamatan ketika sampai di central... tentu saja carol dan celia mungkin akan melindunginya ketika sampai di central, tapi akan lebih baik kalau ada lebih dari 1 senjata atau lebih dari 1 tempat berlindung kan ??? seperti.. uhuk... uhuk... seiya dari cerita sebelah.. yang selalu waspada.. uhuk uhuk...
+
+untuk kali ini, untuk "pusat/utama" saya ganti dengan "central"... karena entah kenapa perasaan saya semakin kedepannya akan menjadi aneh kalau memakau kata pusat/utama... apalagi itu adalah suatu tempat, jadi lebih enak dibilang central saja sih, tapi kalau kalian ada saran, boleh coret-coret komentar yaa...
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya... kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
