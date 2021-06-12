@@ -153,78 +153,108 @@ Karena eksperimen ini berakhir dengan baik, Aku sekali lagi mengambil tangan Viv
 
 Saat aku berhenti bernyanyi, Viviana-san, entah kenapa, terengah-engah.
 
-「I-...... Ini ... akhirnya ....... * lebih ...... 」
-「Umm, kau baik-baik saja?」
-「Maaf ... Hanya ...... biarkan aku ... mengambil nafas. 」
+"I-...... Ini ... akhirnya ....... * Selesai ...... " (Viviana)
+
+"Umm, kau baik-baik saja?" (ain)
+
+"Maaf ... Hanya saja...... biarkan aku ... mengambil nafas." (Viviana)
 
 Meskipun pakaiannya tidak acak-acakan, dia tampaknya berkeringat di mana-mana karena pakaiannya menempel erat di tubuhnya dan wajahnya sedikit memerah, membuatnya terlihat sangat sugestif.
-「Haa ... Haa ...」 Bahkan dia menutup matanya dan berusaha menarik napas mengeluarkan kesan erotis, seperti itu adegan dari setelah fakta.
 
-Apa yang terjadi padanya?』
-Apa yang terjadi padanya adalah kamu, Ain.
-Lihat ke luar jendela, ya?
+"Haa ... Haa ..." Bahkan ketika dia menutup matanya dan berusaha menarik napas membuat kesan erotis, seperti dari sebuah adegan.
+
+[Apa yang terjadi padanya?] (ain)
+
+[Apa yang terjadi padanya adalah kamu, Ain.
+Lihat ke luar jendela, ya?] (ciel)
 
 Ciel menjawab dengan agak senang.
+
 Mengikuti sarannya, Aku melihat ke luar jendela dan melihat bahwa matahari sekarang telah benar-benar terbenam.
-…… Baik. Aku melihat. Sepertinya aku terlalu asyik bernyanyi sebelumnya.
+
+......ah... begitu ya. Sepertinya aku terlalu asyik bernyanyi.
+
 Wajar jika dia akhirnya kehilangan napas seperti itu setelah merasakan sensasi menggelitik selama beberapa jam tanpa henti.
 
-Apakah Aku tidak responsif sepanjang waktu?』
-Itu benar. Aku memanggil Ain dua atau tiga kali, tetapi Kamu tidak menanggapi sama sekali.
-Bagi Aku, Aku sangat puas melihat Ain bersenang-senang, tetapi agak disesalkan bahwa Aku tidak bisa menari bersama.』
-Apakah Kamu tahu berapa lama waktu telah berlalu sejak matahari terbenam?』
-Itu baru saja terjadi beberapa waktu yang lalu, Kupikir."
+[Apakah Aku tidak responsif ?] (ain)
+
+[iya. Aku memanggil Ain dua atau tiga kali, tetapi Kamu tidak menanggapi sama sekali. Bagiku, Aku sangat puas melihat Ain bersenang-senang, tetapi aku agak menyesal karena Aku tidak bisa menari.] (ciel)
+
+[Apakah Kamu tahu berapa lama waktu telah berlalu sejak matahari terbenam?] (ain)
+
+[Itu baru saja terjadi beberapa waktu yang lalu, mungkin.] (ciel)
 
 Dalam situasi seperti ini, Aku sangat merindukan jam tangan.
+
 Sementara Aku secara naluriah dapat mengetahui waktu ketika matahari masih terbit, ketika matahari terbenam, Aku sama sekali tidak tahu jam berapa sekarang.
+
 Lagipula aku juga tidak tahu bagaimana mengukur waktu menggunakan rasi bintang, dan yang lebih penting, langit malam di sini berbeda dengan langit di bumi.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Jadi, apakah aman untuk menyebut ini selesai sekarang?" (Viviana)
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"Ya. Aku minta maaf untuk memakan terlalu banyak waktu." (ain)
 
-Jadi, apakah aman untuk menyebut ini selesai sekarang?」
-Ya. Aku minta maaf untuk mengambil terlalu banyak waktu.
-Tidak apa-apa. Lagipula akulah yang meminta ini. Selain itu, sekarang Aku tahu betapa pendeknya sirkuit Aku.
-Iklan
+"Tidak apa-apa. Lagipula akulah yang meminta ini. Selain itu, sekarang Aku tahu betapa pendeknya sirkuitku." (Viviana)
 
-Dia memaafkanku, tapi kemudian Achoo! Viviana-san bersin, mungkin karena keringatnya semakin dingin.
+Dia memaafkanku, tapi kemudian "Achoo!" Viviana-san bersin, mungkin karena keringatnya semakin dingin.
+
 Ini akan menjadi buruk jika dia masuk angin pada tingkat ini.
 
-Jika Kamu mau, apakah Kamu lebih suka mandi di sini?」
-Jika Kamu tidak keberatan.
-Kalau begitu, Aku akan memanaskan airnya.
+"Jika Kamu mau, apakah Kamu mau mandi di sini?" (ain)
+
+"Jika Kamu tidak keberatan." (Viviana)
+
+"Kalau begitu, Aku akan memanaskan airnya." (ain)
 
 Setelah permisi, aku menuju kamar mandi.
-Aku mempertimbangkan untuk menggunakan item sihir yang mereka miliki untuk mengisinya, tetapi itu memakan waktu, jadi Aku memutuskan untuk menggunakan sihir untuk mengisi bak mandi dengan cepat.
+
+Aku mempertimbangkan untuk menggunakan item sihir untuk mengisinya, tetapi itu memakan waktu, jadi Aku memutuskan untuk menggunakan sihir untuk mengisi bak mandi dengan cepat.
+
 Membuat air mandi sekitar 40 derajat celsius ternyata sangat sulit. Lagi pula, tidak ada alat yang berguna seperti termometer di sini.
-Aku harus menebak suhu dengan indra Aku sendiri.
+
+Aku harus menebak suhu dengan indraku sendiri.
 
 Tetap saja, selama Aku bisa melakukannya, tidak perlu semenit pun untuk memanaskan air.
 
 energi sihir adalah satu-satunya hal yang Aku miliki, jadi itu sangat membantu dalam situasi seperti ini.
-Sebenarnya, berkat energi sihir dalam jumlah besar inilah aku bisa menjaga penghalangku terus-menerus, jadi itu selalu membantu.
 
-Mandi sudah siap sekarang. Aku akan menunggu di sini sampai selesai, baik-baik saja? 」
-「Oh tidak Kamu tidak.」
+Sebenarnya, berkat energi sihir dalam jumlah besar inilah aku bisa menjaga +BARRIERku terus-menerus, jadi itu selalu membantu.
 
-Viviana-san akan mandi dulu... itu yang kupikirkan, tapi dia menangkapku karena suatu alasan.
+"kamar Mandi sudah siap sekarang. Aku akan menunggu di sini sampai selesai, ok?" (ain)
+
+"Oh tidak, tidak." (viviana)
+
+Viviana-san yang mandi duluan... itu yang kupikirkan, tapi dia menangkapku karena suatu alasan.
+
 Dia memegang pergelangan tanganku dan membawaku ke kamar mandi yang baru saja kumasuki beberapa saat yang lalu.
-Sementara Aku anehnya tenggelam dalam pikiran; Oh, jadi biarpun kita diselimuti oleh +BARRIER, semudah ini diseret saat dicengkeram pergelangan tangan, ya ; Viviana-san mulai melepas pakaiannya.
 
-Iklan
-Menyerah, Aku mulai melepas pakaian Aku juga.
-Sebagai mantan laki-laki, ini mungkin saatnya untuk terkejut dan pergi youMengapa kamu melepas pakaianmu!?」 tetapi setelah dididik sebagai seorang gadis, Aku tidak benar-benar menganggap ini sebagai sesuatu yang layak untuk dipermasalahkan. .
-Kalau tidak, mungkin karena Ciel masih 12 tahun dan Aku terpengaruh oleh itu.
+Sementara Aku tenggelam dalam pikiran <Oh, jadi biarpun kami diselimuti oleh +BARRIER, semudah ini diseret ketika tanganku dicengkram, ya>, Viviana-san mulai melepas pakaiannya.
+
+aku Menyerah dan mulai melepas pakaianku juga.
+
+Sebagai mantan laki-laki, ini mungkin saatnya untuk terkejut dan berkata "kamu, Mengapa kamu melepas pakaianmu!?" tetapi setelah dididik sebagai seorang gadis, Aku tidak benar-benar menganggap ini sebagai sesuatu yang layak untuk dipermasalahkan.
+
+atau, mungkin karena Ciel masih 12 tahun dan Aku terpengaruh oleh itu.
 
 Ini benar-benar misterius. Saat aku merenungkannya, Viviana-san telah selesai melepas semua pakaiannya.
-Anggota tubuhnya panjang, ramping, dan sehat. Pinggangnya kencang, dan payudaranya yang indah lebih besar dari Ciel.
-Haruskah aku meminta maaf pada Ciel karena merasa aku telah tersesat?
+
+Anggota tubuhnya panjang, ramping, dan sehat. Pinggangnya kencang, dan payudaranya yang indah dan lebih besar dari Ciel.
+
+Haruskah aku meminta maaf pada Ciel karena merasa aku telah terlena?
 
 Karena tidak ada gunanya mengamatinya lebih dari ini, aku melepas pakaian kami dan melihat tubuh Ciel. Kulitnya memiliki rasa tembus pandang seolah-olah tidak pernah di bawah matahari.
-Sementara anggota tubuhnya tipis, mereka memiliki sentuhan kelembutan pada mereka, dan dadanya seharusnya normal untuk anak berusia 12 tahun. Ya, benar-benar seperti gadis.
+
+Sementara anggota tubuhnya tipis, mereka memiliki sentuhan kelembutan pada mereka, dan dadanya seharusnya normal untuk anak berusia 12 tahun. Ya, benar-benar seperti anak gadis.
+
 Tetap saja, mengatakan ini tidak akan menghasilkan apa-apa. Diskusi semacam ini pada umumnya tidak produktif.
 
 Saat aku memikirkan hal ini, Viviana-san sudah memasuki kamar mandi.
-Karena tidak terlalu luas, dia mencuci dan berendam di bak mandi terlebih dahulu benar-benar membantu, jadi aku tidak terlalu mempermasalahkannya.
-Kalau begitu, kurasa tidak ada alasan untuk langsung masuk, ya . Dengan pemikiran itu, Aku menunggu momen terbaik sebelum memasuki kamar mandi.
+
+Karena tidak terlalu luas, dia mencuci dan berendam di bak mandi terlebih dahulu, jadi aku tidak terlalu mempermasalahkannya.
+
+Kalau begitu, kurasa tidak ada alasan untuk langsung masuk, ya. Dengan pemikiran itu, Aku menunggu momen terbaik sebelum memasuki kamar mandi.
+
+---------------------------------
+
+heyya, kali ini ain memakai cara cepat untuk mengajar, atau lebih tepatnya menyelesaikan masalah aliran energi pada viviana saja, tidak mengajar sihir atau apapun... tapi, ain bisa mengendalikan energi sihir ???? bukankah ini bisa digunakan untuk membunuh dengan cepat kalau ain dapat mengendalikan kekuatan seperti ini, seperti ketika musuh mau menggunakan sihir berkekuatan besar dan menggunakan banyak energi, ain bisa mengacaukannya atau meledakkan energi sihirnya dari dalam tubuh musuh ... kaan ???? DAN akhirnya ada orang lain selain ciel yang mendapatkan buff dari song princess secara langsung dari ain... sungguh beruntungnya viviana...
+
