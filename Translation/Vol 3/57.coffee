@@ -1,6 +1,6 @@
 CHAPTER 57: ROLLED-UP GIRL, NOBLES, AND PROBLEMS
 
-Karena anak yang kubawa ini diikat dari mulut sampai ujung kaki, aku hampir terlibat perselisihan ketika aku mencoba melewati gerbang ibukota dengannya; tapi berkat Vivian-san, kami bisa memasuki ibu kota.
+Karena anak yang kubawa ini diikat dari mulut sampai ujung kaki, aku hampir terlibat perselisihan ketika aku mencoba melewati gerbang ibukota dengannya; tapi berkat Viviana-san, kami bisa memasuki ibu kota.
 
 Viviana-san sendiri juga memiliki barisan pria yang panjang di belakangnya, jadi itu mungkin membuat situasinya sedikit lebih mudah dipahami.
 
@@ -151,7 +151,7 @@ Mempertimbangkan bahwa mereka tidak memiliki masalah dalam menyiapkan makanan se
 
 Jika ini adalah penginapan murah lainnya, itu tidak akan melayani apa pun atau hanya menyajikan sisa sarapan, yang umumnya tidak sepadan dengan harganya.
 
-Mengenai Vivian-san, Aku sudah memberi tahu meja resepsionis tentang dia, jadi dia akan dibawa ke ruangan ini pada saat kedatangan.
+Mengenai Viviana-san, Aku sudah memberi tahu meja resepsionis tentang dia, jadi dia akan dibawa ke ruangan ini pada saat kedatangan.
 
 [Apakah tidak apa-apa untuk menyerahkan semua ini pada Faneed?] (ciel)
 
@@ -181,56 +181,70 @@ Saat aku sedang berpikir keras, kemudian ada ketukan di pintu.
 
 [Terima kasih, Aku akan membuka pintu sekarang.] (ain)
 
-Saat aku membuka pintu dengan sembarangan, resepsionis dan Vivian-san ada di depan pintu berdampingan, dan untuk beberapa alasan, Vivian-san memasang ekspresi tercengang di wajahnya.
+Saat aku membuka pintu dengan sembarangan, resepsionis dan Viviana-san ada di depan pintu berdampingan, dan untuk beberapa alasan, Viviana-san memasang ekspresi tercengang di wajahnya.
 
 Tetap saja, akan aneh untuk membicarakannya saat kita berdiri di depan pintu, jadi pertama-tama aku mengundangnya masuk dan menyuruhnya duduk sebelum membicarakan topik itu.
 
-「Ketika Aku membuka pintu, Kamu membuat wajah aneh, kan?」
-「Itulah hal pertama yang Kamu tanyakan? Sepertinya kamu agak ceroboh mengingat situasimu, itu saja.」
-Kamulah yang membawaku keluar ketika aku berencana untuk menghabiskan sepanjang hari di dalam kamarku, kamu tahu?」
-Itu ...... aku punya keadaanku sendiri, baik. Aku sudah memberitahumu itu, bukan?
-Iklan
+"Ketika Aku membuka pintu, Kamu membuat wajah aneh, kan?" (ain)
 
-Meskipun itu mungkin sedikit kejam bagi Aku, itu adalah kebenaran, jadi tolong jangan membuatnya terdengar seperti Aku orang jahat di sini. Serius.
-Tetap saja, tidak ada artinya untuk terus berdebat tentang ini, Itu benar. Jadi Aku hanya menjawab sambil tersenyum.
+"Itu hal pertama yang Kamu tanyakan? Sepertinya kamu terlalu santai mengingat situasimu." (Vivana)
 
-Jadi Viviana-san, bagaimana di pihakmu?」
-Seperti yang diharapkan, kurasa. Atau mungkin Aku harus mengatakan, itu benar-benar membingungkan seperti yang Aku pikirkan ......
-Apakah Kamu telah diberitahu tentang bagaimana Tolt telah membimbing mereka dengan Pekerjaan yang Mengecewakan?」 」
-Aku tidak begitu ingat. Tetap saja, Aku bisa membayangkan itu. Dia diam-diam melihat Pekerjaan mereka dan memberi mereka saran berdasarkan Pekerjaan mereka, kan?」
-Itu kira-kira benar. Dengan kata lain, cukup banyak Hunter yang berhutang budi kepada Tolt.
-Di antara para Hunter ini, ada beberapa yang sangat mengaguminya, dan sepertinya seseorang secara tidak sengaja berbicara tentang kejadian itu di depan mereka.
-Karena itu, yang disebut Hunter faksi Tolt ini secara independen memutuskan untuk menyerangmu.
-Ini benar-benar tidak terdengar seperti kecelakaan pada saat itu, tetapi mereka memutuskannya sendiri?」
-Dari sudut pandang mereka, mereka hanya mencoba menyelamatkan penyelamat mereka Tolt dari Cielmer yang jahat, tampaknya.
-Jelas mereka akan dihukum untuk ini, tetapi hukuman mereka masih belum diputuskan. Jadi, mereka berada di balik jeruji untuk saat ini.
+"Kamulah yang membawaku keluar ketika aku berencana untuk menghabiskan sepanjang hari di dalam kamarku, kamu tahu?" (ain)
+
+"Itu ...... aku punya keadaanku sendiri. Aku sudah memberitahumu itu, kan?" (Viviana)
+
+Meskipun itu mungkin sedikit kejam bagiku, itu adalah kebenaran, jadi tolong jangan membuatnya terdengar seperti Aku orang jahat di sini. Serius.
+
+Tetap saja, tidak ada artinya untuk terus berdebat tentang ini, Jadi Aku hanya menjawab "Itu benar." sambil tersenyum.
+
+"Jadi Viviana-san, bagaimana dari pihakmu?" (ain)
+
+"Seperti yang diduga, kurasa. Atau mungkin Aku harus mengatakan, itu benar-benar membingungkan ...... Apakah Kamu diberitahu tentang bagaimana Tolt membimbing mereka yang memiliki job yang Mengecewakan?" (Viviana)
+
+"Aku tidak begitu ingat. Tetap saja, Aku bisa membayangkan itu. Dia diam-diam melihat job mereka dan memberi mereka saran berdasarkan job mereka, kan?" (ain)
+
+"benar. Dengan kata lain, cukup banyak Hunter yang berhutang budi kepada Tolt. Di antara para Hunter ini, ada beberapa yang sangat mengaguminya, dan sepertinya seseorang secara tidak sengaja berbicara tentang kejadian itu di depan mereka. Karena itu, mereka yang disebut Hunter faksi Tolt ini secara independen memutuskan untuk menyerangmu." (Viviana)
+
+"Ini benar-benar tidak terdengar seperti kecelakaan pada saat itu, tetapi mereka memutuskannya sendiri?" (ain)
+
+"Dari sudut pandang mereka, tampaknya mereka hanya mencoba menyelamatkan penyelamat mereka Tolt dari Cielmer yang jahat. Jelas mereka akan dihukum untuk ini, tetapi hukuman mereka masih belum diputuskan. Jadi, mereka dipenjara untuk saat ini." (viviana)
 
 Dari sini Aku bisa membayangkan bahwa Tolt mungkin menjadi sombong setelah semua kekaguman dari para Hunter ini.
-Tetap saja, itu tidak memaafkannya dari masalah yang dia sebabkan pada kita.
+
+Tetap saja, itu tidak memaafkannya dari masalah yang dia sebabkan pada kami.
+
 Meskipun kasus ini unik, diserang dengan sendirinya bukanlah sesuatu yang baru, jadi kami sudah terbiasa.
 
-Bagaimana dengan di pihak Kamu, kalau begitu?」
-Untuk saat ini, Aku pikir Kamu akan mengerti setelah melihat ini.
+"kalau begitu, Bagaimana dengan di pihakmu?" (ain)
 
-Untuk menjawab pertanyaan Vivian-san, aku menunjukkan pisau itu padanya.
-Setelah menerima pisau itu, Vivian-san menatapnya dengan cermat sebelum meletakkan tangannya di atas kepalanya.
+"Untuk saat ini, Aku pikir Kamu akan mengerti setelah melihat ini." (Viviana)
 
-「Benar-benar ... bahwa Ketua Guild ini melakukannya lagi.」
-「Apakah Kamu perlu penjelasan seorang?」
-「Silakan melakukannya, hanya untuk memastikan.」
+Untuk menjawab pertanyaan Viviana-san, aku menunjukkan pisau itu padanya.
 
-Meskipun dia sudah menggabungkan dua dan dua, ada detail yang tidak diketahui kecuali diberikan penjelasan yang tepat.
+Setelah menerima pisau itu, Viviana-san menatapnya dengan cermat sebelum meletakkan tangannya di atas kepalanya.
+
+"uhh... Ketua Guild itu melakukannya lagi." (Viviana)
+
+"Apakah Kamu perlu penjelasan seorang?" (ain)
+
+"tolong penjelasannya, hanya untuk memastikan." (Viviana)
+
+Meskipun dia sudah memikirkannya, ada detail yang tidak diketahui kecuali diberikan penjelasan yang tepat.
+
 Jika ini adalah percakapan antara bangsawan, maka penjelasan mungkin tidak diperlukan; tetapi karena ini adalah diskusi antara Hunter, dapat dikatakan bahwa meminta penjelasan yang jelas adalah tindakan yang wajar.
-Aku tidak merasa perlu untuk merahasiakan ini, jadi Aku membagikan semuanya, termasuk bagian tentang Faneed-san .
-Ketika Faneed-san ‘nama s datang, Viviana-san ‘ekspresi s mendung sekali lagi.
 
-Iklan
-Entah bagaimana, Aku merasa bahwa Vivian-san secara teratur bertanggung jawab atas pekerjaan yang merepotkan.
-Lucy-san sepertinya dia sering membuat masalah.
+Aku tidak merasa perlu untuk merahasiakan ini, jadi Aku membagikan semuanya, termasuk bagian tentang Faneed-san.
 
-Cielmer, mengapa Kamu dari semua orang memiliki koneksi dengan bawah tanah ketika Kamu baru tiba di sini di ibukota beberapa hari yang lalu?」
-Untuk alasan yang sama Aku bisa tinggal di sini.
-Aku diserang, jadi Aku mengalahkan mereka dan berbaris ke tempat mereka.」
+Ketika nama Faneed-san disebutkan, ekpresi Viviana-san cloudy sekali lagi.
+
+Entah bagaimana, Aku merasa bahwa Viviana-san yang bertanggung jawab atas pekerjaan yang merepotkan.
+
+Lucy-san sepertinya yang sering membuat masalah.
+
+"Cielmer, mengapa Kamu memiliki koneksi dengan underground ketika Kamu baru tiba di sini di ibukota beberapa hari yang lalu?" (Viviana)
+
+"alasannya sama dengan bagaimana Aku bisa tinggal di sini. Aku diserang, jadi Aku mengalahkan mereka dan menyerang ke markas mereka." (ain)
+
 Bahkan atasan bawah tanah tampaknya terkejut.」
 Bagaimanapun, itulah yang terjadi. Aku akan pergi besok, jadi akan sangat bagus jika guild mengerti bahwa Aku hampir dibunuh oleh seorang bangsawan di negara ini.」
 Benar, tidak ada banyak waktu, kan?」
@@ -269,4 +283,4 @@ Tentu saja.
 (Katakan tidak pada pencuri konten!)
 
 Iklan
-Dengan persetujuan Vivian-san, Aku memutuskan untuk mendiskusikan masalahnya.
+Dengan persetujuan Viviana-san, Aku memutuskan untuk mendiskusikan masalahnya.
