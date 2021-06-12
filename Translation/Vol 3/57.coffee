@@ -139,45 +139,51 @@ Di antara pisau yang tidak mencolok, ada pisau yang tampak agak mahal yang diuki
 "Begitu. kalau begitu, ini adalah akhir dari bisnis kita.
 Terimakasih untuk semuanya. Kali ini, aku berdoa kita tidak akan pernah bertemu lagi." (ain)
 
-"Itulah kalimatku." (faneed)
+"Itu harusnya kalimatku." (faneed)
 
-Mengakhiri percakapan ramah kami, aku meninggalkan tempat Faneed-san.
+setelah Mengakhiri percakapan ramah kami, aku meninggalkan tempat Faneed-san.
 
 ◇
 
 Karena berakhir lebih awal dari perkiraan, kami memesan makan siang kembali di penginapan.
-Mempertimbangkan bahwa mereka tidak memiliki masalah dalam menyiapkan makanan selama pembayaran yang tepat diberikan, itu benar-benar memberi kesan betapa berkelasnya penginapan ini.
-Jika ini adalah penginapan murah lainnya, itu tidak akan melayani apa pun atau hanya menyajikan sisa sarapan, yang umumnya tidak sepadan dengan harganya.
-Mengenai Vivian-san, Aku sudah memberi tahu meja resepsionis tentang dia, jadi dia harus dibawa ke ruangan ini pada saat kedatangan.
 
-Apakah tidak apa-apa untuk menyerahkan semua ini pada Faneed?]
-Melawan seorang bangsawan, bahkan jika kita berada di pihak yang benar, hal-hal mungkin hanya akan menyusahkan kita.]
-Tapi tetap saja, Ketua Guild di balik ini, bukan' dia?
+Mempertimbangkan bahwa mereka tidak memiliki masalah dalam menyiapkan makanan selama pembayaran yang tepat diberikan, itu benar-benar memberi kesan betapa berkelasnya penginapan ini.
+
+Jika ini adalah penginapan murah lainnya, itu tidak akan melayani apa pun atau hanya menyajikan sisa sarapan, yang umumnya tidak sepadan dengan harganya.
+
+Mengenai Vivian-san, Aku sudah memberi tahu meja resepsionis tentang dia, jadi dia akan dibawa ke ruangan ini pada saat kedatangan.
+
+[Apakah tidak apa-apa untuk menyerahkan semua ini pada Faneed?] (ciel)
+
+[Melawan seorang bangsawan, bahkan jika kita berada di pihak yang benar, akhirnya akan menyusahkan kita saja.] (ain)
+
+[Tapi tetap saja, Ketua Guild di balik ini, kan?] (ciel)
 
 Satu-satunya orang yang tahu tentang krisis penyerbuan... adalah ketua Guild, Tolt, dan Chasse-san ... dan rekannya.
+
 Di antara mereka, salah satu yang paling mungkin memiliki koneksi dengan count adalah Ketua Guild, tidak diragukan lagi.
 
-Bahkan jika kami mengekspos skema Ketua Guild, Aku tidak berpikir itu akan menaikkan Rank kami, Kamu tahu.
-Selain itu, Aku tidak ingin ada masalah lebih dari apa yang sudah kita miliki sekarang.]
-Apakah Faneed tahu tentang Song Princess tidak apa-apa?]
-Faneed adalah anggota masyarakat bawah tanah, jadi seharusnya baik-baik saja.
-Aku memiliki kesan bahwa masyarakat bawah tanah adalah kumpulan orang buangan, dan Putri Song tidak diragukan lagi adalah orang buangan, jadi dia bahkan mungkin memiliki kesan yang baik tentang kita, Kamu tahu?
+[Bahkan jika kita mengekspos skema Ketua Guild, Aku tidak berpikir itu akan menaikkan Rank kita. Selain itu, Aku tidak ingin ada masalah lebih dari apa yang sudah kita miliki sekarang.] (ain)
+
+[Apakah tidak apa-apa Faneed tahu tentang Song Princess ?] (ciel)
+
+[Faneed adalah anggota organisasi underground, jadi seharusnya tidak masalah. Aku memiliki kesan bahwa mereka adalah kumpulan orang buangan, dan song princess tidak diragukan lagi adalah orang buangan, jadi dia bahkan mungkin memiliki kesan yang baik tentang kita] (ain)
 
 Paling tidak, dia mungkin tidak ingin menimbulkan masalah dengan kita.
+
 Lagipula, kami adalah Song Princess yang juga relatif mampu dalam sihir.
-Dia juga sepertinya mengerti betapa bermasalahnya Song Princess; dia jauh lebih dapat dipercaya daripada beberapa anggota acak masyarakat normal juga.
+
+Dia juga sepertinya mengerti betapa bermasalahnya Song Princess; dia jauh lebih dapat dipercaya daripada beberapa masyarakat normal juga.
 
 Saat aku sedang berpikir keras, kemudian ada ketukan di pintu.
 
-Tamu Kamu telah tiba.
-Terima kasih, Aku akan membuka pintu sekarang.
+[Tamu Kamu telah tiba.]
 
-Saat aku membuka pintu dengan sembarangan, resepsionis dan Vivian-san ada di sana berdampingan, dan untuk beberapa alasan, Vivian-san memasang ekspresi tercengang di wajahnya.
-Tetap saja, akan aneh untuk membicarakannya saat kita berdiri di dekat pintu, jadi pertama-tama aku mengundangnya masuk dan menyuruhnya duduk sebelum membicarakan topik itu.
+[Terima kasih, Aku akan membuka pintu sekarang.] (ain)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Saat aku membuka pintu dengan sembarangan, resepsionis dan Vivian-san ada di depan pintu berdampingan, dan untuk beberapa alasan, Vivian-san memasang ekspresi tercengang di wajahnya.
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+Tetap saja, akan aneh untuk membicarakannya saat kita berdiri di depan pintu, jadi pertama-tama aku mengundangnya masuk dan menyuruhnya duduk sebelum membicarakan topik itu.
 
 「Ketika Aku membuka pintu, Kamu membuat wajah aneh, kan?」
 「Itulah hal pertama yang Kamu tanyakan? Sepertinya kamu agak ceroboh mengingat situasimu, itu saja.」
