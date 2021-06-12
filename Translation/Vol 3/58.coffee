@@ -4,92 +4,110 @@ CHAPTER 58: CIRCUITS, SONG, AND A BATH
 
 "...... Aku juga berpikir begitu. tapi, Kamu bisa mengetahuinya?" (Viviana)
 
-Itulah mengapa Aku ingin menyimpan ini hanya di antara kita.
+"Itulah mengapa Aku ingin menyimpan ini hanya di antara kita." (ain)
 
 Mendengar kata-kataku, Viviana-san jelas sedang tidak bersemangat.
-Memiliki kelainan di sirkuit seseorang adalah cacat yang cukup besar bagi seorang penyihir, jadi menurut Aku, itu hanya reaksi alami.
 
-Secara khusus, tampaknya sirkuit Kamu tidak mencapai ekstremitas Kamu.
-Salah satu solusi untuk itu, Aku pikir, adalah dengan meningkatkan kecepatan aliran sirkulasi Kamu.
-Masih ada batasan untuk itu, Kamu tahu. 」
-Dari apa yang Aku tahu, Kamu masih jauh dari mencapai maksimum kecepatan, tapi mari kita kesampingkan itu untuk saat ini.
-Masih ada satu solusi lagi yang bisa Aku pikirkan, tapi Aku tidak yakin apakah kita bisa melakukannya atau tidak.」
-Mari kita coba. Sekarang juga."
+Memiliki kelainan di sirkuit seseorang adalah cacat yang cukup besar bagi seorang sorcerer, jadi menurutku, itu hanya reaksi alami.
 
-Viviana-san tiba-tiba menerjang ke arahku.
-Aku benar-benar terkejut melihat wajahnya sekarang berada di dekatku, tapi seharusnya aku mengharapkan reaksi seperti ini.
+"Secara khusus, tampaknya sirkuitmu tidak mencapai ujung kaki dan tanganmu. Salah satu solusi untuk itu, kupikir, adalah dengan meningkatkan kecepatan aliran sirkulasimu." (ain)
+
+"tapi itu juga Masih ada batasannya."
+
+"Dari apa yang Aku lihat, Kamu masih jauh dari kecepatan maksimum, tapi mari kita kesampingkan itu untuk saat ini. Masih ada satu solusi lagi yang bisa Aku pikirkan, tapi Aku tidak yakin apakah kita bisa melakukannya atau tidak." (ain)
+
+"Mari kita coba itu. Sekarang juga." (Viviana)
+
+Viviana-san tiba-tiba bergerak ke arahku.
+
+Aku benar-benar terkejut melihat wajahnya sekarang berada di dekatku, tapi seharusnya aku sudah mengetehaui reaksi seperti ini.
+
 Setelah menyuruh Viviana-san untuk tenang, aku menyuruhnya untuk menunjukkan tangannya padaku.
 
-"Tangan Aku? Apakah ini cukup baik?
+"Tanganku? Apakah ini cukup ?" (Viviana)
 
 Saat dia menunjukkan kedua tangannya, aku mengangguk setuju sebelum memegangnya.
-Aku belum pernah mengalami banyak kontak fisik seperti ini sejak.......Yah, bahkan sebelum aku datang ke dunia ini, jadi itu membuatku agak gugup.
-Dibandingkan dengan tangan Ciel yang dilindungi penghalang, tangannya agak kasar, khas untuk seorang Hunter. Meski begitu, mereka masih memiliki kelembutan tertentu pada mereka, membuatku sadar bahwa dia adalah seorang wanita.
+
+Aku belum pernah mengalami banyak kontak fisik seperti ini sejak....... Yah, bahkan sebelum aku datang ke dunia ini, jadi itu membuatku agak gugup.
+
+Dibandingkan dengan tangan Ciel yang dilindungi +BARRIER, tangannya agak kasar, khas untuk seorang Hunter. Meski begitu, masih memiliki kelembutan tertentu, membuatku sadar bahwa dia adalah seorang wanita.
 
 Meskipun hanya karena itu membuatku sadar akan hal itu, aku tidak benar-benar menganggapnya sebagai lawan jenis.
-Hmm, jika Aku memegang tangan seorang pria, apakah jantung Aku akan berdetak kencang? Aku tidak tahu.
 
-Lebih penting lagi, aku perlu berkonsentrasi untuk merasakan kekuatan sihir Viviana-san .
-Rasakan kekuatan sihirnya, rebut kendali......Aku berhasil.
-Rasanya sejuta kali lebih sulit daripada mengendalikan kekuatan sihirku sendiri tapi… itu bukan tidak mungkin.
+Hmm, jika Aku memegang tangan seorang pria, apakah jantungku akan berdetak kencang? Aku tidak tahu.
 
-H-tunggu sebentar. Kamu, apakah Kamu baru saja melakukan sesuatu pada kekuatan sihir Aku?」
-Aku pasti melakukannya. Karena tes pendahuluan berjalan dengan lancar, Aku berpikir untuk mencoba sesuatu, tetapi apakah itu tidak masalah bagi Kamu?」
-Maukah Anda… keberatan memberi tahu Aku apa yang akan Kamu lakukan terlebih dahulu? Jika tidak, Aku tidak bisa membuat penilaian yang tepat. 」
-「Oh, benar. Aku agak terburu-buru di sana.
+Lebih penting lagi, aku perlu berkonsentrasi untuk merasakan energi sihir Viviana-san .
 
-Iklan
-Aku berhasil menguasai kekuatan sihir orang lain selain Ciel, jadi aku menjadi sedikit terlalu bersemangat.
-Tetap saja, terlepas dari kenyataan itu, sepertinya aku tidak bisa menggunakan sihir dengan kekuatan sihirnya.
-Mungkin lebih baik untuk menyimpulkan bahwa menggunakan sihir menggunakan kekuatan sihir orang lain pada dasarnya tidak mungkin. Satu-satunya pengecualian untuk ini sampai sekarang tampaknya adalah Ciel.
-Meskipun dengan Ciel, ini tetap tidak praktis karena sangat tidak efisien untuk melakukannya.
+Rasakan energi sihirnya, rebut kendalinya......Aku berhasil.
+Rasanya sejuta kali lebih sulit daripada mengendalikan energi sihirku sendiri tapi... itu bukan tidak mungkin.
 
-Aku menguasai kekuatan sihirmu dan berhasil memindahkannya sedikit.
-Oleh karena itu, Aku berpikir untuk secara paksa mendorong kekuatan sihir Kamu ke tempat yang seharusnya secara alami mengalir.」
-Jika itu mungkin, maka tidak bisakah Aku melakukannya tanpa bantuan Kamu?」
-Apakah Kamu ingin mencoba?」
-…… Tidak mungkin, bukan?
+"T-tunggu sebentar. Kamu, apakah Kamu baru saja melakukan sesuatu pada energi sihirku?" (Viviana)
+
+"iya. Karena percobaannya berjalan dengan lancar, Aku berpikir untuk mencoba sesuatu, tetapi apakah itu tidak masalah bagimu?" (ain)
+
+"Maukah Kamu... memberi tahuku apa yang akan Kamu lakukan terlebih dahulu? Jika tidak, Aku tidak bisa membuat penilaian yang tepat." (Viviana)
+
+"Oh, benar. Aku agak terburu-buru." (ain)
+
+Aku berhasil menguasai energi sihir orang lain selain Ciel, jadi aku menjadi sedikit terlalu bersemangat.
+
+Tetap saja, terlepas dari kenyataan itu, sepertinya aku tidak bisa menggunakan sihir dengan energi sihirnya.
+
+Mungkin lebih baik untuk menyimpulkan bahwa memakai sihir dengan menggunakan energi sihir orang lain pada dasarnya mustahil. Satu-satunya pengecualian untuk ini sampai sekarang tampaknya hanyalah Ciel.
+
+Meskipun dengan Ciel, ini tetap sangat tidak efisien untuk melakukannya.
+
+"Aku menguasai energi sihirmu dan berhasil memindahkannya sedikit. Oleh karena itu, Aku berpikir untuk secara paksa mendorong energi sihirmu ke tempat yang seharusnya secara alami mengalir." (ain)
+
+"Jika itu bisa terjadi, tidak bisakah Aku melakukannya tanpa bantuanmu?" (Viviana)
+
+"Apakah Kamu ingin mencoba?" (ain)
+
+"...... itu mustahil, kan?" (Viviana)
 
 Viviana-san segera menyerah.
-Orang mungkin bahkan tidak memperhatikan di mana dan bagaimana kekuatan sihir biasanya mengalir melalui sirkuit mereka. Dengan kata lain, bahkan jika Kamu ingin melakukannya, itu bukanlah sesuatu yang mudah untuk dilakukan.
 
-Bisakah Ain melakukannya?』
-Kita tidak akan tahu sampai kita mencobanya.
-Aku berhasil melakukannya dengan rambut Kamu, jadi seharusnya tidak mustahil. Namun, tidak seperti kasus Kamu, kemungkinan membangun sirkuit baru ini kemungkinan kecil.』
-Jadi menurut Kamu itu berbeda untuk Viviana?』
-Dalam kasusnya, Aku pikir sirkuitnya menjadi tidak aktif karena kurangnya digunakan atau tersumbat karena alasan yang tidak diketahui. Jika Aku salah, maka tidak ada yang bisa Aku lakukan untuk itu.
+Orang mungkin bahkan tidak memperhatikan di mana dan bagaimana energi sihir biasanya mengalir melalui sirkuit mereka. Dengan kata lain, bahkan jika Kamu ingin melakukannya, itu bukanlah sesuatu yang mudah untuk dilakukan.
 
-Dapatkah Aku meminta Kamu untuk melakukannya?」
+[Bisakah Ain melakukannya?] (ciel)
+
+[Kita tidak akan tahu sampai kita mencobanya. Aku berhasil melakukannya dengan rambutmu, jadi seharusnya tidak mustahil. tapi, tidak seperti kasusmu, kemungkinan membangun sirkuit baru ini peluangnya kecil.] (ain)
+
+[Jadi menurutmu itu berbeda untuk Viviana?] (ciel)
+
+[Dalam kasusnya, Aku pikir sirkuitnya menjadi tidak aktif karena jarang digunakan atau tersumbat karena alasan yang tidak diketahui. Jika Aku salah, maka tidak ada yang bisa Aku lakukan untuk itu.] (ain)
+
+"Dapatkah Aku memintamu untuk melakukannya?" (Viviana)
 
 Mendengar Viviana-san, aku mengalihkan fokusku kembali padanya.
 
-Sebelum itu, Aku ingin mengkonfirmasi sesuatu. Jika ini berjalan dengan baik, mungkin perasaan menggunakan sihir untukmu mungkin terasa berbeda sejak saat itu.
-Meskipun begitu, apakah Kamu masih ingin melanjutkan?」
-Sekarang setelah Kamu menyebutkannya, itu benar ...... Tetap saja, itu tidak masalah.
-Lagi pula, ini hanya masalah membiasakan diri. Aku akan mengambil istirahat dari pesta Aku sementara itu.
-Kalau begitu, mari kita lakukan ini.
-Viviana-san, tolong coba untuk mengedarkan kekuatan sihirmu sepelan mungkin. Juga, ikuti aliran kekuatan sihir sebanyak mungkin.
+"Sebelum itu, Aku ingin mengkonfirmasi sesuatu. Jika ini berjalan dengan baik, mungkin perasaan menggunakan sihir untukmu mungkin terasa berbeda setelah itu. Meskipun begitu, apakah Kamu masih ingin melanjutkannya?" (ain)
 
-Menerima persetujuannya, aku mencoba menggerakkan kekuatan sihirnya.
-Aku mulai dengan tangan yang paling dekat dengan Aku. Aku mencoba mengarahkan kekuatan sihir yang terkumpul di telapak tangannya mengalir keluar ke jari-jarinya, tapi ada sensasi perlawanan, jadi ini tidak berjalan dengan baik.
-Aku hanya mengarahkannya saat itu, jadi Aku harus bisa mengaturnya. Aku menambahkan sedikit lebih banyak dorongan di belakangnya, tetapi kemudian Aduh! Viviana-san berteriak dan melepaskan tanganku.
+"Sekarang setelah Kamu menyebutkannya, itu benar ...... Tetap saja, itu tidak masalah. Lagi pula, ini hanya masalah membiasakan diri. Aku akan mengambil cuti dari partyku untuk itu." (Viviana)
 
-Apakah kamu baik-baik saja?」
-Y-ya. Aku hanya terkejut dengan rasa sakit yang tiba-tiba.
+"Kalau begitu, ayo kita lakukan ini. Viviana-san, tolong coba untuk alirkan energi sihirmu sepelan mungkin. Juga, ikuti aliran energi sihir sebanyak mungkin." (ain)
 
-Apakah mencongkel paksa sirkuit terbuka menyakitkan?
+Menerima persetujuannya, aku mencoba menggerakkan energi sihirnya.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Aku mulai dengan tangan yang paling dekat denganku. Aku mencoba mengarahkan energi sihir yang terkumpul di telapak tangannya mengalir keluar ke jari-jarinya, tapi ada sensasi perlawanan, jadi ini tidak berjalan dengan baik.
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Aku hanya mengarahkannya, jadi Aku masih bisa mengaturnya. Aku menambahkan sedikit lebih banyak dorongan di belakangnya, tetapi kemudian "Ow!" Viviana-san berteriak dan melepaskan tanganku.
 
-Iklan
-Apakah itu juga terasa seperti itu saat itu, Ciel?』
-『Saya fokus dengan menjaga kekuatan sihir mengamuk, jadi Aku tidak ingat sama sekali.
-Itu benar. Aku lupa tentang itu.』
-Selain itu, hanya rambut Aku dalam kasus Aku. Bahkan di waktu lain, Aku tidak merasakan sakit, Aku pikir.
-Pertama-tama, Aku kuat melawan rasa sakit, Kamu tahu?
-reasonAlasan mengapa Kamu kuat melawan rasa sakit adalah masalah.
+"Apakah kamu baik-baik saja?" (ain)
+
+"Y-ya. Aku hanya terkejut dengan rasa sakit yang tiba-tiba." (Viviana)
+
+Apakah mencongkel paksa sirkuit menyakitkan?
+
+[Apakah itu juga terasa seperti itu saat itu, Ciel?] (ain)
+
+[aku fokus dengan menjaga energi sihir mengamuk, jadi Aku tidak ingat sama sekali.] (ciel)
+
+[Itu benar. Aku lupa tentang itu.] (ain)
+
+[Selain itu, hanya rambutku saja dalam kasusku. Bahkan di selain waktu itu, Aku tidak merasakan sakit. pada dasarnya, Aku kuat melawan rasa sakit, Kamu tahu?] (ciel)
+
+[Alasan mengapa Kamu kuat melawan rasa sakit adalah masalah.] (ain)
 
 Bahkan jika dia merasakan sakit, aku punya firasat bahwa Ciel akan menanggungnya tanpa mengeluh.
 Itu adalah sesuatu yang Aku sama sekali tidak senang.
@@ -115,7 +133,7 @@ Sepertinya Viviana-san dengan cepat menyadari ini sendiri, saat dia terkejut Ah�
 
 Iklan
 Sepertinya itu berjalan dengan baik.
-Benar. Aku dapat dengan jelas mengatakan bahwa ada ... lebih banyak kekuatan sihir berkumpul di tangan kanan Aku sekarang.」
+Benar. Aku dapat dengan jelas mengatakan bahwa ada ... lebih banyak energi sihir berkumpul di tangan kanan Aku sekarang.」
 Dalam hal ini, haruskah Aku melanjutkan dengan seluruh tubuh Kamu? Lagi pula, jika kita mengakhirinya di sini belum selesai, itu mungkin memiliki pengaruh negatif pada Kamu.」
 Tolong lakukan.
 
@@ -174,15 +192,15 @@ Aku harus menebak suhu dengan indra Aku sendiri.
 
 Tetap saja, selama Aku bisa melakukannya, tidak perlu semenit pun untuk memanaskan air.
 
-Kekuatan sihir adalah satu-satunya hal yang Aku miliki, jadi itu sangat membantu dalam situasi seperti ini.
-Sebenarnya, berkat kekuatan sihir dalam jumlah besar inilah aku bisa menjaga penghalangku terus-menerus, jadi itu selalu membantu.
+energi sihir adalah satu-satunya hal yang Aku miliki, jadi itu sangat membantu dalam situasi seperti ini.
+Sebenarnya, berkat energi sihir dalam jumlah besar inilah aku bisa menjaga penghalangku terus-menerus, jadi itu selalu membantu.
 
 Mandi sudah siap sekarang. Aku akan menunggu di sini sampai selesai, baik-baik saja? 」
 「Oh tidak Kamu tidak.」
 
 Viviana-san akan mandi dulu... itu yang kupikirkan, tapi dia menangkapku karena suatu alasan.
 Dia memegang pergelangan tanganku dan membawaku ke kamar mandi yang baru saja kumasuki beberapa saat yang lalu.
-Sementara Aku anehnya tenggelam dalam pikiran; Oh, jadi biarpun kita diselimuti oleh penghalang, semudah ini diseret saat dicengkeram pergelangan tangan, ya ; Viviana-san mulai melepas pakaiannya.
+Sementara Aku anehnya tenggelam dalam pikiran; Oh, jadi biarpun kita diselimuti oleh +BARRIER, semudah ini diseret saat dicengkeram pergelangan tangan, ya ; Viviana-san mulai melepas pakaiannya.
 
 Iklan
 Menyerah, Aku mulai melepas pakaian Aku juga.
