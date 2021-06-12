@@ -1,6 +1,6 @@
 CHAPTER 57: ROLLED-UP GIRL, NOBLES, AND PROBLEMS
 
-Karena anak yang kubawa ini diikat dari mulut sampai ujung kaki, aku hampir terlibat perselisihan ketika aku mencoba melewati gerbang ibukota dengannya; tapi berkat Vivian-san , kami bisa memasuki ibu kota.
+Karena anak yang kubawa ini diikat dari mulut sampai ujung kaki, aku hampir terlibat perselisihan ketika aku mencoba melewati gerbang ibukota dengannya; tapi berkat Vivian-san, kami bisa memasuki ibu kota.
 
 Viviana-san sendiri juga memiliki barisan pria yang panjang di belakangnya, jadi itu mungkin membuat situasinya sedikit lebih mudah dipahami.
 
@@ -36,7 +36,7 @@ Begitu, sepertinya dia bukan salah satu bawahannya.
 
 "Ada beberapa definisi tentang arti berguna, tapi kami harusnya bisa memanfaatkannya." (faneed)
 
-"Kalau begitu, aku akan menyerahkan ini kepadamu, jadi apakah Kamu keberatan jika Aku meminta beberapa bantuan?" (ain)
+"Kalau begitu, aku akan menyerahkan benda ini kepadamu, jadi apakah Kamu keberatan jika Aku meminta beberapa bantuan?" (ain)
 
 [Jadi bukan 'gadis ini' lagi, bukan?] (ciel)
 
@@ -80,64 +80,75 @@ Dan salah satunya adalah sesuatu yang Aku harap tidak terjadi.
 
 "benda Ini dari bangsawan Count Ortis, yang menjadi anggota komandan knight." (faneed)
 
-Segera merasa lega, aku menahan pipiku saat aku hampir tersenyum.
+Segera merasa lega, aku menahan pipiku karena aku hampir tersenyum.
+
 Aku khawatir nama Rispelgia akan muncul di sini, tapi untungnya aku salah.
-Jika rumah tangga Rispelgia tidak terlibat dengan ini, maka ada dua alasan tersisa.
 
-Kalau begitu, itu mungkin karena Pekerjaanku, tapi bagaimana menurutmu?」
+Jika Rispelgia tidak terlibat dengan ini, maka ada dua alasan tersisa.
 
-Aku sedang berbicara dengan Faneed-san dengan asumsi bahwa dia sudah mengetahui Jobku , karena kemungkinan besar dia juga mengetahuinya.
+"Kalau begitu, itu mungkin karena jobku, tapi bagaimana menurutmu?" (ain)
+
+Aku sedang berbicara dengan Faneed-san dengan asumsi bahwa dia sudah mengetahui Jobku, karena kemungkinan besar dia juga mengetahuinya.
+
 Pada hari itu, seharusnya ada banyak Hunter yang mendengar bahwa aku adalah Song Princess. Tidak aneh jika salah satu bawahan Faneed-san ada di antara kerumunan; sebaliknya, ada kemungkinan yang sangat tinggi bahwa hal itu benar-benar terjadi.
+
 Bahkan jika tidak, mengingat fakta bahwa butuh waktu untuk memaksakan perintah pembungkaman, masih sangat mungkin bahwa informasi ini bocor di luar.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Dan sepertinya asumsi itu benar karena Faneed-san menggelengkan kepalanya sebagai tanggapan.
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"jobmu seharusnya tidak menjadi penyebab ini. bahkan jika kita menganggap seseorang ingin Kamu mati, keluarga Count tidak akan melakukan sesuatu seperti mengirim seorang pembunuh kecuali mereka mendapat manfaat darinya, bahkan jika mereka memiliki dendam pribadi. Lagi pula, mereka bisa membuatmu diusir dari ibukota hanya dengan menyebarkan desas-desus tentangmu."
 
-Dan sepertinya asumsi itu benar saat Faneed-san menggelengkan kepalanya sebagai tanggapan.
+"Aku juga berpikir begitu. kalau begitu, itu mungkin karena Aku memberitahu kemungkinan terjadinya penyerbuan. Kamu mengatakan bahwa ada seorang komandan knight di tempat bangsawan itu, jadi jika diketahui bahwa penyerbuan ini terjadi karena ditinggalkannya hutan, mereka tidak mungkin untuk lolos dari hukuman berat." (ain)
 
-Pekerjaan Kamu seharusnya tidak menjadi penyebab ini. Sekarang bahkan jika kita menganggap seseorang ingin Kamu mati, keluarga Count tidak akan melakukan sesuatu seperti mengirim seorang pembunuh kecuali mereka mendapat manfaat darinya, bahkan jika mereka memiliki dendam pribadi.
-Lagi pula, mereka bisa membuat Kamu diusir dari ibukota hanya dengan menyebarkan desas-desus tentang Kamu.
-Aku pikir begitu. Kemudian dalam hal ini, itu mungkin karena Aku menyiratkan kemungkinan terjadinya penyerbuan.
-Kamu mengatakan bahwa ada seorang komandan ksatria dalam rumah tangga setelah semua, sehingga jika menjadi diketahui bahwa penyerbuan ini terjadi karena ditinggalkannya hutan, mereka tidak mungkin untuk lolos dari hukuman berat. 」
-「Oi , apakah Kamu hanya mengatakan menyerbu?"
+"Oi, apakah Kamu hanya mengatakan penyerbuan?" (faneed)
 
-Faneed-san bereaksi cepat. Aku terkejut sesaat, tapi kurasa sebuah organisasi bawah tanah yang berbasis di ibukota akan khawatir jika sesuatu terjadi padanya.
-Aku membayangkan bahwa organisasi bawah tanah akan senang dengan ibukota kerajaan yang jatuh ke dalam kekacauan, tetapi mereka hanya ada berkat ibukota. Menimbang bahwa penyerbuan dapat menghapus ibukota, maka dapat dimengerti jika masyarakat bawah tanah khawatir tentang hal itu.
+Faneed-san bereaksi cepat. Aku terkejut sesaat, tapi kurasa sebuah organisasi underground yang berbasis di ibukota akan khawatir jika sesuatu terjadi di ibukota.
 
-Berdasarkan penilaian amatir Aku, itu bisa terjadi dalam beberapa tahun dari sekarang. Saat ini, Guild Hunter harus menyelidiki lokasi, jadi tolong bekerja keras untuk menyelidiki juga. Bahkan mungkin tidak dalam beberapa tahun.」
-Itu benar. Aku kira begitulah cara kerjanya ......
-Ngomong-ngomong, informasi apa yang Kamu inginkan?
-Sebenarnya, Aku ingin meminta Kamu untuk mencari tahu siapa yang memerintahkan pembunuhan Aku, tapi ...」
-Kemungkinan rumah tangga Count, kan. 」
-「 dengan mengatakan bahwa, gunakan ini untuk menjaga mata rumah tangga dari Aku, bahkan jika Aku pernah terlibat dengan mereka. Juga, jika ada sesuatu yang dapat membuktikan hubungan yang satu ini dengan rumah tangga Count di antara barang-barangnya, maka Aku akan mengambilnya juga.
-Mau bagaimana lagi. Tetap saja, itu mungkin akan keluar dengan sendirinya, tahu?」
-Setidaknya kamu bisa menghancurkan suaranya dengan cara yang tidak bisa disembuhkan, kan?」
-Yah, kamu bisa mengatakan itu.」
+Aku membayangkan bahwa organisasi ini akan senang dengan ibukota kerajaan yang jatuh ke dalam kekacauan, tetapi mereka ada berkat ibukota. Menimbang bahwa penyerbuan dapat menghapus ibukota, maka dapat dimengerti jika mereka khawatir tentang hal itu.
+
+"Berdasarkan penilaian amatirku, itu bisa terjadi dalam beberapa tahun dari sekarang. Saat ini, Guild Hunter sedang menyelidiki lokasinya, jadi tolong bekerja keras untuk menyelidiki juga. Bahkan mungkin bisa terjadi lebih cepat." (ain)
+
+"benar. kukira begitulah cara kerjanya ...... Ngomong-ngomong, informasi apa yang Kamu inginkan?" (faneed)
+
+"Sebenarnya, Aku ingin meminta Kamu untuk mencari tahu siapa yang memerintahkan pembunuhanku, tapi ..." (ain)
+
+"Kemungkinannya bangsawan Count, kan." (faneed)
+
+"kalau begitu, gunakan benda ini untuk membuat bangsawan itu tidak menggangguku, bahkan jika Aku pernah terlibat dengan mereka. Juga, jika ada sesuatu yang dapat membuktikan hubungan benda ini dengan bangsawan Count di antara barang-barangnya, maka Aku akan mengambilnya juga." (ain)
+
+"yah Mau bagaimana lagi. Tetap saja, benda ini mungkin akan membicarakannya, kamu tahu?" (faneed)
+
+"Setidaknya kamu bisa menghancurkan suaranya dengan cara yang tidak bisa disembuhkan, kan?" (ain)
+
+"Yah, kamu bisa mengatakan itu." (faneed)
 
 Mendengar kata-kataku, Faneed-san dengan santai menjawab.
+
 Mempertimbangkan bahwa musuh adalah bangsawan, bahkan dengan bukti yang jelas, ini mungkin bukan sesuatu yang bisa diselesaikan besok.
-Memiliki sesuatu yang dapat menghubungkan masalah ini dengan House of Ortis hanya untuk memastikan, sehingga kami dapat memberi tahu Guild Hunter tentang hal ini, seharusnya sudah cukup baik.
 
-Ngomong-ngomong, apakah ini memiliki pisau atau semacamnya?」
-Ada empat atau lima pisau ...... tapi satu memiliki semacam desain di atasnya.
+Memiliki sesuatu yang dapat menghubungkan masalah ini dengan bangsawan ortis hanya untuk memastikan, sehingga kami dapat memberi tahu Guild Hunter tentang hal ini.
 
-Di antara pisau yang tidak mencolok, ada pisau yang tampak agak mahal yang diukir dengan lambang bercampur.
+"Ngomong-ngomong, apakah benda ini memiliki pisau atau semacamnya?" (faneed)
 
-"Itu dia. Itu lambang keluarga Ortis.」
-Begitu. Dalam hal ini, ini adalah akhir dari bisnis kami.
-Terimakasih untuk semuanya. Kali ini, aku berdoa kita tidak akan pernah bertemu lagi.」
-Itulah kalimatku.
-Iklan
+"Ada empat atau lima pisau ...... tapi satu memiliki semacam desain." (ain)
 
-Mengakhiri percakapan ramah kami, aku meninggalkan tempat Faneed-san .
+Di antara pisau yang tidak mencolok, ada pisau yang tampak agak mahal yang diukir dengan suatu lambang.
+
+"Itu dia. Itu lambang keluarga Ortis." (faneed)
+
+"Begitu. kalau begitu, ini adalah akhir dari bisnis kita.
+Terimakasih untuk semuanya. Kali ini, aku berdoa kita tidak akan pernah bertemu lagi." (ain)
+
+"Itulah kalimatku." (faneed)
+
+Mengakhiri percakapan ramah kami, aku meninggalkan tempat Faneed-san.
 
 ◇
 
 Karena berakhir lebih awal dari perkiraan, kami memesan makan siang kembali di penginapan.
 Mempertimbangkan bahwa mereka tidak memiliki masalah dalam menyiapkan makanan selama pembayaran yang tepat diberikan, itu benar-benar memberi kesan betapa berkelasnya penginapan ini.
 Jika ini adalah penginapan murah lainnya, itu tidak akan melayani apa pun atau hanya menyajikan sisa sarapan, yang umumnya tidak sepadan dengan harganya.
-Mengenai Vivian-san , Aku sudah memberi tahu meja resepsionis tentang dia, jadi dia harus dibawa ke ruangan ini pada saat kedatangan.
+Mengenai Vivian-san, Aku sudah memberi tahu meja resepsionis tentang dia, jadi dia harus dibawa ke ruangan ini pada saat kedatangan.
 
 Apakah tidak apa-apa untuk menyerahkan semua ini pada Faneed?]
 Melawan seorang bangsawan, bahkan jika kita berada di pihak yang benar, hal-hal mungkin hanya akan menyusahkan kita.]
@@ -171,13 +182,13 @@ Tetap saja, akan aneh untuk membicarakannya saat kita berdiri di dekat pintu, ja
 「Ketika Aku membuka pintu, Kamu membuat wajah aneh, kan?」
 「Itulah hal pertama yang Kamu tanyakan? Sepertinya kamu agak ceroboh mengingat situasimu, itu saja.」
 Kamulah yang membawaku keluar ketika aku berencana untuk menghabiskan sepanjang hari di dalam kamarku, kamu tahu?」
-Itu ...... aku punya keadaanku sendiri , baik. Aku sudah memberitahumu itu, bukan?
+Itu ...... aku punya keadaanku sendiri, baik. Aku sudah memberitahumu itu, bukan?
 Iklan
 
 Meskipun itu mungkin sedikit kejam bagi Aku, itu adalah kebenaran, jadi tolong jangan membuatnya terdengar seperti Aku orang jahat di sini. Serius.
 Tetap saja, tidak ada artinya untuk terus berdebat tentang ini, Itu benar. Jadi Aku hanya menjawab sambil tersenyum.
 
-Jadi Viviana-san , bagaimana di pihakmu?」
+Jadi Viviana-san, bagaimana di pihakmu?」
 Seperti yang diharapkan, kurasa. Atau mungkin Aku harus mengatakan, itu benar-benar membingungkan seperti yang Aku pikirkan ......
 Apakah Kamu telah diberitahu tentang bagaimana Tolt telah membimbing mereka dengan Pekerjaan yang Mengecewakan?」 」
 Aku tidak begitu ingat. Tetap saja, Aku bisa membayangkan itu. Dia diam-diam melihat Pekerjaan mereka dan memberi mereka saran berdasarkan Pekerjaan mereka, kan?」
@@ -195,7 +206,7 @@ Meskipun kasus ini unik, diserang dengan sendirinya bukanlah sesuatu yang baru, 
 Bagaimana dengan di pihak Kamu, kalau begitu?」
 Untuk saat ini, Aku pikir Kamu akan mengerti setelah melihat ini.
 
-Untuk menjawab pertanyaan Vivian-san , aku menunjukkan pisau itu padanya.
+Untuk menjawab pertanyaan Vivian-san, aku menunjukkan pisau itu padanya.
 Setelah menerima pisau itu, Vivian-san menatapnya dengan cermat sebelum meletakkan tangannya di atas kepalanya.
 
 「Benar-benar ... bahwa Ketua Guild ini melakukannya lagi.」
@@ -252,4 +263,4 @@ Tentu saja.
 (Katakan tidak pada pencuri konten!)
 
 Iklan
-Dengan persetujuan Vivian-san , Aku memutuskan untuk mendiskusikan masalahnya.
+Dengan persetujuan Vivian-san, Aku memutuskan untuk mendiskusikan masalahnya.
