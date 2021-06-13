@@ -163,61 +163,80 @@ kami terus berbicara sampai Ciel tertidur.
 ◇
 
 Pagi selanjutnya. Beberapa saat setelah matahari terbit, Ciel tiba di toko senjata sebelumnya dari beberapa hari yang lalu.
+
 Seperti sebelumnya, yang mengelola toko adalah wanita yang tampaknya adalah istri pemilik dan ketika dia melihat Ciel, dia memberi kami tatapan curiga.
 
-Kamu gadis yang kemarin, ya? Pedangnya sudah habis."
-Begitu, lalu bisakah aku memilikinya?"
-Sebelum itu, bisakah kamu bertemu dengan suamiku dulu? Bergantung pada situasinya, kami tidak akan menjual pedang kepada Kamu."
-...... Dimengerti.
+"Kamu gadis waktu itu, kan? Pedangnya sudah selesai."
 
-Ciel memelototi wanita itu saat dia memasuki ruang belakang, Ciel. jadi aku memanggil namanya dan menegurnya.
+"Begitu, lalu bisakah aku memilikinya?" (ciel)
+
+"Sebelum itu, bisakah kamu bertemu dengan suamiku dulu? Bergantung pada situasinya, kami tidak akan menjual pedangnya kepadamu."
+
+"...... Baiklah." (ciel)
+
+Ciel memelototi wanita itu saat dia memasuki ruang belakang, [Ciel.], jadi aku memanggil namanya dan menegurnya.
+
 Sudah dua hari sejak aku diekspos sebagai Song Princess. Aku kira ini berarti bahwa, bahkan dengan perintah pembungkaman, rumor masih menyebar. "Gadis berambut putih itu adalah Song Princess." Bahkan dengan hanya informasi itu, itu sudah cukup untuk menyimpulkan bahwa itu adalah Ciel.
-Nah, Aku ingin tahu apa yang dikatakan pria yang sekarang berdiri di depan kita ini.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+Nah, Aku ingin tahu apa yang dikatakan pria yang sekarang berdiri di depan kami ini.
 
 Dia tampak mengantuk terakhir kali kami datang ke sini tetapi tatapannya tampak agak tajam hari ini.
-Iklan
 
-Kamu, ya ? Kamu memesan pedang penari pedang, kan? Bisakah Kamu mencoba mengayunkannya sebentar?
+"Kamu, ya ? Kamu memesan pedang sword dancer, kan? Bisakah Kamu mencoba mengayunkannya sebentar?"
 
-Haruskah Aku?』
-Ini akan membuang-buang waktu untuk berdebat di sini, jadi mari kita lakukan apa yang dia katakan.
-Maukah Kamu bernyanyi untuk Aku, Ain?』
-Jika itu setelah Kamu selesai mengujinya milikmu sendiri, maka dengan senang hati.
+[Haruskah Aku melakukannya?] (ciel)
 
-Dipahami. Di mana Aku harus melakukannya?"
-Kami memiliki halaman di belakang, jadi cobalah di sana.
+[Ini akan membuang-buang waktu untuk berdebat di sini, jadi mari kita lakukan apa yang dia katakan.] (ain)
+
+[Maukah Kamu bernyanyi untukku, Ain?] (ciel)
+
+[Jika itu setelah Kamu selesai mencobanya sendiri, tentu dengan senang hati.] (ain)
+
+"baiklah. Di mana Aku harus melakukannya?" (ciel)
+
+"Kami memiliki halaman di belakang, jadi cobalah di sana."
 
 Ciel mengikuti pria itu dan di halaman belakang toko, ada benda berbentuk manusia seperti orang-orangan sawah yang terbuat dari jerami.
 
-Coba gunakan ini untuk itu.
+"Coba gunakan pedang ini kepada itu."
 
 Saat pria itu berkata begitu, dia menyerahkan pedang tipis yang memiliki ornamen menghiasi pegangannya.
+
 Setelah menerimanya, Ciel meletakkan sarungnya di tanah dan menyiapkan pedangnya.
+
 Ciel tidak memegang pedang dengan kedua tangan tepat di depannya, melainkan memegangnya di satu tangan dengan posisi kaki berlawanan dari tangannya di belakang kaki lainnya. Dari sikap itu, dia dengan cepat bergegas menuju boneka jerami.
+
 Dia mendekat dengan ritme tiga langkah yang jelas dan menebas tempat yang sesuai dengan pergelangan tangan dengan ritme yang sama, pertama ke atas, lalu ke bawah, dan dengan tendangan untuk menutupnya.
+
 Dengan momentum dari tendangan, dia kemudian melompat mundur untuk mundur.
 
 Itu mengakhiri satu aliran.
 
-Iklan
 Setelah itu, Ciel menyesuaikan cengkeramannya pada pedang beberapa kali sebelum akhirnya memegangnya di depan.
+
 Dengan dua tarikan napas, dia kemudian melangkah masuk dan menebas area yang berhubungan dengan leher dan lengan, sebelum mundur lagi dengan satu tarikan napas.
-Sementara gerakannya agak terlalu kaku untuk digambarkan sebagai "menari seperti kupu-kupu, menyengat seperti lebah"; seperti yang diharapkan, hanya menggunakan Putri Dansa tidak menunjukkan terlalu banyak efek.
+
+Sementara gerakannya agak terlalu kaku untuk digambarkan sebagai "menari seperti kupu-kupu, menyengat seperti lebah"; sudah kuduga, hanya menggunakan danse princess tidak menunjukkan terlalu banyak efek.
+
 Jika Ciel hanya bisa bertarung dengan pedang, dia mungkin akan lebih lemah dari Perla.
 
-Sekarang, karena sepertinya tahap pengujian Ciel sudah selesai, Aku akan mencoba menyanyikan sebuah lagu.
+Sekarang, karena sepertinya tahap percobaan Ciel sudah selesai, Aku akan mencoba menyanyikan sebuah lagu.
 
-Sebuah lagu yang memiliki ritme yang mirip dengan gerakan Ciel sebelumnya harus dilakukan dengan baik.
+Sebuah lagu yang memiliki ritme yang mirip dengan gerakan Ciel sebelumnya sepertinya akan cocok.
+
 Tetap saja, meskipun agak berbeda, Ciel akan mencocokkan ritmenya dengan lagu, jadi tidak perlu persis seperti itu.
 
 Mengikuti irama laguku, Ciel mengacungkan pedangnya dan menyerang.
+
 Apa yang dia lakukan tidak berbeda dari apa yang dia lakukan sebelumnya, tetapi kekakuannya sekarang hilang dan gerakannya mengalir secara alami sekarang.
-Selain itu, kekuatannya juga meningkat, menghasilkan boneka jerami yang hanya bisa dia potong di permukaan sekarang dengan cepat tercabik-cabik hingga tidak bisa mempertahankan siluet aslinya lagi.
+
+Selain itu, kekuatannya juga meningkat, menghasilkan boneka jerami yang hanya bisa dia potong di permukaannya saja sekarang dengan cepat tercabik-cabik hingga tidak bisa mempertahankan bentuk aslinya lagi.
 
 Pada saat kami selesai, Ciel kemudian menatap lurus ke arah pria itu.
-Pria itu dengan canggung menatap kembali ke Ciel sebelum tiba-tiba memalingkan muka dan menyatakan: Kamu lulus."
-Ciel hanya memberi singkat, Begitu., mengambil sarungnya, dan kembali ke interior toko. Dia kemudian membayar jumlah yang tersisa dan segera keluar dari toko senjata sebelum mereka bisa mengatakan apa pun padanya.
+
+Pria itu dengan canggung menatap kembali ke Ciel sebelum tiba-tiba memalingkan muka dan mengatakan "Kamu lulus."
+
+Ciel hanya membalas singkat, "Begitu.", mengambil sarungnya, dan kembali ke interior toko. Dia kemudian membayar jumlah yang tersisa dan segera keluar dari toko senjata sebelum mereka bisa mengatakan apa pun padanya.
+
+--------------------------
+
