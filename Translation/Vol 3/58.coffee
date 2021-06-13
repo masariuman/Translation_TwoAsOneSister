@@ -262,4 +262,6 @@ Tapi, tertawa berjam-jam ???? kalau saya sendiri mungkin sudah pingsan, atau apa
 
 tapi kasihan ain, tidak terangsang, entah apakah terbiasa karena ciel atau terkena efek dari tubuh ciel juga ? jadi perasaan kepada sesama wanita tidak seperti dulu ketika masih menjadi seorang pria.... ckckck...
 
+untuk terjemahan kali ini untuk penyihir saya ganti dengan sorcerer.. saya memutuskan untuk mengubah semua yang berhubungan dengan job dengan bahasa inggriss saja... mengapa sorcerer bkn magician ? karena di dunia ini ada 2 jenis sihir yaitu sorcery dan magic, yang mana sorcery lebih umum dipakai maka tentu saja sorcerer untuk penggunanya...
+
 sekian untuk chapter kali ini, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
