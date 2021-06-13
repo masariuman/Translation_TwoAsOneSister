@@ -22,31 +22,37 @@ Dan mungkin karena aku begitu diam kali ini, Ciel kemudian dengan cemas memanggi
 
 [Tapi kamu suka bernyanyi di depan orang, kan? Kamu mengatakan kepadaku sebelumnya bahwa bisa mendapatkan uang dari menyanyi membuatmu bahagia. kamu selalu terlihat sangat bahagia setiap kali kamu bernyanyi.] (ciel)
 
-Tetap saja, kamu akan mengalami hal-hal yang lebih buruk karena ini, kamu tahu?
-Selain itu, karena tampaknya penghalang Aku menjadi ceroboh ketika Aku bernyanyi, Aku mungkin tidak dapat melindungi Kamu juga.』
-Itu tidak akan pernah terjadi. Bagaimanapun, Ain luar biasa.
+[Tetap saja, kamu akan mengalami hal-hal yang lebih buruk karena ini, kamu tahu? Selain itu, karena tampaknya +BARRIERku menjadi tidak stabil ketika Aku bernyanyi, Aku mungkin tidak dapat melindungimu juga.] (ain)
+
+[Itu tidak akan pernah terjadi. Bagaimanapun juga, Ain luar biasa.] (ciel)
 
 Entah bagaimana, Ciel akhirnya memujiku.
 
-Bahkan ketika kontrol menjadi agak ceroboh, tidak mungkin penghalang Ain akan dihancurkan dengan mudah.
-Itu sebabnya tidak ada yang perlu dikhawatirkan.
+[Bahkan ketika kontrol menjadi agak tidak stabil, tidak mungkin +BARRIER Ain akan dihancurkan dengan mudah. karena iulah tidak ada yang perlu dikhawatirkan.] (ciel)
 
 Setelah mengatakan itu, mata Ciel menyipit menjadi senyuman lembut.
+
 Kata-kata berikutnya yang keluar dari bibirnya menggelitik telingaku.
 
-Dan selain itu, Ain sangat menggemaskan, kau tahu?」
-『I-itu berkat penampilanmu, bukan?』 Bukan itu maksudku
-. Ain, sebagai individu, menggemaskan.
-Ini bukan tentang penampilan Kamu. 」
-『Umm , bahwa ini ...... benar-benar?』
+[Dan selain itu, Ain sangat menggemaskan lho?] (ciel)
+
+[I-itu berkat penampilanmu, kan?] (ain)
+
+[Bukan itu maksudku. Ain, sebagai individu, menggemaskan.
+Ini bukan tentang penampilanmu.] (ciel)
+
+[Umm , itu ...... benaran?] (ain)
 
 Kali ini dia memanggilku menggemaskan dengan nada yang benar-benar tulus dan aku tidak tahu bagaimana aku harus bereaksi.
-Bagaimana Aku harus mengatakan ini, Aku hanya merasa ... bingung tentang hal itu. Fakta bahwa Aku merasa seperti ini mengejutkan Aku.
 
-Iklan
-Apakah menjadi bingung berarti aku senang disebut menggemaskan?
+Bagaimana ya, Aku hanya merasa ... tersipu malu tentang hal itu. Fakta bahwa Aku merasa seperti ini mengejutkanku.
+
+Apakah menjadi tersipu berarti aku senang disebut menggemaskan?
+
 Meskipun Aku sadar bahwa Aku telah banyak condong ke sisi feminin, apakah ini berarti bahwa Aku telah berubah ke titik di mana Aku merasa senang disebut menggemaskan?
+
 Itu tidak menyenangkan, tapi rasanya seperti ketidakjelasan yang tak terlukiskan berputar-putar di sekitar dadaku.
+--------
 Tidak, Ciel mungkin hanya bermaksud menggemaskan sebagai pujian secara umum dan aku hanya merasa senang karena Ciel menganggapku baik. Aku yakin itu seperti bagaimana gadis-gadis di bumi akan menyebut sesuatu yang lucu ketika mereka bermaksud tidak memikirkannya dengan buruk.
 Untuk alasan itu, Aku pikir jika seseorang secantik Ciel memanggil Aku imut ketika Aku masih hidup, Aku harus merasa senang karenanya. Saat aku mencoba membayangkannya, aku merasa diriku hampir merinding, tapi aku yakin itu hanya imajinasiku. Harus.
 
