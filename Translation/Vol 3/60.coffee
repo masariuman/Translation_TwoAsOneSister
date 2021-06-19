@@ -1,6 +1,6 @@
 CHAPTER 60: ROYAL CAPITAL, GOFER, AND PARTING
 
-Pedang sangat sulit untuk ditangani. Haruskah kami membawanya dengan tangan, meletakkannya di bahu kami, atau memakainya di pinggul? Mana pilihan terbaik, aku benar-benar tidak tahu.
+Pedang sangat sulit untuk ditangani. Haruskah kami membawanya dengan tangan, meletakkannya di bahu kami, atau memakainya di pinggul? entah Mana pilihan terbaik, aku benar-benar tidak tahu.
 
 Karena Ciel adalah seorang Sorcerer, kami tidak perlu terus-menerus menyimpannya di tubuhnya.
 
@@ -52,39 +52,37 @@ Apakah menjadi tersipu berarti aku senang disebut menggemaskan?
 Meskipun Aku sadar bahwa Aku telah banyak condong ke sisi feminin, apakah ini berarti bahwa Aku telah berubah ke titik di mana Aku merasa senang disebut menggemaskan?
 
 Itu tidak menyenangkan, tapi rasanya seperti ketidakjelasan yang tak terlukiskan berputar-putar di sekitar dadaku.
---------
-Tidak, Ciel mungkin hanya bermaksud menggemaskan sebagai pujian secara umum dan aku hanya merasa senang karena Ciel menganggapku baik. Aku yakin itu seperti bagaimana gadis-gadis di bumi akan menyebut sesuatu yang lucu ketika mereka bermaksud tidak memikirkannya dengan buruk.
-Untuk alasan itu, Aku pikir jika seseorang secantik Ciel memanggil Aku imut ketika Aku masih hidup, Aku harus merasa senang karenanya. Saat aku mencoba membayangkannya, aku merasa diriku hampir merinding, tapi aku yakin itu hanya imajinasiku. Harus.
+
+Tidak, Ciel mungkin maksud ciel adalah menggemaskan sebagai pujian secara umum dan aku hanya merasa senang karena Ciel menganggapku baik. Aku yakin itu seperti bagaimana gadis-gadis di bumi menyebut sesuatu yang imut dan mereka bermaksud dalam arti buruk.
+
+Untuk alasan itu, jika seseorang secantik Ciel memanggilku imut ketika Aku masih hidup, Aku pasti merasa senang karenanya. Saat aku mencoba membayangkannya, aku merasa diriku hampir merinding, tapi aku yakin itu hanya imajinasiku. pasti.
 
 Saat aku tenggelam dalam pikiranku, Ciel berbicara dengan ekspresi lembut, hampir keibuan.
 
-Tapi kamu tahu, Ain, kamu paling menggemaskan saat bernyanyi.
-Itu sebabnya Kamu tidak boleh berpikir bahwa lebih baik berhenti bernyanyi, oke?
-Saat Ain bernyanyi, aku yang akan melindungi.
+[Tapi, Ain, kamu paling menggemaskan saat bernyanyi. karena itulah Kamu tidak boleh berpikir bahwa lebih baik berhenti bernyanyi, oke? Saat Ain bernyanyi, aku yang akan melindungi.] (ciel)
 
-Mendengar kata-kata Ciel entah bagaimana meyakinkan, 『Dimengerti. Aku tidak bisa memikirkan jawaban lain.
+Mendengar kata-kata Ciel, [Baiklah], Aku tidak bisa memikirkan jawaban lain.
 
 ◇
 
 Beberapa saat setelah percakapan yang membuatku bertanya-tanya siapa yang lebih dewasa di antara kami, aku mendengar ketukan dari pintu dan kami diberi tahu bahwa Chasse-san dan yang lainnya telah tiba.
-Karena kami tidak punya alasan untuk tinggal di penginapan ini lagi, kami membawa semua barang-barang kami dan menuju ke area resepsionis.
-Sementara Aku lebih suka jika mereka dibawa ke kamar kami sebagai gantinya, Aku kira mereka ingin menghindari pria pergi ke kamar seorang gadis sendirian.
 
-Menunggu di ruang tunggu hanya dua orang, Chasse-san dan Vivian-san .
-Padahal, karena tidak semua orang di party mereka memiliki sesuatu untuk dikatakan, aku tidak terlalu mempermasalahkannya.
+Karena kami tidak punya alasan untuk tinggal di penginapan ini lagi, kami membawa semua barang-barang kami dan menuju ke area resepsionis.
+
+sebenarnya Aku lebih suka jika mereka dibawa ke kamar kami sebagai gantinya, tapi mungkin mereka ingin menghindari pria pergi ke kamar seorang gadis sendirian.
+
+yang Menunggu di ruang tunggu hanya dua orang, Chasse-san dan Vivian-san.
+
+yaah karena tidak semua orang di party mereka memiliki sesuatu untuk dikatakan, aku tidak terlalu mempermasalahkannya.
 
 Karena bukan aku yang mengendalikan hari ini, Ciel yang akan berinteraksi dengan mereka.
 
-Membuat Kamu menunggu.」
-Jangan khawatir, tidak apa-apa.
+"Maaf membuatmu menunggu." (ciel)
+
+"Jangan khawatir, tidak apa-apa." (Viviana)
 
 Mendengar sapaan singkat Ciel, Viviana-san menjawab dengan santai.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
-
-Iklan
 Karena insiden ini adalah hasil dari kami ...... atau lebih tepatnya kesalahan penanganan Guild Hunter, Kamu tidak perlu khawatir tentang itu.
 Lagipula, kamilah yang meminta waktumu di sini.
 
