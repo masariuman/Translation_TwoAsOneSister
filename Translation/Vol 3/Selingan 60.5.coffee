@@ -138,38 +138,48 @@ Aku benar-benar melakukan yang terbaik untuk tetap diam, Tapi untuk beberapa ala
 
 Ain meminta maaf, tapi bukan itu yang ingin kukatakan.
 
-[Itu bukanlah apa yang Aku maksud. Bukan berarti.]
+[Itu bukanlah apa yang Aku maksud. bukan itu.] (ciel)
 
-『Umm , apa maksudmu?』
-『 Ini tidak adil bahwa Viviana mengambil mandi bersama-sama dengan Ain!
-Aku juga ingin mandi dengan Ain!』
+[Umm , apa maksudmu?] (ain)
 
-Saat aku mengatakan itu, Ahh ……』 Ain mengeluarkan jawaban yang meyakinkan secara ambigu.
+[Ini tidak adil kalau Viviana mandi bersama-sama dengan Ain! Aku juga ingin mandi dengan Ain!] (ciel)
 
-Itu ... akan sulit.
-Aku tahu, Aku tahu. Tetap saja, aku iri …』
+Saat aku mengatakan itu, [Ahh ...], Ain mengeluarkan jawaban yang meyakinkan secara ambigu.
 
-Aku tahu dalam pikiran Aku bahwa itu adalah sesuatu yang sulit untuk dilakukan, dan Aku tahu dalam pikiran Aku bahwa ini bahkan mungkin tidak dapat dicapai selama sisa hidup Aku.
+[Itu ... akan sulit.] (ain)
+
+[Aku tahu, Aku tahu. Tetap saja, aku iri] (ciel)
+
+Aku tahu dalam pikiranku itu adalah sesuatu yang sulit untuk dilakukan, dan Aku tahu dalam pikiranku ini bahkan mungkin tidak dapat dicapai selama sisa hidupku.
+
 Tetap saja, Aku belum cukup dewasa untuk menerima itu sebagai fakta.
+
 Dan Aku tidak ingin cukup dewasa untuk melakukannya.
 
-Meski begitu, Ain mungkin akan membenciku jika aku terus merajuk, jadi aku harus mencoba meringankan dengan pertukaran berikutnya.
+Meski begitu, Ain mungkin akan membenciku jika aku terus begini, jadi aku harus mencoba meringankan dengan perkacakan berikutnya.
+
 Saat aku berpikir begitu, jantungku tiba-tiba melompat.
+
 Ain segera menggelengkan kepalanya dan berbicara seolah-olah untuk menutupi apa yang terjadi.
 
-Jika, kebetulan, ada saatnya aku bisa berbicara denganmu secara langsung, mari kita mandi bersama Ciel.
-Jika Kamu mau, mungkin menyenangkan untuk saling mencuci juga.
+[Jika, kebetulan, ada saatnya aku bisa berbicara denganmu secara langsung, mari kita mandi bersama, Ciel. Jika Kamu mau, mungkin menyenangkan untuk saling menggosok badan juga.] (ain)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Mengapa Ain tiba-tiba terkejut? Mengapa Ain menggelengkan kepalanya seolah-olah dia sedang menghilangkan pikirannya?
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+Aku bisa menebak sebanyak yang Aku suka; tetapi, entah bagaimana, informasi ini cukup untuk mengembalikan suasana hatiku menjadi bagus kembali.
 
-Mengapa jantung Ain tiba-tiba melompat? Mengapa Ain menggelengkan kepalanya seolah-olah dia sedang menghilangkan pikirannya?
-Aku bisa menebak sebanyak yang Aku suka; tetapi, entah bagaimana, informasi ini cukup untuk mengembalikan suasana hati Aku yang baik.
 Selain itu, saran Ain adalah ide yang sangat menggoda.
-Iklan
 
-『Fufu , yang akan menjadi luar biasa. Itu janji, oke?
+[Fufu, itu akan menjadi luar biasa. Itu janji, oke?] (ciel)
 
 Sementara tawa keluar dari bibirku, aku membuat janji ini dengan Ain.
+
 Masa depan yang jauh setelah pergi ke pantai, setelah menjadi Rank-B, dan setelah meninggalkan kerajaan. Aku tidak terlalu peduli tentang apa pun selama Aku bisa bersama Ain, tetapi Aku sekarang memiliki tujuan yang harus Aku capai.
+
+----------------------------------------
+
+bahahaha viviana menggeliat diabaikan... bisa kubayangkan viviana menggeliat dan terlihat menggoda bagi sisi laki-laki, tapi ain abaikan dan fokus nyanyi saja... dan disini kita tahu kalau ciel berusaha menghentikan ain juga walau gagal dan membiarkan ain bernyanyi.
+
+yaaay dedek ciel yang cemburu sungguh imut... pengen ngeliat pipi dedek ciel ngembang karena cemberut deh... aaaaaaaa... dan ain dengan cepatnya mengembalikan mood nya dedek ciel... sasugaaa ain... hanya ain yg bisa mengendalikan mood dan emosi dedek ciel .. aaaaaaaa.. dan akhirnya dedek ciel memiliki tujuan hidup baru, yaitu ingin MANDI DENGAN AIN !!!! yaaaayyyyy !!!
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
