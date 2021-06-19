@@ -71,7 +71,7 @@ Karena kami tidak punya alasan untuk tinggal di penginapan ini lagi, kami membaw
 
 sebenarnya Aku lebih suka jika mereka dibawa ke kamar kami sebagai gantinya, tapi mungkin mereka ingin menghindari pria pergi ke kamar seorang gadis sendirian.
 
-yang Menunggu di ruang tunggu hanya dua orang, Chasse-san dan Vivian-san.
+yang Menunggu di ruang tunggu hanya dua orang, Chasse-san dan Viviana-san.
 
 yaah karena tidak semua orang di party mereka memiliki sesuatu untuk dikatakan, aku tidak terlalu mempermasalahkannya.
 
@@ -83,122 +83,127 @@ Karena bukan aku yang mengendalikan hari ini, Ciel yang akan berinteraksi dengan
 
 Mendengar sapaan singkat Ciel, Viviana-san menjawab dengan santai.
 
-Karena insiden ini adalah hasil dari kami ...... atau lebih tepatnya kesalahan penanganan Guild Hunter, Kamu tidak perlu khawatir tentang itu.
-Lagipula, kamilah yang meminta waktumu di sini.
+"Karena insiden ini adalah dari kami ...... atau lebih tepatnya kesalahan penanganan Guild Hunter, Kamu tidak perlu khawatir tentang itu. Lagipula, kamilah yang meminta waktumu di sini." (Chasse)
 
 Apakah respons Chasse-san yang sangat sopan karena kepribadiannya sendiri, atau apakah dia berusaha menghindari membuat Ciel tidak senang mengingat seberapa besar insiden ini akhirnya?
+
 Apapun itu, Aku tetap berniat menerima kompensasi yang layak.
 
 Setelah memberi tahu resepsionis bahwa kami akan mengosongkan kamar, kami menuju ke tempat yang berbeda karena masalah ini sebenarnya bukan sesuatu untuk dibicarakan di depan sebuah penginapan.
-Tempat mereka membawa kami adalah sebuah rumah kecil di distrik perumahan.
-Sambil berjaga-jaga di sekitar area, Chasse-san membuka kunci pintu rumah dan masuk ke dalam.
-Ini memiliki interior yang sederhana, tetapi meja dan dua sofa terlihat agak mahal dibandingkan.
 
-"Ini adalah?"
+Tempat mereka membawa kami adalah sebuah rumah kecil di distrik perumahan.
+
+Sambil berjaga-jaga di sekitar area, Chasse-san membuka kunci pintu rumah dan masuk ke dalam.
+
+rumah Ini memiliki interior yang sederhana, tetapi meja dan dua sofa terlihat agak mahal.
+
+"apa ini?" (ciel)
 
 Ciel bertanya dengan nada merembes dengan hati-hati.
 
-Bangunan yang dimiliki oleh Hunter Guild. Ini digunakan dalam keadaan tertentu ketika guild atau pemohon tidak dapat bergerak di depan umum, tetapi masih memiliki kebutuhan untuk bertemu dan berdiskusi ...... Aku kira?
-Meskipun hanya dapat digunakan saat diotorisasi, kali ini disetujui cukup cepat. Begitu
-. Jadi bagaimana saat itu?
+"Bangunan yang dimiliki oleh guild hunter. Ini digunakan dalam keadaan tertentu ketika guild atau pemohon tidak dapat bergerak di depan umum, tetapi masih memiliki kebutuhan untuk bertemu dan berdiskusi ...... mungkin? Meskipun hanya dapat digunakan saat diotorisasi, kali ini sangat cepat disetujui." (Chasse)
+
+"Begitu. Jadi bagaimana?" (ciel)
 
 Seperti biasa, Ciel sepertinya tidak tertarik pada orang lain. Di sisi lain, ini berarti dia hanya tertarik padaku, yang membuatku merasa bahagia.
+
 Ini jelas bukan sesuatu yang harus Aku senangi.
+
 Aku benar-benar ingin Ciel berteman baik.
 
-Karena Chasse-san dan Vivian-san tidak memperhatikan cara bicara Ciel, kurasa mereka melihatnya sebagai cara Ciel berbicara secara pribadi, yang melegakan.
-Iklan
+Karena Chasse-san dan Viviana-san tidak memperhatikan cara bicara Ciel, kurasa mereka melihatnya sebagai cara Ciel berbicara secara biasa atau casual, dan itu melegakan.
 
-Untuk memulai, Guild Master akan menjadi budak sampai dia benar-benar melunasi jumlah yang ditentukan. Setelah itu, dia dapat memutuskan untuk tetap melakukan pekerjaan bawahan atau berhenti.
-Akan berbeda jika kita dapat membangun bukti lebih lanjut tentang apa yang terjadi kemarin, tetapi kita benar-benar tidak punya cukup waktu untuk melakukan itu. Jadi sementara itu, dia akan bekerja sebagai budak sampai Guild Master berikutnya tiba.
-Selain itu, semua asetnya akan disita. Sementara jumlah yang ditentukan akan dipotong dari asetnya, dia pasti tidak akan bisa melunasi dendanya dalam waktu dekat.
+"Guild Master akan menjadi budak sampai dia benar-benar melunasi jumlah yang ditentukan. Setelah itu, dia dapat memutuskan untuk tetap melakukan pekerjaan budaknya sebagai bawahan atau berhenti. Akan berbeda jika kita dapat membangun bukti lebih lanjut tentang apa yang terjadi kemarin, tetapi kita benar-benar tidak punya cukup waktu untuk melakukan itu. Jadi sementara itu, dia akan bekerja sebagai budak sampai Guild Master berikutnya tiba. Selain itu, semua asetnya akan disita. Sementara jumlah yang ditentukan akan dipotong dari asetnya, dia pasti tidak akan bisa melunasi dendanya dalam waktu dekat. Mengenai bangsawan, Guild Hunter telah mengajukan keluhan terhadap bangsawan tersebut, tetapi ini bukan sesuatu yang dapat diselesaikan dengan segera." (Chasse)
 
-Mengenai bangsawan, Persekutuan Hunter telah mengajukan keluhan terhadap bangsawan tersebut, tetapi ini bukan sesuatu yang dapat diselesaikan dengan segera.
+Setelah Chasse-san menjelaskannya dengan nada serius, Viviana-san kemudian melanjutkan pembicaraan.
 
-Setelah Chasse-san menjelaskannya dengan nada serius, Vivian-san kemudian melanjutkan pembicaraan.
+"Adapun Tolt, dia akan dikeluarkan dari Guild Hunter selain asetnya disita. Dia akan dipantau untuk sementara waktu, yang akan dibebaskan dari pantauan ketika dinilai bahwa dia tidak akan melakukan hal bodoh. Jika diamati bahwa dia berencana untuk menyalahgunakan jobnya selama periode ini, kasus buruk, kepalanya akan terbang di tempat. Adapun sepuluh orang yang menyergap kita kemarin, mereka akan diturunkan ranknya." (Viviana)
 
-Adapun Tolt, dia akan dikeluarkan dari Guild Hunter selain asetnya disita.
-Dia akan dipantau sementara itu, yang akan dicabut ketika dinilai bahwa dia tidak akan melakukan hal bodoh. Jika diamati bahwa dia berencana untuk menyalahgunakan Pekerjaannya selama periode ini, paling buruk, kepalanya akan terbang di tempat.
-Adapun sepuluh yang menyergap kita kemarin, mereka akan diturunkan peringkatnya.
+Sejauh ini, banyak orang telah diturunkan rangnya setelah terlibat dengan Ciel, tetapi dengan sepuluh lagi, Aku merasa ini mungkin akan membuat kami mendapatkan julukan, yang entah bagaimana menakutkan.
 
-Sejauh ini, banyak orang telah diturunkan pangkatnya setelah terlibat dengan Ciel, tetapi dengan sepuluh lagi yang ditambahkan ke catatan, Aku merasa ini mungkin akan membuat kami mendapatkan alias, yang entah bagaimana menakutkan.
 Meskipun Ciel, di sisi lain, sepertinya sama sekali tidak tertarik tentang hal itu.
 
-「Dan Aku?」
-「Untuk Kamu, Kamu akan diberikan kantong ajaib terbesar kedua dalam kepemilikan Royal Capital Guild serta keselamatan dalam serikat.」
-「Dalam serikat ...... itu?」
+"Dan Aku?" (ciel)
 
-Karena agak tidak senang, Ciel mengulangi kata-kata Chasse-san .
+"Untukmu, Kamu akan diberikan tas sihir terbesar kedua dalam serta keselamatan dalam guild." (Chasse)
+
+"Dalam guild ...... ya?" (ciel)
+
+Karena agak tidak senang, Ciel mengulangi kata-kata Chasse-san.
+
 Dia kemudian buru-buru melanjutkan pembicaraan.
 
-Tetapi sebagai gantinya, jika Ibukota Kerajaan dipukul dengan injak, Kamu tidak akan dan tidak bisa dipaksa untuk bertarung.
-Keterlibatan bangsawan diakui, tetapi tertulis di koran bahwa ini untuk alasan keamanan.
-Lagipula, tidak mungkin Komandan Knight tidak akan terlibat saat terjadi penyerbuan. Tidak ingin bekerja dengan seseorang yang mencoba mengambil nyawa Kamu dapat dimengerti. Paling buruk, Kamu bahkan mungkin ditugaskan untuk bekerja di bawah komandonya.
-Itu sebabnya itu disetujui, jika Aku harus mengatakannya.
+"Tetapi sebagai gantinya, jika Ibukota Kerajaan diserang penyerbuab, Kamu tidak akan dan tidak bisa dipaksa untuk bertarung. Keterlibatan bangsawan diakui, tetapi ini tertulis bahwa ini untuk alasan keamanan. Lagipula, tidak mungkin Komandan Knight tidak akan terlibat saat terjadi penyerbuan. Tidak ingin bekerja dengan seseorang yang mencoba mengambil nyawamu dapat dimengerti. Paling buruk, Kamu bahkan mungkin ditugaskan untuk bekerja di bawah komandonya. Itu sebabnya itu disetujui." (Chasse)
 
-Aku kira itu tidak bisa dihindari. Lagipula, guild mungkin tidak bisa menjamin keselamatan kita jika kita mendapat masalah di suatu tempat yang tidak bisa mereka pantau.
-Mari kita senang bahwa mereka menyetujui kita tidak perlu bekerja ketika terjadi penyerbuan.』
-Jika Ain mengatakan demikian, maka mau bagaimana lagi.
-Ini kabar baik selama kita mendapatkan tas ajaib.
+[Aku kira itu tidak bisa dihindari. Lagipula, guild mungkin tidak bisa menjamin keselamatan kita jika kita mendapat masalah di suatu tempat yang tidak bisa mereka pantau. Mari kita setuju bahwa mereka menyetujui kita tidak perlu bekerja ketika terjadi penyerbuan.] (ain)
 
-Lalu Chasse. Pergi berbelanja untukku.
+[Jika Ain mengatakannya, yaah mau bagaimana lagi. Ini juga kabar baik selama kita mendapatkan tas sihir.] (ciel)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"Lalu Chasse. Pergilah berbelanja untukku." (ciel)
 
 Segera setelah Ciel mengatakan itu, dia mengeluarkan selembar kertas yang tidak dibutuhkan dan menuliskan hal-hal yang kami butuhkan untuk perjalanan kami, seperti kantong tidur dan sebagainya.
-Setelah menuliskan semuanya, dia mengeluarkan beberapa koin dan menyerahkannya kepada Chasse-san .
 
-「Uhhh ......」
-「Tidak mengejutkan mengingat bahwa kami tidak dapat menjamin keselamatan dirinya. Menyerahlah.」
-「Aku juga dimelototi di toko senjata sebelumnya.
+Setelah menuliskan semuanya, dia mengeluarkan beberapa koin dan menyerahkannya kepada Chasse-san.
 
-Sementara Chasse-san memasang ekspresi bingung di wajahnya, Vivian-san menepuk pundaknya dan Ciel memberi tahu mereka tentang apa yang terjadi beberapa waktu lalu. Bukannya itu tidak ada hubungannya dengan percakapan itu, tapi Ciel jelas menghilangkan terlalu banyak informasi. Aku senang Viviana-san mengerti maksud Ciel.
-Chasse-san menggelengkan kepalanya dengan pasrah, Viviana, bisakah kamu ikut denganku? dan bertanya pada Vivian-san .
+"Uhhh ......" (Chasse)
 
-"Sama sekali tidak. Aku katakan bahwa Aku memiliki bisnis dengan Cielmer, bukan? 」
+"ini Tidak mengejutkan mengingat bahwa kita tidak dapat menjamin keselamatan dirinya. Menyerahlah." (Viviana)
+
+"Aku juga dipelototi di toko senjata sebelumnya." (ciel)
+
+Sementara Chasse-san memasang ekspresi bingung di wajahnya, Viviana-san menepuk pundaknya dan Ciel memberi tahu mereka tentang apa yang terjadi beberapa waktu lalu. Bukannya itu tidak ada hubungannya dengan percakapan itu, tapi Ciel menghilangkan terlalu banyak informasi. Aku senang Viviana-san mengerti maksud Ciel.
+
+Chasse-san menggelengkan kepalanya dengan pasrah, "Viviana, bisakah kamu ikut denganku?" dan bertanya pada Viviana-san.
+
+"Tentu saja tidak. sudah kukatakan Aku memiliki urusan dengan Cielmer, kan?" (Viviana)
 
 Ditolak olehnya, Chasse-san terlihat seperti anak anjing terlantar.
 
-Kalau begitu, bisakah aku membawa tas ajaib yang seharusnya kami berikan padamu sekarang? Karena Aku tetap berbelanja untuk barang-barang Kamu.」
-Aku tidak keberatan.
-Baiklah, Aku akan pergi kalau begitu. Akan menjadi masalah jika kita saling merindukan, jadi tetaplah di sini sampai aku kembali.
+"Kalau begitu, bisakah aku membawa tas sihir yang seharusnya kami berikan padamu sekarang? Karena Aku berbelanja untuk barang-barangmu." (Chasse)
 
-Saat Chasse-san pergi sendiri, Ya, ya, sampai jumpa lagi.」 Viviana-san dengan santai mengirimnya keluar.
-Aku tidak tahu siapa pemimpin di antara mereka, tetapi tidak peka untuk terlalu peduli dengan urusan orang lain.
-Sebaliknya, dalam kasus Fools' Gathering, mereka mungkin benar-benar melihat menjadi pemimpin sebagai orang yang memiliki pekerjaan paling menyebalkan yang ditugaskan kepada mereka.
+"Aku tidak keberatan." (ciel)
 
-Bisnis dengan Aku?」
-Aku sudah selesai menulis surat pengantar. Juga, terima kasih untuk kemarin, kurasa.
-Akan lebih baik untuk menyimpan surat itu di dalam tas ajaib. Itu memiliki segel lilin, jadi itu akan kehilangan validitasnya jika dibuka secara tidak sengaja.
-Dimengerti.
+"Baiklah, Aku akan pergi kalau begitu. Akan menjadi masalah jika kita tidak bisa bertemu, jadi tetaplah di sini sampai aku kembali." (Chasse)
 
-Iklan
-Ciel menerima surat pengantar dan memasukkannya ke dalam tas ajaib yang kami gunakan sebagai dompet.
-Mempertimbangkan bagaimana pedang itu juga ada di dalam, itu harus mendekati kapasitas maksimumnya, tetapi surat itu masuk tanpa masalah.
+Saat Chasse-san pergi sendiri, "Ya, ya, sampai jumpa. " Viviana-san dengan santai mengatakannya.
 
-Sekali lagi, terima kasih untuk kemarin. Ketika Aku mencoba menggunakan sihir, hasilnya benar-benar di luar imajinasi Aku.
-Ini memang mengubah cara Aku harus menanganinya, tetapi Aku harus bisa mengelolanya entah bagaimana. Begitu
-. Itu bagus.」
-Sungguh, Kamu memiliki rasa terima kasih Aku. Maafkan Aku karena tidak dapat membayar Kamu kembali secara memadai.
+Aku tidak tahu siapa pemimpin di antara mereka, tetapi tidak baik untuk terlalu peduli dengan urusan orang lain.
+
+Sebaliknya, dalam kasus Fools Gathering, mereka mungkin benar-benar melihat menjadi pemimpin adalah orang yang memiliki pekerjaan paling menyebalkan yang ditugaskan kepada mereka.
+
+"urusan denganku?" (ciel)
+
+"Aku sudah selesai menulis surat pengantar. terima kasih juga untuk kemarin. Akan lebih baik untuk menyimpan surat di dalam tas sihir. surat ini memiliki segel lilin, jadi surat ini akan kehilangan validitasnya jika dibuka secara tidak sengaja." (Viviana)
+
+"Baiklah." (ciel)
+
+Ciel menerima surat pengantar dan memasukkannya ke dalam tas sihir yang kami gunakan sebagai dompet.
+
+Mempertimbangkan bagaimana pedang juga ada di dalam, itu harusnya mendekati kapasitas maksimumnya, tetapi surat itu masuk tanpa masalah.
+
+"Sekali lagi, terima kasih untuk kemarin. Ketika Aku mencoba menggunakan sihir, hasilnya benar-benar di luar imajinasiku. Ini memang mengubah caraku harus menanganinya, tetapi Aku harus bisa mengelolanya entah bagaimana." (Viviana)
+
+"Begitu. Itu bagus." (ciel)
+
+"Kamu benar-benar memiliki rasa terima kasihku. Maafkan Aku karena tidak dapat membayarmu kembali secara memadai." (Viviana)
 
 Viviana-san menundukkan kepalanya tetapi seolah mengatakan dia tidak keberatan, Ciel menggelengkan kepalanya sebagai jawaban.
-Setelah itu, Ciel dan Vivian-san mengobrol sambil menunggu Chasse-san kembali.
+
+Setelah itu, Ciel dan Viviana-san mengobrol sambil menunggu Chasse-san kembali.
 
 ◇
 
 Saat Chasse-san kembali, Viviana-san memeriksa apakah dia membeli semuanya dan kami memastikan bahwa tas ajaib itu asli. Pada saat kami tiba di gerbang yang mengarah ke utara, matahari sudah mulai terbenam.
 Dari waktu ke waktu, seharusnya sekitar jam 3 sore. Masih ada waktu sebelum hari berakhir, tapi sudah agak terlambat untuk memulai sesuatu yang baru.
 
-Karena alasan itu, Vivian-san dan Chasse -san yang datang untuk mengantar kami pergi bertanya kepada Ciel apakah dia bisa mempertimbangkan untuk pergi besok pagi saja.
+Karena alasan itu, Viviana-san dan Chasse -san yang datang untuk mengantar kami pergi bertanya kepada Ciel apakah dia bisa mempertimbangkan untuk pergi besok pagi saja.
 Sebagai balasan, Ciel hanya menjawab Tidak apa-apa」 tetapi mereka tidak mengajukan pertanyaan lagi setelah itu.
 
 Aku akan pergi kalau begitu.
 Ya, sampai jumpa lagi.
 Sampai jumpa lagi kapan-kapan.
 
-Mendengar perpisahan singkat Ciel, Chasse-san dan Vivian-san mengucapkan selamat tinggal.
+Mendengar perpisahan singkat Ciel, Chasse-san dan Viviana-san mengucapkan selamat tinggal.
 Dalam situasi seperti ini, itu membuat Aku membayangkan beberapa adegan perpisahan yang menyentuh; tetapi di dunia Hunter, di mana orang-orang yang Kamu kenal mungkin sudah mati besok, mengucapkan salam perpisahan bukanlah hal yang luar biasa.
 
 Tanpa berbalik, Ciel melanjutkan perjalanan ke tanah baru.
