@@ -70,66 +70,76 @@ Tidak menyadari bahwa di luar sudah gelap, meskipun dia harus menyadarinya sekar
 
 [Apa yang terjadi padanya?] Ain bertanya padaku, jadi aku dengan menggoda menyuruhnya untuk melihat ke luar.
 
-Mungkin menyadari apa yang telah terjadi, Ain langsung terheran-heran. Tetap saja, menurutku, tidak apa-apa untuk memiliki beberapa hari seperti ini sesekali.
+Mungkin menyadari apa yang telah terjadi, Ain langsung terheran-heran. Tetap saja, menurutku, tidak apa-apa kalau sesekali seperti ini.
 
-Saat Viviana dan Ain menyesuaikan postur tempat duduk mereka dan mulai berbicara sekali lagi, Aku merasa bahwa mereka mungkin akan mengakhiri segalanya untuk hari ini tetapi kemudian apakah Kamu lebih suka mandi di sini?」 Ain tiba-tiba menanyakan pertanyaan ini.
+Saat Viviana dan Ain menyesuaikan postur tempat duduk mereka dan mulai berbicara sekali lagi, Aku merasa bahwa mereka mungkin akan mengakhiri segalanya untuk hari ini tetapi kemudian "apakah Kamu lebih suka mandi di sini?" Ain tiba-tiba menanyakan pertanyaan ini.
+
 Kata-kata ini adalah hasil dari kebaikan Ain. Melihat Ain dengan sungguh-sungguh memanaskan bak mandi; Aku berpikir, Ain sangat rajin .
 
 Tapi, saat Ain selesai menyiapkan bak mandi dan hendak menunggu di kamar, Viviana meraih Ain.
 
 ◇
-Iklan
 
 Sekarang Aku memikirkannya, apakah Aku pernah mengalami pelukan orang lain?
-Paling tidak, Aku tahu bahwa Aku belum pernah mengalami pelukan telanjang.
-Aku telah menyentuh tangan Aku sendiri sebelumnya dan Aku juga meraba-raba dada Aku sendiri saat itu ketika Aku ingin merepotkan Ain.
-Karena itu, Aku tahu bahwa orang-orang itu lembut. Tapi, Aku tidak pernah tahu bahwa orang bisa selembut ini saat disentuh.
+
+Paling tidak, Aku tahu bahwa Aku belum pernah mengalami pelukan.
+
+Aku telah menyentuh tanganku sendiri sebelumnya dan Aku juga meraba-raba dadaku sendiri ketika Aku ingin mengganggu Ain.
+
+Karena itu, Aku tahu bahwa manusia itu lembut. Tapi, Aku tidak pernah tahu bahwa manusia bisa selembut ini saat disentuh.
 
 Aku tidak pernah tahu bahwa mereka bisa sehangat ini.
 
-Aku tidak pernah tahu bahwa mereka bisa merasa begitu menghibur.
+Aku tidak pernah tahu bahwa mereka bisa merasa begitu enak.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Meski begitu, Aku tidak bisa merasa santai. Bagaimanapun Juga, Ain tidak lengah.
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Tapi, Aku benar-benar ingin Ain menjadi yang pertama mengajariku tentang hal-hal ini. Meski aku tahu itu tidak mungkin.
 
-Meski begitu, Aku tidak bisa merasa santai. Bagaimanapun Juga juga, Ain tidak lengah.
-
-Tapi, Aku benar-benar ingin Ain menjadi yang pertama mengajari Aku tentang hal-hal ini. Meski aku tahu itu tidak mungkin.
 Dan meski mustahil bagiku, Viviana bisa menyentuh Ain. Memikirkannya, aku merasa agak suram.
 
-Aku yakin jika Aku adalah orang di luar sekarang, Aku pasti merajuk.
+Aku yakin jika Aku ada dengan tubuhku sekarang, Aku pasti cemberut.
+
 Saat itu terlintas dalam pikiranku, Viviana dengan tidak masuk akal bertanya pada Ain apa yang mendorongnya.
 
-Itu karena Ciel ada di sini bersamaku.
+[Itu karena Ciel ada di sini bersamaku.] (ain)
 
 Ain segera menjawab tanpa ragu-ragu.
+
 Itu ... itu benar-benar tidak adil.
+
 Meskipun aku sangat murung, mendengarnya saja menjernihkan pikiranku. Aku tidak bisa memahaminya.
+
 Pada saat Aku menyadarinya, Aku sudah mengeluarkan beberapa suara yang tak terlukiskan.
 
-Setelah tenang setelah beberapa saat, Aku mendengarkan percakapan mereka dan tampaknya Viviana menyeret Ain ke kamar mandi karena khawatir.
+Setelah tenang beberapa saat, Aku mendengarkan percakapan mereka dan tampaknya Viviana menyeret Ain ke kamar mandi karena khawatir.
+
 Aku tidak benar-benar tahu bagaimana menghibur orang, jadi Aku tahu bahwa hal-hal ini membebani hati Ain yang lembut.
-Sementara aku senang Viviana mencoba menghiburnya, entah bagaimana aku merasa senang mengetahui bahwa Viviana tidak cukup baik untuk membantu Ain.
+
+Sementara aku senang Viviana mencoba menghiburnya, entah bagaimana aku merasa senang mengetahui bahwa Viviana tidak cukup untuk membantu Ain.
 
 Aku benar-benar gadis yang buruk.
 
-Meskipun seharusnya yang terbaik bagi Ain untuk mendapatkan penghiburan, aku akhirnya berpikir bahwa akulah yang harus memberinya kenyamanan itu.
+Meskipun seharusnya yang terbaik bagi Ain untuk mendapatkan hiburan, aku akhirnya berpikir bahwa akulah yang harus memberinya kenyamanan itu.
+
 Bahkan sekarang, aku hanya bisa merasa cemburu pada Viviana.
-Iklan
 
 Mungkin karena itu, aku tidak bisa menahan diri untuk tidak berbicara, tetapi karena aku tidak ingin benar-benar mengganggu Ain, aku dengan panik menutup mulutku sampai Viviana pulang.
-Mungkin ini sebabnya ketika Aku yakin bahwa kami akhirnya sendirian, Tidak adil! Tidak adil!』 kata-kata ini keluar dari bibirku.
 
-Aku benar-benar melakukan yang terbaik untuk tetap diam, Tapi untuk beberapa alasan, Ain menertawakan Aku. Jadi, Aku berkata Sangat kejam, Aku bahkan menahan diri sepanjang waktu! dengan nada cemberut.
+Mungkin ini sebabnya ketika Aku yakin bahwa kami akhirnya sendirian, [Tidak adil! Tidak adil!] kata-kata ini keluar dari bibirku.
 
-"Aku minta maaf atas hal tersebut. Apa yang tidak adil?』
-Bahwa kalian berdua berada di kamar mandi. Begitu
-, seharusnya aku beralih saat itu. Maaf, Aku tidak cukup perhatian, bukan?
+Aku benar-benar melakukan yang terbaik untuk tetap diam, Tapi untuk beberapa alasan, Ain menertawakanku. Jadi, Aku berkata [Sangat kejam, Aku bahkan menahan diri sepanjang waktu!] dengan nada cemberut.
+
+[Aku minta maaf tentang itu. Apa yang tidak adil?] (ain)
+
+[kalian berdua berada di kamar mandi.] (ciel)
+
+[Begitu, seharusnya aku berganti saat itu. Maaf, Aku tidak cukup perhatian, bukan?] (ain)
 
 Ain meminta maaf, tapi bukan itu yang ingin kukatakan.
 
-"Itu bukanlah apa yang Aku maksud. Bukan berarti. 』
+[Itu bukanlah apa yang Aku maksud. Bukan berarti.]
+
 『Umm , apa maksudmu?』
 『 Ini tidak adil bahwa Viviana mengambil mandi bersama-sama dengan Ain!
 Aku juga ingin mandi dengan Ain!』
