@@ -211,4 +211,14 @@ Mendengar perpisahan singkat Ciel, Chasse-san dan Viviana-san mengucapkan selama
 
 Dalam situasi seperti ini, itu membuatku membayangkan beberapa adegan perpisahan yang menyentuh; tetapi di dunia Hunter, di mana orang-orang yang Kamu kenal mungkin sudah mati besok, mengucapkan salam perpisahan bukanlah hal yang luar biasa.
 
-Tanpa berbalik, Ciel melanjutkan perjalanan ke tempat baru.
+Tanpa berbalik, Ciel melanjutkan perjalanan ke tempat yang baru.
+
+-------------------------------
+
+aawwwww ain khawatir dengan status mereka sebagai song princess, tapi dedek ciel lebih khawatir lagi kepada ain... so sweet.. dan dedek ciel pengertian dia paham kalau ain lebih senang menyanyi dan ingin melindungi kesenangan ain juga.. awwww.. GUULAAAAA..
+
+bahahhaa chase san jadi babu ciel... disuruh belanja.. tapi ya situasinya memang harusnya begitu, kalau tidak bagaimana ciel bisa berbelanja dengan tenang.. untung saja mereka mengerti maksudnya...
+
+disini saya sangat senang dengan sikap viviana.. walaupun dia penggila sihir seperti carol, tapi viviana sangat sopan dan sangat berterima kasih kepada ainciel kita... saya sendiri sebetulnya senang dengan kehadiran fools gathering dikota ini.. awalnya saya kira kalau yang akan baik kepada ainciel yaitu faneed, ternyata fools gathering yg benar-benar baik dengan mereka.. dan kali ini ainciel kita tidak direpotkan oleh seorang  hunter merepotkan lagi seperti brass di sannosis sebelumnya... jadi agak sedikit lega, walau kasus guild master dan tolt, untunglah itu tidak berjalan lama dan cepat selesai.. dan sekarang, saya harap mereka akan bertemu dengan lautan segera... dan saya harap pengganti ketua guild yang baru adalah orang yg benar-benar kompeten sebagai ketua guild...
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
