@@ -193,17 +193,22 @@ Setelah itu, Ciel dan Viviana-san mengobrol sambil menunggu Chasse-san kembali.
 
 ◇
 
-Saat Chasse-san kembali, Viviana-san memeriksa apakah dia membeli semuanya dan kami memastikan bahwa tas ajaib itu asli. Pada saat kami tiba di gerbang yang mengarah ke utara, matahari sudah mulai terbenam.
-Dari waktu ke waktu, seharusnya sekitar jam 3 sore. Masih ada waktu sebelum hari berakhir, tapi sudah agak terlambat untuk memulai sesuatu yang baru.
+Saat Chasse-san kembali, Viviana-san memeriksa apakah dia membeli semuanya dan kami memastikan bahwa tas sihir itu asli. Pada saat kami tiba di gerbang yang mengarah ke utara, matahari sudah mulai terbenam.
 
-Karena alasan itu, Viviana-san dan Chasse -san yang datang untuk mengantar kami pergi bertanya kepada Ciel apakah dia bisa mempertimbangkan untuk pergi besok pagi saja.
-Sebagai balasan, Ciel hanya menjawab Tidak apa-apa」 tetapi mereka tidak mengajukan pertanyaan lagi setelah itu.
+seharusnya sekarang sekitar jam 3 sore. Masih ada waktu sebelum hari berakhir, tapi sudah agak terlambat untuk memulai sesuatu yang baru.
 
-Aku akan pergi kalau begitu.
-Ya, sampai jumpa lagi.
-Sampai jumpa lagi kapan-kapan.
+Karena alasan itu, Viviana-san dan Chasse-san yang datang untuk mengantar kami bertanya kepada Ciel apakah dia bisa mempertimbangkan untuk pergi besok pagi saja.
+
+Sebagai balasan, Ciel hanya menjawab "Tidak apa-apa" tetapi mereka tidak mengajukan pertanyaan lagi setelah itu.
+
+"kalau begitu Aku akan pergi." (ciel)
+
+"Ya, sampai jumpa lagi." (Chasse)
+
+"Sampai jumpa lagi kapan-kapan." (Viviana)
 
 Mendengar perpisahan singkat Ciel, Chasse-san dan Viviana-san mengucapkan selamat tinggal.
-Dalam situasi seperti ini, itu membuat Aku membayangkan beberapa adegan perpisahan yang menyentuh; tetapi di dunia Hunter, di mana orang-orang yang Kamu kenal mungkin sudah mati besok, mengucapkan salam perpisahan bukanlah hal yang luar biasa.
 
-Tanpa berbalik, Ciel melanjutkan perjalanan ke tanah baru.
+Dalam situasi seperti ini, itu membuatku membayangkan beberapa adegan perpisahan yang menyentuh; tetapi di dunia Hunter, di mana orang-orang yang Kamu kenal mungkin sudah mati besok, mengucapkan salam perpisahan bukanlah hal yang luar biasa.
+
+Tanpa berbalik, Ciel melanjutkan perjalanan ke tempat baru.
