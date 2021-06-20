@@ -14,11 +14,11 @@ Lagi pula, sementara Ciel tidak terlalu memikirkan insiden ini, setiap kali kami
 
 Ketika kami tiba di depan meja resepsionis, wanita resepsionis itu tersenyum bermasalah.
 
-"Apakah masalah dengan dia, dengan Gancia-kun , tidak apa-apa?"
+"Apakah masalah dengan dia, dengan Gancia-kun , tidak apa-apa?" (resepsionis)
 
 "Tidak apa-apa. Lagipula aku tidak peduli tentang itu." (ciel)
 
-"Tetap saja, dia seorang Hunter yang sudah meraih rank-D pada usia 15 tahun, itu sangat menjanjikan bahkan untuk standar Norvelle. Meskipun baru belakangan ini dia naik ke Rank-D dan dia pasti terbawa suasana karena itu, keahliannya tidak dapat disangkal."
+"Tetap saja, dia seorang Hunter yang sudah meraih rank-D pada usia 15 tahun, itu sangat menjanjikan bahkan untuk standar Norvelle. Meskipun baru belakangan ini dia naik ke Rank-D dan dia pasti terbawa suasana karena itu, keahliannya tidak dapat disangkal." (resepsionis)
 
 "begitu ya. yang penting, proses permintaan ini." (ciel)
 
@@ -26,7 +26,7 @@ Ketika kami tiba di depan meja resepsionis, wanita resepsionis itu tersenyum ber
 
 "Sungguh Mengganggu. Silakan proses permintaan ini." (ciel)
 
-"Ah , tung-..."
+"Ah , tung-..." (resepsionis)
 
 Karena bocah Gancia itu mendekati kami, aku memberi tahu Ciel tentang hal itu; dan setelah menyodorkan kartunya dan permintaan ke resepsionis, dia menghela nafas panjang sebelum berbalik.
 
@@ -124,30 +124,40 @@ Seperti yang kupikirkan, itu adalah ketua guild.
 
 Bagaimanapun Juga, anak laki-laki ini adalah orang yang menjanjikan bagi kota ini; apalagi, pria itu mungkin tahu tentang Ciel juga.
 
-Singkatnya, bocah yang dihancurkan di sini bukanlah sesuatu yang bisa diterima pria itu.
+Singkatnya, bocah yang sedang dihancurkan di sini bukanlah sesuatu yang bisa diterima pria itu.
 
-Nona Cielmer, maafkan ketidaksopanan Gancia kami.」
-Jadi, Kamu telah melakukan penelitian pada Aku? Yah, Aku bisa mengerti mengapa.」
-Aku senang mendengarnya. Aku memiliki pemahaman tentang urutan kejadian dan masalah ini sepenuhnya salah Gancia.」
-Apa yang kamu bicarakan, guildmaster!」
+"Nona Cielmer, maafkan ketidaksopanan Gancia kami." (Ketua Guild)
 
-Kedengarannya seperti ketua serikat memiliki titik lemah untuk anak itu.
-Lagipula, anak laki-laki itu sedang naik daun di sebuah organisasi, jadi hal yang mirip dengan ini kemungkinan besar terjadi secara teratur.
-Mungkin tidak salah membayangkan bahwa dia dimanjakan oleh guildmaster ini. Tetap saja, setidaknya saat ini, tidak ada tanda-tanda kelembutan yang datang dari guildmaster sama sekali saat guildmaster menanggapi bocah itu dengan nada memarahi.
+"Jadi, Kamu telah mengetahuiku? Yah, Aku bisa mengerti mengapa." (ciel)
 
-Jadi menurutmu tiba-tiba mengatakan 'Jadilah wanitaku' adalah hal yang normal untuk dilakukan?」
-Itu-...... Aku baru saja mabuk tadi......」
-Aku mengerti perasaan ingin bersenang-senang di pub sekarang karena kamu' secara hukum diperbolehkan untuk minum.
-Lagipula, aku pernah ke sana sebelumnya.」
-「Lalu-!」
-Tapi, itu tidak berarti mengatakan bahwa mabuk memaafkan semua yang kamu lakukan.
-Sekarang, jika yang Kamu ajak berkelahi adalah Hunter Rank tinggi yang berbeda, maka Kamu mungkin sudah terluka parah pada saat ini. Sudahkah Kamu mempertimbangkan itu?
+"Aku senang mendengarnya. Aku sepertinya paham tentang urutan kejadian dan masalah ini sepenuhnya salah Gancia." (Ketua Guild)
+
+"Apa yang kamu bicarakan, Ketua Guild!" (Gancia)
+
+Kedengarannya seperti ketua Guild lemah kepada anak itu.
+
+Lagipula, anak laki-laki itu sedang naik daun di sebuah organisasi, jadi hal yang mirip dengan ini kemungkinan besar terjadi.
+
+Mungkin tidak salah membayangkan bahwa dia dimanjakan oleh Ketua Guild ini. Tetap saja, setidaknya saat ini, tidak ada tanda-tanda kelembutan yang datang dari Ketua Guild sama sekali saat Guild Master menanggapi bocah itu dengan nada memarahi.
+
+"Jadi menurutmu tiba-tiba mengatakan 'Jadilah wanitaku' adalah hal yang normal?" (Ketua Guild)
+
+"Itu-...... Aku baru saja mabuk tadi......" (Gancia)
+
+"Aku mengerti perasaan ingin bersenang-senang di pub sekarang karena kamu secara hukum diperbolehkan untuk minum. Lagipula, aku pernah ke sana sebelumnya." (Ketua Guild)
+
+"Kalau Begitu-!" (Gancia)
+
+"Tapi, itu tidak berarti mengatakan bahwa mabuk memaafkan semua yang kamu lakukan. Sekarang, jika yang Kamu ajak berkelahi adalah Hunter Rank tinggi yang berbeda, maka Kamu mungkin sudah terluka parah pada saat ini. Sudahkah Kamu mempertimbangkan itu?" (Ketua Guild)
 
 Saat keduanya memulai percakapan sendiri, Ciel sekarang mulai bosan.
-Dia praktis memancarkan. Bisakah kita pulang sekarang? aura dan bahkan menguap ringan.
-Akan lebih baik jika guildmaster tidak datang. Dia bergumam, dan aku sangat setuju dengan itu.
 
-Tapi ...... Dia hanya E-rank terbaik, bukan? Jika dia memiliki Rank tinggi, maka itu salahnya karena terlihat begitu menyesatkan.
+ciel memancarkan aura 'Bisakah kami pulang sekarang?' dan bahkan menguap.
+
+"Akan lebih baik jika Ketua Guild tidak datang." gumamnya, dan aku sangat setuju dengan itu.
+
+"Tapi ...... Dia hanya rank-E, kan? Jika dia memiliki Rank tinggi, maka itu salahnya karena terlihat tidak seperti itu."
+
 Kamu berbicara seperti ini tidak akan menjadi masalah jika dia adalah Hunter berpangkat rendah. Aku tidak ingat pernah mengizinkan perpeloncoan pendatang baru ...... Sebaliknya, jika individu berpangkat tinggi diizinkan untuk melakukan apa yang mereka inginkan, maka Kamu tidak berhak mengeluh tentang penampilan Nona Cielmer.
 Jika, kebetulan, dia bahkan bukan seorang Hunter, maka ini akan membuat hubungan kami dengan penduduk kota menjadi buruk. Bisakah Kamu bertanggung jawab untuk itu?
 
@@ -167,7 +177,7 @@ Juga, apakah dia akan memaafkannya atau tidak? Jawabannya cukup kabur tentang it
 Saat itu terlintas di pikiranku, Ciel berbicara dengan guildmaster.
 
 "Jadi bagaimana sekarang? Aku tidak berencana untuk memaafkannya, asal tahu saja.
-Bagaimanapun Juga, ini adalah perselisihan antara Hunter. Sebagai aturan umum, serikat tidak akan campur tangan.
+Bagaimanapun Juga, ini adalah perselisihan antara Hunter. Sebagai aturan umum, Guild tidak akan campur tangan.
 Tapi, terlepas dari bagaimana dia, dia masih Hunter yang menjanjikan. Kehilangan dia akan sia-sia. Untuk alasan itu, Aku tidak akan menghentikan pertempuran formal Kamu, tetapi Aku ingin meminta perubahan kondisi.」
 Dengan kata lain, Kamu berpihak padanya? Aku pikir Kamu sudah meneliti tentang Aku?
 
