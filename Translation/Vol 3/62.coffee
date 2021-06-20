@@ -91,33 +91,40 @@ Aku akan mengikuti keputusannya.
 [Karena ini adalah kesempatan yang sempurna, Aku ingin mencoba melawan musuh manusia menggunakan pedang. Lagipula, Hunter Rank-D hampir sekuat serigala. ini harusnya sempurna dari segi level.] (ciel)
 
 Aku bisa mengerti apa yang dipikirkan Ciel. Sementara Ciel telah menggunakan pedang melawan banyak serigala dalam perjalanan kami ke Norvelle, sampai-sampai kami sangat muak dengan mereka, dia belum pernah menggunakan pedang melawan seseorang.
-Pertarungan melawan makhluk cerdas mungkin akan terasa sangat berbeda dari pertarungan melawan makhluk buas yang membabi buta, dan kami membeli pedang dengan pertarungan jarak dekat yang tak terduga untuk memulai.
 
-Tetap saja, jika Ciel bertarung dengan pedang, maka dia secara alami akan bertarung dengan gaya Putri Tari.
-Dengan kata lain, akan ada risiko ketahuan sebagai Putri Dansa.
+Pertarungan melawan makhluk cerdas mungkin akan terasa sangat berbeda dari pertarungan melawan makhluk buas yang membabi buta, dan pada dasarnya kami membeli pedang untuk pertarungan jarak dekat yang tak terduga.
 
-"Bisakah Aku?"
+Tetap saja, jika Ciel bertarung dengan pedang, maka dia secara alami akan bertarung dengan gaya dance princess.
+
+Dengan kata lain, akan ada risiko ketahuan sebagai dance princess.
+
+[boleh?] (ciel)
 
 Mungkin karena perenunganku yang panjang, Ciel dengan cemas bertanya padaku.
 
-Aku berpikir bahwa itu mungkin mengekspos Pekerjaan Kamu sebagai Putri Dansa, tetapi kemungkinan ada kemungkinan yang jauh lebih tinggi dari mereka salah mengira Kamu sebagai Penari Pedang.
-Jadi, seharusnya tidak apa-apa. Begitu,
-ada kemungkinan risiko itu. Haruskah aku mengambilnya kembali?』
-Sebenarnya, karena kita punya pedang untuk bertarung melawan orang, akan lebih baik untuk mendapatkan pengalaman dengan itu.
-Oh , sepertinya seseorang datang saat kami sedang sibuk berbicara.
+[Aku berpikir bahwa itu mungkin mengekspos jobmu sebagai dance princess, tetapi ada kemungkinan yang jauh lebih tinggi dari mereka salah mengira Kamu sebagai sword dancer. Jadi, seharusnya tidak apa-apa.] (ain)
 
-Aku melihat seseorang mendekati kami dari bagian dalam, dengan kata lain area staf, Guild Hunter; jadi Aku berhenti bicara.
-Ciel tampaknya entah bagaimana memahami niatku, saat dia mengalihkan perhatiannya ke arah mereka.
+[begitu, jadi ada kemungkinan risiko itu. Haruskah aku menarik kembali ucapanku?] (ciel)
+
+[Sebenarnya, karena kita punya pedang untuk bertarung melawan orang, akan lebih baik untuk mendapatkan pengalaman menggunakannya. Oh, sepertinya seseorang datang saat kita sedang sibuk berbicara.] (ain)
+
+Aku menyadari seseorang mendekati kami dari bagian dalam, dengan kata lain area staf, Guild Hunter; jadi Aku berhenti bicara.
+
+Ciel tampaknya entah bagaimana memahami niatku, dan dia mengalihkan perhatiannya ke arah itu.
+
 Orang yang datang adalah pria paruh baya yang berotot. Dia tidak memiliki rambut dan entah bagaimana tampak seperti orang yang telah melalui banyak hal dalam hidup.
+
 Meskipun dia memiliki tampilan yang keras, dia mungkin tipe yang sebenarnya sangat perhatian kepada orang lain.
 
-Tunggu, tunggu sebentar. Pria itu berkata dengan tergesa-gesa.
-Bocah itu terkejut dengan pintu masuk pria itu dan Guildmaster! mengangkat suaranya.
+"Tunggu, tunggu sebentar." Pria itu berkata dengan tergesa-gesa.
 
-Seperti yang kupikirkan, itu adalah kepala manajemen guild.
+Bocah itu terkejut dengan kemunculan pria itu dan "Ketua Guild!", bocah itu mengangkat suaranya.
+
+Seperti yang kupikirkan, itu adalah ketua guild.
+
 Bagaimanapun Juga, anak laki-laki ini adalah orang yang menjanjikan bagi kota ini; apalagi, pria itu mungkin tahu tentang Ciel juga.
+
 Singkatnya, bocah yang dihancurkan di sini bukanlah sesuatu yang bisa diterima pria itu.
-Iklan
 
 Nona Cielmer, maafkan ketidaksopanan Gancia kami.」
 Jadi, Kamu telah melakukan penelitian pada Aku? Yah, Aku bisa mengerti mengapa.」
