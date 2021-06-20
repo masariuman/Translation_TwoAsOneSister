@@ -1,10 +1,12 @@
 CHAPTER 63: FORMAL BATTLE, MAGIC CIRCLE, AND MAGIC ITEMS
 
-Tatapan berkumpul pada bocah yang mengeluh itu tetapi sepertinya dia tidak memperhatikan saat dia melanjutkan untuk menegaskan dirinya sendiri.
+Tatapan berkumpul pada anak laki-laki yang mengeluh itu tetapi sepertinya dia tidak memperhatikannya karena dia melanjutkan untuk menegaskan dirinya sendiri.
 
-Bagaimana dengan pendapat Aku? Seperti siapa pun akan menerima diturunkan pangkatnya karena kalah.
-Jika aku kalah, aku akan menjadi wanitamu. Dan jika Kamu kalah?
-............」
+"Bagaimana dengan pendapatku? siapa pun tidak akan menerima diturunkan ranknya karena kalah." (Gancia)
+
+"Jika aku kalah, aku akan menjadi wanitamu. Dan jika Kamu kalah?" (Ciel)
+
+"............" (Gancia)
 
 Mendengar kata-kata Ciel, bocah itu terdiam. Aku kira dia menyadari bahwa dia harus memperhatikan kata-katanya, tetapi fakta bahwa dia diam adalah hal yang negatif menurut Aku.
 Jika dia tidak memiliki cukup nyali untuk setidaknya mengatakan bahwa dia akan menjadi budak, maka tidak mungkin dia akan mendapatkan rasa hormat dari Hunter lain di masa depan.
