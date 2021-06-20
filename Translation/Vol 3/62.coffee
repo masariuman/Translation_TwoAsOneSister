@@ -222,3 +222,10 @@ Mungkin tidak mengerti apa yang terjadi, "Tunggu sebentar!" anak itu terus membu
 
 ---------------------------
 
+Pertama-tama, BAHAHAHAHAHAHAHAHHA RASAIN DIKACANGIN !!!! dan DIHINDARI... Maluunyaaa tuuu berasa bangeeett... BAHAHAHA..
+
+dan kenapa ainciel selalu dipanggil udang ?? memang pendek tapi ga gitu juga laa.. kesal saya... saya setuju dengan ain untuk menghantamnya saja daripada memaafkannya.. KESAL SEKALIII !!! jangan kasi kendor CIEL !!!
+
+Ketua Guildnya lumayan cepat geraknya tapi masih kalah gerak dari kasus yang telah terjadi... dan benar kalau dibiarkan saja tetap nantinya ainciel akan dipandang rendah... ada untungnya juga jadi ciel bisa memiliki jalan pintas ke rank B sekarang... baguslah...
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
