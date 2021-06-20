@@ -8,23 +8,28 @@ Jari anak laki-laki itu tetap menunjuk ke tempat yang sekarang kosong, dan wajah
 
 Cara seluruh tubuhnya bergetar mengingatkan kami pada getaran menggemaskan anak anjing, tetapi orang-orang di sekitar kami sepertinya tidak melihatnya seperti itu. Tatapan yang diarahkan padanya hanya mengekspresikan ejekan atau rasa kasihan.
 
-Sementara Aku melihat ini sebagai pembalasan alami, setiap kali insiden semacam ini terjadi, Aku tidak bisa tidak bertanya pada diri sendiri apakah pergi ke Central sebagai Hunter benar-benar keputusan yang tepat untuk dibuat.
+Sementara Aku melihat ini sebagai pembalasan alami, setiap kali insiden semacam ini terjadi, Aku tidak bisa tidak bertanya apakah pergi ke Central sebagai Hunter benar-benar keputusan yang tepat untuk dibuat.
+
 Lagi pula, sementara Ciel tidak terlalu memikirkan insiden ini, setiap kali kami menghadapi hal seperti ini, aku terus berjuang untuk menahan amarahku.
 
 Ketika kami tiba di depan meja resepsionis, wanita resepsionis itu tersenyum bermasalah.
 
-Apakah masalahnya dengan dia, dengan Gancia- kun , oke?
-Tidak apa-apa.
-Lagipula aku tidak peduli tentang itu.」Tetap saja, dia seorang Hunter yang sudah D-rank pada usia 15 tahun, menjanjikan bahkan untuk standar Norvelle.
-Meskipun baru belakangan ini dia naik ke Rank-D dan dia pasti terbawa suasana karena itu, keahliannya tidak dapat disangkal.」
-Begitukah. Lebih penting lagi, proses permintaan ini.」
+"Apakah masalah dengan dia, dengan Gancia-kun , tidak apa-apa?"
 
-Dia mendekat lagi.
+"Tidak apa-apa. Lagipula aku tidak peduli tentang itu." (ciel)
 
-Apa yang mengganggu. Silakan memproses ini. 」
-「Ah , tung- ...」
+"Tetap saja, dia seorang Hunter yang sudah meraih rank-D pada usia 15 tahun, itu sangat menjanjikan bahkan untuk standar Norvelle. Meskipun baru belakangan ini dia naik ke Rank-D dan dia pasti terbawa suasana karena itu, keahliannya tidak dapat disangkal."
 
-Karena bocah itu—Gancia—mendekati kami, aku memberi tahu Ciel tentang hal itu; dan setelah menyodorkan kartu namanya dan permintaan ke resepsionis, dia menghela nafas panjang sebelum berbalik.
+"begitu ya. yang penting, proses permintaan ini." (ciel)
+
+[Dia mendekat lagi.] (ain)
+
+"Sungguh Mengganggu. Silakan proses permintaan ini." (ciel)
+
+"Ah , tung-..."
+
+Karena bocah Gancia itu mendekati kami, aku memberi tahu Ciel tentang hal itu; dan setelah menyodorkan kartunya dan permintaan ke resepsionis, dia menghela nafas panjang sebelum berbalik.
+
 Aku merasa tidak enak dengan resepsionis yang bingung tetapi karena kami baik-baik saja dari segi Rank, dia seharusnya dapat memproses permintaan tanpa masalah. Selama dia tidak berpikir bahwa kartu yang diberikan Ciel adalah palsu.
 
 Saat Ciel menghadapi anak laki-laki yang akan kita gunakan—harus kita gunakan—untuk menghilangkan keraguan seputar kartu Ciel, anak laki-laki itu terlihat sangat terkejut, mungkin karena Ciel berbalik sebelum dia mengatakan apa-apa.
@@ -140,7 +145,7 @@ Katakan, Ain?』
 Apa itu?』
 Dalam situasi seperti ini, apakah lebih baik memaafkannya saja?』
 Bagiku, sejak dia pergi Jadilah wanitaku」 dan semuanya, aku sudah tidak niat untuk memaafkannya; tetapi jika Kamu lebih memilih untuk memaafkannya, maka Aku pikir tidak apa-apa juga.
-Tetap saja, para Hunter yang mengawasi kita sekarang mungkin akan meremehkan kita jika kita memaafkannya tanpa syarat, jadi kurasa akan lebih baik untuk setidaknya meminta ganti rugi dari Gancia- san .』
+Tetap saja, para Hunter yang mengawasi kita sekarang mungkin akan meremehkan kita jika kita memaafkannya tanpa syarat, jadi kurasa akan lebih baik untuk setidaknya meminta ganti rugi dari Gancia-san .』
 『Begitu . Terima kasih Ain.
 
 Sekarang untuk apa Ciel berterima kasih padaku, aku bertanya-tanya?
