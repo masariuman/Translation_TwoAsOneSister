@@ -8,11 +8,11 @@ Tatapan berkumpul pada anak laki-laki yang mengeluh itu tetapi sepertinya dia ti
 
 "............" (Gancia)
 
-Mendengar kata-kata Ciel, bocah itu terdiam. Aku kira dia menyadari bahwa dia harus memperhatikan kata-katanya, tetapi fakta bahwa dia diam adalah hal yang negatif menurutku.
+Mendengar kata-kata Ciel, anak itu terdiam. Aku kira dia menyadari bahwa dia harus memperhatikan kata-katanya, tetapi fakta bahwa dia diam adalah hal yang negatif menurutku.
 
 Jika dia tidak memiliki cukup nyali untuk setidaknya mengatakan bahwa dia akan menjadi budak, maka tidak mungkin dia akan mendapatkan rasa hormat dari Hunter lain di masa depan.
 
-Terutama karena dialah yang meminta pertarungan formal melawan Ciel. Apalagi semua ini berawal dari tuduhan palsu, atau lebih tepatnya, untuk memuaskan keinginannya sendiri. Tidak berlebihan untuk mengatakan bahwa bayangan besar sekarang membayangi karir bocah ini sebagai Hunter.
+Terutama karena dialah yang meminta pertarungan formal melawan Ciel. Apalagi semua ini berawal dari tuduhan palsu, atau lebih tepatnya, untuk memuaskan keinginannya sendiri. Tidak berlebihan untuk mengatakan bahwa bayangan besar sekarang membayangi karir anak ini sebagai Hunter.
 
 Mungkin karena keheningan yang berlanjut tidak benar-benar memajukan percakapan ini, Ciel mengalihkan pandangannya ke arah Ketua Guild.
 
@@ -24,7 +24,7 @@ Kemungkinan untuk mencegah hal-hal menjadi lebih buruk, Ketua Guild mengatakanny
 
 ◇
 
-Dan pertarungan dengan bocah itu dimulai. Tidak ada penonton, dan selain aku, satu-satunya saksi pertarungan adalah Ketua Guild.
+Dan pertarungan dengan anak itu dimulai. Tidak ada penonton, dan selain aku, satu-satunya saksi pertarungan adalah Ketua Guild.
 
 Di dalam area pelatihan yang besar Tapi kosong seperti biasanya, dentang pedang terdengar.
 
@@ -32,7 +32,7 @@ Sementara Ciel bergegas masuk dengan tarian pedangnya dan kemudian mundur setela
 
 Saat pedang mereka bertabrakan, ritme Ciel terganggu, membuatnya tidak bisa menyerang semulus yang dia inginkan.
 
-Hal terbaik yang mungkin bisa dia lakukan adalah membuat luka ringan pada kulit anak laki-laki itu. Sementara pipi kiri bocah itu berlumuran darah sekarang, luka-luka ini bukanlah sesuatu yang layak diperhatikan oleh Hunter biasa.
+Hal terbaik yang mungkin bisa dia lakukan adalah membuat luka ringan pada kulit anak laki-laki itu. Sementara pipi kiri anak itu berlumuran darah sekarang, luka-luka ini bukanlah sesuatu yang layak diperhatikan oleh Hunter biasa.
 
 Seperti sekarang, Ciel tidak bisa membuat potongan yang lebih dalam dari yang sudah dia buat dan selain itu, anak laki-laki itu telah beradaptasi, membuatnya lebih sulit untuk membuat potongan yang lebih ringan.
 
@@ -44,17 +44,17 @@ Mengingat baru beberapa saat sejak dia pertama kali memegang pedang, hasil ini l
 
 Dari sudut pandang orang luar, sepertinya Ciel memiliki keuntungan ofensif dari serangannya yang terus-menerus, tetapi anak itu memiliki tampilan yang tenang dan untuk menyamai kepuasannya yang semakin besar, dia bahkan mulai menyeringai. Dia secara bertahap semakin memahami gerakan Ciel, jadi dia mungkin mulai mengincar serangan balik dalam waktu dekat.
 
-Tapi, sepertinya bocah itu tidak menyadari bahwa Ciel sama tenangnya dengan dirinya.
+Tapi, sepertinya anak itu tidak menyadari bahwa Ciel sama tenangnya dengan dirinya.
 
 ◇
 
 "Hanya itu yang kamu punya, hunter rank-c? Tidak, Kamu menjadi rank-c benar-benar bohong. Tidak mungkin Hunter Rank tinggi akan selemah ini." (Gancia)
 
-Saat kekurangan sisi ciel telah ditemukan, Ciel mengakhiri latihan pedangnya dan membuka jarak di antara mereka, yang ditanggapi oleh bocah itu dengan cemoohan arogan.
+Saat kekurangan sisi ciel telah ditemukan, Ciel mengakhiri latihan pedangnya dan membuka jarak di antara mereka, yang ditanggapi oleh anak itu dengan cemoohan arogan.
 
 Meskipun demikian, bukankah dia sangat cerdas? Karena menyadari bahwa tidak mungkin seorang Hunter Rank tinggi bisa selemah ini.
 
-Selain itu, seperti bagaimana bocah itu menganalisis kemampuan Ciel, aku juga menganalisanya.
+Selain itu, seperti bagaimana anak itu menganalisis kemampuan Ciel, aku juga menganalisanya.
 
 Meskipun dia mungkin memiliki sernagan tersembunyi, bahkan jika dia menggunakannya, sangat tidak mungkin baginya untuk bisa menembus +BARRIERku. Karena itu, Aku mengatakannya kepada Ciel.
 
@@ -112,7 +112,7 @@ Dan mungkin menyadari sesuatu, tubuh anak laki-laki itu tiba-tiba menegang.
 
 Dia berada pada jarak di mana Ciel bisa mencapai pipinya, dengan kata lain, dia berada di dalam penghalang berbentuk bola.
 
-Mungkin melihat kemenangan tertentu, bocah itu kemudian menunjukkan seringai.
+Mungkin melihat kemenangan tertentu, anak itu kemudian menunjukkan seringai.
 
 "Untuk apa kamu bersikap begitu tenang, mati kau." (Gancia)
 
@@ -128,7 +128,7 @@ Yah, serangan semacam itu tidak cukup untuk melukai Ciel.
 
 Mungkin akhirnya menyadari situasinya, wajah anak laki-laki yang menang itu mulai berubah kaget.
 
-Ciel terkekeh mengejek sebelum menyalurkan energi sihir ke pipi bocah itu.
+Ciel terkekeh mengejek sebelum menyalurkan energi sihir ke pipi anak itu.
 
 Sebuah lingkaran sihir cacat muncul di pipi berlumuran darah anak laki-laki itu dan karena diberi energi sihir, itu menunjukkan efek yang tidak sempurna Tapi fungsional.
 
@@ -232,3 +232,12 @@ Meskipun Aku rasa itu terlalu berlebihan untuk khayalan seorang amatir. Saat aku
 
 --------------------------------
 
+yaay hari ini dedek ciel menari-nari dengan pedangnya dan menggunakan orang sebagai boneka latihannya... kebetulan sekali lawannya kali ini juga pengguna pedang dan bisa beradaptasi dengan cepat dengan serangan dedek ciel, jadi ainciel bisa dengan mudal mengetahui batasan penggunaan pedang untuk mereka juga...
+
+dan anak ini, walau agak bersikap tinggi, tapi tidak ceroboh juga dalam melawan dedek ciel... dia masih memulai pertarungan dengan menganalisis cara bertarung dedek ciel terlebih dahulu, yang mana dia mau memastikan bagaimana kekuatan dedek ciel dulu apakah hebat atau tidak... sialnya, dia menghadapi dedek ciel yang masih mencoba-coba menggunakan pedang melawan manusia pertama kalinya, jadi dia salah ketika dia menggunakan hal itu sebagai patokan tolak ukur kekuatan dedek ciel...
+
+lawan kali ini juga cepat menyerah, entah karena dia jarang terluka berat, atau jarang hampir terbunuh. saya pikir dia memiliki job yg hebat yang membantunya dengan mudah naik rank, dan jarang diambang kematian, jadi ketika dia merasakan tak berdaya dan merasa mungkin kepalanya bisa terbakar, dia langsung menyerah... sayang sekali sebagai seorang laki-laki, agak sedikit pengecut.. hanya bisa berbicara mentang-mentang dia dianggap spesial sama guild saja.... hadeeeh...
+
+dan sudah pasti ada item sihir yang bisa membuat antar guild saling berhubungan dengan cepat... mungkin mirip seperti telepon atau fax ? kalau tidak begitu tentu akan susah untuk mengurus administrasi naik rank terutama yang guildnya jauh sekali dari markas utama.. pasti bakal kerepotan... ya sepertinya item sihir didunia ini layaknya seperti benda atau alat yang memakai mesin atau baterai, yang mana bahan bakarnya atau baterainya adalah magic corenya sendiri... mungkin seperti itulah...
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
