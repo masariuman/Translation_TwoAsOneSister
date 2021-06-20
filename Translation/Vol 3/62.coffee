@@ -60,32 +60,35 @@ Untuk Ciel yang merupakan solo rank-C, dia memang memiliki kemampuan hunter leve
 
 "Aku akan menyerahkan itu pada penilaianmu. Paling tidak, bekerjasama denganmu itu tidak mungkin." (ciel)
 
-Tidak peduli seberapa tinggi Rank mereka, aku bahkan tidak akan mempertimbangkan untuk bersama seseorang yang tiba-tiba mengatakan aku akan menjadikanmu wanitaku bagi seseorang yang mereka temui untuk pertama kalinya. Terlebih lagi dengan Ciel, dia tidak pernah terpengaruh oleh hal itu.
-Mungkin karena Ciel dengan mudah menangkisnya, aku bisa mendengar kata-kata seperti Kau pergi beritahu dia, nona!」 atau Itu menyedihkan, Nak!」 dari sekitarnya. Karena hanya ada beberapa orang, mudah untuk mengikuti siapa yang mengatakan apa tetapi mengetahui hal ini tidak perlu.
+Tidak peduli seberapa tinggi Rank mereka, aku bahkan tidak akan mempertimbangkan untuk bersama seseorang yang tiba-tiba mengatakan aku akan menjadikanmu wanitaku untuk seseorang yang mereka temui untuk pertama kalinya. Terlebih lagi dengan Ciel, dia tidak pernah terpengaruh oleh hal itu.
 
-Masalahnya di sini adalah anak laki-laki di depan kita. Harga dirinya tercabik-cabik oleh ucapan Ciel, dengan sendirinya, sebenarnya cukup menyegarkan tetapi akan sangat merepotkan jika ini terus berlanjut dan dia menjadi gila.
+Mungkin karena Ciel dengan mudah menolaknya, aku bisa mendengar kata-kata seperti "hajar dia, nona!" atau "Itu menyedihkan, Nak! (mengarah ke Grancia)" dari sejenisnya. Karena hanya ada beberapa orang, mudah untuk mengetahui siapa yang mengatakannya tetapi mengetahui hal ini tidak perlu.
+
+Masalahnya di sini adalah anak laki-laki di depan kami. Harga dirinya tercabik-cabik oleh ucapan Ciel, dengan sendirinya, sebenarnya cukup menyegarkan tetapi akan sangat merepotkan jika ini terus berlanjut dan dia menjadi gila.
+
 Tepat ketika Aku melihat tubuhnya bergetar, dia tiba-tiba memelototi kami.
 
-Karena Kamu mengatakan bahwa Kamu adalah Rank-C, maka lawan Aku. Jika Aku menang, layani Aku sebagai wanita Aku untuk seluruh hidup Kamu.
-Itu gunanya-...... Tidak apa-apa. Jika Kamu kalah, serahkan semua yang Kamu miliki dan tinggalkan guild.
-Mengapa berakhir seperti itu!」
-Hidup untuk hidup. Dan selain itu, itu adalah harga untuk berkelahi dengan Hunter Rank tinggi.
-Iklan
+"Karena Kamu mengatakan bahwa Kamu adalah Rank-C, maka lawan Aku. Jika Aku menang, layani Aku sebagai wanitaku untuk seluruh hidupmu." (Gancia)
+
+"Itu Tidak ada Guna-...... terserahlah. Jika Kamu kalah, serahkan semua yang Kamu miliki dan tinggalkan guild." (Ciel)
+
+"Mengapa aku akan berakhir seperti itu!" (Gancia)
+
+"Hidup untuk hidup. Dan selain itu, itu adalah harga untuk berkelahi dengan Hunter Rank tinggi." (Ciel)
 
 Ciel menjawab dengan acuh tak acuh terhadap pertanyaan terkejut anak laki-laki itu.
+
 Baik harga untuk berkelahi dan nyawanya seharusnya tidak menarik bagi Ciel, tetapi karena dia menerima tantangan itu, maka ini berarti dia memiliki sesuatu yang ingin dia lakukan.
-Jika memungkinkan, Aku ingin secara pribadi memukulinya sendiri, tetapi sayangnya, Aku tidak bisa berbuat banyak dalam pertarungan. Meskipun Aku bisa memakan semua serangan dengan penghalang Aku dan langsung menusuk musuh dengan pisau dan semacamnya. Melihat pedang perlahan-lahan beringsut ke arah Kamu karena setiap serangan Kamu sama sekali tidak menimbulkan kerusakan pada penggunanya pasti akan menimbulkan teror.
+
+Jika memungkinkan, Aku ingin secara pribadi memukulinya sendiri, tetapi sayangnya, Aku tidak bisa berbuat banyak dalam pertarungan. Meskipun Aku bisa memakan semua serangan dengan +BARRIERku dan langsung menusuk musuh dengan pisau dan semacamnya. Melihat pedang perlahan-lahan mengarah ke arahmu dan karena setiap seranganmu sama sekali tidak menimbulkan kerusakan pada penggunanya pasti akan menimbulkan teror.
 
 Pertarungan kali ini adalah sesuatu yang diterima Ciel atas kemauannya sendiri.
-Aku akan mematuhi keputusannya.
 
-Apa yang Kamu rencanakan?』
-Karena ini adalah kesempatan yang sempurna, Aku ingin mencoba melawan musuh manusia menggunakan pedang.
-Lagipula, Hunter Rank-D hampir sekuat serigala. Itu harus sempurna dari segi level.
+Aku akan mengikuti keputusannya.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+[Apa yang Kamu rencanakan?] (ain)
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+[Karena ini adalah kesempatan yang sempurna, Aku ingin mencoba melawan musuh manusia menggunakan pedang. Lagipula, Hunter Rank-D hampir sekuat serigala. ini harusnya sempurna dari segi level.] (ciel)
 
 Aku bisa mengerti apa yang dipikirkan Ciel. Sementara Ciel telah menggunakan pedang melawan banyak serigala dalam perjalanan kami ke Norvelle, sampai-sampai kami sangat muak dengan mereka, dia belum pernah menggunakan pedang melawan seseorang.
 Pertarungan melawan makhluk cerdas mungkin akan terasa sangat berbeda dari pertarungan melawan makhluk buas yang membabi buta, dan kami membeli pedang dengan pertarungan jarak dekat yang tak terduga untuk memulai.
