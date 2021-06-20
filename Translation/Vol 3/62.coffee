@@ -30,31 +30,35 @@ Ketika kami tiba di depan meja resepsionis, wanita resepsionis itu tersenyum ber
 
 Karena bocah Gancia itu mendekati kami, aku memberi tahu Ciel tentang hal itu; dan setelah menyodorkan kartunya dan permintaan ke resepsionis, dia menghela nafas panjang sebelum berbalik.
 
-Aku merasa tidak enak dengan resepsionis yang bingung tetapi karena kami baik-baik saja dari segi Rank, dia seharusnya dapat memproses permintaan tanpa masalah. Selama dia tidak berpikir bahwa kartu yang diberikan Ciel adalah palsu.
+Aku merasa tidak enak dengan resepsionis yang bingung tetapi karena kami tidak ada masalah dari segi Rank, dia seharusnya dapat memproses permintaan tanpa masalah. Selama dia tidak berpikir bahwa kartu yang diberikan Ciel adalah palsu.
 
-Saat Ciel menghadapi anak laki-laki yang akan kita gunakan—harus kita gunakan—untuk menghilangkan keraguan seputar kartu Ciel, anak laki-laki itu terlihat sangat terkejut, mungkin karena Ciel berbalik sebelum dia mengatakan apa-apa.
-Di mana dia bahkan menemukan keberanian untuk mengatakan dia akan menjadikan Ciel wanitanya ketika dia sudah terkejut tentang ini?
+Saat Ciel menghadapi anak laki-laki yang akan kami gunakan, harus kami gunakan, untuk menghilangkan keraguan tentang kartu Ciel, anak laki-laki itu terlihat sangat terkejut, mungkin karena Ciel berbalik sebelum dia mengatakan apa-apa.
 
-Iklan
-Apa yang kamu inginkan?」
-Kamu terlihat seperti sedang berakting sendirian. Kalau begitu, aku akan membiarkanmu berpesta denganku.
-Party akan dimulai sebagai party E-rank, tapi akan melewati D dan mencapai C-rank dalam waktu singkat.
-Dan kemudian itu kecepatan penuh ke depan untuk menjadi terkenal.」
-meritKebaikan bagi Aku adalah?」
-Aku mencapai D-rank pada usia 15 tahun sebagai Hunter solo, Kamu tahu?
-Mulai sekarang, aku akan menjadi C-ranker termuda dalam sejarah dan aku pasti akan mencapai S-rank suatu saat nanti!
-Berada di party yang sama dengan orang sepertiku sudah cukup untuk mendapatkan pahala. Secara alami, Kamu tidak akan pernah memiliki masalah dengan uang juga.
+Di mana dia bahkan menemukan keberanian untuk mengatakan dia akan menjadikan Ciel wanitanya ketika dia terkejut karena ini saja?
+
+"Apa yang kamu inginkan?" (ciel)
+
+"Kamu terlihat seperti sedang sendirian. Kalau begitu, aku akan membiarkanmu berparty denganku. Party akan dimulai sebagai party rank-E, tapi akan melewati D dan mencapai rank-C dalam waktu singkat. Dan kemudian akan cepat untuk menjadi terkenal." (Gancia)
+
+"apa untungnya untukku?" (ciel)
+
+"Aku mencapai rank-D pada usia 15 tahun sebagai Hunter solo, Kamu tahu? Mulai sekarang, aku akan menjadi hunter rank-C termuda dalam sejarah dan aku pasti akan mencapai rank-S suatu saat nanti! Berada di party yang sama dengan orang sepertiku sudah cukup untuk mendapatkan keuntungan. Secara alami, Kamu tidak akan pernah memiliki masalah dengan uang juga." (Gancia)
 
 Apa yang dikatakan anak laki-laki itu sendiri belum tentu salah.
-Ciel benar-benar tidak masuk akal, Rank D sebenarnya cukup tinggi untuk anak berusia 15 tahun.
+
+dalam kasus Ciel benar-benar tidak masuk akal, Rank D sebenarnya cukup tinggi untuk anak berusia 15 tahun.
+
 Selama dia terus-menerus menyelesaikan permintaan, dia seharusnya bisa menjalani kehidupan yang relatif kaya dan kemungkinan tidak pernah mengalami kekurangan uang.
 
-Namun, menjadi C-ranker termuda dalam sejarah sudah tidak mungkin. Bagaimanapun, Ciel C-rank masih berusia 12 tahun sampai hari ini.
-Untuk Ciel yang merupakan solo rank-C—dia memang memiliki kemampuan level C-rank bahkan tanpa aku—hunter, berada di party dengannya hanya akan menambah bobot mati dan mengurangi reward.
+Tapi, menjadi hunter rank-C termuda dalam sejarah sudah tidak mungkin. Bagaimanapun Juga, Ciel menjadi rank-C dan masih berusia 12 tahun sampai hari ini.
 
-Aku Rank-C. Kamu akan memperlambat Aku. 」
-「Hah ? Udang sepertimu, Rank-C?」
-Aku akan menyerahkan itu pada penilaianmu. Paling tidak, bertindak bersama denganmu tidak mungkin.
+Untuk Ciel yang merupakan solo rank-C, dia memang memiliki kemampuan hunter level rank-C bahkan tanpaku, berada di party dengannya hanya akan menambah beban dan mengurangi hadiah.
+
+"Aku Rank-C. Kamu akan memperlambatku." (ciel)
+
+"Hah ? Udang sepertimu, Rank-C?" (Gancia)
+
+"Aku akan menyerahkan itu pada penilaianmu. Paling tidak, bekerjasama denganmu itu tidak mungkin." (ciel)
 
 Tidak peduli seberapa tinggi Rank mereka, aku bahkan tidak akan mempertimbangkan untuk bersama seseorang yang tiba-tiba mengatakan aku akan menjadikanmu wanitaku bagi seseorang yang mereka temui untuk pertama kalinya. Terlebih lagi dengan Ciel, dia tidak pernah terpengaruh oleh hal itu.
 Mungkin karena Ciel dengan mudah menangkisnya, aku bisa mendengar kata-kata seperti Kau pergi beritahu dia, nona!」 atau Itu menyedihkan, Nak!」 dari sekitarnya. Karena hanya ada beberapa orang, mudah untuk mengikuti siapa yang mengatakan apa tetapi mengetahui hal ini tidak perlu.
@@ -108,7 +112,7 @@ Tunggu, tunggu sebentar. Pria itu berkata dengan tergesa-gesa.
 Bocah itu terkejut dengan pintu masuk pria itu dan Guildmaster! mengangkat suaranya.
 
 Seperti yang kupikirkan, itu adalah kepala manajemen guild.
-Bagaimanapun, anak laki-laki ini adalah orang yang menjanjikan bagi kota ini; apalagi, pria itu mungkin tahu tentang Ciel juga.
+Bagaimanapun Juga, anak laki-laki ini adalah orang yang menjanjikan bagi kota ini; apalagi, pria itu mungkin tahu tentang Ciel juga.
 Singkatnya, bocah yang dihancurkan di sini bukanlah sesuatu yang bisa diterima pria itu.
 Iklan
 
@@ -126,7 +130,7 @@ Itu-...... Aku baru saja mabuk tadi......」
 Aku mengerti perasaan ingin bersenang-senang di pub sekarang karena kamu' secara hukum diperbolehkan untuk minum.
 Lagipula, aku pernah ke sana sebelumnya.」
 「Lalu-!」
-Namun, itu tidak berarti mengatakan bahwa mabuk memaafkan semua yang kamu lakukan.
+Tapi, itu tidak berarti mengatakan bahwa mabuk memaafkan semua yang kamu lakukan.
 Sekarang, jika yang Kamu ajak berkelahi adalah Hunter Rank tinggi yang berbeda, maka Kamu mungkin sudah terluka parah pada saat ini. Sudahkah Kamu mempertimbangkan itu?
 
 Saat keduanya memulai percakapan sendiri, Ciel sekarang mulai bosan.
@@ -153,7 +157,7 @@ Juga, apakah dia akan memaafkannya atau tidak? Jawabannya cukup kabur tentang it
 Saat itu terlintas di pikiranku, Ciel berbicara dengan guildmaster.
 
 "Jadi bagaimana sekarang? Aku tidak berencana untuk memaafkannya, asal tahu saja.
-Bagaimanapun, ini adalah perselisihan antara Hunter. Sebagai aturan umum, serikat tidak akan campur tangan.
+Bagaimanapun Juga, ini adalah perselisihan antara Hunter. Sebagai aturan umum, serikat tidak akan campur tangan.
 Tapi, terlepas dari bagaimana dia, dia masih Hunter yang menjanjikan. Kehilangan dia akan sia-sia. Untuk alasan itu, Aku tidak akan menghentikan pertempuran formal Kamu, tetapi Aku ingin meminta perubahan kondisi.」
 Dengan kata lain, Kamu berpihak padanya? Aku pikir Kamu sudah meneliti tentang Aku?
 
