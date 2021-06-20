@@ -156,53 +156,69 @@ ciel memancarkan aura 'Bisakah kami pulang sekarang?' dan bahkan menguap.
 
 "Akan lebih baik jika Ketua Guild tidak datang." gumamnya, dan aku sangat setuju dengan itu.
 
-"Tapi ...... Dia hanya rank-E, kan? Jika dia memiliki Rank tinggi, maka itu salahnya karena terlihat tidak seperti itu."
+"Tapi ...... Dia hanya rank-E, kan? Jika dia memiliki Rank tinggi, maka itu salahnya karena terlihat tidak seperti itu." (Gancia)
 
-Kamu berbicara seperti ini tidak akan menjadi masalah jika dia adalah Hunter berpangkat rendah. Aku tidak ingat pernah mengizinkan perpeloncoan pendatang baru ...... Sebaliknya, jika individu berpangkat tinggi diizinkan untuk melakukan apa yang mereka inginkan, maka Kamu tidak berhak mengeluh tentang penampilan Nona Cielmer.
-Jika, kebetulan, dia bahkan bukan seorang Hunter, maka ini akan membuat hubungan kami dengan penduduk kota menjadi buruk. Bisakah Kamu bertanggung jawab untuk itu?
+"Kamu berbicara seperti ini tidak akan menjadi masalah jika dia adalah Hunter rank rendah. Aku tidak ingat pernah mengizinkan mengganggu pendatang baru ...... Sebaliknya, jika individu rank tinggi diizinkan untuk melakukan apa yang mereka inginkan, maka Kamu tidak berhak mengeluh tentang penampilan Nona Cielmer. Jika, kebetulan, dia bahkan bukan seorang Hunter, maka ini akan membuat hubungan kami dengan penduduk kota menjadi buruk. Bisakah Kamu bertanggung jawab untuk itu?" (Kepala Guild)
 
 Ketegasan bocah itu berangsur-angsur menyusut dan dia bahkan tampak lebih kecil secara fisik sekarang.
+
 Dia seharusnya lebih tinggi dariku ketika aku masih hidup.
-Mengesampingkan itu, dengan bagaimana tampaknya pada tingkat ini, akankah ini berakhir dengan Bisakah Kamu melepaskannya kali ini?」 semacam itu? Aku sama sekali tidak berniat membiarkan itu sama sekali.
 
-Katakan, Ain?』
-Apa itu?』
-Dalam situasi seperti ini, apakah lebih baik memaafkannya saja?』
-Bagiku, sejak dia pergi Jadilah wanitaku」 dan semuanya, aku sudah tidak niat untuk memaafkannya; tetapi jika Kamu lebih memilih untuk memaafkannya, maka Aku pikir tidak apa-apa juga.
-Tetap saja, para Hunter yang mengawasi kita sekarang mungkin akan meremehkan kita jika kita memaafkannya tanpa syarat, jadi kurasa akan lebih baik untuk setidaknya meminta ganti rugi dari Gancia-san .』
-『Begitu . Terima kasih Ain.
+Mengesampingkan itu, dengan bagaimana tampaknya pada tingkat ini, akankah ini berakhir dengan semacam "Bisakah Kamu melepaskannya kali ini?" ? Aku sama sekali tidak berniat membiarkan itu sama sekali.
 
-Sekarang untuk apa Ciel berterima kasih padaku, aku bertanya-tanya?
+[hey, Ain?] (ciel)
+
+[Apa?] (ain)
+
+[Dalam situasi seperti ini, apakah lebih baik memaafkannya saja?] (ciel)
+
+[Bagiku, sejak dia mulaid engan "Jadilah wanitaku" dan setelahnya, aku sudah tidak berniat untuk memaafkannya; tetapi jika Kamu lebih memilih untuk memaafkannya, maka Aku pikir tidak apa-apa juga. Tetap saja, para Hunter yang mengawasi kita sekarang mungkin akan meremehkan kita jika kita memaafkannya tanpa syarat, jadi kurasa akan lebih baik untuk setidaknya meminta ganti rugi dari Gancia-san.] (ain)
+
+[Begitu. Terima kasih Ain.] (ciel)
+
+untuk apa Ciel berterima kasih padaku?
+
 Juga, apakah dia akan memaafkannya atau tidak? Jawabannya cukup kabur tentang itu.
-Saat itu terlintas di pikiranku, Ciel berbicara dengan guildmaster.
 
-"Jadi bagaimana sekarang? Aku tidak berencana untuk memaafkannya, asal tahu saja.
-Bagaimanapun Juga, ini adalah perselisihan antara Hunter. Sebagai aturan umum, Guild tidak akan campur tangan.
-Tapi, terlepas dari bagaimana dia, dia masih Hunter yang menjanjikan. Kehilangan dia akan sia-sia. Untuk alasan itu, Aku tidak akan menghentikan pertempuran formal Kamu, tetapi Aku ingin meminta perubahan kondisi.」
-Dengan kata lain, Kamu berpihak padanya? Aku pikir Kamu sudah meneliti tentang Aku?
+Saat itu terlintas di pikiranku, Ciel berbicara dengan Ketua Guild.
 
-Mendengar kata-kata Ciel, guildmaster membuat ekspresi sedih.
+"Jadi bagaimana sekarang? asal tahu saja Aku tidak berencana untuk memaafkannya." (ciel)
+
+"Bagaimanapun Juga, ini adalah perselisihan antara Hunter. Sebagai aturan umum, Guild tidak akan campur tangan. Tapi, terlepas dari bagaimana dia, dia masih Hunter yang menjanjikan. Kehilangan dia akan menjadi hal sia-sia. Untuk alasan itu, Aku tidak akan menghentikan pertarungan formalmu, tetapi Aku ingin meminta perubahan kondisi." (Ketua Guild)
+
+"Dengan kata lain, Kamu berpihak padanya? Aku pikir Kamu sudah meneliti tentangku?" (Ciel)
+
+Mendengar kata-kata Ciel, Ketua Guild membuat ekspresi sedih.
+
 Jika dia melakukan penelitian tentang Ciel maka dia harus tahu berapa banyak kontribusinya dan, pada saat yang sama, hal-hal yang telah dilakukan guild terhadapnya.
-Mediasi ini demi menyelamatkan anak itu; tapi dari sudut pandang kami, ini sebenarnya guild yang merepotkan kami sekali lagi.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+Mediasi ini demi menyelamatkan anak itu; tapi dari sudut pandang kami, sebenarnya ini guild yang merepotkan kami sekali lagi.
 
 Jadi ya, Aku bisa mengerti mengapa dia memiliki ekspresi sedih itu.
-Jika dia tidak melakukan ini, guild akan kehilangan rookie yang menjanjikan. Dan tidak seperti kita yang terus-menerus berkeliaran di sana-sini, bocah itu kemungkinan akan menjadi kekuatan tempur utama bagi guild ini di masa depan.
+
+Jika dia tidak melakukan ini, guild akan kehilangan rookie yang menjanjikan. Dan tidak seperti kami yang terus-menerus berkeliaran di sana-sini, bocah itu kemungkinan akan menjadi kekuatan tempur utama bagi guild ini di masa depan.
+
 Menjadi kepala organisasi cukup rumit, bukan?
-Iklan
 
-Sayangnya, itu bukan alasan bagi Aku untuk membiarkan ini meluncur.
-Sepertinya Persekutuan Hunter hanya memberi kita masalah terlepas dari semua hal yang telah kita bantu untuk mereka.
+Sayangnya, itu bukan alasan bagiku untuk membiarkan ini begitu saja.
 
-Jika Aku menang, turunkan dia dan berikan Aku persyaratan yang tersisa untuk menjadi B-rank.」
-...... Baiklah.」
-Guildmaster! Untuk apa kamu setuju dengannya!」
-Jika kamu kehilangan Nona Cielmer, maka kami akan membuatmu tinggal di sini selama satu tahun dan menjadikan Norvelle sebagai basis aktivitasmu selama periode itu.」
-Juga, pertempuran hanya akan diputuskan menyerah atau tidak mampu.」
+Sepertinya Guild Hunter hanya memberi kami masalah terlepas dari semua hal yang telah kami bantu untuk mereka.
+
+"Jika Aku menang, turunkan ranknya dan berikan Aku persyaratan yang tersisa untuk menjadi B-rank." (ciel)
+
+"...... Baiklah." (Ketua Guild)
+
+"Ketua Guild! Untuk apa kamu setuju dengannya!" (Gancia)
+
+"Jika kamu kalah, Nona Cielmer, maka kami akan membuatmu tinggal di sini selama satu tahun dan menjadikan Norvelle sebagai basis aktivitasmu selama periode itu." (Ketua Guild)
+
+"dan Juga, pertarungan hanya akan diputuskan dengan menyerah atau tidak mampu." (ciel)
 
 Sebagai guildmaster, dia mungkin tidak punya pilihan lain selain menelan kondisi itu.
-Lagipula, anak laki-laki itu akhirnya harus meninggalkan guild. Ini adalah titik kompromi kami, dan jika dia menginginkan perubahan kondisi lagi, maka Ciel kemungkinan akan menolak dan bertarung di bawah yang asli sebagai gantinya.
-Mungkin tidak mengerti bahwa, Tunggu sebentar!」 anak itu terus membuat keributan.
+
+Lagipula, anak laki-laki pada akhirnya harus meninggalkan guild. Ini adalah titik kompromi kami, dan jika dia menginginkan perubahan kondisi lagi, maka Ciel kemungkinan akan menolak dan bertarung di bawah kondisi sebelumnya sebagai gantinya.
+
+Mungkin tidak mengerti apa yang terjadi, "Tunggu sebentar!" anak itu terus membuat keributan.
+
+---------------------------
+
