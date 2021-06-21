@@ -139,40 +139,49 @@ Aku merasakan kekuatan sihir dari tinta di pena, jadi Aku yakin itu diperlukan u
 "Aku akan menyerahkan detailnya padamu."
 
 Diserahkan set lengkap, Ciel dan Aku mendiskusikan apa yang harus kami tulis.
-Karena benar-benar melelahkan untuk memikirkan beberapa kontrak implisit, kami hanya menulis ringkasan singkat dari percakapan sebelumnya dan jalannya acara dimulai dari ketika bocah itu mendekati kami, dengan Ketua Guild of Norvelle mengakui validitas detail yang disebutkan di atas. tertulis di akhir.
-Awalnya, Aku ingin itu menjadi kontrak dengan Guild Hunter tetapi kontrak pada dasarnya hanya dapat dipertukarkan antara dua individu, jadi mau bagaimana lagi.
-Iklan
+
+Karena benar-benar melelahkan untuk memikirkan beberapa kontrak implisit, kami hanya menulis ringkasan singkat dari percakapan sebelumnya dan dari ketika anak laki-laki itu mendekati kamu, dengan "Ketua Guild Norvelle mengakui validitas detail yang disebutkan di atas." tertulis di akhir.
+
+Awalnya, Aku ingin itu menjadi kontrak dengan Guild Hunter tetapi kontrak pada dasarnya hanya dapat dilakukan antara dua individu, jadi mau bagaimana lagi.
 
 Itu sebabnya kontrak yang dibuat Duke Rispelgia adalah sesuatu yang murni antara dia dan manusia babi itu.
-Aku tidak tahu kontrak macam apa itu, tapi setidaknya, itu bukan sesuatu yang membuat Ciel menjadi budak. Pertama-tama, sepertinya kontrak yang berbeda dari kontrak sihir digunakan dalam kasus perbudakan.
-Dengan kata lain, status Ciel bukanlah budak yang melarikan diri; dan apakah dia anggota House of Rispeliga, itu akan tergantung pada apa yang dikatakan dalam kontrak.
-Statusnya benar-benar di udara. Jika ini adalah duniaku yang dulu, praktis tidak ada bedanya dengan ditinggalkan tanpa akta kelahiran atau apa pun untuk mengidentifikasinya.
+
+Aku tidak tahu kontrak macam apa itu, tapi setidaknya, itu bukan sesuatu yang membuat Ciel menjadi budak. pada dasarnya, itu sepertinya berbeda dari kontrak sihir digunakan dalam kasus perbudakan.
+
+Dengan kata lain, status Ciel bukanlah budak yang melarikan diri; dan apakah dia anggota Rispeliga, itu akan tergantung pada apa yang dikatakan dalam kontrak.
+
+Statusnya benar-benar mengambang. Jika ini adalah duniaku yang dulu, tidak ada bedanya dengan ditinggalkan tanpa akta kelahiran atau apa pun untuk mengidentifikasinya.
 
 Kembali ke topik.
 
-Setelah menunjukkan kepada Ketua Guild dokumen yang merinci apa-apa selain kebenaran, dia menatap kontrak itu dengan kuat sebelum menyerahkannya kembali ke Ciel.
+Setelah menunjukkan kepada Ketua Guild dokumen yang merincikan kebenaran, dia menatap kontrak itu dengan kuat sebelum menyerahkannya kembali ke Ciel.
 
-Bisakah Kamu menambahkan kalimat yang mengatakan "Promosi ke Rank-B dapat dipercepat tergantung pada keadaan"?
-Seharusnya tidak ada masalah dengan sampai di sana lebih cepat, bukan begitu?」
-Mengerti.
+"Bisakah Kamu menambahkan kalimat yang mengatakan 'Promosi ke Rank-B dapat dipercepat tergantung pada keadaan'? Seharusnya tidak ada masalah dengan mendapatkannya lebih cepat, bukan begitu?" (Ketua Guild)
 
-Ciel menambahkannya seperti yang diceritakan dan menyerahkan dokumen itu ke Ketua Guild; dan setelah dia menandatangani, Ciel menandatanganinya juga.
+"baiklah." (Ciel)
+
+Ciel menambahkannya seperti yang diminta dan menyerahkan dokumen itu ke Ketua Guild; dan setelah dia menandatangani, Ciel menandatanganinya juga.
+
 Terakhir, keduanya menambahkan setetes darah mereka untuk menyelesaikan kontrak.
-Aku kira kalimat terakhir mengatakan Masih ada kemungkinan dipromosikan lebih awal, jadi pertahankan kecepatan kerja Kamu. atau lebih.
-Fakta bahwa itu 「Tergantung pada keadaannya」 segera membuatnya tidak layak dipercaya, jadi rencana bersembunyi tidak akan berubah.
 
-Itu mengingatkan Aku, Aku belum mengembalikan kartu Kamu.
-Apa yang terjadi dengan permintaan yang Aku minta?」
+Aku kira kalimat terakhir bermaksud "Masih ada kemungkinan dipromosikan lebih awal, jadi pertahankan kecepatan kerjamu.", atau semacamnya.
 
-Saat Ketua Guild mengembalikan kartu itu, Ciel memintanya.
-Ketua Guild itu tersenyum lebar dan menjawab: Mereka diproses dengan benar.」
-Bagaimana Aku bisa mengatakan ini, dia cukup cepat untuk bangkit kembali. Permintaan ini tidak memakan banyak waktu kita dan mungkin bisa diselesaikan saat kita kembali dari laut, jadi aku tidak keberatan.
+Fakta bahwa itu "Tergantung pada keadaannya" segera membuatnya tidak layak dipercaya, jadi rencana bersembunyi tidak akan berubah.
 
-Diusir oleh tampilan kemenangan di menit terakhir dari Ketua Guild, kami memutuskan untuk kembali ke penginapan kami untuk hari ini.
+"sekarang baru kuingat, Aku belum mengembalikan kartumu." (Ketua Guild)
+
+"Apa yang terjadi dengan permintaan yang Aku ambil?" (Ciel)
+
+Saat Ketua Guild mengembalikan kartu itu, Ciel menanyakannya.
+Ketua Guild itu tersenyum lebar dan menjawab: "Mereka diproses dengan benar."
+
+Bagaimana ya, dia cukup cepat untuk bangkit kembali. Permintaan ini tidak memakan banyak waktu kami dan mungkin bisa diselesaikan saat kami kembali dari laut, jadi aku tidak keberatan.
+
+dibawa kelar oleh tampilan kemenangan di menit terakhir dari Ketua Guild, kami memutuskan untuk kembali ke penginapan kami untuk hari ini.
 
 ◇
 
-Jadi kami sudah menyelesaikan jumlah permintaan yang diperlukan untuk Rank-B, ya. Itu mengejutkan.」
+Jadi kita sudah menyelesaikan jumlah permintaan yang diperlukan untuk Rank-B, ya. Itu mengejutkan.」
 Kalau dipikir-pikir, karena kita tidak melakukan apa-apa selain menyelesaikan permintaan di luar perjalanan, itu sangat masuk akal.
 Ciel, apakah kamu tahu berapa banyak permintaan yang telah kami selesaikan sampai sekarang?』
 Itu mungkin menjadi salah satu alasannya, tetapi kami juga biasanya mengerjakan beberapa permintaan sekaligus.
