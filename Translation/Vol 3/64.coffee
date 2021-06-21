@@ -180,7 +180,7 @@ Bagaimana ya, dia cukup cepat untuk bangkit kembali. Permintaan ini tidak memaka
 dibawa kelar oleh tampilan kemenangan di menit terakhir dari Ketua Guild, kami memutuskan untuk kembali ke penginapan kami untuk hari ini.
 
 ◇
-
+-------------
 Jadi kita sudah menyelesaikan jumlah permintaan yang diperlukan untuk Rank-B, ya. Itu mengejutkan.」
 Kalau dipikir-pikir, karena kita tidak melakukan apa-apa selain menyelesaikan permintaan di luar perjalanan, itu sangat masuk akal.
 Ciel, apakah kamu tahu berapa banyak permintaan yang telah kami selesaikan sampai sekarang?』
