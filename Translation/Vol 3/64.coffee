@@ -84,50 +84,59 @@ Dengan mengatakan itu, itu masih sangat disayangkan. Aku berharap bahwa kami mun
 
 [Itu karena jika kita tiba-tiba menurunkan frekuensi menerima permintaan, mereka mungkin akan menemukan kesalahan dan menilai kita tidak cukup termotivasi. Jika satu-satunya bukti kita adalah perkataan "Kamu mengatakannya sebelumnya", ada kemungkinan mereka akan menutup telinga.] (Ain)
 
-[Aku mengerti sekarang, mengerti. Aku bisa menggunakan uang, kan?] (Ciel)
+[begitu, aku mengerti. Aku bisa menggunakan uang, kan?] (Ciel)
 
-[Uang itu milik Kamu, jadi Aku biasanya tidak akan mempertanyakan bagaimana Kamu membelanjakannya, Kamu tahu?] (Ain)
+[Uang itu milikmu, jadi Aku tidak akan mempertanyakan bagaimana Kamu memakainya.] (Ain)
 
-Jika apa yang Kamu katakan itu benar, maka buatlah kontrak sihir.」
-Jadi begitulah adanya......」
-Aku tidak tahu apa yang Kamu maksudkan; tetapi jika itu benar, maka ini harus mungkin. Aku akan membayar. 」
-Iklan
+"Jika apa yang Kamu katakan itu benar, maka buatlah kontrak sihir." (Ciel)
 
-Ciel mengeluarkan tiga puluh koin emas dari tas ajaib kami dan meletakkannya di atas meja.
+"Jadi begitu......" (Ketua Guild)
 
-Kontrak sihir adalah sesuatu yang dipertukarkan Duke Rispelgia dan manusia babi ketika Ciel berusia 10 tahun. Dengan menggunakan pena dengan tinta yang terbuat dari inti ajaib di atas kertas khusus, itu akan menunjukkan efeknya.
+"Aku tidak tahu apa yang Kamu maksudkan; tetapi jika itu benar, maka ini bisa dilakukan. Aku akan membayarnya." (Ciel)
 
-Sederhananya, melanggar kontrak yang memiliki kekuatan mengikat akan menghasilkan penalti.
+Ciel mengeluarkan tiga puluh koin emas dari tas sihir kami dan meletakkannya di atas meja.
+
+Kontrak sihir adalah sesuatu yang dipakai Duke Rispelgia dan manusia babi ketika Ciel berusia 10 tahun. Dengan menggunakan pena dengan tinta yang terbuat dari magic core di atas kertas khusus, itu akan menunjukkan efeknya.
+
+Sederhananya, melanggar kontrak akan menghasilkan penalti.
+
 Hukuman dapat dicabut tergantung pada kontrak, tetapi dalam banyak kasus, itu tidak akan terjadi.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
-
 Efeknya tidak bertahan selamanya. Berdasarkan bahan yang digunakan, jangka waktu efektif akan bervariasi.
+
 Ada kontrak yang berlaku selama 1, 3, 5, dan 10 tahun, dan semakin lama semakin mahal harganya.
+
 Semuanya cukup mahal dan 30 koin emas setara dengan kontrak sihir tiga tahun.
 
-Karena kita hanya membutuhkannya untuk tetap berlaku sampai Ciel berusia 15 tahun, Ciel hanya menjatuhkan 30 koin emas seperti itu.
-Bahkan ada pesta Rank-E di masa lalu yang kesulitan menyimpan 3 koin emas, jadi 30 koin adalah jumlah uang yang cukup besar; tetapi mengingat kami telah menyelesaikan banyak permintaan Rank-C, di atas fakta bahwa kami praktis tidak menggunakan apa pun selain sihir untuk menyerang, pada dasarnya kami memiliki lebih banyak uang daripada yang dapat kami gunakan, jadi ini tidak terlalu menyakitkan untuk dibiarkan. pergi dari.
+Karena kami hanya membutuhkannya untuk tetap berlaku sampai Ciel berusia 15 tahun, Ciel hanya menjatuhkan 30 koin emas seperti itu.
+
+Bahkan ada party Rank-E di masa lalu yang kesulitan menyimpan 3 koin emas, jadi 30 koin adalah jumlah uang yang cukup besar; tetapi mengingat kami telah menyelesaikan banyak permintaan Rank-C, di atas fakta bahwa kami tidak menggunakan apa pun selain sihir untuk menyerang, pada dasarnya kami memiliki lebih banyak uang daripada yang dapat kami gunakan, jadi ini tidak terlalu bermasalah.
+
 Jika kami menawarkan untuk membayar, maka itu akan menyulitkan pihak lain untuk menolak juga.
 
 Ketua Guild meletakkan telapak tangannya di atas kepalanya, dan bertanya dengan tatapan sedih.
 
-Apakah kami tidak bisa dipercaya bagimu?」
-Kamu berpikir sebaliknya?」
-Benar, itu benar, bukan ...... Bagaimana, sebagai ganti kontrak, Kamu mempertahankan frekuensi kerja Kamu seperti sebelumnya-......」
-Tidak. 」
+"Apakah kami tidak bisa dipercaya bagimu?" (Ketua Guild)
+
+"Kamu berpikir sebaliknya?" (Ciel)
+
+"Benar, itu benar ...... Bagaimana kalau, sebagai ganti kontrak, Kamu mempertahankan frekuensi kerjamu seperti sebelumnya-......" (Ketua Guild)
+
+"Tidak." (Ciel)
 
 Sementara Guild Hunter menawarkan permintaan untuk Hunter, mereka tidak dapat memaksa penerimaan permintaan.
-Ketika benar-benar diperlukan, mereka dapat menetapkan permintaan yang memberikan permintaan tersebut kekuatan yang memaksa di baliknya, tetapi Aku pernah mendengar bahwa ada kriteria ketat kapan itu diperbolehkan.
-Paling tidak, itu bukan sesuatu yang bisa mereka gunakan untuk mendorong permintaan yang belum diproses ke Hunter, jadi praktis tidak ada kemungkinan Ciel ditunjuk untuk itu.
-Lagi pula, dari kata-kata Ketua Guild, Aku dapat membayangkan bahwa apa yang diinginkan dari Ciel adalah perpanjangan dari apa yang dia lakukan sekarang, dengan kata lain, penyelesaian permintaan yang belum diproses.
+
+Ketika benar-benar diperlukan, mereka dapat menetapkan permintaan yang memaksa, tetapi Aku pernah mendengar bahwa ada kriteria ketat kapan itu diperbolehkan.
+
+Paling tidak, itu bukan sesuatu yang bisa mereka gunakan untuk mendorong permintaan yang belum diproses ke Hunter, jadi tidak ada kemungkinan Ciel ditunjuk untuk itu.
+
+Lagi pula, dari kata-kata Ketua Guild, Aku dapat membayangkan bahwa apa yang diinginkannya dari Ciel adalah apa yang dia lakukan sekarang, dengan kata lain, penyelesaian permintaan yang belum diproses.
 
 Ciel dan Ketua Guild saling melotot tajam, tetapi Ketua Guild dengan cepat menyerah dan mengambil kertas, pena, dan tempat tinta dari rak di sudut ruangan.
+
 Aku merasakan kekuatan sihir dari tinta di pena, jadi Aku yakin itu diperlukan untuk kontrak sihir.
 
-Aku akan menyerahkan detailnya pada penilaian Kamu.
+"Aku akan menyerahkan detailnya padamu."
 
 Diserahkan set lengkap, Ciel dan Aku mendiskusikan apa yang harus kami tulis.
 Karena benar-benar melelahkan untuk memikirkan beberapa kontrak implisit, kami hanya menulis ringkasan singkat dari percakapan sebelumnya dan jalannya acara dimulai dari ketika bocah itu mendekati kami, dengan Ketua Guild of Norvelle mengakui validitas detail yang disebutkan di atas. tertulis di akhir.
