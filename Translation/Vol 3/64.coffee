@@ -180,50 +180,57 @@ Bagaimana ya, dia cukup cepat untuk bangkit kembali. Permintaan ini tidak memaka
 dibawa kelar oleh tampilan kemenangan di menit terakhir dari Ketua Guild, kami memutuskan untuk kembali ke penginapan kami untuk hari ini.
 
 ◇
--------------
-Jadi kita sudah menyelesaikan jumlah permintaan yang diperlukan untuk Rank-B, ya. Itu mengejutkan.」
-Kalau dipikir-pikir, karena kita tidak melakukan apa-apa selain menyelesaikan permintaan di luar perjalanan, itu sangat masuk akal.
-Ciel, apakah kamu tahu berapa banyak permintaan yang telah kami selesaikan sampai sekarang?』
-Itu mungkin menjadi salah satu alasannya, tetapi kami juga biasanya mengerjakan beberapa permintaan sekaligus.
-Jadi kalau Aku termasuk yang sederhana, mungkin sekitar 300 atau kurang?
-Aku kira juga begitu. Lalu, apakah kamu tahu berapa banyak permintaan yang diselesaikan oleh Hunter Rank-C biasa dalam sebulan?』
-Jika aku ingat dengan benar, kamu bisa mendapatkan cukup uang untuk hidup dengan empat permintaan… Begitu. Aku mengerti sekarang."
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+[Jadi kita sudah menyelesaikan jumlah permintaan yang diperlukan untuk Rank-B, ya. Itu mengejutkan.] (ciel)
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+[Kalau dipikir-pikir, karena kita tidak melakukan apa-apa selain menyelesaikan permintaan di luar perjalanan, itu sangat masuk akal. Ciel, apakah kamu tahu berapa banyak permintaan yang telah kita selesaikan sampai sekarang?] (ain)
+
+[Itu mungkin menjadi salah satu alasannya, tetapi kita juga biasanya mengerjakan beberapa permintaan sekaligus. Jadi aku hitung juga permintaan yang sederhana, mungkin sekitar 300?] (ciel)
+
+[Aku juga berpikir begitu. Lalu, apakah kamu tahu berapa banyak permintaan yang diselesaikan oleh Hunter Rank-C biasa dalam sebulan?] (ain)
+
+[Jika aku ingat dengan benar, kamu bisa mendapatkan cukup uang untuk hidup dengan empat permintaan... Begitu ya. Aku mengerti sekarang.] (ciel)
 
 Sepertinya Ciel juga yakin sekarang.
-Iklan
 
-Menimbang bahwa mereka bekerja di pesta, Hunter berperingkat lebih rendah; khususnya E-rank dan di bawahnya; akan memiliki waktu yang sangat sulit jika mereka tidak menyelesaikan permintaan setiap hari.
-Adapun mengapa mereka bekerja di pesta, itu wajar untuk tetap hidup. Hunter yang bekerja sendiri seperti kita—walau agak aneh untuk menggambarkannya seperti itu—sebenarnya jarang.
-Dan lebih tinggi pada tingkat D dan C-rank, Hunter kemudian akan mendapatkan lebih dari cukup untuk hidup bahkan jika mereka mengurangi frekuensi penyelesaian mereka.
+Menimbang bahwa mereka bekerja dengan party, Hunter dengan rank lebih rendah; khususnya rank-e dan di bawahnya; akan memiliki waktu yang sangat sulit jika mereka tidak menyelesaikan permintaan setiap hari.
 
-Tapi, semakin tinggi peringkatnya, semakin besar kesulitan permintaan dan risiko cedera atau kehilangan nyawa seseorang.
+Adapun mengapa mereka bekerja dengan party, itu wajar untuk tetap hidup. Hunter yang bekerja sendiri seperti kami,sebenarnya jarang ada.
+
+Dan lebih tinggi pada tingkat D dan C, Hunter kemudian akan mendapatkan lebih dari cukup untuk hidup bahkan jika mereka mengurangi frekuensi penyelesaian mereka.
+
+Tapi, semakin tinggi ranknya, semakin besar kesulitan permintaan dan risiko cedera atau kehilangan nyawa seseorang.
 
 Oleh karena itu, tipikal Hunter Rank tinggi hanya menerima beberapa permintaan per bulan.
+
 Setelah menyelesaikan satu, mereka akan memiliki beberapa hari istirahat yang cukup. Kemudian mereka akan pergi untuk permintaan lain lagi.
-Dikatakan bahwa jika Kamu tidak bisa melakukan itu, Kamu akan mati di suatu tempat acak bahkan sebelum Kamu bisa menjadi Hunter tingkat tinggi.
+
+katanya jika Kamu tidak bisa melakukan itu, Kamu akan mati di suatu tempat entah dimana bahkan sebelum Kamu bisa menjadi Hunter tingkat tinggi.
 
 Di sisi lain, Ciel menyelesaikan permintaannya tanpa memikirkan langkah ini sama sekali.
-Mengapa? Itu karena sama sekali tidak ada level C-rank yang berbahaya baginya. Bahkan dalam kasus permintaan Rank-B, seharusnya tidak ada risiko kehilangan nyawanya.
-Dibandingkan saat kita masih berada di mansion, berada di hutan yang dipenuhi monster tidak terlalu membebani mental dan emosional. Bagaimanapun, kita tidak harus terus-menerus stres dengan bahaya yang terus-menerus terhadap hidup kita.
 
-Itu sebabnya Aku tidak terkejut mendengar bahwa kami sudah mendapatkan cukup banyak permintaan yang diselesaikan—poin kontribusi?—untuk promosi Rank-B.
+Mengapa? Itu karena sama sekali tidak ada level rank-C yang berbahaya baginya. Bahkan permintaan Rank-B, seharusnya tidak ada risiko menghilangkan nyawanya.
 
-Mungkin juga mereka memasukkan resolusi independen kami dari penyerbuan monster dalam penilaian secara independen dari itu juga.
+Dibandingkan saat kami masih berada di mansion, berada di hutan yang dipenuhi monster tidak terlalu membebani mental. Bagaimanapun juga, kami tidak harus terus-menerus stres dengan bahaya yang terus-menerus terhadap hidup kami.
 
-Ini adalah pertama kalinya Aku mendengar bahwa kami telah menyelesaikan cukup banyak permintaan untuk promosi. Itu karena mereka ingin mendorong permintaan yang belum diproses pada kita, kan?」
-Mungkin itu masalahnya. Mereka tahu bahwa kita hanya akan melakukan permintaan yang belum diproses sendiri, jadi dari sudut pandang guild, kita mungkin telah dilihat sebagai Hunter yang sangat nyaman.』
-Ain, tidakkah kamu memiliki sesuatu untuk dikatakan menentang itu?」
-『Yah, itu penting untuk menggunakan apa pun yang Kamu bisa, setelah semua.
-Dalam kasus kami, karena kami telah menyatakan bahwa kami akan meninggalkan negara ini ketika kami mencapai Rank-B, tidak aneh jika mereka berpikir untuk membuat kami menyelesaikan sebanyak mungkin selagi kami masih di sini. .
-Bukannya Aku sama sekali tidak mengatakan apa-apa untuk menentang ini, tetapi menurut Aku, mau bagaimana lagi.
-"Aku melihat. Kalau begitu, kurasa tidak apa-apa.」
-Jika aku marah, mungkin ketika berita ini sengaja dirahasiakan dari kami meskipun kami bisa saja mendapatkan promosi Rank-B.』
+Itu sebabnya Aku tidak terkejut mendengar bahwa kami sudah mendapatkan cukup banyak permintaan yang diselesaikan, atau poin kontribusi?, untuk promosi Rank-B.
 
-Iklan
-Mengangguk sambil tampaknya yakin, Setelah kita melihat laut, di mana kita harus bersembunyi?」 Ciel kemudian mengubah topik pembicaraan.
+Mungkin mereka memasukkan penyerbuan monster dalam penilaian secara independen juga.
+
+[Ini adalah pertama kalinya Aku mendengar bahwa kita telah menyelesaikan cukup banyak permintaan untuk promosi. Itu karena mereka ingin mendorong permintaan yang belum diproses pada kita, kan?] (Ciel)
+
+[Mungkin itu masalahnya. Mereka tahu bahwa kita hanya akan melakukan permintaan yang belum diproses, jadi dari sudut pandang guild, kita mungkin telah dilihat sebagai Hunter yang sangat bagus.] (Ain)
+
+[Ain, tidakkah kamu memiliki sesuatu untuk dikatakan untuk menentang itu?] (Ciel)
+
+[Yah, itu penting untuk menggunakan apa pun yang Kamu bisa. Dalam kasus kita, karena kita telah menyatakan bahwa kita akan meninggalkan negara ini ketika kita mencapai Rank-B, tidak aneh jika mereka berpikir untuk membuat kita menyelesaikan sebanyak mungkin selagi kita masih di sini. Bukannya Aku sama sekali tidak mengatakan apa-apa untuk menentang ini, tetapi menurutku, yaah mau bagaimana lagi.] (Ain)
+
+[begitu ya. Kalau begitu, kurasa tidak apa-apa.] (Ciel)
+
+[Jika aku marah, mungkin ketika berita ini sengaja dirahasiakan dari kita meskipun kita bisa saja mendapatkan promosi Rank-B.] (ain)
+
+Mengangguk sambil tampaknya yakin, [Setelah kita melihat laut, di mana kita harus bersembunyi?] Ciel kemudian mengubah topik pembicaraan.
+
 Sepertinya Ciel juga memiliki sesuatu yang ingin dia lakukan dan senang dia punya banyak waktu luang.
+
 Karena Ciel telah menemukan sesuatu yang secara aktif ingin dia lakukan, Aku mulai mempertimbangkan dengan serius ide untuk bersembunyi di gunung.
