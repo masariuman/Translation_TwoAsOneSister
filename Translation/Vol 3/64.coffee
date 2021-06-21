@@ -2,72 +2,91 @@ CHAPTER 64: B-RANK, REQUEST COUNT, AND HOLING UP IN THE MOUNTAINS
 
 Mengikuti suara langkah kaki, pintu terbuka dan Ketua Guild yang tangguh muncul.
 
-Tatapannya sangat tajam, dan dipasangkan dengan tubuhnya yang besar, dia memancarkan aura intimidasi.
+Tatapannya sangat tajam, dan dengan tubuhnya yang besar, dia memancarkan aura intimidasi.
 
 Hanya berduaan dengan orang seperti ini di sebuah ruangan mungkin akan membuat anak berusia 12 tahun berlinang air mata. Yang lebih pemalu mungkin bahkan akan menangis.
 
-Meskipun dalam kasus Ciel, jauh dari air mata, dia hanya menatapnya dengan tidak tertarik.
-Sementara dia tertarik pada informasi, dia tidak tertarik pada Ketua Guild itu sendiri, jadi mau bagaimana lagi.
+Meskipun dalam kasus Ciel, dia hanya menatapnya dengan tidak tertarik.
+
+Sementara dia tertarik pada informasi, dia tidak tertarik pada Ketua Guild itu sendiri, jadi yaah mau bagaimana lagi.
+
 Lagipula, aku sendiri tidak jauh berbeda.
 
-Apakah Aku membuat Kamu menunggu?」
-Ya.
-Aku buruk kalau begitu.
+"Apakah Aku membuat Kamu menunggu?" (Ketua Guild)
+
+"Ya." (Ciel)
+
+"Maaf." (Ketua Guild)
 
 Tanpa sedikit pun rasa hormat, Ciel tidak menjawab apa-apa selain kebenaran dan Ketua Guild dengan santai menjawab kembali.
 
-Bahkan jika kita pernah ditahan di sini selama beberapa hari, itu tidak seperti keluarga Rispelgia kemudian akan segera menemukan kita — pertama-tama, diragukan apakah mereka bahkan mencari kita — dan itu tidak seperti kita akan B-rank dalam waktu yang singkat.
+Bahkan jika kami ditahan di sini selama beberapa hari, keluarga Rispelgia tidak akan segera menemukan kami dengan segera — pada dasarnya, bisa diragukan apakah mereka bahkan mencari kami — dan itu tidak seperti kami akan menjadi rank-B dalam waktu yang singkat.
+
 Itu dalam batas kesalahan. Sebaliknya, fakta bahwa mereka mendapat informasi pada saat Ciel dan aku selesai mengobrol hanya bisa digambarkan dengan cepat.
+
 Terlepas dari itu, kami memang menunggu; dan Ciel hanya memberikan jawaban yang jujur.
 
 Apakah Ketua Guild tipe yang tidak marah dengan hal semacam ini? Atau apakah dia membuat pengecualian untuk Ciel?
-Kemungkinan yang terakhir. Bagaimanapun, seorang Ketua Guild tidak boleh diperlakukan dengan enteng oleh para Hunter.
+
+mungkin saja ini pengecualian untuk ciel. Bagaimanapun juga, seorang Ketua Guild tidak boleh diperlakukan dengan enteng oleh para Hunter.
 
 Setelah duduk di kursi kosong, dia tampak ragu-ragu untuk berbicara tetapi tetap berbicara.
 
-Kesimpulannya, satu-satunya kekuranganmu untuk promosi Rank-B adalah usia.
-Selama Kamu terus menyelesaikan satu permintaan sebulan, Rank Kamu akan naik secara otomatis ketika Kamu mencapai usia 15 tahun.」
-Persyaratan usia. Aku belum pernah diberitahu tentang itu.
-Tidak pernah ada preseden C-rank berusia 12 tahun sebelumnya, Kamu tahu? Para petinggi saat ini mengalami kesulitan dengan penilaian.
-Awalnya, orang mencapai Rank-B ketika mereka biasanya berusia sekitar 25-30 tahun, dan bahkan yang termuda yang pernah tercatat dikatakan berusia 20 tahun. Hampir semua orang yang mencapai Rank-B pada usia 20-an bergabung dengan guild ketika mereka berusia 10 tahun, jadi 10 tahun akan berlalu sebelum mereka dipromosikan ke Rank-B.」
-Terlalu sedikit informasi tentangku?」
+"Kesimpulannya, satu-satunya hal yang menahan promosi Rank-B adalah usia. Selama Kamu terus menyelesaikan satu permintaan sebulan, Rankmu akan naik secara otomatis ketika Kamu mencapai usia 15 tahun." (Ketua Guild)
+
+"Persyaratan usia. Aku belum pernah diberitahu tentang itu." (Ketua Guild)
+
+"Tidak pernah ada orang dengan Rank-C berusia 12 tahun sebelumnya, Kamu tahu? Para petinggi saat ini mengalami kesulitan dengan penilaian. biasanya, orang mencapai Rank-B ketika mereka biasanya berusia sekitar 25-30 tahun, dan bahkan yang termuda yang pernah tercatat dikatakan berusia 20 tahun. Hampir semua orang yang mencapai Rank-B pada usia 20-an bergabung dengan guild ketika mereka berusia 10 tahun, jadi 10 tahun akan berlalu sebelum mereka dipromosikan ke Rank-B." (Ketua Guild)
+
+"Terlalu sedikit informasi tentangku?" (Ciel)
 
 Ciel melewatkan beberapa kata, tetapi Ketua Guild mengangguk setuju.
-Dibandingkan dengan 10 tahun yang biasanya dibutuhkan guild untuk menilai apakah seseorang cocok menjadi B-rank, mereka hanya memiliki 3 dari Ciel.
+
+Dibandingkan dengan 10 tahun yang biasanya dibutuhkan guild untuk menilai apakah seseorang cocok menjadi rank-B, mereka hanya memiliki 3 tahun untuk kasus Ciel.
+
 Selain itu, kami tidak tinggal di satu tempat untuk waktu yang lama, jadi mungkin jauh lebih sulit untuk membuat penilaian.
+
 Aku mengerti apa yang ingin dia katakan.
 
-Iklan
-"Hal lain. Begitu seseorang mencapai Rank B, mereka akan diberikan kekuatan yang cukup sehingga bahkan bangsawan tidak dapat memperlakukan mereka dengan enteng lagi.
-Meskipun tidak seperti Kamu akan mendapatkan otoritas nyata, tergantung pada penggunaannya, masih banyak hal yang dapat Kamu lakukan.」
-Ini rumit karena Aku belum cukup dewasa?」
-Benar. Nona Cielmer, Kamu ...... tidak dianggap sebagai anak kecil lagi tetapi memikirkannya secara wajar, ini bukan sesuatu yang diharapkan untuk ditangani oleh anak berusia 12 tahun.
-Tetap saja, itu juga sia-sia untuk membuatmu tetap di Rank-C.」
-Itulah sebabnya berusia 15 tahun.」
+"Hal lainnya. Begitu seseorang mencapai Rank B, mereka akan diberikan kekuatan yang cukup sehingga bahkan bangsawan tidak dapat memperlakukan mereka dengan enteng lagi. Meskipun tidak seperti Kamu akan mendapatkan otoritas yang nyata, tergantung pada penggunaannya, masih banyak hal yang dapat Kamu lakukan." (Ketua Guild)
 
-Ain, bagaimana menurutmu?』
-Jika aku harus mengatakannya, itu adalah reaksi yang masuk akal. Lagi pula, ketika melakukan sesuatu yang belum pernah dilakukan sebelumnya, pasti akan ada orang yang menentangnya.
-Menunggu sampai kita mencapai usia 15 tahun menjadi kompromi ... kedengarannya masuk akal.』
-Jika itu masalahnya, maka kita harus tinggal di negara ini selama 2 tahun lagi.』
-Begitu ...... bagaimana tampaknya.』
+"Ini rumit karena Aku belum cukup dewasa?" (Ciel)
 
-Bagi kami, yang ingin mencapai Rank-B secepat mungkin, berita tentang Ketua Guild sangat tidak menguntungkan.
-Namun, Aku bisa mengerti mengapa memiliki promosi Rank-B untuk anak berusia 12 tahun itu rumit. Ketika seorang Hunter mencapai Rank yang lebih tinggi, Guild Hunter akan menawarkan mereka beberapa tingkat perlindungan; dan ketika seseorang mencapai Rank-B, mereka mungkin bahkan akan melindungi Hunter dari para bangsawan.
-Namun, itu juga menyiratkan kemungkinan bahwa aktivitas Hunter Rank B ke atas akan menjadi tanggung jawab Guild Hunter.
+"Benar. Nona Cielmer, Kamu ...... tidak dianggap sebagai anak kecil lagi tetapi untuk pemikiran wajar, ini bukan sesuatu yang diharapkan untuk ditangani oleh anak berusia 12 tahun. Tetap saja, itu juga sia-sia untuk membuatmu tetap di Rank-C." (Ketua Guild)
 
-Hanya dari informasi bekas, Ciel tidak lebih dari seorang gadis sebelum dewasa .
+"Itulah sebabnya usia 15 tahun." (Ciel)
+
+[Ain, bagaimana menurutmu?] (Ciel)
+
+[Jika aku harus mengatakannya, itu adalah reaksi yang masuk akal. Lagi pula, ketika melakukan sesuatu yang belum pernah dilakukan sebelumnya, pasti akan ada orang yang menentangnya. Menunggu sampai kita mencapai usia 15 tahun ... kedengarannya masuk akal.] (Ain)
+
+[Jika itu masalahnya, maka kita harus tinggal di negara ini selama 2 tahun lagi.] (ciel)
+
+[Begitulah ...... tampaknya.] (Ain)
+
+Bagi kami, yang ingin mencapai Rank-B secepat mungkin, berita ini sangat tidak menguntungkan.
+
+Tapi, Aku bisa mengerti mengapa memiliki promosi Rank-B untuk anak berusia 12 tahun itu rumit. Ketika seorang Hunter mencapai Rank yang lebih tinggi, Guild Hunter akan menawarkan mereka beberapa tingkat perlindungan; dan ketika seseorang mencapai Rank-B, mereka mungkin bahkan akan melindungi Hunter dari para bangsawan.
+
+Tapi, itu juga menyiratkan kemungkinan bahwa aktivitas Hunter Rank B ke atas akan menjadi tanggung jawab Guild Hunter.
+
+Hanya dari informasi yang ada, Ciel tidak lebih dari seorang gadis yang belum dewasa.
+
 Jika ditanya apakah dia dapat dipercayakan dengan posisi tanggung jawab, sebagian besar akan menjawab tidak.
 
 Dengan mengatakan itu, itu masih sangat disayangkan. Aku berharap bahwa kami mungkin bisa pergi sebelum mencapai usia 15 tahun, jadi itu benar-benar mengecewakan.
 
-Kalau begitu, akankah kita bersembunyi selama dua tahun lagi di gunung atau lebih?
-Kita hanya perlu sesekali pergi ke kota untuk menerima permintaan, kan?』
-Itu mungkin ide yang bagus. Kami tidak akan bertemu dengan pria itu, dan kami akan memiliki lebih banyak waktu untuk melakukan hal-hal lain dengan waktu yang kami habiskan untuk melakukan aktivitas Hunter dibebaskan.
-Tapi sebelum itu, kita harus meminta bukti bahwa apa yang dia katakan itu benar.』
-Kenapa begitu?』
-Itu karena jika kita tiba-tiba menurunkan frekuensi menerima permintaan, mereka mungkin akan menemukan kesalahannya dan menilai kita' tidak cukup termotivasi. Jika satu-satunya bukti kita adalah verbal "Kamu mengatakannya sebelumnya", ada kemungkinan mereka akan menutup telinga.』
-Aku mengerti sekarang, mengerti. Aku bisa menggunakan uang, kan?
-Uang itu milik Kamu, jadi Aku biasanya tidak akan mempertanyakan bagaimana Kamu membelanjakannya, Kamu tahu?』
+[Kalau begitu, akankah kita bersembunyi selama dua tahun lagi di gunung? Kita hanya perlu sesekali pergi ke kota untuk menerima permintaan, kan?] (Ciel)
+
+[Itu mungkin ide yang bagus. kita tidak akan bertemu dengan pria itu, dan kita akan memiliki lebih banyak waktu untuk melakukan hal-hal lain dengan waktu yang kita dapatkan. Tapi sebelum itu, kita harus meminta bukti bahwa apa yang dia katakan itu benar.] (Ain)
+
+[Kenapa?] (Ciel)
+
+[Itu karena jika kita tiba-tiba menurunkan frekuensi menerima permintaan, mereka mungkin akan menemukan kesalahan dan menilai kita tidak cukup termotivasi. Jika satu-satunya bukti kita adalah perkataan "Kamu mengatakannya sebelumnya", ada kemungkinan mereka akan menutup telinga.] (Ain)
+
+[Aku mengerti sekarang, mengerti. Aku bisa menggunakan uang, kan?] (Ciel)
+
+[Uang itu milik Kamu, jadi Aku biasanya tidak akan mempertanyakan bagaimana Kamu membelanjakannya, Kamu tahu?] (Ain)
 
 Jika apa yang Kamu katakan itu benar, maka buatlah kontrak sihir.」
 Jadi begitulah adanya......」
@@ -163,7 +182,7 @@ Menimbang bahwa mereka bekerja di pesta, Hunter berperingkat lebih rendah; khusu
 Adapun mengapa mereka bekerja di pesta, itu wajar untuk tetap hidup. Hunter yang bekerja sendiri seperti kita—walau agak aneh untuk menggambarkannya seperti itu—sebenarnya jarang.
 Dan lebih tinggi pada tingkat D dan C-rank, Hunter kemudian akan mendapatkan lebih dari cukup untuk hidup bahkan jika mereka mengurangi frekuensi penyelesaian mereka.
 
-Namun, semakin tinggi peringkatnya, semakin besar kesulitan permintaan dan risiko cedera atau kehilangan nyawa seseorang.
+Tapi, semakin tinggi peringkatnya, semakin besar kesulitan permintaan dan risiko cedera atau kehilangan nyawa seseorang.
 
 Oleh karena itu, tipikal Hunter Rank tinggi hanya menerima beberapa permintaan per bulan.
 Setelah menyelesaikan satu, mereka akan memiliki beberapa hari istirahat yang cukup. Kemudian mereka akan pergi untuk permintaan lain lagi.
