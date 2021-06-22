@@ -1,27 +1,40 @@
 CHAPTER 66: GOLDEN WOLF, SABRE, AND GROWING DISADVANTAGE
 
 Kegelapan mendekat dari dalam hutan. Kegelapan memiliki banyak mata dan di dalam kegelapan ada kilatan cahaya.
-Sementara setiap langkah kaki mungkin kecil dan sunyi, dengan lebih dari seratus langkah, langkah kaki ini menjadi jauh lebih terdengar.
-Berdasarkan angka mentah, jelas ada lebih sedikit monster dibandingkan dengan penyerbuan di masa lalu, tapi aku merasakan tekanan yang jauh lebih besar sekarang datang hanya dari satu monster yang dimaksud.
+
+setiap langkah kaki mungkin kecil dan sunyi, tapi dengan lebih dari seratus langkah, langkah kaki ini menjadi jauh lebih terdengar.
+
+Berdasarkan angka mentah, jelas ada lebih sedikit monster dibandingkan dengan penyerbuan di masa lalu, tapi aku merasakan tekanan yang jauh lebih besar sekarang yang datang hanya dari satu monster saja.
 
 Hanya beberapa detik tersisa sebelum mereka tiba.
+
 Ciel sudah selesai dengan persiapannya. Ini adalah lingkaran sihir yang sedikit besar.
+
 Lingkaran sihir yang agak besar yang mungkin bisa menampung sekitar seratus serigala.
 
-Melawan monster yang tampak gila sambil berurusan dengan seratus serigala kemungkinan akan sulit, jadi lebih baik jika ini setidaknya bisa menghilangkan semua gerutuan dalam sekejap.
-Jika memungkinkan, Aku berharap itu bisa menyingkirkan serigala emas yang tampak gila juga. Lingkaran sihir ini harus memiliki kekuatan yang cukup untuk melakukan itu.
-Dalam pertempuran pertama kami, pertempuran dengan cyclops, sihir Ciel saat itu tidak cukup kuat untuk mengalahkan cyclops tanpa dukungan, tetapi sihir yang dia gunakan sekarang mampu menghancurkan seratus, jika bukan dua ratus, cyclop.
+Melawan monster yang tampak gila sambil berurusan dengan seratus serigala kemungkinan akan sulit, jadi akan lebih baik jika ini setidaknya bisa menghilangkan 100 serigala semuanya dalam sekejap.
+
+Jika memungkinkan, Aku berharap itu bisa menyingkirkan serigala emas yang tampak gila juga. Lingkaran sihir ini harusnya memiliki kekuatan yang cukup untuk melakukan itu.
+
+Dalam pertempuran pertama kami, pertempuran dengan cyclops, sihir Ciel saat itu tidak cukup kuat untuk mengalahkan cyclops tanpa dukungan, tetapi sihir yang dia gunakan sekarang mampu menghancurkan seratus, atau dua ratus, cyclop.
 
 Mengenai monster Rank-A, Aku tidak tahu apakah hal yang sama dapat diterapkan.
-Lagi pula, sementara Ciel telah mengalahkan sejumlah monster sampai sekarang, kami belum melawan monster Rank-A.
-Meskipun begitu, aku yakin bahwa dengan dukungan penuhku, kita seharusnya memiliki kekuatan yang cukup untuk mengalahkan monster Rank-A.
-Padahal, untuk mengerahkan kekuatan sebanyak itu, persiapan yang tepat akan diperlukan.
 
-Yang besar benar-benar menonjol.』
-Sebaliknya, Aku lebih terkejut bahwa sesuatu yang besar sebenarnya dapat dikaburkan oleh serigala lain. other
-Aku akan mengaktifkan lingkaran sihir segera setelah mereka berada dalam jangkauan.』
-Aku akan mulai bernyanyi setelah ini. Dari apa yang bisa Aku rasakan dengan deteksi, mereka tidak mungkin menyimpang dari jalur yang diantisipasi.』
+Lagi pula, walaupun Ciel telah mengalahkan sejumlah monster sampai sekarang, kami belum melawan monster Rank-A.
+
+Meskipun begitu, aku yakin bahwa dengan dukungan penuhku, kami seharusnya memiliki kekuatan yang cukup untuk mengalahkan monster Rank-A.
+
+untuk mengerahkan kekuatan sebanyak itu, persiapan yang tepat akan diperlukan.
+
+[Yang besar benar-benar menonjol.] (Ain)
+
+[Sebaliknya, Aku lebih terkejut bahwa sesuatu yang besar sebenarnya dapat dikaburkan oleh serigala lain. other
+Aku akan mengaktifkan lingkaran sihir segera setelah mereka berada dalam jangkauan.] (ciel)
+
+Aku akan mulai bernyanyi setelah ini. Dari apa yang bisa Aku rasakan dengan deteksi, mereka tidak mungkin menyimpang dari jalur yang diantisipasi.
+
 Ain, aku mengandalkanmu.
+
 Kamu juga, Ciel. Tolong lakukan yang terbaik karena cakar itu bisa menjadi masalah asli.
 
 Bahkan dengan gelombang hitam yang mendekat tepat di depan kami, Ciel dan aku bertukar kata seperti biasanya; tapi sebelum aku selesai berbicara, Ciel mengaktifkan lingkaran sihir.
