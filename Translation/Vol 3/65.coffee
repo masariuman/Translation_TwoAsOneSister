@@ -248,3 +248,10 @@ Saat kami melakukan percakapan ini, monster secara bertahap mendekat.
 
 ----------------------------
 
+akhirnya setelah sekian lama kita akan menyaksikan aksi dari dedek ciel lagi... dan bukan ini mirip seperti penyerbuan juga ? hanya saja penyerbuan yang dipimpin oleh pimpinan monster kan ?
+
+ain oh ain, mengapa dia lupa kalau dia bisa memutar tidak melewati gunung ? mungkin terlalu menganggap monster enteng. tapi baru kali ini akhirnya ain menemukan musuh yang bisa dianggap bahaya... bahkan ain saja tidak yakin kalau barrier nya bisa menahan serangan serigala itu... ketua guild disini pasti senang karena ada ainciel di kota mereka.. mereka pasti menganggap ainciel bisa menyelesaikannya, atau bertaruh ainciel bisa menyelesaikannya ?
+
+dan juga sebenarnya ini adalah hal yang bagus untuk dikerjakan daripada permintaan biasa, mengapa ? kalau misalnya ainciel bisa menyelesaikan ini dan guild mengetahui bahaya yang diselesaikan oleh ainciel ini, bahkan ainciel menyelesaikannya sendirian, bukankah ini bisa menjadi bukti penilaian naik ke rank-b segera ? yaah semoga saja benar dan ainciel kita bisa langsung naik menjadi rank B..
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
