@@ -234,3 +234,15 @@ Mengangguk sambil tampaknya yakin, [Setelah kita melihat laut, di mana kita haru
 Sepertinya Ciel juga memiliki sesuatu yang ingin dia lakukan dan senang dia punya banyak waktu luang.
 
 Karena Ciel telah menemukan sesuatu yang secara aktif ingin dia lakukan, Aku mulai mempertimbangkan dengan serius ide untuk bersembunyi di gunung.
+
+-----------------------------
+
+heeh ? dimanapun ainciel berada sepertinya guild sendiri ingin sekali memanfaatkan ainciel.. tapi untuk kali ini dedek ciel kita cukup pintar mengingat tentang kontrak sihir... tentu saja guild tidak bisa dipercaya... buktinya dia seperti menekankan agar ainciel tidak menurunkan jumlah kerja mereka... padahal kalau tidak karena target mau naik jadi rank-b, ainciel tidak akan begitu melakukan permintaan... saya juga penasaran dengan kontrak yang dilakukan duke dan sibabi... tapi entahlah apa itu, sampai penulis mau memberitahukannya, kita tidak akan tahu, tapi mungkin saja kedepannya akan diungkit ketika duke bertemu dedek ciel kembali dan ingin merebutnya...
+
+ainciel kita cukup kaya juga.. 30 koin emas dibuang begitu saja tanpa ada beban... dan sudah kurang lebih menyelesaikan 300 permintaan ?? banyak sekali... yah dalam kurun waktu 2 tahun, kalau permintaannya satu hari 1 permintaan, tentu saja jumlah sebanyak itu masuk akal... apalagi mereka menyelesaikan beberapa permintaan sekaligus sekali jalan saja... dan waktunya pasti paling tidak 1-2 hari saja kecuali permintaan yang berhubungan dengan perjalanan jauh...
+
+sepertinya ketua guild merasa berhasil membuat ainciel kita bekerja secara teratur, padahal dia tidak tahu bahkan dedek ciel kita setuju dengan bersembunyi setelah melihat lautan... dan yaa mungkin, sebagai orang yang tidak melihat ainciel secara langsung, sulit untuk menilai mereka.. mengapa tidak memanggil ainciel ke guild utama saja untuk ditest disana ?? bukankah lebih cepat ? atau karena mereka masih tidak percaya kalau ainciel bisa melakukan semua itu ?
+
+ainciel kita sudah menyelesaikan semua persyaratan bahkan berlebihan untuk bisa rank-up ke rank B, tinggal masalah umur saja... padahal bisa saja kaan ?? tapi tidak masalah untuk saat ini akhirnya dedek ciel ingin melakukan sesuatu untuk mengisi waktu luangnya !!! saya sangat menunggu-nunggu apa yang akan dilakukan dedek ciel kita nanti ketika bersembunyi setelah melihat lautan.. apakah akan berlatih sihir menjadi lebih baik ?? atau semacamnya ?? yaay tidak sabar menunggunya...
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
