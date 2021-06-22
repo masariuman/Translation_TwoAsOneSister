@@ -38,70 +38,89 @@ orang yang terluka baru saja dibawa pergi. Aku hanya melihat sekilas, tetapi sep
 
 Dia dibawa ke ruang sakit atau tempat lain pada saat kami memasuki guild, jadi dia mungkin juga mengalami luka serius lainnya.
 
-Lebih dalam lagi, Aku mendengar para Hunter bertanya kepada resepsionis tentang apa yang baru saja terjadi.
+jauh kedalam, Aku mendengar para Hunter bertanya kepada resepsionis tentang apa yang baru saja terjadi.
+
 Meringkas apa yang Aku dengar, tampaknya monster tipe serigala dengan bulu emas muncul.
-Sebuah party Rank-C telah bertemu dengan Hunter Rank-D yang terbunuh saat dia terkejut. Seorang Hunter Rank-C kemudian menahan monster itu, sementara anggota yang tersisa berlari kembali untuk menyelamatkan nyawa mereka.
-Selain itu, sebagai akibatnya, seorang Hunter Rank-E yang berada di bagian hutan yang lebih dangkal juga terluka parah.
 
-Iklan
-Aku tidak bisa mengumpulkan lebih dari itu, tetapi sepertinya kemungkinan Rank C yang tersisa masih hidup sangat rendah.
+Sebuah party Rank-C telah bertemu dengan Hunter Rank-D yang terbunuh diserang secara tiba-tiba. Seorang Hunter Rank-C kemudian menahan monster itu, sementara anggota yang tersisa berlari kembali untuk menyelamatkan nyawa mereka.
 
-Sementara kami terus mendengarkan, Ketua Guild tiba. Setelah melihat Ciel, matanya terbuka lebar karena terkejut sesaat sebelum dia mendekati kami.
+Selain itu, seorang Hunter Rank-E yang berada di bagian hutan yang lebih depan juga terluka parah.
 
-Senang bertemu Kamu di sini.」
-Mohon izin penggunaan gerbang.」
-Tentang itu, ada sesuatu yang ingin Aku diskusikan tentang hal itu. Bisakah Kamu mengikuti Aku ke kantor?
+Aku tidak bisa mengumpulkan lebih dari itu, tetapi sepertinya kemungkinan Rank C yang tersisa yang masih hidup sangat rendah.
 
-Haruskah aku pergi?』
-Aku punya firasat buruk tentang ini, tapi kita tidak punya banyak pilihan karena kita akan pergi ke laut.
+Sementara kami terus mendengarkan, Ketua Guild tiba. Setelah melihat Ciel, matanya terbuka lebar karena terkejut sebelum dia mendekati kami.
 
-Dimengerti.
-Baiklah, ikuti aku.
+"Senang bertemu Kamu di sini." (Ketua Guild)
 
-Dipimpin oleh Ketua Guild, kami dibawa ke kantor, tepatnya kantor Ketua Guild.
-Sekarang aku memikirkannya, ini mungkin pertama kalinya kami memasukinya. Meskipun kami memiliki kesempatan untuk memasuki area staf dari beberapa guild sebelumnya, kami belum pernah berada di kantor Ketua Guild sebelumnya.
-Padahal, karena interior ruangan memiliki nuansa yang sama dengan kantor kepala sekolah dasar, itu tidak terlalu mengesankan bagiku.
+"Mohon izin keluar gerbang." (Ciel)
+
+"Tentang itu, ada sesuatu yang ingin Aku diskusikan tentang hal itu. Bisakah Kamu mengikutiku ke ruangan?" (Ketua Guild)
+
+[Haruskah aku pergi?] (Ciel)
+
+[Aku punya firasat buruk tentang ini, tapi kita tidak punya banyak pilihan karena kita akan pergi ke laut.] (Ain)
+
+"Baiklah." (Ciel)
+
+"Baiklah, ikuti aku." (Ketua Guild)
+
+Dipimpin oleh Ketua Guild, kami dibawa ke ruangan, tepatnya ruang Ketua Guild.
+
+Sekarang aku memikirkannya, ini mungkin pertama kalinya kami memasukinya. Meskipun kami memiliki kesempatan untuk memasuki area staf dari beberapa guild sebelumnya, kami belum pernah berada di ruang Ketua Guild sebelumnya.
+
+interior ruangan memiliki nuansa yang sama dengan ruangan kepala sekolah dasar, itu tidak terlalu mengesankan bagiku.
 
 Saat kami disuruh duduk di mana saja, Ciel kemudian duduk di sofa terdekat.
 
-Pernahkah Kamu mendengar bahwa monster berbahaya muncul di hutan utara?」
-Kurang lebih.」
-Lalu kami ingin mengajukan permintaan kepada Kamu, Nona Cielmer.
-Investigasi monster tersebut?」
-Dan penaklukannya, jika memungkinkan."
+"Pernahkah Kamu mendengar bahwa monster berbahaya muncul di hutan utara?" (Ketua Guild)
+
+"pernah." (Ciel)
+
+"kalau begitu kami ingin mengajukan permintaan kepadamu, Nona Cielmer." (Ketua Guild)
+
+"Investigasi monster tersebut?" (Ciel)
+
+"Dan menaklukkannya, jika memungkinkan." (Ketua Guild)
 
 Saat seorang Hunter diberikan permintaan yang ditentukan, mereka tidak dapat menolaknya tanpa alasan khusus.
-Namun, kejadian kali ini bisa dianggap "istimewa" juga.
+
+Tapi, kejadian kali ini bisa dianggap "istimewa" juga.
 
 Permintaan investigasi untuk monster yang tidak dikenal tidak memiliki persyaratan Rank tertentu untuk diterima.
+
 Sebaliknya, Kamu hanya melihat permintaan investigasi sebagai permintaan yang ditentukan. Ini karena fakta bahwa kekuatan monster itu sama sekali tidak diketahui.
+
 Lagi pula, jika penyelidikan diserahkan kepada Hunter acak, ada risiko mereka hanya mengarang laporan mereka.
-Alasan lain untuk itu adalah kadang-kadang menugaskan ini ke Hunter Rank rendah yang berhati-hati, alih-alih Hunter Rank tinggi berdarah panas, akan menghasilkan lebih banyak informasi yang diperoleh juga.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Alasan lain untuk itu adalah kadang-kadang menugaskan ini ke Hunter Rank rendah yang berhati-hati, daripada Hunter Rank tinggi berdarah panas, akan menghasilkan lebih banyak informasi yang diperoleh juga.
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Tapi, dalam insiden ini, telah ditetapkan bahwa pihak rank-C terpaksa melarikan diri.
 
-Iklan
-Namun, dalam insiden ini, telah ditetapkan bahwa pihak C-rank terpaksa melarikan diri.
-Karena itu, mereka harus menetapkan ini untuk Hunter Rank-B ke atas hanya untuk memastikan, atau untuk Hunter dengan kecepatan lari lebih tinggi dari Rank-B normal. Namun, Ciel tidak cocok dengan kedua kasus tersebut. Meskipun dia cukup ringan di kakinya karena dia seorang Hunter solo.
+Karena itu, mereka harus menetapkan ini untuk Hunter Rank-B ke atas hanya untuk memastikan, atau untuk Hunter dengan kecepatan lari lebih tinggi dari Rank-B normal. Tapi, Ciel tidak cocok dengan kedua kasus tersebut. Meskipun dia cukup ringan dengan kakinya karena dia seorang Hunter solo.
 
-Dengan kata lain, itu adalah permintaan yang kemungkinan besar berada di luar Rank kita.
-Jadi jika kita menunjukkan bahwa itu di wilayah abu-abu, mereka tidak punya pilihan selain mundur.
+Dengan kata lain, itu adalah permintaan yang kemungkinan besar berada di luar Rank kami.
 
-Tetap saja, jika kita tidak menerima ini, kita harus sedikit memaksakan diri untuk bisa pergi ke hutan utara.
+Jadi jika kami menunjukkan bahwa itu di wilayah abu-abu, mereka tidak punya pilihan selain mundur.
+
+Tetap saja, jika kami tidak menerima ini, kami harus sedikit memaksakan diri untuk bisa pergi ke hutan utara.
+
 Selain itu, kami tidak akan bisa mendapatkan informasi apa pun mengenai ancaman tersebut. Dan sepertinya Ciel juga mengerti itu.
 
-Area abu-abu, kamu berhutang budi padaku. Tidak ada penalti jika gagal.」
-Diterima.」
-Beri Aku informasinya.」
+"Area abu-abu, kamu berhutang budi padaku. Tidak ada penalti jika gagal." (Ciel)
+
+"Diterima." (Ketua Guild)
+
+"Beri Aku informasinya." (Ketua Guild)
 
 Ketua Guild memberi kami penjelasan yang lebih rinci tentang apa yang kami dengar di lobi.
+
 Monster itu setinggi manusia dan cakarnya menebang pohon dengan mudah.
+
 Sekarang tidak peduli bagaimana Aku memikirkannya, ini pasti untuk Hunter Rank-B ke atas. Tetap saja, karena kami tidak akan menerima hukuman apapun bahkan jika kami terpaksa melarikan diri, maka itu cukup bisa diterima.
 
-Setelah menyelesaikan bisnis kami dan menerima izin penggunaan untuk gerbang utara, Ciel keluar dari kantor.
-Saat dia melakukannya, Ketua Guild memberitahunya Aku mengandalkanmu. dengan ekspresi termenung, tapi Ciel menutup pintu tanpa melihat ke arahnya.
+Setelah menyelesaikan bisnis kami dan menerima izin untuk gerbang utara, Ciel keluar dari ruangan.
+
+Saat dia melakukannya, Ketua Guild memberitahunya "Aku mengandalkanmu." dengan ekspresi termenung, tapi Ciel menutup pintu tanpa melihat ke arahnya.
 
 ◇
 
@@ -169,7 +188,7 @@ Yang paling banyak kulihat sejauh ini adalah dari Cyclops kelas-B, jadi setidakn
 
 Dan sepertinya penyebab kegelisahanku adalah cakarnya.
 
-Sesuatu yang mirip namun berbeda dari kekuatan sihir mengalir dari cakar ini.
+Sesuatu yang mirip Tapi berbeda dari kekuatan sihir mengalir dari cakar ini.
 Sesuatu yang tampaknya jauh lebih padat, sesuatu yang bisa disebut sebagai versi upgrade dari kekuatan sihir.
 
 Iklan
