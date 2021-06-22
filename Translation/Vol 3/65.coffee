@@ -6,29 +6,37 @@ Mengabaikan keributan itu, Ciel langsung menuju gerbang utara tetapi dihentikan 
 
 Kami diberitahu bahwa monster yang kuat muncul dan para Hunter yang menemukannya kembali dengan luka serius dan karena itu, tampaknya para Hunter tidak bisa keluar tanpa persetujuan dari Guild Hunter sekarang.
 
-Entah bagaimana rasanya kita akan terbungkus dalam sesuatu yang benar-benar merepotkan lagi.
+[Entah bagaimana rasanya kita akan terlibat dengan sesuatu yang benar-benar merepotkan lagi.] (ciel)
 
-Aku setuju. Haruskah kita segera bersembunyi di hutan?』
-Sangat tidak biasa bagimu untuk menyarankan hal seperti itu, Ain. Apakah ada yang salah? 』
-『Dalam situasi ini, kita cenderung untuk mendapatkan terkena sebagai Lagu Putri untuk beberapa alasan, Kamu lihat?』
-『Apakah kau tidak hanya lelah terlibat dengan Guild setelah kami mendapat terkena kembali di ibukota, Ain?』
+[Aku setuju. Haruskah kita segera bersembunyi di hutan?] (ain)
 
-Ciel terkikik, tapi apa yang dia katakan sepenuhnya benar. Sekarang aku tahu kita sudah menyelesaikan cukup banyak permintaan untuk menjadi Rank-B, aku tidak punya motivasi lagi untuk secara aktif menerima permintaan.
+[Sangat tidak biasa bagimu untuk menyarankan hal seperti itu, Ain. Apakah ada yang salah?] (ciel)
+
+[Dalam situasi ini, kita cenderung untuk akan ketahuan sebagai song princess untuk beberapa alasan, mengerti?] (ain)
+
+[kamu hanya lelah terlibat dengan Guild setelah apa yang terjadi di ibukota, kan Ain?] (ciel)
+
+Ciel terkikik, tapi apa yang dia katakan sepenuhnya benar. Sekarang aku tahu kami sudah menyelesaikan cukup banyak permintaan untuk menjadi Rank-B, aku tidak punya motivasi lagi untuk secara aktif menerima permintaan.
 
 Tapi sekali lagi, sementara Aku seharusnya menyadari ini sebelumnya, Aku akhirnya ingat sekarang. Alasan kami pergi ke pegunungan adalah karena Ciel ingin melihat laut.
-Dengan mengingat hal itu, tidak terlalu merepotkan untuk pergi ke guild untuk mendapatkan persetujuan. Meskipun kita juga dapat memilih untuk memaksa keluar, karena tampaknya berbahaya saat ini, mengumpulkan informasi di guild bukanlah hal yang buruk sepenuhnya. Ciel ingin pergi ke laut, jadi aku tidak bisa melarangnya.
 
-『Untuk saat ini, mengapa kita tidak pergi ke guild pertama?』
-『Fufufu , baik-baik saja.』
+Dengan mengingat hal itu, tidak terlalu merepotkan untuk pergi ke guild untuk mendapatkan persetujuan. Meskipun kami juga dapat memilih untuk memaksa keluar, karena tampaknya berbahaya saat ini, mengumpulkan informasi di guild bukanlah hal yang buruk juga. Ciel ingin pergi ke laut, jadi aku tidak bisa melarangnya.
+
+[Untuk saat ini, mengapa kita tidak pergi ke guild?] (ain)
+
+[Fufufu, baiklah.] (ciel)
 
 Melihat senyum lembut Ciel, sulit untuk membedakan siapa di antara kami yang dewasa.
-Aku sudah menyadari hal ini tetapi ketika Aku telah bersama Ciel selama 12 tahun, dan Aku berusia dua puluhan sebelum Aku meninggal, secara mental di usia tiga puluhan adalah sesuatu yang tidak dapat Aku tegaskan dengan keyakinan akhir-akhir ini.
+
+Aku sudah menyadari hal ini tetapi Aku telah bersama Ciel selama 12 tahun, dan Aku berusia dua puluhan sebelum Aku meninggal, jadi secara mental aku berada di usia tiga puluhan tapi itu adalah sesuatu yang tidak dapat Aku tegaskan akhir-akhir ini.
 
 ◇
 
 Begitu kami tiba di guild, keadaannya saat ini benar-benar kacau.
-Bagaimanapun, orang yang terluka baru saja dibawa pergi. Aku hanya melihat sekilas, tetapi dia sepertinya kehilangan lengan.
-Dia dibawa ke ruang sakit atau tempat lain pada saat kita memasuki guild, jadi dia mungkin juga mengalami luka serius lainnya.
+
+orang yang terluka baru saja dibawa pergi. Aku hanya melihat sekilas, tetapi sepertinya dia yang kehilangan lengan.
+
+Dia dibawa ke ruang sakit atau tempat lain pada saat kami memasuki guild, jadi dia mungkin juga mengalami luka serius lainnya.
 
 Lebih dalam lagi, Aku mendengar para Hunter bertanya kepada resepsionis tentang apa yang baru saja terjadi.
 Meringkas apa yang Aku dengar, tampaknya monster tipe serigala dengan bulu emas muncul.
