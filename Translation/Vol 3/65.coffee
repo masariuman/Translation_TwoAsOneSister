@@ -206,33 +206,45 @@ Yang paling banyak kulihat sejauh ini adalah dari Cyclops kelas-B, jadi setidakn
 
 Dan sepertinya penyebab kegelisahanku adalah cakarnya.
 
-Sesuatu yang mirip Tapi berbeda dari kekuatan sihir mengalir dari cakar ini.
-Sesuatu yang tampaknya jauh lebih padat, sesuatu yang bisa disebut sebagai versi upgrade dari kekuatan sihir.
+Sesuatu yang mirip Tapi berbeda dari energi sihir mengalir dari cakar ini.
 
-Iklan
-Alasan monster ini bisa dengan mudah menebang pohon kemungkinan karena cakarnya yang tepat.
-Ini hanya spekulasi karena Aku tidak tahu apa sifat sesuatu itu , tetapi mungkin bisa memotong batu menjadi dua; dan untuk manusia? Kemungkinan bahkan tidak akan merasakan perlawanan.
-Aku yakin bahwa hanya dengan menyerempetnya akan menyebabkan cedera fatal.
+Sesuatu yang tampaknya jauh lebih padat, sesuatu yang bisa disebut sebagai versi upgrade dari energi sihir.
 
-Iklan
-Dan cakar itu adalah berita buruk. Benar-benar berita buruk. Ini hanya tebakan, tetapi sangat mungkin bahwa ini dapat dengan mudah menembus penghalang Aku.
-Begitulah rasanya mengancam.
+Alasan monster ini bisa dengan mudah menebang pohon kemungkinan karena cakarnya itu.
 
-"Aku menemukannya. Tampaknya memimpin lebih dari seratus monster.』
-Itu seharusnya bisa diatur. Bagaimana dengan yang dipertanyakan?』
-Ini hanya spekulasi, tapi mungkin lebih besar dari kelas-A. Khususnya, aku bisa merasakan sesuatu yang mirip dengan kekuatan sihir dari cakarnya dan aku merasakan bahaya yang cukup besar darinya. Bahkan mungkin menembus penghalang Aku.
-Itu kejutan. Pasti kejutan. 』
-『Haruskah kita lari?』
-『Bisakah kita lari?』
+Ini hanya spekulasi karena Aku tidak tahu apa itu, tetapi mungkin itu bisa memotong batu menjadi dua; dan untuk manusia? Kemungkinan bahkan tidak akan merasakan apapun ketika terkena itu.
 
-Untungnya, ada jarak di antara kami. Sementara kecepatan lari Ciel lebih lambat dari serigala, kita masih bisa lari jika mereka belum menyadarinya. Jika mereka melihat kita dari sini, diragukan apakah kita bisa berlari lebih cepat dari mereka.
-Artinya jika mereka mengejar kita, kita tidak akan bisa melarikan diri. Selain itu, Aku punya firasat bahwa mereka mungkin sudah memperhatikan kami.
+Aku yakin bahwa hanya dengan terkena sedikit saja akan menyebabkan cedera fatal.
 
-Ini akan menjadi pertaruhan.』
-Kalau begitu, mari kita tunggu. Lagipula, kita mungkin bisa mengalahkan mereka dengan mudah.
-Jika mereka pergi ke arah kita, maka kita bisa mempersiapkan sebanyak yang kita bisa.
-Jadi, apakah monster-monster itu menuju ke arah kita?』
-Mereka bergerak perlahan sekarang, tapi mereka pasti menuju lurus ke arah kita.』
-Kalau begitu aku akan mulai bersiap sekarang.』
+Dan cakar itu adalah berita buruk. Benar-benar berita buruk. Ini hanya tebakan, tetapi sangat mungkin bahwa ini dapat dengan mudah menembus +BARRIERku.
 
-Saat kita melakukan pertukaran ini, monster secara bertahap mendekat.
+Begitulah rasanya ancamannya.
+
+[Aku menemukannya. Tampaknya monster itu memimpin lebih dari seratus monster.] (ain)
+
+[Itu seharusnya bisa diatur. Bagaimana dengan yang kita targetkan?] (ciel)
+
+[Ini hanya spekulasi, tapi mungkin lebih kuat dari kelas-A. Khususnya, aku bisa merasakan sesuatu yang mirip dengan energi sihir dari cakarnya dan aku merasakan bahaya yang cukup besar darinya. Bahkan mungkin menembus +BARRIERku.] (ain)
+
+[Itu mengejutkan. sungguh mengejutkan.] (ciel)
+
+[Haruskah kita lari?] (ain)
+
+[Bisakah kita lari?] (ciel)
+
+Untungnya, ada jarak di antara kami. Sementara kecepatan lari Ciel lebih lambat dari serigala, kami masih bisa lari jika mereka belum menyadarinya. Jika mereka melihat kami, sangat diragukan apakah kami bisa berlari lebih cepat dari mereka.
+
+Artinya jika mereka mengejar kami, kami tidak akan bisa melarikan diri. Selain itu, Aku punya firasat bahwa mereka mungkin sudah menyadari kami.
+
+[Ini akan menjadi pertaruhan.] (ain)
+
+[Kalau begitu, mari kita tunggu. Lagipula, kita mungkin bisa mengalahkan mereka dengan mudah. Jika mereka pergi ke arah kita, kita bisa mempersiapkan sebanyak yang kita bisa. Jadi, apakah monster-monster itu menuju ke arah kita?] (ciel)
+
+[Mereka bergerak perlahan sekarang, tapi mereka pasti menuju lurus ke arah kita.] (ain)
+
+[Kalau begitu aku akan mulai bersiap sekarang.] (ciel)
+
+Saat kami melakukan percakapan ini, monster secara bertahap mendekat.
+
+----------------------------
+
