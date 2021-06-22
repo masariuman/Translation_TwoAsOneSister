@@ -9,29 +9,29 @@ Ciel sudah selesai dengan persiapannya. Ini adalah lingkaran sihir yang sedikit 
 Lingkaran sihir yang agak besar yang mungkin bisa menampung sekitar seratus serigala.
 
 Melawan monster yang tampak gila sambil berurusan dengan seratus serigala kemungkinan akan sulit, jadi lebih baik jika ini setidaknya bisa menghilangkan semua gerutuan dalam sekejap.
-Jika memungkinkan, saya berharap itu bisa menyingkirkan serigala emas yang tampak gila juga. Lingkaran sihir ini harus memiliki kekuatan yang cukup untuk melakukan itu.
+Jika memungkinkan, Aku berharap itu bisa menyingkirkan serigala emas yang tampak gila juga. Lingkaran sihir ini harus memiliki kekuatan yang cukup untuk melakukan itu.
 Dalam pertempuran pertama kami, pertempuran dengan cyclops, sihir Ciel saat itu tidak cukup kuat untuk mengalahkan cyclops tanpa dukungan, tetapi sihir yang dia gunakan sekarang mampu menghancurkan seratus, jika bukan dua ratus, cyclop.
 
-Mengenai monster peringkat-A, saya tidak tahu apakah hal yang sama dapat diterapkan.
-Lagi pula, sementara Ciel telah mengalahkan sejumlah monster sampai sekarang, kami belum melawan monster peringkat-A.
-Meskipun begitu, aku yakin bahwa dengan dukungan penuhku, kita seharusnya memiliki kekuatan yang cukup untuk mengalahkan monster peringkat-A.
+Mengenai monster Rank-A, Aku tidak tahu apakah hal yang sama dapat diterapkan.
+Lagi pula, sementara Ciel telah mengalahkan sejumlah monster sampai sekarang, kami belum melawan monster Rank-A.
+Meskipun begitu, aku yakin bahwa dengan dukungan penuhku, kita seharusnya memiliki kekuatan yang cukup untuk mengalahkan monster Rank-A.
 Padahal, untuk mengerahkan kekuatan sebanyak itu, persiapan yang tepat akan diperlukan.
 
 Yang besar benar-benar menonjol.』
-Sebaliknya, saya lebih terkejut bahwa sesuatu yang besar sebenarnya dapat dikaburkan oleh serigala lain. other
-Saya akan mengaktifkan lingkaran sihir segera setelah mereka berada dalam jangkauan.』
-Saya akan mulai bernyanyi setelah ini. Dari apa yang bisa saya rasakan dengan deteksi, mereka tidak mungkin menyimpang dari jalur yang diantisipasi.』
+Sebaliknya, Aku lebih terkejut bahwa sesuatu yang besar sebenarnya dapat dikaburkan oleh serigala lain. other
+Aku akan mengaktifkan lingkaran sihir segera setelah mereka berada dalam jangkauan.』
+Aku akan mulai bernyanyi setelah ini. Dari apa yang bisa Aku rasakan dengan deteksi, mereka tidak mungkin menyimpang dari jalur yang diantisipasi.』
 Ain, aku mengandalkanmu.
 Kamu juga, Ciel. Tolong lakukan yang terbaik karena cakar itu bisa menjadi masalah asli.
 
 Bahkan dengan gelombang hitam yang mendekat tepat di depan kami, Ciel dan aku bertukar kata seperti biasanya; tapi sebelum aku selesai berbicara, Ciel mengaktifkan lingkaran sihir.
-Menurut pendapat saya, kami masih memiliki beberapa kelonggaran tetapi saya kira itu tidak dapat membantu, Ciel tidak mahir dalam mendeteksi seperti saya.
+Menurut pendapat Aku, kami masih memiliki beberapa kelonggaran tetapi Aku kira itu tidak dapat membantu, Ciel tidak mahir dalam mendeteksi seperti Aku.
 Ini hanya akan meningkatkan konsumsi kekuatan sihir yang diperlukan dengan sedikit margin, jadi itu bukan masalah besar.
 
-Ketika saya selesai berbicara, saya segera mulai bernyanyi.
+Ketika Aku selesai berbicara, Aku segera mulai bernyanyi.
 
 Saat kita bertarung melawan musuh dengan kekuatan yang tidak diketahui, anehnya, aku tidak merasa tegang.
-Saya tidak merasa takut atau gelisah juga.
+Aku tidak merasa takut atau gelisah juga.
 Bahkan saat serigala emas sedang menuju lurus ke arah kami sambil menebang pohon di jalan, dan bahkan ketika itu sangat cepat sehingga tidak mungkin kami bisa melarikan diri darinya.
 
 Ciel mengaktifkan sihirnya sebelum aku bisa bernyanyi.
@@ -45,9 +45,9 @@ Sama seperti seember air yang tumpah, darah menggenang di seluruh tanah, dan aro
 
 Bahkan orang yang biasa membunuh monster mungkin akan meringis sebelum adegan bencana ini.
 Dalam kasus orang yang tidak terbiasa dengan kematian, mereka mungkin akan merasa mual karenanya. Paling buruk, mereka bahkan mungkin pingsan dari pandangan.
-Saya sendiri merasa agak tidak sehat dari ini, tetapi tidak ada waktu untuk itu sekarang.
+Aku sendiri merasa agak tidak sehat dari ini, tetapi tidak ada waktu untuk itu sekarang.
 
-Seperti yang saya pikirkan, itu selamat.
+Seperti yang Aku pikirkan, itu selamat.
 
 Sihir itu bertahan selama kira-kira satu menit.
 
@@ -56,7 +56,7 @@ Namun, ancaman utama yaitu serigala emas telah menjaga tubuhnya tetap utuh.
 
 Lebih dari itu, meski ada goresan kecil yang terlihat di tubuhnya, sepertinya tidak ada kerusakan sama sekali.
 Dengan kata lain, serigala ini adalah A-rank atau lebih tinggi.
-Ini tangguh, gesit, dan memiliki kekuatan ofensif yang tinggi. Seperti, pada titik ini, saya tidak bisa tidak berpikir bahwa itu mungkin hanya S-rank.
+Ini tangguh, gesit, dan memiliki kekuatan ofensif yang tinggi. Seperti, pada titik ini, Aku tidak bisa tidak berpikir bahwa itu mungkin hanya S-rank.
 
 Serigala yang dimaksud tampaknya benar-benar mengenali Ciel sebagai musuh saat ia menembakkan tatapan haus darah.
 
@@ -68,21 +68,21 @@ Lebih penting lagi, serigala ini… dia berbicara. Dan lebih dari itu, apa yang 
 
 Makhluk yang diciptakan secara artifisial.
 
-(Bab ini disediakan untuk Anda oleh Re:Library)
+(Bab ini disediakan untuk Kamu oleh Re:Library)
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Anda kepada penerjemah dan berhenti mendukung pencuri konten!)
+(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
 
 Iklan
 Tiba-tiba, penjelasan Viviana-san tentang serigala sebagai utusan dewa muncul di benakku.
-Sementara saya sadar bahwa ini tampaknya benar-benar tidak masuk akal; pada saat yang sama, saya yakin bahwa itu tidak akan keluar dari karakter untuk Duke Rispeligia setidaknya mencoba untuk menciptakan utusan ilahi untuk tujuannya.
-Saya tidak akan terkejut jika dia memiliki fasilitas dan peralatan untuk melakukannya secara rahasia juga.
+Sementara Aku sadar bahwa ini tampaknya benar-benar tidak masuk akal; pada saat yang sama, Aku yakin bahwa itu tidak akan keluar dari karakter untuk Duke Rispeligia setidaknya mencoba untuk menciptakan utusan ilahi untuk tujuannya.
+Aku tidak akan terkejut jika dia memiliki fasilitas dan peralatan untuk melakukannya secara rahasia juga.
 Dan jika kehadiran tidak nyaman yang datang dari cakar itu adalah sesuatu yang ilahiah, itu akan sangat masuk akal.
 
-Saya ingin informasi lebih lanjut.
+Aku ingin informasi lebih lanjut.
 
 Karena mampu berbicara, komunikasi dimungkinkan.
 Baiklah, mari kita kesampingkan omong kosong itu. Bahkan jika dia bisa berbicara, makhluk dengan rasa haus darah sebanyak ini tidak bisa diajak bicara.
-Sekarang jika kita memiliki kelonggaran untuk mengalahkannya, mungkin ada kesempatan untuk negosiasi. Padahal, saya tidak berniat untuk berhenti bernyanyi sampai kita mengetahui seberapa kuat musuh, jadi saya sebenarnya tidak bisa memberi saran kepada Ciel.
+Sekarang jika kita memiliki kelonggaran untuk mengalahkannya, mungkin ada kesempatan untuk negosiasi. Padahal, Aku tidak berniat untuk berhenti bernyanyi sampai kita mengetahui seberapa kuat musuh, jadi Aku sebenarnya tidak bisa memberi saran kepada Ciel.
 
 Ggaaaaaa!
 
@@ -97,21 +97,21 @@ Menanggapi itu, Ciel minggir pada saat terakhir, lolos dari cakar serigala.
 Namun, kekuatan yang dihasilkan oleh tubuh besarnya yang bergerak dengan kecepatan tinggi begitu besar sehingga meskipun Ciel seharusnya menghindari serangan langsung, dia masih terhempas.
 Ada sensasi melayang tiba-tiba. Tanpa sempat membandingkannya dengan sensasi naik roller coaster, kami menabrak pohon.
 
-Saat penghalang saya meniadakan dampak pendaratan, Ciel tidak memiliki trauma fisik maupun cedera internal.
+Saat penghalang Aku meniadakan dampak pendaratan, Ciel tidak memiliki trauma fisik maupun cedera internal.
 Secara alami, juga tidak ada rasa sakit sama sekali.
 
 Tetap saja, ini berbahaya. Benar-benar berbahaya.
 
 Pakaian Ciel robek total di bagian lengan atas lengan kanan.
-Itu dipotong melalui penghalang saya.
+Itu dipotong melalui penghalang Aku.
 
-Sementara penghalang saya telah dilanggar, itu berbeda dibandingkan dengan waktu itu dengan Glacio Lentzo milik Carol-san.
+Sementara penghalang Aku telah dilanggar, itu berbeda dibandingkan dengan waktu itu dengan Glacio Lentzo milik Carol-san.
 Saat itu, itu diimbangi oleh tombak es. Itu sebabnya, meskipun tombak itu menembus penghalangku, kekuatannya masih berkurang.
 Namun, berbeda dengan serigala emas. Serangannya menembus penghalangku seolah-olah itu tidak ada.
 Sesuatu dari bekas cakar tertinggal di sisa-sisa penghalang; dan sementara itu tidak runtuh, perbaikan diperlukan.
 
-Sementara saya memiliki lebih dari cukup kekuatan sihir untuk memperbaiki kerusakan sejauh ini, masalahnya di sini adalah bahwa penghalang bahkan tidak dapat mengurangi kerusakan.
-Baik atau buruk, pertarungan kami sampai sekarang telah dimenangkan baik melalui gerakan pertama yang kuat atau penggunaan agresif dari penghalang saya.
+Sementara Aku memiliki lebih dari cukup kekuatan sihir untuk memperbaiki kerusakan sejauh ini, masalahnya di sini adalah bahwa penghalang bahkan tidak dapat mengurangi kerusakan.
+Baik atau buruk, pertarungan kami sampai sekarang telah dimenangkan baik melalui gerakan pertama yang kuat atau penggunaan agresif dari penghalang Aku.
 Dan baru saja, keduanya telah mengangkat bahu.
 
 Sebuah penghalang yang dapat digunakan terus-menerus selama itu menahan kerusakan sama sekali tidak berguna jika tidak dapat menyerap kerusakan sama sekali.
@@ -127,12 +127,12 @@ Meskipun kami memiliki pilihan untuk melarikan diri, berlari lebih cepat secara 
 Dalam hal ini, kita hanya memiliki satu pilihan. Mungkin menyadari itu juga, Ciel menarik pedangnya dari tas ajaib.
 Dengan penghalangku yang tidak berguna, risiko pedang Ciel segera dihancurkan hanya dengan satu pukulan dari cakar serigala emas, dan kurangnya pengalamannya dengan permainan pedang; Aku benar-benar gelisah.
 
-(Bab ini disediakan untuk Anda oleh Re:Library)
+(Bab ini disediakan untuk Kamu oleh Re:Library)
 
-(Jika Anda membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
 
-Saya tidak bisa mengungkapkan kecemasan saya sekarang, tapi untuk beberapa alasan, sepertinya Ciel melihat melalui saya sebagai Tidak apa-apa, jadi biarkan aku mendengar lagu Anda Ain. katanya dengan nada sangat percaya diri.
-Saya tidak tahu alasannya tetapi karena yang bisa saya lakukan hanyalah bernyanyi, saya menuruti permintaan Ciel dan terus bernyanyi.
+Aku tidak bisa mengungkapkan kecemasan Aku sekarang, tapi untuk beberapa alasan, sepertinya Ciel melihat melalui Aku sebagai Tidak apa-apa, jadi biarkan aku mendengar lagu Kamu Ain. katanya dengan nada sangat percaya diri.
+Aku tidak tahu alasannya tetapi karena yang bisa Aku lakukan hanyalah bernyanyi, Aku menuruti permintaan Ciel dan terus bernyanyi.
 
 Tiba-tiba, tanpa waktu bagi Ciel untuk mengambil sikap yang tepat, serigala emas itu bergegas masuk seperti peluru.
 Kali ini, ia hanya melakukan tekel alih-alih mencakar kami, jadi Ciel menghindari monster itu dengan gesit seolah-olah itu adalah adu banteng.
@@ -142,7 +142,7 @@ Tanpa waktu untuk merasa lega dengan bagaimana kami berhasil melewatinya, seriga
 Mirip dari sebelumnya, itu adalah tekel lain. Meskipun ini akan membuat kita terpesona jika terhubung, itu tidak menakutkan karena kita tidak akan menerima kerusakan dari itu. Begitu, sementara kami takut dengan serangan cakar monster di pihak kami; dari sudut pandang serigala emas, serangan yang sama itu tidak memberikan banyak kerusakan pada kami.
 Dengan kata lain, ia tidak menyadari bahwa menggunakan cakarnya adalah mode serangan yang paling efektif.
 
-Karena tidak ada waktu untuk istirahat, itu menyerang kami untuk ketiga kalinya. Sementara saya berharap itu akan menjadi tekel biasa, saat serigala emas akan melewati kami, ia mengulurkan kaki depannya untuk mencakar kami.
+Karena tidak ada waktu untuk istirahat, itu menyerang kami untuk ketiga kalinya. Sementara Aku berharap itu akan menjadi tekel biasa, saat serigala emas akan melewati kami, ia mengulurkan kaki depannya untuk mencakar kami.
 
 Dari lintasan mendekati cakar, ini tidak mungkin untuk membunuh Ciel.
 Tetap saja, karena Ciel sudah berada di tengah manuver mengelak, dia tidak akan bisa menghindari ini.
@@ -173,16 +173,16 @@ Apalagi serigala emas umumnya menyerang dalam garis lurus. Ia memiliki jangkauan
 
 Tetap saja, Ciel melakukan serangan sekali ketika serigala emas tidak terus-menerus menyerang dengan cakarnya; tapi yang paling bisa dia lakukan saat itu adalah melukai monster itu dengan ringan, jadi itu tidak sebanding dengan risikonya untuk menyerang. Mempertimbangkan kecepatan serigala emas, beralih ke sihir tempur juga akan sulit. Saat Ciel dipaksa menjadi peran reaktif sebagai Putri Dansa, dia sudah berada pada posisi yang kurang menguntungkan.
 
-Selain itu, saya memiliki spekulasi mengapa penghalang saya tidak efektif melawannya. Pertama-
-tama, alasan mengapa Ciel memberitahuku bahwa Tidak apa-apa mungkin karena pemburu peringkat-C berhasil mengulur waktu melawan serigala emas.
-Jika monster ini bisa menghancurkan senjata dan baju besi dengan mudah maka pemburu tidak akan bisa benar-benar menahannya. Jadi karena itu mungkin, maka kita dapat menganggap bahwa peralatan pemburu dapat menerima serangan.
+Selain itu, Aku memiliki spekulasi mengapa penghalang Aku tidak efektif melawannya. Pertama-
+tama, alasan mengapa Ciel memberitahuku bahwa Tidak apa-apa mungkin karena Hunter Rank-C berhasil mengulur waktu melawan serigala emas.
+Jika monster ini bisa menghancurkan senjata dan baju besi dengan mudah maka Hunter tidak akan bisa benar-benar menahannya. Jadi karena itu mungkin, maka kita dapat menganggap bahwa peralatan Hunter dapat menerima serangan.
 
-Perbedaan antara penghalang saya dan Ciel, serta peralatan pemburu tersebut, adalah pengaruh dari Pekerjaan mereka.
-Saya pernah mendengar bahwa dalam kasus Jobs yang menggunakan senjata, daya tahan senjata yang digunakan akan meningkat. Ciel, dalam beberapa hal, memiliki Pekerjaan yang menggunakan senjata; jadi meskipun hanya sedikit, sejumlah kekuatan sihir sebenarnya mengalir melalui pedangnya.
-Jadi spekulasi saya adalah jika kekuatan sihir ini berasal dari Ayubnya, maka kemungkinan besar itu adalah kekuatan yang berasal dari para dewa. Yang mungkin bagaimana bisa melawan kekuatan hipotetis serupa yang dimiliki cakar serigala emas.
+Perbedaan antara penghalang Aku dan Ciel, serta peralatan Hunter tersebut, adalah pengaruh dari Pekerjaan mereka.
+Aku pernah mendengar bahwa dalam kasus Jobs yang menggunakan senjata, daya tahan senjata yang digunakan akan meningkat. Ciel, dalam beberapa hal, memiliki Pekerjaan yang menggunakan senjata; jadi meskipun hanya sedikit, sejumlah kekuatan sihir sebenarnya mengalir melalui pedangnya.
+Jadi spekulasi Aku adalah jika kekuatan sihir ini berasal dari Ayubnya, maka kemungkinan besar itu adalah kekuatan yang berasal dari para dewa. Yang mungkin bagaimana bisa melawan kekuatan hipotetis serupa yang dimiliki cakar serigala emas.
 
 Selain itu, sepertinya itu tidak bisa menghancurkan objek fisik tanpa syarat.
-Dengan kata lain, penghapusan kekuatan sihir yang berasal dari oposisi dan peningkatan kekuatan adalah kemampuan kekuatan yang tinggal di cakarnya. Ini adalah pertarungan terburuk melawan saya yang menciptakan penghalang tanpa bantuan Jobs.
+Dengan kata lain, penghapusan kekuatan sihir yang berasal dari oposisi dan peningkatan kekuatan adalah kemampuan kekuatan yang tinggal di cakarnya. Ini adalah pertarungan terburuk melawan Aku yang menciptakan penghalang tanpa bantuan Jobs.
 
 Bahkan dengan lebih banyak informasi, situasinya tidak berubah menjadi lebih baik.
 Sebaliknya, semakin lama stamina Ciel dan daya tahan pedangnya terus berkurang, semakin buruk situasi kita.
