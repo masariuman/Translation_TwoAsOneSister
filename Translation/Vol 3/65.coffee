@@ -125,66 +125,84 @@ Saat dia melakukannya, Ketua Guild memberitahunya "Aku mengandalkanmu." dengan e
 ◇
 
 Tidak jauh setelah keluar dari gerbang, terbentang hutan utara.
-Sementara pohon-pohon telah direduksi menjadi tunggul pohon di daerah yang menghadap gerbang, lebih dalam di hutan terletak alam yang belum tersentuh.
-Aku pernah mendengar bahwa monster kelas B dan di atasnya tinggal di pegunungan yang menjulang tinggi jauh di dalam hutan. Karena itu, meskipun sudah terlambat pada saat ini, cara terbaik untuk mencapai laut adalah dengan mengambil jalan memutar di sekitar pegunungan.
 
-Seharusnya begitu, tapi kenapa kami memutuskan untuk menebang hutan lagi?
-Ah , itu untuk menghemat waktu, kan. Sementara kami memutuskan untuk melihat laut, kami juga ingin mengurangi waktu perjalanan sebanyak mungkin sehingga kami dapat mencapai Rank-B secepat mungkin.
-Selain itu, kami telah mempertimbangkan bahwa monster kelas-B cukup mudah dikendalikan dan kami juga harus bisa menangani monster kelas-A juga.
+pohon-pohon telah ditebang di daerah yang menghadap gerbang, tapi daerah lebih dalam di hutan terdapat alam yang belum tersentuh.
+
+Aku pernah mendengar bahwa monster kelas B dan di atasnya tinggal di pegunungan yang menjulang tinggi jauh di dalam hutan. Karena itu, meskipun sudah terlambat sekarang, cara terbaik untuk mencapai laut adalah dengan mengambil jalan memutar di sekitar pegunungan.
+
+Seharusnya begitu, tapi kenapa kami memutuskan untuk melewat hutan lagi?
+
+Ah, itu untuk menghemat waktu. Sementara kami memutuskan untuk melihat laut, kami juga ingin mengurangi waktu perjalanan sebanyak mungkin sehingga kami dapat mencapai Rank-B secepat mungkin.
+
+Selain itu, kami telah mempertimbangkan bahwa monster kelas-B cukup mudah dikendalikan dan kami juga harusnya bisa menangani monster kelas-A juga.
 
 Karena itu, Aku menyimpulkan bahwa tidak ada alasan untuk mengambil jalan memutar. Sepertinya aku masih belum menghilangkan pemikiran itu.
 
-Ketika Aku memberi tahu Ciel bahwa, Tidak ada ruginya jika guild berhutang budi kepada kami. dia menjawab demikian.
-Tentu saja, jika mereka memaksakan sesuatu yang menyusahkan kita di masa depan setelah kita membantu mereka, itu akan membuat segalanya lebih mudah untuk ditangani.
+Ketika Aku memberi tahu Ciel bahwa, [Tidak ada ruginya jika guild berhutang budi kepada kita.] dia juga setuju.
 
-Meskipun Aku tidak memiliki kesan yang baik tentang guild mengingat semua yang terjadi, karena kami mendapatkan tas ajaib, Aku kira kami harus melakukannya sekarang.
+Tentu saja, jika mereka memaksakan sesuatu yang menyusahkan kami di masa depan setelah kami membantu mereka, itu akan membuat segalanya lebih mudah untuk ditangani.
+
+Meskipun Aku tidak memiliki kesan yang baik tentang guild mengingat semua yang terjadi, karena kami mendapatkan tas sihir, Aku kira kami seimbang sekarang.
+
 Dan yang terpenting, karena Ciel puas, itu sudah cukup.
 
 Sudah beberapa menit sejak Ciel melangkah ke hutan.
+
 Karena ini pertama kalinya kami berada di hutan ini, kecepatan berjalan Ciel lebih lambat.
-Untuk memulai, kami menuju ke tempat di mana pesta itu dikatakan telah diserang tapi... Untuk beberapa alasan, tubuhku—jiwaku—tiba-tiba terkena sensasi kesemutan yang aneh.
 
-Ciel, bisakah kamu berhenti di sini?』
-Ada apa?』
-Untuk beberapa alasan, aku merasa sangat tidak nyaman ...... Bisakah aku meminjam tubuhmu sebentar?』
-Tentu, tentu saja.
+Untuk memulainya, kami menuju ke tempat di mana party itu diserang tapi... Untuk beberapa alasan, tubuhku, jiwaku, tiba-tiba terkena sensasi kesemutan yang aneh.
 
-Meminjam tubuh Ciel, Aku sekali lagi memeriksa situasi Aku.
+[Ciel, bisakah kamu berhenti di sini?] (ain)
+
+[Ada apa?] (ciel)
+
+[Untuk beberapa alasan, aku merasa sangat tidak nyaman ...... Bisakah aku meminjam tubuhmu sebentar?] (ain)
+
+[Tentu, tentu saja.] (ciel)
+
+Meminjam tubuh Ciel, Aku sekali lagi memeriksa situasiku.
 
 Ini adalah firasat.
 
 Kegelisahan ini disebabkan oleh monster yang dimaksud.
-Alih-alih disebabkan oleh rasa haus darahnya, sepertinya lebih baik untuk menggambarkan ini sebagai hasil dari semacam resonansi di antara kita.
+
+daripada disebabkan oleh rasa haus darahnya, sepertinya lebih baik untuk menggambarkan ini sebagai hasil dari semacam resonansi di antara kami.
 
 Jauh di dalam hutan, Aku tahu bahwa itu pasti ada.
-Mungkin dia juga tahu kalau aku disini juga, karena aku merasa dia sedang mendekati kita sekarang.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Mungkin dia juga tahu kalau aku disini juga, karena aku merasa dia sedang mendekati kami sekarang.
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
-
-Silakan langsung menuju ke tengah hutan.
-Iklan
+[Silakan langsung menuju ke tengah hutan.] (ain)
 
 Saat aku mengembalikan tubuh Ciel, aku berkata begitu.
 
-Itu ada di sana, kan?』
-Sangat mungkin.
-Setelah Kamu mengkonfirmasi lokasinya dengan deteksi, bisakah Kamu memberi tahu Aku tentang hal itu, Ain?』 』
-Mengerti. Aku akan memperluas jangkauan deteksi Aku, jadi Aku akan fokus pada itu untuk saat ini.
+[Itu ada di sana, kan?] (ciel)
 
-Sambil mempertahankan penghalang, Aku memperluas jangkauan deteksi Aku ke jangkauan maksimum yang mungkin.
-Aku biasanya tidak pernah melakukan ini tetapi Aku memiliki perasaan aneh sekarang, jadi Aku tidak akan berpuas diri.
+[Sangat mungkin.] (ain)
+
+[Setelah Kamu mengkonfirmasi lokasinya dengan +DETECTION, bisakah Kamu memberi tahuku tentang, Ain?] (ciel)
+
+[baiklah. Aku akan memperluas jangkauan +DETECTIONku, jadi Aku akan fokus untuk itu saat ini.] (ain)
+
+Sambil mempertahankan +BARRIER, Aku memperluas jangkauan +DETECTIONku ke jangkauan maksimum.
+
+Aku biasanya tidak pernah melakukan ini tetapi Aku memiliki perasaan aneh sekarang, jadi Aku tidak merasa puas.
+
 Meskipun aku seharusnya bisa melindungi Ciel bahkan dari monster kelas A, aku tetap harus mengingat skenario terburuk.
 
-Setelah Ciel berjalan dengan hati-hati selama beberapa menit, akhirnya aku menangkap keberadaan makhluk itu .
-Informasi yang bisa didapat dari sihir pendeteksi tidak banyak. Itu tidak bisa membedakan warna, dan juga tidak bisa mendeteksi suara. Aku akan mengatakan bahwa itu sangat mirip dengan meraba-raba dengan mata tertutup hanya dengan tangan Kamu merasakan dunia.
-Tetap saja, karena mahir dengan manipulasi kekuatan sihir, setidaknya aku bisa mengetahui jumlah kekuatan sihir yang beredar di tubuh seseorang.
-Dalam kasus monster, Aku kira-kira bisa menilai kekuatannya berdasarkan kekuatan sihirnya.
+Setelah Ciel berjalan dengan hati-hati selama beberapa menit, akhirnya aku menangkap keberadaan makhluk itu.
+
+Informasi yang bisa didapat dari sihir +DETECTION tidak banyak. Itu tidak bisa membedakan warna, dan juga tidak bisa mendeteksi suara. Aku akan mengatakan bahwa itu sangat mirip dengan meraba-raba dengan mata tertutup dan hanya dengan tangan Kamu merasakannya.
+
+Tetap saja, karena mahir dengan manipulasi energi sihir, setidaknya aku bisa mengetahui jumlah energi sihir yang beredar di tubuh seseorang.
+
+Dalam kasus monster, Aku mengira-ngira bisa menilai kekuatannya berdasarkan energi sihirnya.
 
 Monster yang dimaksud sedang merangkak dan memiliki sejumlah besar monster yang mengikuti di belakangnya. Mungkin sekitar seratus atau lebih.
-Jumlah kekuatan sihir yang Aku rasakan darinya adalah yang paling melimpah yang pernah Aku rasakan sampai sekarang.
-Yang paling banyak kulihat sejauh ini adalah dari Cyclops kelas-B, jadi setidaknya itu kelas-B. Bahkan mungkin sekitar A-class, tapi aku tidak tahu apa kriteria evaluasinya.
+
+Jumlah energi sihir yang Aku rasakan darinya adalah yang paling melimpah yang pernah Aku rasakan sampai sekarang.
+
+Yang paling banyak kulihat sejauh ini adalah dari Cyclops kelas-B, jadi setidaknya itu kelas-B. Bahkan mungkin sekitar kelas-A, tapi aku tidak tahu apa kriteria evaluasinya.
 
 Dan sepertinya penyebab kegelisahanku adalah cakarnya.
 
