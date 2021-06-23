@@ -214,20 +214,36 @@ Meskipun Ciel tampaknya waspada terhadap serangan keempat berturut-turut hanya u
 
 Apalagi serigala emas umumnya menyerang dalam garis lurus. serigala itu memiliki jangkauan yang luas ketika menggunakan cakarnya, tetapi sepertinya sergiala itu tidak dapat mengubah arahnya saat berada di tengah-tengah pergerakannya.
 
-Tetap saja, Ciel melakukan serangan sekali ketika serigala emas tidak terus-menerus menyerang dengan cakarnya; tapi yang paling bisa dia lakukan saat itu adalah melukai monster itu dengan ringan, jadi itu tidak sebanding dengan risikonya untuk menyerang. Mempertimbangkan kecepatan serigala emas, beralih ke sihir tempur juga akan sulit. Saat Ciel dipaksa menjadi peran reaktif sebagai Putri Dansa, dia sudah berada pada posisi yang kurang menguntungkan.
+Tetap saja, Ciel melakukan serangan sekali ketika serigala emas tidak terus-menerus menyerang dengan cakarnya; tapi yang paling bisa dia lakukan saat itu adalah melukai monster itu dengan ringan, jadi itu tidak sebanding dengan risikonya untuk menyerang. Mempertimbangkan kecepatan serigala emas, beralih ke sihir tempur juga akan sulit. Saat Ciel dipaksa menjadi peran reaktif sebagai dance princess, dia sudah berada pada posisi yang kurang menguntungkan.
 
-Selain itu, Aku memiliki spekulasi mengapa penghalang Aku tidak efektif melawannya. Pertama-
-tama, alasan mengapa Ciel memberitahuku bahwa Tidak apa-apa mungkin karena Hunter Rank-C berhasil mengulur waktu melawan serigala emas.
-Jika monster ini bisa menghancurkan senjata dan baju besi dengan mudah maka Hunter tidak akan bisa benar-benar menahannya. Jadi karena itu mungkin, maka kita dapat menganggap bahwa peralatan Hunter dapat menerima serangan.
+Selain itu, Aku memiliki spekulasi mengapa +BARRIERku tidak efektif melawannya. pada dasarnya, alasan mengapa Ciel memberitahuku bahwa Tidak apa-apa mungkin karena Hunter Rank-C berhasil mengulur waktu melawan serigala emas.
 
-Perbedaan antara penghalang Aku dan Ciel, serta peralatan Hunter tersebut, adalah pengaruh dari Pekerjaan mereka.
-Aku pernah mendengar bahwa dalam kasus Jobs yang menggunakan senjata, daya tahan senjata yang digunakan akan meningkat. Ciel, dalam beberapa hal, memiliki Pekerjaan yang menggunakan senjata; jadi meskipun hanya sedikit, sejumlah kekuatan sihir sebenarnya mengalir melalui pedangnya.
-Jadi spekulasi Aku adalah jika kekuatan sihir ini berasal dari Ayubnya, maka kemungkinan besar itu adalah kekuatan yang berasal dari para dewa. Yang mungkin bagaimana bisa melawan kekuatan hipotetis serupa yang dimiliki cakar serigala emas.
+Jika monster ini bisa menghancurkan senjata dan baju besi dengan mudah maka Hunter tidak akan bisa benar-benar menahannya. Jadi karena itu, kami dapat menganggap bahwa peralatan Hunter dapat menerima serangan.
 
-Selain itu, sepertinya itu tidak bisa menghancurkan objek fisik tanpa syarat.
-Dengan kata lain, penghapusan kekuatan sihir yang berasal dari oposisi dan peningkatan kekuatan adalah kemampuan kekuatan yang tinggal di cakarnya. Ini adalah pertarungan terburuk melawan Aku yang menciptakan penghalang tanpa bantuan Jobs.
+Perbedaan antara +BARRIERku dan Ciel, serta peralatan Hunter tersebut, adalah pengaruh dari Job mereka.
+
+Aku pernah mendengar bahwa dalam kasus Jobs yang menggunakan senjata, daya tahan senjata yang digunakan akan meningkat. Ciel, dalam beberapa hal, adalah job yang menggunakan senjata; jadi meskipun hanya sedikit, sejumlah energi sihir sebenarnya mengalir melalui pedangnya.
+
+Jadi spekulasiku adalah jika energi sihir ini berasal dari jobnya, maka kemungkinan besar itu adalah kekuatan yang berasal dari para dewa. dan karena itulah bisa menahan kekuatan yang dimiliki cakar serigala emas.
+
+Selain itu, sepertinya serigala itu tidak bisa menghancurkan objek fisik tanpa syarat.
+
+Dengan kata lain, penghapusan energi sihir dan peningkatan kekuatan adalah kekuatan yang tinggal di cakarnya. Ini adalah pertarungan terburuk melawanku yang menciptakan +BARRIER tanpa bantuan Job.
 
 Bahkan dengan lebih banyak informasi, situasinya tidak berubah menjadi lebih baik.
-Sebaliknya, semakin lama stamina Ciel dan daya tahan pedangnya terus berkurang, semakin buruk situasi kita.
+
+Sebaliknya, semakin lama maka stamina Ciel dan daya tahan pedangnya terus berkurang dan situasi kami akan semakin buruk.
 
 Dan kemudian serangan kedua dari tiga kali serangan berturut-turut datang. Sementara Ciel berhasil menangkis cakarnya, kali ini, bilah pedangnya patah menjadi dua.
+
+-----------------------
+
+kali ini ainciel kita menghadapi musuh yang bisa membuat mereka serius... dan wow ciel bisa memusnahkan anak buah serigala langsung sekaligus dan langsung 1by1 dengan bossnya si serigala emas... sasuga dedek ciel kita memang terhebat di usianya...
+
+sebenarnya menurutku mungkin serigala emas ini seperti rank S ? tapi berhubung yang membuatnya menjadi rank S hanya cakarnya saja, jadi tidak bisa disebut rank S juga... paling tidak mungkin rank S kalau melawan orang yang terlalu berfokus menggunakan sihir...
+
+sepertinya benar dugaan ain, mungkin ini semua ulah si duke Rispeligia lagi... mungkin dengan mencoba mengikuti lagenda seperti yang disebutkan oleh Viviana, duke ingin mencoba membuat utusan dewa lagi... tapi dengan menggunakan serigala, karena mungkin menggunakan manusia seperti dedek ciel sudah gagal... jadi mungkin bisa disebut berhasil dan membuat monster buatan yang setara rank-A atau bawah S... tapi monster itu masih dianggap gagal ? sebenarnya tujuan utama duke Rispeligia apa ? mau dewanya saja ?? mau mengendalikan dewa ???
+
+dedek ciel kita kali ini agak percaya diri dengan pedangnya.. tapi pedangnya PATAH ???? yaah dedek ciel kita akan membuat pedang lagi tapi entah kapan dan dimana bisa membuatnya... atau mungkin akan berubah memakai senjata lain selain pedang ?? saya membayangkan ain menggunakan seruling atau ukulele... hahaha... jadi penasaran bagaimana nanti ainciel kita mengatasi serigala ini, dengan kecepatan serangan serigala tersebut tentu membuat dedek ciel kita susah menari... tapi mungkin dedek ciel kita akan punya ide seperti menghindar sambil menari ??? entahlah, mari kita lihat chapter selanjutnya bagaimana mereka mengatasinya...
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
