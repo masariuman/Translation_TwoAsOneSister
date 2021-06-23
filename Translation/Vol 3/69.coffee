@@ -1,17 +1,24 @@
 CHAPTER 69: RETURN, STAMPEDE, AND NEGOTIATION
 
 Dari laut, kami kemudian kembali ke kota Norvell.
+
 Secara alami, kami dapat kembali dengan selamat tanpa membuat jalan memutar.
+
 Ini bahkan tidak memakan waktu seminggu penuh berdasarkan standar kehidupanku di masa lalu, tetapi tampaknya kota ini masih dalam hiruk-pikuk.
 
-Karena serigala emas sudah pergi, kota itu seharusnya sudah pulih dari kegembiraannya sekarang, tetapi suasana kota agak suram.
-Spirits dengan polosnya terbang di sekitar Ciel, jadi kami memiliki sedikit keceriaan.
-Mungkin penyelidikan masih berlangsung. Meskipun, mengingat itu, penjaga gerbang dengan cepat membiarkan kita masuk tapi......
-Kita mungkin terlibat dalam beberapa masalah jika kita sembarangan mencari jawaban, jadi aku memutuskan untuk tidak terlalu mengkhawatirkannya.
+Karena serigala emas sudah pergi, kota itu seharusnya sudah pulih sekarang, tetapi suasana kota agak suram.
+
+Roh dengan polosnya terbang di sekitar Ciel, jadi kami memiliki sedikit keceriaan.
+
+Mungkin penyelidikan masih berlangsung. tapi, mengingat itu, penjaga gerbang dengan cepat membiarkan kami masuk tapi......
+
+kami mungkin terlibat dalam beberapa masalah jika kami sembarangan mencari tahu apa yang terjadi, jadi aku memutuskan untuk tidak terlalu mengkhawatirkannya.
 
 Aku akan membantu Ciel jika dia ingin tahu tentang ini, tetapi sampai sekarang, dia tampaknya sama sekali tidak peduli dengan topik ini.
+
 Masalah yang lebih penting adalah apa identitas asli serigala emas itu.
-Meskipun Aku tidak yakin apakah ada orang di Norvell dengan Pekerjaan Penilai Monster, enam hari seharusnya lebih dari cukup untuk memanggil satu dari ibukota. Kami tidak memiliki pengalaman dengan ini, tetapi bepergian dengan menunggang kuda juga akan mengurangi waktu perjalanan.
+
+Meskipun Aku tidak yakin apakah ada orang di Norvell dengan job Monster Appraiser+, enam hari seharusnya lebih dari cukup untuk memanggil satu dari ibukota. Kami tidak memiliki pengalaman dengan ini, tetapi bepergian dengan menunggang kuda juga akan mengurangi waktu perjalanan.
 
 Terus terang, Ciel memiliki cara perjalanan yang jauh lebih cepat. Bahkan mungkin lebih cepat daripada bepergian dengan kuda.
 Dengan keadaan seperti ini, mungkin akan lebih baik jika kita menggunakannya dalam perjalanan ke Norvell dari ibu kota; tetapi jika kami melakukannya, akan lebih sulit untuk membuat jalan memutar di sepanjang jalan.
