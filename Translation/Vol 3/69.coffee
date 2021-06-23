@@ -223,31 +223,38 @@ Situasinya mungkin begitu mengerikan, tetapi untuk yang digunakan, yaitu kami, i
 
 "Benar. Itulah satu-satunya permintaan yang diminta." (Ketua Guild)
 
-Jika Aku ingat dengan benar, desak-desakan yang terjadi secara alami, tidak seperti yang dipicu secara artifisial, memiliki kecenderungan untuk ditarik keluar.
+Jika Aku ingat dengan benar, penyerbuan yang terjadi secara alami, tidak seperti yang dipicu secara artifisial, memiliki kecenderungan untuk berlarut-larut.
+
 Karena penyerbuan yang terjadi secara alami terjadi karena peningkatan jumlah monster yang ekstensif, Aku kira itu wajar.
+
 Jika penyerbuan menjadi berlarut-larut, ada atau tidak adanya persediaan yang tersedia dapat sangat mengubah jalannya pertempuran, bahkan seorang amatir seperti Aku dapat membayangkan hal ini.
 
 Aku bisa membayangkannya, ya, tetapi percakapan ini semakin tidak masuk akal.
 
-Monster Rank-A telah dikonfirmasi, Tapi Kamu menetapkan Rank-C?」
-Kamu seharusnya bisa menangani itu, kan?」
-Bukan itu intinya.
+"Monster Rank-A telah dikonfirmasi, Tapi Kamu menetapkan Rank-C?" (Ain)
+
+"Kamu seharusnya bisa menangani itu, kan?" (Ketua Guild)
+
+"Bukan itu inti masalahnya." (Ain)
 
 Ini bukan tentang apakah Ciel bisa mengatasinya atau tidak.
+
 Masalahnya adalah bahwa permintaan yang dengan segala cara dimaksudkan untuk Hunter Rank-A, atau setidaknya Rank-B bahkan setelah meremehkan detailnya, ditetapkan ke Rank-C.
+
 Tentu saja ada pengecualian dalam beberapa kasus, tetapi tidak ada pengecualian yang berlaku dalam kasus ini. Hunter Rank-C seharusnya hanya diminta untuk tampil dengan kemampuan yang sesuai dengan Rank-C. Guild melanggar aturannya sendiri.
-Masalah dengan serigala emas sudah cukup abu-abu, Tapi tampaknya mereka masih ingin menumpuk lebih banyak di atasnya.
 
-Iklan
-Dari sudut pandang orang luar, permintaan ini secara praktis memberitahu orang yang melakukannya untuk mati.
+Masalah dengan serigala emas sudah cukup abu-abu, Tapi tampaknya mereka masih ingin menumpuk lebih banyak masalah lagi.
 
-Kami belum pernah bertarung melawan monster Rank-A—peringkat serigala emas tidak diverifikasi—jadi aku tidak bisa menjamin keselamatan Ciel.
+Dari sudut pandang orang luar, permintaan ini memberitahu orang yang melakukannya hanya untuk mati.
 
-"Aku tahu itu. Kami telah memperoleh persetujuan untuk mempromosikan Kamu ke Rank-B setelah menyelesaikan permintaan juga.
+Kami belum pernah bertarung melawan monster Rank-A, rank serigala emas tidak diverifikasi, jadi aku tidak bisa menjamin keselamatan Ciel.
 
-Aku melihat, Aku melihat sekarang. Jadi di sinilah mereka akan menggunakan kartu sekali pakai milik mereka, ya .
-Umpan yang bagus untuk kami yang mengincar promosi B-rank. Aku kira alasan mengapa kemungkinan dipromosikan ke Rank-B di luar mencapai usia yang dipersyaratkan ditambahkan pada penandatanganan kontrak magis adalah karena ekspektasi situasi semacam ini terjadi; untuk meninggalkan sarana untuk membuat kita melakukan penawaran mereka untuk satu waktu.
+"Aku tahu itu. Kami telah memperoleh persetujuan untuk mempromosikanmu ke Rank-B setelah menyelesaikan permintaan juga." (Ketua Guild)
 
+begitu ya, Aku mengerti sekarang. Jadi di sinilah mereka akan menggunakan kartu sekali pakai milik mereka, ya.
+
+Umpan yang bagus untuk kami yang mengincar promosi rank-B. Aku kira alasan mengapa kemungkinan dipromosikan ke Rank-B di luar mencapai usia yang dipersyaratkan ditambahkan pada penandatanganan kontrak sihir adalah karena ekspektasi situasi semacam ini terjadi; untuk meninggalkan sarana untuk membuat kami melakukan penawaran mereka untuk satu waktu.
+-----
 Tetap saja, Aku tidak punya niat untuk melompat ke dalamnya dengan mudah.
 
 Logika macam apa itu?」
