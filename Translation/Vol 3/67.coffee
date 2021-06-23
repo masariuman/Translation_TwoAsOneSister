@@ -222,14 +222,21 @@ Wanita pohon tampaknya tahu jawabannya, tetapi kesulitan menjawab hanya dengan y
 
 Roh datang dalam berbagai jenis dan tampaknya mengatur alam. Salah satu contohnya adalah semakin banyak roh tanah dan tumbuhan di suatu tempat, semakin besar hasil panennya. Kebetulan, wanita pohon adalah roh hutan.
 
-Roh menggunakan kekuatan sihir untuk mengatur diri mereka sendiri dan jika mereka menggunakan terlalu banyak, paling buruk, mereka bisa menghilang. Kekuatan sihir mereka pulih secara alami, tetapi ada tempat di mana mereka dapat pulih lebih efisien.
-Salah satu tempat itu tampaknya adalah jepit rambut Ciel. Itu awalnya semacam tanaman misterius, tetapi roh hutanlah yang mengubahnya menjadi jepit rambut. Dia telah bersama kami untuk waktu yang sangat lama.
-Sementara itu menguras kekuatan sihir, dia tidak punya niat untuk menyakiti kita, katanya.
+Roh menggunakan energi sihir untuk mengatur diri mereka sendiri dan jika mereka menggunakan terlalu banyak, paling buruk, mereka bisa menghilang. energi sihir mereka pulih secara alami, tetapi ada tempat di mana mereka dapat pulih lebih efisien.
 
-Dan akhirnya, dia mengakui keberadaan Ainsel . Aku sudah punya firasat sejak dia bereaksi terhadap kata-kataku dan memilih kekuatan sihirku untuk dikuras, tapi dia mungkin orang pertama yang mengenaliku sebagai Ainsel .
+Salah satu tempat itu tampaknya adalah jepit rambut Ciel. Itu awalnya semacam tanaman misterius, tetapi roh hutanlah yang mengubahnya menjadi jepit rambut. Dia telah bersama kami untuk waktu yang sangat lama.
+
+Sementara itu menguras energi sihir, dia tidak punya niat untuk menyakiti kami, katanya.
+
+Dan akhirnya, dia mengakui keberadaan Ainsel. Aku sudah punya firasat sejak dia bereaksi terhadap kata-kataku dan memilih energi sihirku untuk dikuras, tapi dia mungkin orang pertama yang mengenaliku sebagai Ainsel.
+
 Dari sudut pandang roh, Ciel adalah teman dan aku seperti orang tua, sepertinya. Mengapa?
 
-Dia ingin kita tetap memakai jepit rambut jika memungkinkan, jadi kita akan membiarkannya di rambut kita seperti biasa.
-Semangat itu sepertinya adalah seseorang yang bisa dibukakan hatinya oleh Ciel, dan dia tampaknya memiliki kasih sayang untuk kita. Yang terpenting, dia bukan manusia dan berjanji akan membantu jika kita dalam bahaya.
+Dia ingin kami tetap memakai jepit rambut jika memungkinkan, jadi kami akan membiarkannya di rambut kami seperti biasa.
 
-Ketika Aku selesai mengajukan pertanyaan Aku, Aku akhirnya ingat serigala emas. Yup, itu pasti sudah mati sekarang.
+roh itu sepertinya adalah seseorang yang bisa dibukakan hatinya oleh Ciel, dan dia tampaknya menyayangi kami. Yang terpenting, dia bukan manusia dan berjanji akan membantu jika kami dalam bahaya.
+
+Ketika Aku selesai mengajukan pertanyaanku, Aku akhirnya ingat dengan serigala emas. Yup, serigala itu pasti sudah mati sekarang.
+
+-----------------------------------
+
