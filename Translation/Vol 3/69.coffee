@@ -115,23 +115,33 @@ Apakah tujuannya adalah untuk menaklukkan dunia, untuk meningkatkan wilayahnya, 
 
 Tetap saja, aku ragu untuk memberi tahu guild tentang fakta bahwa dia mencoba menciptakan dewa dan telah mencobanya sebelumnya.
 
-Akan lebih baik untuk berhenti di situ, kan?』
-Menurut pendapat Aku, ini sudah cukup. Sejujurnya, Aku tidak percaya guild. Paling buruk, mungkin saja kita bahkan bisa dijual ke Rispelgia sebagai gantinya.』
-Kalau begitu, kurasa satu-satunya bukti lain adalah hutan itu.
-seems Sepertinya begitu. Meskipun kemungkinan itu tidak akan menjadi bukti untuk insiden ini, tetap tidak dapat disangkal bahwa ada sesuatu yang mencurigakan terjadi di sana.』
+[Akan lebih baik untuk berhenti di situ saja, kan?] (Ciel)
 
-Aku tidak keberatan jika Kamu tidak mempercayainya. Bagaimanapun, itu hanya spekulasi.」
-Nona Cielmer, menurut Kamu mengapa Rispelgia terlibat?」
-Ada penghalang yang dipasang di hutan selatan Sannois.
-Kita harus memastikannya sendiri, ya.」
-「 Jangan ragu.
+[Menurut pendapatku, ini sudah cukup. Sejujurnya, Aku tidak percaya guild. Paling buruk, mungkin saja kita bahkan bisa dijual ke Rispelgia sebagai gantinya.] (Ain)
+
+[Kalau begitu, kurasa satu-satunya bukti lain adalah hutan itu.] (Ciel)
+
+[Sepertinya begitu. Meskipun kemungkinan itu tidak akan menjadi bukti untuk insiden ini, tetap tidak dapat disangkal bahwa ada sesuatu yang mencurigakan terjadi di sana.] (Ain)
+
+"Aku tidak keberatan jika Kamu tidak mempercayainya. Bagaimanapun juga, itu hanya spekulasi." (Ciel)
+
+"Nona Cielmer, menurutmu mengapa Rispelgia terlibat?" (Ketua Guild)
+
+"Ada +BARRIER yang dipasang di hutan selatan Sannois." (Ciel)
+
+"Kami harus memastikannya sendiri." (Ketua Guild)
+
+"Silahkan." (Ciel)
 
 Ciel menjawab dengan cara yang bahkan bisa dianggap angkuh, tapi ketua guild merenung dalam diam.
-Ini seharusnya mengalihkan perhatian guild ke Rispelgia, meski hanya sedikit. Jika ini membuat segalanya sedikit lebih sulit bagi pria itu, maka bagus.
+
+Ini seharusnya mengalihkan perhatian guild ke Rispelgia, meski hanya sedikit. Jika ini membuat segalanya sedikit lebih sulit bagi pria itu, itu akan lebih bagus.
 
 Diskusi berakhir di sini. Mulai sekarang, kami akan membatasi aktivitas Hunter kami seminimal mungkin dan mungkin bersembunyi di beberapa gunung.
-Lagipula kita bisa tidur di mana saja dan karena kita punya tas ajaib, tidak apa-apa jika kita membeli makanan saat kita berada di kota untuk melakukan beberapa aktivitas Hunter secara berkala.
-Tapi, karena kita akan melakukan ini selama beberapa tahun, akan menyenangkan setidaknya memiliki rumah. Apakah sesuatu seperti rumah kayu muat di dalam tas ajaib kita? Saat pikiranku mulai mengembara ke arah itu dan Ciel hendak pergi, Tunggu. Ketua Guild menghentikannya.
+
+Lagipula kami bisa tidur di mana saja dan karena kami punya tas sihir, tidak apa-apa jika kami membeli makanan saat kami berada di kota untuk melakukan beberapa aktivitas Hunter secara berkala.
+
+Tapi, karena kami akan melakukan ini selama beberapa tahun, akan menyenangkan setidaknya memiliki rumah. Apakah sesuatu seperti rumah kayu muat di dalam tas sihir kami? Saat pikiranku mulai mengembara ke arah itu dan Ciel hendak pergi, "Tunggu." Ketua Guild menghentikannya.
 
 Aku tidak punya bisnis di sini lagi.
 Maaf, tapi kami melakukannya di pihak kami. Silahkan duduk."
