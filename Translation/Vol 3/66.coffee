@@ -84,7 +84,7 @@ dia tangguh, gesit, dan memiliki kekuatan ofensif yang tinggi. Seperti, pada tit
 
 Serigala yang dimaksud tampaknya benar-benar mengenali Ciel sebagai musuh karena ia menembakkan tatapan haus darah.
 
-【BuNuH MeReKa. MeReKa YaNg MeNcIpTaKaN KiTa, MeReKa YaNg MeNgUbAh KiTa MeNjAdI ImItAsI, OrAnG-OrAnG InI LaYaK UnTuK MaTi. BuNuH, BuNuH, BuNuH, BuNuH, BuNuHBuNuHBuNuHBuNuHBuNuH ......】
+【BuNuH MeReKa. MeReKa YaNg MeNcIpTaKaN KiTa, MeReKa YaNg MeNgUbAh KiTa MeNjAdI ImItAsI, OrAnG-OrAnG InI LaYaK UnTuK MaTi. BuNuH, BuNuH, BuNuH, BuNuH, BuNuHBuNuHBuNuHBuNuHBuNuH ......】 (Serigala)
 
 Serigala melolong dan daerah sekitarnya bergetar karena suaranya.
 
@@ -97,62 +97,73 @@ Tiba-tiba, penjelasan Viviana-san tentang serigala sebagai utusan dewa muncul di
 Sementara Aku sadar bahwa ini tampaknya benar-benar tidak masuk akal; pada saat yang sama, Aku yakin bahwa itu tidak jauh dari Duke Rispeligia yang setidaknya mencoba untuk menciptakan utusan ilahi untuk tujuannya.
 
 Aku tidak akan terkejut jika dia memiliki fasilitas dan peralatan untuk melakukannya secara rahasia juga.
-Dan jika kehadiran tidak nyaman yang datang dari cakar itu adalah sesuatu yang ilahiah, itu akan sangat masuk akal.
+
+Dan jika kehadiran tidak nyaman yang datang dari cakar itu adalah sesuatu yang berhubungan dengan dewa, itu akan sangat masuk akal.
 
 Aku ingin informasi lebih lanjut.
 
 Karena mampu berbicara, komunikasi dimungkinkan.
+
 Baiklah, mari kita kesampingkan omong kosong itu. Bahkan jika dia bisa berbicara, makhluk dengan rasa haus darah sebanyak ini tidak bisa diajak bicara.
-Sekarang jika kita memiliki kelonggaran untuk mengalahkannya, mungkin ada kesempatan untuk negosiasi. Padahal, Aku tidak berniat untuk berhenti bernyanyi sampai kita mengetahui seberapa kuat musuh, jadi Aku sebenarnya tidak bisa memberi saran kepada Ciel.
+
+Sekarang jika kami memiliki kelonggaran untuk mengalahkannya, mungkin ada kesempatan untuk negosiasi. yaah, Aku tidak berniat untuk berhenti bernyanyi sampai kami mengetahui seberapa kuat musuh, jadi Aku sebenarnya tidak bisa memberi saran kepada Ciel.
 
 Ggaaaaaa!
 
 Saat aku sibuk dengan pikiranku, serigala emas mengangkat kaki depannya dan menyerang Ciel.
-Meskipun aku bisa mendeteksi gerakannya sampai batas tertentu, itu sangat cepat sehingga agak diragukan apakah kita bisa menghindarinya bahkan dengan penguatan fisik.
+
+Meskipun aku bisa mendeteksi gerakannya sampai batas tertentu, itu sangat cepat sehingga agak diragukan apakah kami bisa menghindarinya bahkan dengan penguatan fisik.
+
 Dalam sekejap mata, jarak di antara kami menghilang.
 
-Menanggapi itu, Ciel minggir pada saat terakhir, lolos dari cakar serigala.
+Menanggapi itu, Ciel bergerak pada saat terakhir, lolos dari cakar serigala.
 
-……!」
+[......!] (Ciel)
 
 Tapi, kekuatan yang dihasilkan oleh tubuh besarnya yang bergerak dengan kecepatan tinggi begitu besar sehingga meskipun Ciel seharusnya menghindari serangan langsung, dia masih terhempas.
+
 Ada sensasi melayang tiba-tiba. Tanpa sempat membandingkannya dengan sensasi naik roller coaster, kami menabrak pohon.
 
-Saat penghalang Aku meniadakan dampak pendaratan, Ciel tidak memiliki trauma fisik maupun cedera internal.
++BARRIERku meniadakan dampak pendaratan jadi Ciel tidak memiliki cedera fisik maupun cedera internal.
+
 Secara alami, juga tidak ada rasa sakit sama sekali.
 
 Tetap saja, ini berbahaya. Benar-benar berbahaya.
 
-Pakaian Ciel robek total di bagian lengan atas lengan kanan.
-Itu dipotong melalui penghalang Aku.
+Pakaian Ciel robek total di bagian lengan atas sebelah kanan terpotong melalui +BARRIERku.
 
-Sementara penghalang Aku telah dilanggar, itu berbeda dibandingkan dengan waktu itu dengan Glacio Lentzo milik Carol-san.
-Saat itu, itu diimbangi oleh tombak es. Itu sebabnya, meskipun tombak itu menembus penghalangku, kekuatannya masih berkurang.
-Tapi, berbeda dengan serigala emas. Serangannya menembus penghalangku seolah-olah itu tidak ada.
-Sesuatu dari bekas cakar tertinggal di sisa-sisa penghalang; dan sementara itu tidak runtuh, perbaikan diperlukan.
+walaupun +BARRIERku ditembus, itu sangat berbeda dibandingkan dengan waktu terkena +GLACIO LENTZO milik Carol-san.
 
-Sementara Aku memiliki lebih dari cukup kekuatan sihir untuk memperbaiki kerusakan sejauh ini, masalahnya di sini adalah bahwa penghalang bahkan tidak dapat mengurangi kerusakan.
-Baik atau buruk, pertarungan kami sampai sekarang telah dimenangkan baik melalui gerakan pertama yang kuat atau penggunaan agresif dari penghalang Aku.
-Dan baru saja, keduanya telah mengangkat bahu.
+Saat itu, bentuknya diimbangi oleh tombak es. Itu sebabnya, meskipun tombak itu menembus +BARRIERku, kekuatannya masih berkurang.
 
-Sebuah penghalang yang dapat digunakan terus-menerus selama itu menahan kerusakan sama sekali tidak berguna jika tidak dapat menyerap kerusakan sama sekali.
-Dan tanpa penghalang, Ciel tidak akan memiliki kesempatan untuk menggunakan sihir, jadi kemungkinan akan berubah menjadi pukulan sepihak.
+Tapi, berbeda dengan serigala emas. Serangannya menembus +BARRIERku seolah-olah itu tidak ada.
 
-Pertama-tama, sihir Ciel dengan kekuatan penuh tidak memiliki efek sama sekali, jadi mengalahkan monster itu akan membutuhkan buff peningkat dari Dance Princess.
-Tapi dengan sihir menjadi mode pertempuran utama kami, sementara Ciel menari dan menggunakan sihirnya, dia akan terbuka lebar untuk serangan serigala emas dan itu akan mengganggu ritmenya. Paling buruk, kita bisa mati saat itu juga.
+Sesuatu dari bekas cakar tertinggal di sisa-sisa +BARRIER; dan sementara itu tidak hancur, perbaikan diperlukan.
 
-Terlebih lagi, mungkin tersinggung dengan fakta bahwa dia tidak bisa membunuh kita dengan satu pukulan, serigala emas itu menatap Ciel dengan tatapan mematikan.
+Aku memiliki lebih dari cukup energi sihir untuk memperbaiki kerusakan sejauh ini tapi masalahnya di sini adalah bahwa +BARRIER bahkan tidak dapat mengurangi kerusakan.
 
-Meskipun kami memiliki pilihan untuk melarikan diri, berlari lebih cepat secara praktis tidak mungkin.
+Baik atau buruk, pertarungan kami sampai sekarang telah dimenangkan melalui gerakan pertama yang kuat atau penggunaan agresif dari BARRIERku.
 
-Dalam hal ini, kita hanya memiliki satu pilihan. Mungkin menyadari itu juga, Ciel menarik pedangnya dari tas ajaib.
-Dengan penghalangku yang tidak berguna, risiko pedang Ciel segera dihancurkan hanya dengan satu pukulan dari cakar serigala emas, dan kurangnya pengalamannya dengan permainan pedang; Aku benar-benar gelisah.
+Dan baru saja, keduanya benar-benar tidak bisa diandalkan.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Sebuah +BARRIER yang dapat digunakan terus-menerus selama itu menahan kerusakan sama sekali tidak berguna jika tidak dapat menyerap kerusakan sama sekali.
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+Dan tanpa +BARRIER, Ciel tidak akan memiliki kesempatan untuk menggunakan sihir, jadi kemungkinan akan berubah menjadi pukulan sepihak.
 
-Aku tidak bisa mengungkapkan kecemasan Aku sekarang, tapi untuk beberapa alasan, sepertinya Ciel melihat melalui Aku sebagai Tidak apa-apa, jadi biarkan aku mendengar lagu Kamu Ain. katanya dengan nada sangat percaya diri.
+pada dasarnya, sihir Ciel dengan kekuatan penuh tidak memiliki efek sama sekali, jadi mengalahkan monster itu akan membutuhkan buff peningkat dari Dance Princess.
+
+Tapi dengan sihir menjadi mode pertempuran utama kami, sementara Ciel menari dan menggunakan sihirnya, dia akan terbuka lebar untuk serangan serigala emas dan itu akan mengganggu ritmenya. Paling buruk, kami bisa mati saat itu juga.
+
+Terlebih lagi, mungkin tersinggung dengan fakta bahwa dia tidak bisa membunuh kami dengan satu pukulan, serigala emas itu menatap Ciel dengan tatapan mematikan.
+
+Meskipun kami memiliki pilihan untuk melarikan diri, berlari lebih cepat tentu tidak mungkin.
+
+Dalam hal ini, kami hanya memiliki satu pilihan. Mungkin menyadari itu juga, Ciel menarik pedangnya dari tas sihir.
+
+Dengan +BARRIERku yang tidak berguna, risiko pedang Ciel segera dihancurkan hanya dengan satu pukulan dari cakar serigala emas, dan kurangnya pengalamannya dengan permainan pedang; Aku benar-benar gelisah.
+
+Aku tidak bisa mengungkapkan kecemasanku sekarang, tapi untuk beberapa alasan, sepertinya Ciel memahami apa yang kupikirkan dan, [Tidak apa-apa, jadi biarkan aku mendengar lagumu, Ain.] , katanya dengan nada sangat percaya diri.
+
 Aku tidak tahu alasannya tetapi karena yang bisa Aku lakukan hanyalah bernyanyi, Aku menuruti permintaan Ciel dan terus bernyanyi.
 
 Tiba-tiba, tanpa waktu bagi Ciel untuk mengambil sikap yang tepat, serigala emas itu bergegas masuk seperti peluru.
