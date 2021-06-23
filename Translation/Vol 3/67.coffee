@@ -240,3 +240,13 @@ Ketika Aku selesai mengajukan pertanyaanku, Aku akhirnya ingat dengan serigala e
 
 -----------------------------------
 
+referensi
+
+Ice
+Rose of Frost
+
+waiii kali ini dedek ciel kita menari dengan indah ~~ tapi sangat disayangkan kemunculan mawarnya tidak simetris... yaay dedek ciel yang perfeksionis >_< ... dan serigala emas bahkan tidak bisa menang melawan dedek ciel kita di panggung dedek ciel kita pastinya... sepertinya serigalanya telah melewati banyak percobaan oleh duke ? mungki sudah banyak menggabungkan beberapa binatang ? atau sama halnya seperti ainciel waktu masih bayi, diserang banyak tikus, laba-laba atau binatang lainnya  makanya banyak bekas luka ? apakah dalam waktu dekat ainciel akan berhadapan dengan duke Rispelgia ????????? WHOAAAA pikiran saya kacau sekali...
+
+dan roh mungil ?? seperti peri kecil ??? jangan-jangan aksesoris jepit bunga itu seperti rumah untuk roh ? dan jangan jangan roh huta selama ini bersama mereka tapi baru sekarang mereka bisa melihatnya ??? terus mengapa baru sekarang bisa melihatnya ?? apakah jumlah energi sihir yang dikumpulkan oleh jepit bunga sudah cukup dan bisa membuat mereka melihatnya ? apakah kedepannya bisa juga berbicara bersama ??? tapi tunggu, yang paling penting adalah , DEDEK CIEL KITA TERLIHAT GEMBIRA MELIHAT PARA ROH !!!!!! INI ADALAH HAL MOMEN TERPENTINGG !!!! AAAA IMUTNYA pengen sekali melihat illustnya bagaimana ... bahkan ain saja suka melihatnya ... jangan ain, saya sendiri saja yang tidak bisa melihat dan hanya membayangkan saja sudah senyum sendiri .. MUST PROTECC THE SMILE !!!!! hlsdfbihfiahfuihriphenutgvuihuantp !!!
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
