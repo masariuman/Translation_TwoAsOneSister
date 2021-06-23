@@ -180,59 +180,75 @@ Sekitar tiga hari setelah meninggalkan kota, kami sekarang menuruni pegunungan s
 
 Seperti yang diharapkan, bepergian tanpa persinggahan, meskipun kami bermain dengan roh di sepanjang jalan, secara signifikan meningkatkan kecepatan perjalanan kami. Ada beberapa monster rank-B yang menyerang kami di jalan tapi kami mengalahkan mereka tanpa banyak kesulitan. Mempertimbangkan ini, serigala emas itu mungkin sebenarnya adalah Rank-S.
 
-Apa yang muncul saat kami turun ke dasar gunung adalah, sungguh mengejutkan, lebih banyak hutan yang menutupi bidang pandang kami.
+Apa yang muncul saat kami turun ke dasar gunung adalah, sungguh mengejutkan, lebih banyak hutan yang menutupi pandangan kami.
+
 Meskipun sepertinya tidak ada yang berbeda, dibandingkan dengan apa yang ada di sisi lain gunung, hal-hal yang tidak terlihat telah berubah.
 
 Misalnya, udara. Mungkin memiliki banyak kelembaban, udara terasa tebal.
+
 Contoh lain, suara. Yang tadinya hanya suara daun yang bergoyang tertiup angin, kini tergantikan dengan suara gemericik air yang menabrak dinding dari kejauhan.
 
 Varietas pohon yang tumbuh bahkan mungkin telah berubah dan semacamnya, tetapi Aku tidak tahu banyak dalam hal itu.
+
 Tapi, proporsi roh yang memiliki warna biru tampaknya meningkat.
 
-Saat kami melanjutkan perjalanan, bidang pandang kami yang dipersempit oleh pepohonan tiba-tiba terbuka.
+Saat kami melanjutkan perjalanan, pandangan kami yang dipersempit oleh pepohonan tiba-tiba terbuka.
+
 Sinar matahari pagi bersinar terang, menyebabkan Ciel membuat bayangan untuk matanya dengan tangannya.
 
-Sementara Ciel belum bisa melihatnya, di depan kita ada lautan luas yang membentang ke cakrawala.
-Dalam bidang visual Aku adalah warna biru dan putih.
-Tidak ada garis pantai berpasir, hanya tebing curam, seolah-olah tanah diukir, dihantam ombak tanpa henti.
+Sementara Ciel belum bisa melihatnya, di depan kami ada lautan luas yang membentang ke cakrawala.
+
+Dalam bidang visualku, warnanya biru dan putih.
+
+Tidak ada garis pantai berpasir, hanya tebing curam, seolah-olah tanahnya diukir, dihantam ombak tanpa henti.
+
 Itu adalah laut dan langit biru yang telah Aku lihat berkali-kali ketika Aku masih hidup.
 
 Tapi sejujurnya, Aku hanya melihat pemandangan luas seperti ini dalam gambar dan potret.
+
 Lagi pula, tempat Aku tinggal tidak memiliki tebing di dekatnya. Mungkin ada beberapa, tetapi satu-satunya tempat yang pernah Aku kunjungi adalah pantai dan pelabuhan.
-Itu sebabnya nostalgia tapi agak berbeda. Dan sementara Aku bisa mengatakan hal yang sama tentang pemandangannya juga, roh yang dengan senang hati melayang di mana-mana adalah sesuatu yang belum pernah Aku lihat sebelumnya.
 
-Menjadi lautan, ada banyak roh tipe air seperti yang diharapkan.
+Itu sebabnya ini rasanya nostalgia tapi agak berbeda. Dan walaupun Aku bisa mengatakan hal yang sama tentang pemandangannya, roh yang dengan senang hati melayang di mana-mana adalah sesuatu yang belum pernah Aku lihat sebelumnya.
 
-(Bab ini disediakan untuk kamu oleh Re:Library)
+di lautan, ada banyak roh tipe air seperti yang diharapkan.
 
-(Jika kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+[Ain! Ain! Airnya sangat biru!] (Ciel)
 
-Ain! Ain! Airnya sangat biru!」
-Ya, cukup biru.』
-Dan itu sangat besar!」 Ya
-, ini benar-benar membawaku kembali. Ini adalah pertama kalinya Aku melihat laut di sini.
-Iklan
+[Ya, cukup biru.] (Ain)
+
+[Dan itu sangat besar!] (Ciel)
+
+[Ya, ini benar-benar mengingatkanku kembali. Ini adalah pertama kalinya Aku melihat laut di sini.] (Ain)
 
 Ciel berbicara dengan semangat yang sangat tinggi.
-Melihat Ciel bertingkah seusia dengan matanya yang berbinar-binar kegirangan, tiba-tiba aku bertanya-tanya apa yang ada di pikiranku saat pertama kali melihat laut.
-Tetap saja, tidak peduli seberapa keras Aku mencoba, Aku tidak dapat mengingatnya sama sekali. Mungkin bahkan sebelum aku memiliki kesadaran, jadi mau bagaimana lagi.
 
-Ain, apakah lautan yang pernah kamu lihat sebelumnya ... juga seperti ini?」
+Melihat Ciel bertingkah seusia dengan matanya yang berbinar-binar kegirangan, tiba-tiba aku bertanya-tanya apa yang ada di pikiranku saat pertama kali melihat laut.
+
+Tetap saja, tidak peduli seberapa keras Aku mencoba, Aku tidak dapat mengingatnya sama sekali. Mungkin bahkan sebelum aku dewasa, jadi mau bagaimana lagi.
+
+[Ain, apakah lautan yang pernah kamu lihat sebelumnya ... juga seperti ini?] (Ciel)
 
 Tampak tenang, suara Ciel yang agak kesepian menarik perhatianku.
 
-"Ayo lihat. Langit dan laut berwarna biru, dan awan serta ombak berwarna putih. Seperti yang ada dalam ingatanku.
-Tapi, ada sesuatu yang berbeda sekarang.』
-Benarkah? Apa itu? 」
-『Aku tidak bisa melihat roh kembali kemudian.』
-「Fufu , mereka terlihat seperti mereka menikmati diri mereka sendiri. Katakan, Ain.」
-Apa itu?』
-Ini bukan seluruh lautan, kan?」
-Ya, itu harus mengelilingi benua, jadi kamu dapat mengatakan bahwa lautan di sini hanya sebagian kecil darinya.
-Lautan ini menghadap ke tebing, tetapi seharusnya ada tempat di mana ada pelabuhan yang dibangun untuk memancing dan Aku percaya bahwa ada pantai berpasir di mana kamu bisa lebih dekat ke laut.
-Kalau begitu, begitu kita meninggalkan negara ini, mari kita pergi melihat berbagai lautan lainnya. Mari kita lihat berbagai langit lainnya. Yuk kunjungi berbagai tempat lainnya. Dan kemudian......」
-Lalu apa?』
-Bukan apa-apa. Jangan khawatir tentang itu.
+[hmmmm. Langit dan laut berwarna biru, dan awan serta ombak berwarna putih. Seperti yang ada dalam ingatanku. Tapi, ada sesuatu yang berbeda sekarang.] (Ain)
+
+[Benarkah? Apa itu?] (Ciel)
+
+[Aku tidak bisa melihat roh kembali dulunya.] (Ain)
+
+[Fufu , mereka terlihat seperti mereka menikmati diri mereka sendiri. hey, Ain...] (Ciel)
+
+[ada Apa?] (Ain)
+
+[Ini bukan seluruh lautan, kan?] (Ciel)
+
+[Ya, laut harusnya mengelilingi benua, jadi kamu dapat mengatakan bahwa lautan di sini hanya sebagian kecil darinya. Lautan ini menghadap ke tebing, tetapi seharusnya ada tempat di mana ada pelabuhan yang dibangun untuk memancing dan Aku percaya bahwa ada pantai berpasir di mana kamu bisa lebih dekat ke laut.] (Ain)
+
+[Kalau begitu, begitu kita meninggalkan negara ini, mari kita pergi melihat berbagai macam lautan lainnya. Mari kita lihat berbagai macam langit lainnya. ayo kunjungi berbagai tempat lainnya. Dan kemudian......] (Ciel)
+
+[Lalu apa?] (Ain)
+
+[Bukan apa-apa. Jangan khawatir tentang itu.] (Ciel)
 
 Ciel menggelengkan kepalanya dan mengabaikan pertanyaanku.
 
