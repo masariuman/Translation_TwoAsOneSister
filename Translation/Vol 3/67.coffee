@@ -28,107 +28,120 @@ Bahkan sebelum aku bisa merasakan kehadiran kematian yang datang, es menangkap k
 
 Karena dia baru saja akan melompat, es yang menutupi kakinya kemudian terkelupas dengan paksa, menyebabkan dia gagal mendarat dan jatuh cukup jauh dari kami.
 
-Ia segera bangkit, tetapi mengangkat kaki belakang kanannya di atas tanah seolah-olah untuk melindunginya. Dari fakta bahwa itu diwarnai dengan warna merah tua, monster itu jelas terluka.
+Ia segera bangkit, tetapi mengangkat kaki belakang kanannya seolah-olah melindungi kaki itu. Dari fakta bahwa itu diwarnai dengan warna merah tua, monster itu jelas terluka.
 
 Selain itu, ia mendarat di atas Stage of Frost, tepat di wilayah Ciel.
+
 Dan dengan berada di atas panggung, Ciel sekarang dapat tampil sesukanya.
 
-Iklan
-Meluncur di atas es seperti sosok skater, dia dengan santai mengitari serigala emas seolah-olah itu adalah musikal.
-Dia bertepuk tangan, menyentuh bulu monster itu, dan menusuk hidungnya. Dengan setiap tindakan yang berhasil, serigala emas secara bertahap membeku menjadi patung es.
+Meluncur di atas es seperti sosok skater, dia dengan santai mengitari serigala emas seolah-olah itu adalah acara musikal.
+
+Dia bertepuk tangan, menyentuh bulu monster itu, dan menusuk hidungnya. Serigala emas secara bertahap membeku menjadi patung es.
+
 Ini pemandangan yang sangat indah Tapi mengerikan.
 
 Saat tariannya berakhir, Ciel mendekati patung es itu.
+
 Aku memutuskan untuk berhenti bernyanyi juga, dan mulai memeriksa serigala emas.
-Meskipun ada beberapa hal aneh yang terjadi selama pertempuran sebelumnya, seharusnya tidak perlu membicarakannya sekarang.
+
+Meskipun ada beberapa hal aneh yang terjadi selama pertarungan sebelumnya, seharusnya tidak perlu membicarakannya sekarang.
 
 Pada pemeriksaan lebih dekat, ada jahitan yang terlihat pada serigala emas di sana-sini.
+
 Meskipun tidak ada keraguan bahwa komponen intinya adalah serigala, bulunya tampaknya adalah sesuatu yang dijahit, dan dilihat dari ukurannya, mungkin ada hal lain yang ditambahkan padanya.
+
 Aku bisa membayangkan itu menjadi semacam chimera.
+
 Dan mengingat jahitan ini, pertempuran sebelumnya lebih masuk akal sekarang, sampai batas tertentu.
 
-—– Retak
+—– Crack
 
-Merasakan gelombang kekuatan sihir yang tiba-tiba, aku mengambil alih tubuh Ciel dengan paksa dan melompat mundur.
-Detik berikutnya, Aku terlempar ke ujung panggung dengan kekuatan yang kuat dan rasa sakit yang tajam menjalari lengan kanan Aku.
+Merasakan gelombang energi sihir yang tiba-tiba, aku mengambil alih tubuh Ciel dengan paksa dan melompat mundur.
+
+Detik berikutnya, Aku terlempar ke ujung panggung dengan kekuatan yang kuat dan rasa sakit yang tajam menjalari lengan kananku.
 
 Saat Aku mengabaikan rasa sakit dan mulai bernyanyi, Aku mengerti apa yang baru saja terjadi.
 
-Serigala emas melarikan diri dari es dan saat ini memelototi kami. Dan fakta bahwa serangan itu melewati penghalangku, tampaknya telah menggunakan cakarnya.
-Aku tidak pernah berpikir bahwa bahkan membekukannya tidak akan cukup untuk mengalahkannya. Meskipun, seperti yang diharapkan, serigala emas tidak bertahan tanpa cedera. Itu berdarah di seluruh, dan itu mengejutkan di kakinya.
-Tetap saja, itu mengambil tangan kanan Ciel, jadi kita setara—
-Iklan
+Serigala emas melarikan diri dari es dan saat ini memelototi kami. Dan fakta bahwa serangannya melewati +BARRIERku, tampaknya dia menggunakan cakarnya.
 
-—Sebenarnya, tidak begitu.
+Aku tidak pernah berpikir bahwa bahkan membekukannya tidak akan cukup untuk mengalahkannya. seperti yang diharapkan, serigala emas tidak bertahan tanpa cedera. dia berdarah di seluruh tubuhnya, dan yang terparah di kakinya.
 
-Pertama-tama, serigala emas jelas mengalami lebih banyak kerusakan. Itu tidak bisa bergerak gesit seperti sebelumnya. Ciel mungkin bisa berlari lebih cepat dan melarikan diri sekarang.
+Tetap saja, dia mengenai tangan kanan Ciel, jadi kami setara—
 
-Kedua, karena kami terpesona, ada jarak di antara kami sekarang. Ini menambah waktu yang dibutuhkan serigala emas untuk mencapai kita dan memberi Ciel waktu luang untuk menari.
+—Sebenarnya, tidak juga.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Pertama-tama, serigala emas jelas mengalami lebih banyak kerusakan. dia tidak bisa bergerak gesit seperti sebelumnya. Ciel mungkin bisa berlari lebih cepat dan melarikan diri sekarang.
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Kedua, karena kami terpelanting, ada jarak di antara kami sekarang. Ini menambah waktu yang dibutuhkan serigala emas untuk mencapai kami dan memberi Ciel waktu luang untuk menari.
 
-Ketiga, lengan Ciel masih menempel .
+Ketiga, lengan Ciel masih ada .
 
-Setelah semua yang telah kita lalui, Ciel dan aku tidak begitu lemah untuk menangisi cedera lengan tingkat ini.
-Aku bahkan cukup baik untuk memikirkan bagaimana saat perut Ciel dibelah lebih menyakitkan dari ini.
+Setelah semua yang telah kami lalui, Ciel dan aku tidak begitu lemah untuk menangisi cedera lengan tingkat ini.
+
+Aku bahkan memikirkan saat perut Ciel dibelah lebih menyakitkan dari ini.
 
 Selain itu, Song Princess dapat memulihkan cedera.
-Itu bisa menyembuhkan bahkan luka yang dalam, dan kecepatan penyembuhannya sama sekali tidak normal. Tetap saja, Aku tidak tahu apa yang akan terjadi dalam kasus anggota badan yang terputus, jadi Aku bersyukur itu masih utuh.
+
+song princess bisa menyembuhkan bahkan luka yang dalam, dan kecepatan penyembuhannya sama sekali tidak normal. Tetap saja, Aku tidak tahu apa yang akan terjadi dalam kasus anggota badan yang terputus, jadi Aku bersyukur itu masih utuh.
 
 Lengan Ciel sudah mulai sembuh.
 
 Demikian pula, Ciel sudah menyelesaikan persiapannya.
+
 Saat dia menjaga ritmenya dengan tumitnya, dia menanam biji es kecil.
 
 Yang tersisa hanyalah waktu yang tepat.
 
 Hanya untuk Ciel menjentikkan jarinya saat serigala emas membuka mulutnya.
 
-「Siorah Sphino.2」
-Iklan
+"SIORAH SPHINO.+"
 
 Benih yang ditanam mekar menjadi mawar es.
-Beberapa mawar es, yang praktis tidak bisa dibedakan dari aslinya kecuali warnanya, mekar dari dalam serigala emas dan merobek organ-organnya hingga hancur.
 
-Ini tidak simetris, bukan?
+Beberapa mawar es, yang tidak bisa dibedakan dari aslinya kecuali warnanya, mekar dari dalam serigala emas dan merobek organ-organnya hingga hancur.
 
-Mawar ini dimaksudkan untuk menyebar ke samping secara simetris. Karena sebagian dari mereka berkembang dari dalam serigala emas, itu secara alami menjadi asimetris seperti yang dikatakan Ciel.
-Aku tahu bahwa Putri Tari harus sangat mementingkan penampilan dan penampilan, tapi mau tak mau aku menemukan ini sedikit tidak pada tempatnya.
+[Ini tidak simetris, kan?] (Ciel)
 
-Dengan ini, monster itu harus dikalahkan sekarang; tetapi ketika Aku berpikir begitu, Aku merasakan sesuatu dari serigala emas mengalir ke dalam diri Aku.
-Adapun apa, itu hal seperti kekuatan sihir dari cakar.
+Mawar ini dimaksudkan untuk menyebar ke samping secara simetris. Karena sebagian dari mereka berkembang dari dalam serigala emas, secara alami menjadi asimetris seperti yang dikatakan Ciel.
+
+Aku tahu bahwa dance princess harus sangat mementingkan penampilan dan hasil, tapi mau tak mau aku menemukan ini sedikit tidak pada tempatnya.
+
+Dengan ini, monster itu harusnya dikalahkan sekarang; tetapi ketika Aku berpikir begitu, Aku merasakan sesuatu dari serigala emas mengalir ke dalam diriku.
+
+itu seperti energi sihir dari cakar.
+
 Aku tidak bisa melarikan diri darinya bahkan jika aku ingin, tapi itu tidak terasa tidak menyenangkan sama sekali.
 
 Sama sekali tidak tahu apa yang terjadi atau apa yang harus kami lakukan, Ciel dan aku tidak punya kata-kata.
-Dan saat kami terus menatap serigala emas dalam diam, orang kecil tiba-tiba memasuki bidang pandang Ciel.
+
+Dan saat kami terus menatap serigala emas dalam diam, orang yang berukuran kecil tiba-tiba memasuki pandangan Ciel.
 
 Ciel secara refleks mengalihkan pandangannya ke arah itu.
 
-Orang mungil ini memiliki rambut hijau, mata hijau, mengenakan gaun hijau, dan tampaknya bersinar dengan cahaya hijau samar. Dari kepala sampai kaki, itu hanya sedikit lebih besar dari kepala Ciel.
-Orang mungil yang tampak seperti seorang gadis ini melayang di udara dan menatap rambut Ciel, kira-kira di tempat jepit rambut itu berada.
+Orang mungil ini memiliki rambut hijau, mata hijau, mengenakan gaun hijau, dan tampaknya bersinar dengan cahaya hijau samar. Dari kepala sampai kaki, ukurannya hanya sedikit lebih besar dari kepala Ciel.
 
-Dan sementara tatapan terkejut Ciel tertuju pada gadis ini, gadis itu tampaknya memperhatikan saat dia kemudian menatap kami.
+Orang mungil yang tampak seperti seorang gadis ini melayang di udara dan menatap rambut Ciel, kearah jepit rambut itu berada.
+
+Dan sementara tatapan terkejut Ciel tertuju pada gadis ini, gadis itu tampaknya menyadarinya dan dia kemudian menatap kami.
 
 Mata kami bertemu.
 
 Mata hijaunya yang menakjubkan seperti permata, dan aku tidak bisa merasakan niat buruk dari ekspresi polosnya.
+
 Saat dia melihat Ciel dengan rasa ingin tahu yang besar, dia tiba-tiba bergerak perlahan dari sisi ke sisi.
+
 Tatapan Ciel mengikuti gerakannya.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
-
 Wajah gadis itu kemudian meledak dengan gembira.
-Iklan
 
-Dan Ciel mengikutinya, mengatakan Adorable. sambil tersenyum.
+Dan Ciel, berkata [imutnya]. sambil tersenyum.
 
 Sementara Aku memperhatikan situasi yang cukup mengharukan ini, mau tidak mau Aku memperhatikan berbagai hal lain yang dapat Aku lihat dari pandangan mata burung.
-Misalnya, fakta bahwa ada berbagai orang kecil berwarna biru, merah, dan lainnya yang melayang di udara.
+
+Misalnya, fakta bahwa ada berbagai orang mungil berwarna biru, merah, dan lainnya yang melayang di udara.
+
 Atau bahwa tidak hanya ada yang mirip manusia, tetapi juga ada yang mirip kadal dan burung di antara mereka.
+
 Atau bahwa ada seorang wanita yang lebih besar dari gadis hijau di depan Ciel, kira-kira lebih dari setengah tinggi Ciel, mengawasi kami dengan senyum lembut.
 
 Atau makhluk-makhluk ini masuk dan keluar dari jepit rambut Ciel. Sepertinya mereka tidak bisa disentuh.
