@@ -1,74 +1,104 @@
 CHAPTER 68: SPECULATION, CIEL, AND THE SEA
 
-Sementara serigala emas sekarang dikalahkan, Aku tidak bisa mengatakan dengan pasti bahwa masalah ini sekarang berakhir begitu saja.
-Monster tambal sulam yang bisa memanipulasi ucapan manusia. Dan mengingat kembali kata-kata monster itu, tidak diragukan lagi itu adalah buatan manusia.
+walaupun serigala emas dikalahkan, Aku tidak bisa mengatakan dengan pasti bahwa masalah ini sekarang berakhir begitu saja.
 
-Sementara fakta bahwa monster seperti ini bisa dibuat cukup mengejutkan, menurutku kita hanya menang lebih awal karena itu buatan manusia.
-Karena dijahit secara paksa menjadi bentuk yang diperbesar, tubuhnya tidak bisa mengikuti kemampuannya sendiri.
-Tidak terbiasa dengan tubuhnya sendiri, serigala emas hanya bisa berlari dalam garis lurus; tidak terbiasa dengan beratnya sendiri, secara bertahap kelelahan; dan karena ia memaksakan diri, jahitannya terlepas dari jahitannya.
+Monster buatan yang bisa memanipulasi ucapan seperti manusia. Dan mengingat kembali kata-kata monster itu, tidak diragukan lagi itu adalah buatan manusia.
 
-Serigala emas itu melelahkan dirinya sendiri lebih dari yang bisa membuat Ciel lelah dan dia pasti menyadarinya. Mungkin itu sebabnya dia tetap tenang meskipun penghalang itu tidak banyak berguna untuk melawannya.
-Lagi pula, paling buruk, aku bisa menyembuhkannya segera selama dia tidak mati. Selain itu, rasa sakit juga tidak akan memperlambatnya karena dia tahan terhadap rasa sakit.
+fakta bahwa monster seperti ini bisa dibuat cukup mengejutkan dan menurutku kami hanya menang karena itu buatan manusia.
 
-Seperti yang Aku pikirkan, Rispelgia mungkin menciptakannya.
-Serigala itu menyebut dirinya tiruan, jadi dia bisa mencoba membuat dewa lagi.
-Dan kemungkinan besar gagal, dia membuangnya.
+Karena dijahit secara paksa menjadi bentuk yang lebih besar, tubuhnya tidak bisa mengikuti kemampuannya sendiri.
+
+Tidak terbiasa dengan tubuhnya sendiri, serigala emas hanya bisa berlari dalam garis lurus; tidak terbiasa dengan beratnya sendiri, secara bertahap kelelahan; dan karena ia memaksakan diri, jahitannya terlepas.
+
+Serigala emas itu melelahkan dirinya sendiri lebih dari yang bisa membuat Ciel kelelahan dan ciel pasti menyadarinya. Mungkin itu sebabnya dia tetap tenang meskipun +BARRIER itu tidak banyak berguna untuk melawannya.
+
+Lagi pula, aku bisa menyembuhkannya segera selama dia tidak mati. Selain itu, rasa sakit juga tidak akan memperlambatnya karena dia tahan terhadap rasa sakit.
+
+[Seperti yang Aku pikirkan, Rispelgia mungkin menciptakannya.] (ciel)
+
+[Serigala itu menyebut dirinya tiruan, jadi dia mungkin mencoba membuat dewa lagi. Dan kemungkinan besar gagal, dia membuangnya.] (ain)
 
 Saat kami dalam perjalanan kembali ke Norvell, Ciel dan aku berspekulasi tentang serigala emas.
-Bukannya satu-satunya tersangka yang mungkin adalah Keluarga Rispelgia. Tapi, jika kita dapat memastikan bahwa ini adalah masalah yang berhubungan dengan dewa, maka keterlibatan mereka secara praktis akan dikonfirmasi.
-Dan ada cara untuk mengkonfirmasinya, kurang lebih.
+
+kami tidak berpikir satu-satunya tersangka yang adalah Rispelgia. Tapi, jika kami dapat memastikan bahwa ini adalah masalah yang berhubungan dengan dewa, maka keterlibatan mereka dapat dikonfirmasi.
+
+Dan ada cara untuk mengkonfirmasinya.
 
 Saat kami melanjutkan perjalanan, roh-roh itu mengikuti dan melayang di samping kami, tetapi tampaknya mereka sedang bermain-main sendiri.
 
-Jika hanya serigala itu, maka ini akan menjadi akhir dari semuanya tapi...』
-Lagi pula, itu memang mengatakan kita . Akan lebih baik untuk berasumsi bahwa masih ada lebih banyak dari mereka.』
-Jika mereka semua jenis monster yang sama, maka kita mungkin bisa menghadapi mereka; tapi kemungkinannya kecil, bukan?』
-“Utusan surgawi” bisa menjadi kunci dalam hal itu.』
-Mungkin yang terbaik adalah meneliti tentang ini dengan benar untuk berjaga-jaga.』
+[Jika hanya serigala itu, ini akan menjadi akhir dari semuanya tapi...] (Ain)
 
-Jika monster buatan lainnya memiliki kekuatan yang sama, maka itu bisa menjadi sangat merepotkan.
-Bukan untuk kita, tapi untuk orang-orang di dunia ini.
+[serigala itu mengatakan kita. Akan lebih baik untuk berasumsi bahwa masih ada lebih banyak dari mereka.] (Ciel)
+
+[Jika mereka semua jenis monster yang sama, kita mungkin bisa menghadapi mereka; tapi kemungkinannya kecil, kan?] (Ain)
+
+["Utusan Dewa" bisa menjadi kunci dalam hal itu.] (Ciel)
+
+[Mungkin yang terbaik adalah meneliti tentang ini dengan benar untuk berjaga-jaga.] (Ain)
+
+Jika monster buatan lainnya memiliki kekuatan yang sama, itu bisa menjadi sangat merepotkan.
+
+Bukan untuk kami, tapi untuk orang-orang di dunia ini.
+
 Ada orang yang sepertinya tidak akan pernah bertemu monster Rank-B sepanjang hidup mereka, terlebih lagi monster Rank-A ke atas.
+
 Tapi, monster buatan ini memiliki niat yang jelas untuk secara proaktif membalas dendam pada umat manusia.
 
-Selain itu, jika ini benar-benar karya Rispelgia, maka Aku sulit membayangkan bahwa ini akan menjadi eksperimen terakhirnya.
+Selain itu, jika ini benar-benar buatan Rispelgia, Aku sulit membayangkan bahwa ini akan menjadi eksperimen terakhirnya.
+
 Lagi pula, serigala emas sama sekali tidak mendekati hasil yang sukses. Meskipun mungkin juga dia memiliki eksperimen yang berhasil setelah serigala emas ini, mengharapkan itu terlalu optimis.
+
 Rispelgia tampaknya terobsesi dengan dewa. Meskipun Aku tidak berpikir dia akan menghasilkan monster yang kuat untuk setiap percobaan, masih tidak ada jaminan bahwa dia juga tidak akan menghasilkan monster yang kuat.
 
-Iklan
-Ngomong-ngomong Ain, apa kamu baik-baik saja?』
-Baiklah tentang apa?』
-Sesuatu memasuki kita setelah kita mengalahkan serigala, kan?
-Aku tidak merasa berbeda, tetapi apa tentang kamu, Ain? 』
-『Oh , itu. Saat ini aku sedang memikirkan apakah ada cara untuk memanfaatkannya.』
-Kamu sangat pekerja keras, Ain.』
-Lagipula, aku harus bisa melindungimu dengan baik saat monster serupa muncul lagi.
-『Fufu , terima kasih, Ain. kamu terdengar sangat optimis tentang itu.
-『Saya sudah cukup optimis untuk bertahan selama 5 tahun hanya dengan senyum seorang anak yang menikmati lagu-lagu Aku, kamu tahu?』
+[Ngomong-ngomong Ain, apa kamu baik-baik saja?] (Ain)
+
+[tentang apa?] (Ciel)
+
+[Sesuatu memasuki kita setelah kita mengalahkan serigala, kan? Aku tidak merasa sesuatu yang berbeda, tetapi bagaimana denganmu, Ain?] (Ciel)
+
+[Oh, itu. Saat ini aku sedang memikirkan apakah ada cara untuk memanfaatkannya.] (Ain)
+
+[Kamu sangat pekerja keras, Ain.] (Ciel)
+
+[Lagipula, aku harus bisa melindungimu dengan baik saat monster serupa muncul lagi.] (Ain)
+
+[Fufu , terima kasih, Ain. kamu terdengar sangat optimis.] (Ciel)
+
+[Aku sudah cukup optimis untuk bertahan selama 5 tahun hanya dengan senyum seorang anak yang menikmati lagu-laguku, kamu tahu?] (Ain)
 
 Aku menjawab dengan cekikikan, tapi mungkin aku berusaha terlalu keras untuk bersikap tenang.
-Tetap saja, jika Ciel tidak tersenyum dan menertawakan lagu-laguku, maka hatiku mungkin akan hancur selama lima tahun pertamaku di dunia ini.
-Bahkan sekarang, jika Ciel tidak ada di sini, maka Aku tidak akan terhubung dengan dunia ini.
+
+Tetap saja, jika Ciel tidak tersenyum dan menertawakan lagu-laguku, hatiku mungkin akan hancur selama lima tahun pertamaku di dunia ini.
+
+Bahkan sekarang, jika Ciel tidak ada di sini, Aku tidak akan terhubung dengan dunia ini.
 
 Hanya bisa mendukung Ciel sudah cukup bagiku.
+
 Tapi di masa depan, Ciel mungkin akan menganggapku sebagai pengganggu, bukan? Berpikir begitu, aku menatap ekspresi senang Ciel dari samping.
 
 ◇
 
-Saat kami mengalahkan monster acak dalam perjalanan kembali, kami berhasil mengalahkan cukup banyak untuk menyelesaikan permintaan lain yang kami terima, jadi kami membawa semua ini bersama kami ke Hunter Guild.
+Saat kami mengalahkan monster secara acak dalam perjalanan kembali, kami berhasil mengalahkan cukup banyak untuk menyelesaikan permintaan lain yang kami terima, jadi kami membawa semua ini bersama kami ke Guild Hunter.
+
 Setelah memasuki hutan di pagi hari, sekarang sudah lewat tengah hari dan hampir senja.
-Aku benar-benar tidak ingin pergi ke sana dalam kerangka waktu saat ini. Selain itu, saat ini ada batasan yang ditempatkan untuk mencegah orang pergi ke hutan, yang berarti ada banyak Hunter di guild.
+
+Aku benar-benar tidak ingin pergi ke sana dengan waktu sekarang. Selain itu, saat ini ada batasan yang ditempatkan untuk mencegah orang pergi ke hutan, yang berarti ada banyak Hunter di guild.
+
 Masuk dalam situasi ini sangat merepotkan. Tetapi jika Ciel tidak melaporkan penaklukan serigala emas, situasi ini akan terus berlanjut; jadi aku menyerah dan Ciel masuk dengan tudung di atas kepalanya.
 
-Di tengah suasana tegang ini, penampilan Ciel tampaknya telah memprovokasi para pemburu—karena tubuhnya yang kecil tidak dapat disembunyikan meskipun wajahnya bisa disembunyikan—dan mereka memelototi kami dengan kesal.
-Meskipun begitu, sepertinya tidak ada yang menyebabkan masalah, tapi kemudian aku menyadari bahwa Ketua Guild telah mengawasi dari belakang meja resepsionis.
-Dan sepertinya dia memperhatikan pintu masuk Ciel juga karena dia segera memberi isyarat kepada kami dengan tatapannya untuk mengikutinya ke ruang belakang begitu dia melihat kami.
+Di tengah suasana tegang ini, penampilan Ciel tampaknya telah memprovokasi para Hunter karena tubuhnya yang kecil tidak dapat disembunyikan meskipun wajahnya bisa disembunyikan dan mereka memelototi kami dengan kesal.
+
+Meskipun begitu, sepertinya tidak ada yang menyebabkan masalah, tapi aku menyadari bahwa Ketua Guild telah mengawasi dari belakang meja resepsionis.
+
+Dan sepertinya dia memperhatikan Ciel juga karena dia segera memberi isyarat kepada kami dengan tatapannya untuk mengikutinya ke ruang belakang begitu dia melihat kami.
 
 Ciel mengikuti di belakang Ketua Guild dan saat tatapan para Hunter menghilang, Ciel meminta Ketua Guild untuk membawa kami ke area yang lebih luas.
-Lagipula, kami membawa serigala emas apa adanya, jadi tidak mungkin untuk memasukkannya ke dalam ruangan normal. Meskipun agak bingung, ketua guild tetap menuruti.
+
+Lagipula, kami membawa serigala emas langsung tanpa diapa-apakan, jadi tidak mungkin untuk memasukkannya ke dalam ruangan normal. Meskipun agak bingung, ketua guild tetap menuruti.
+
 Kami mengubah arah kami dan dibawa ke area penyimpanan dimana material monster yang dibawa oleh hunter disimpan.
+
 Aku tidak tahu apakah itu karena pertimbangan atau hanya seperti biasanya, tetapi tidak ada seorang pun di area penyimpanan.
-Iklan
 
 Jadi, sudahkah kamu mengumpulkan sesuatu tentang monster itu?」
 Aku mengalahkan sesuatu yang sesuai dengan deskripsi.
