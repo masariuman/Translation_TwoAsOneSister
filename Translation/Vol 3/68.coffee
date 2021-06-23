@@ -252,6 +252,10 @@ Tampak tenang, suara Ciel yang agak kesepian menarik perhatianku.
 
 Ciel menggelengkan kepalanya dan mengabaikan pertanyaanku.
 
-Ini adalah tempat pertama yang Ciel pernah melihat laut. Mungkin karena itu, dia mungkin memiliki berbagai hal yang berkecamuk di benaknya. Begitukah. Ketika Aku menjawab demikian, Aku membayangkan bahwa jika kita mengunjungi tempat ini lagi, Ciel pasti telah membuat lebih banyak kenangan saat itu.
+Ini adalah tempat pertama Ciel melihat laut. Mungkin karena itu, dia mungkin memiliki berbagai hal yang berkecamuk di benaknya. Begitu ya. Ketika Aku menjawab demikian, Aku membayangkan bahwa jika kita mengunjungi tempat ini lagi, Ciel pasti telah membuat lebih banyak kenangan saat itu.
 
 Aku sedikit bersemangat untuk hari itu datang.
+
+---------------------------
+
+pertama-tama
