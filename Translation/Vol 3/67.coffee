@@ -221,6 +221,7 @@ Tampaknya salah satu alasan mengapa kami tiba-tiba bisa melihat mereka adalah ka
 Wanita pohon tampaknya tahu jawabannya, tetapi kesulitan menjawab hanya dengan ya atau tidak.
 
 Roh datang dalam berbagai jenis dan tampaknya mengatur alam. Salah satu contohnya adalah semakin banyak roh tanah dan tumbuhan di suatu tempat, semakin besar hasil panennya. Kebetulan, wanita pohon adalah roh hutan.
+
 Roh menggunakan kekuatan sihir untuk mengatur diri mereka sendiri dan jika mereka menggunakan terlalu banyak, paling buruk, mereka bisa menghilang. Kekuatan sihir mereka pulih secara alami, tetapi ada tempat di mana mereka dapat pulih lebih efisien.
 Salah satu tempat itu tampaknya adalah jepit rambut Ciel. Itu awalnya semacam tanaman misterius, tetapi roh hutanlah yang mengubahnya menjadi jepit rambut. Dia telah bersama kami untuk waktu yang sangat lama.
 Sementara itu menguras kekuatan sihir, dia tidak punya niat untuk menyakiti kita, katanya.
