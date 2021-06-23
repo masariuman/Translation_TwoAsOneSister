@@ -166,42 +166,53 @@ Aku tidak bisa mengungkapkan kecemasanku sekarang, tapi untuk beberapa alasan, s
 
 Aku tidak tahu alasannya tetapi karena yang bisa Aku lakukan hanyalah bernyanyi, Aku menuruti permintaan Ciel dan terus bernyanyi.
 
-Tiba-tiba, tanpa waktu bagi Ciel untuk mengambil sikap yang tepat, serigala emas itu bergegas masuk seperti peluru.
-Kali ini, ia hanya melakukan tekel alih-alih mencakar kami, jadi Ciel menghindari monster itu dengan gesit seolah-olah itu adalah adu banteng.
+Tiba-tiba, tanpa waktu untuk Ciel mengambil sikap yang tepat, serigala emas itu bergegas mendekat seperti peluru.
+
+Kali ini, ia hanya menanduk daripada mencakar kami, jadi Ciel menghindari monster itu dengan gesit seolah-olah itu adalah adu banteng.
+
 Seperti yang kupikirkan, satu-satunya masalah adalah serangan cakar itu.
 
 Tanpa waktu untuk merasa lega dengan bagaimana kami berhasil melewatinya, serigala emas menyerang kami sekali lagi.
-Mirip dari sebelumnya, itu adalah tekel lain. Meskipun ini akan membuat kita terpesona jika terhubung, itu tidak menakutkan karena kita tidak akan menerima kerusakan dari itu. Begitu, sementara kami takut dengan serangan cakar monster di pihak kami; dari sudut pandang serigala emas, serangan yang sama itu tidak memberikan banyak kerusakan pada kami.
+
+Mirip dari sebelumnya, itu adalah tandukan lagi. Meskipun ini akan membuat kami terpelanting jika kena, itu tidak menakutkan karena kami tidak akan menerima kerusakan dari itu. Begitu, sementara kami takut dengan serangan cakar monster di pihak kami; dari sudut pandang serigala emas, serangan yang sama itu tidak memberikan banyak kerusakan pada kami.
+
 Dengan kata lain, ia tidak menyadari bahwa menggunakan cakarnya adalah mode serangan yang paling efektif.
 
-Karena tidak ada waktu untuk istirahat, itu menyerang kami untuk ketiga kalinya. Sementara Aku berharap itu akan menjadi tekel biasa, saat serigala emas akan melewati kami, ia mengulurkan kaki depannya untuk mencakar kami.
+Karena tidak ada waktu untuk istirahat, serigala itu menyerang kami untuk ketiga kalinya. Sementara Aku berharap itu akan menjadi tandukan biasa, saat serigala emas akan melewati kami, ia mengulurkan kaki depannya untuk mencakar kami.
 
-Dari lintasan mendekati cakar, ini tidak mungkin untuk membunuh Ciel.
+Dari arah cakar, ini tidak mungkin untuk membunuh Ciel.
+
 Tetap saja, karena Ciel sudah berada di tengah manuver mengelak, dia tidak akan bisa menghindari ini.
 
 Aku menguatkan diri untuk rasa sakit yang datang, tetapi tubuh Ciel bergerak tanpa ragu-ragu.
 
 Itu tidak berarti cepat tetapi dengan pedangnya, Ciel memukul cakar serigala emas dengan gerakan sesedikit mungkin.
+
 Dengan pukulan yang dibelokkan, serigala emas kehilangan keseimbangan dan jatuh ke tanah.
-Sementara itu dibelokkan, serangan itu masih memiliki kekuatan yang cukup besar di belakangnya; tapi di luar dugaanku, pedang itu sepertinya tidak mengalami kerusakan yang terlihat.
+
+walaupun serangan itu dibelokkan, serangan itu masih memiliki kekuatan yang cukup besar; tapi di luar dugaanku, pedang itu sepertinya tidak mengalami kerusakan yang terlihat.
+
 Jauh dari pecah, bahkan tidak retak.
 
-Saat rencananya berjalan dengan baik, Ciel menunjukkan senyum yang berani; sementara berbeda dengan itu, serigala emas memelototi kami dengan intens.
-Jika hanya berdasarkan pada pertukaran terakhir ini, sepertinya Ciel mengungguli serigala emas tetapi karena kami tidak dapat memberikan kerusakan apa pun pada serigala emas, itu tidak mengubah fakta bahwa kami berada pada posisi yang kurang menguntungkan.
-Bagian dimana serigala emas tidak menerima damage adalah hal yang wajar karena Ciel hanya menangkis serangannya, tapi Ciel tidak mengambil inisiatif untuk menyerang juga.
+Saat rencananya berjalan dengan baik, Ciel menunjukkan senyum yang berani; dan serigala emas memelototi kami dengan intens.
 
-Iklan
+Jika hanya berdasarkan pada pertukaran serangan terakhir ini, sepertinya Ciel mengungguli serigala emas tetapi karena kami tidak dapat memberikan kerusakan apa pun pada serigala emas, itu tidak mengubah fakta bahwa kami berada pada posisi yang kurang menguntungkan.
+
+Bagian dimana serigala emas tidak menerima kerusakan adalah hal yang wajar karena Ciel hanya menangkis serangannya, tapi Ciel tidak mengambil inisiatif untuk menyerang juga.
+
 Meski begitu, ketenangan Ciel tetap bertahan.
 
-Iklan
 ◇
 
-Aku bertanya-tanya berapa banyak serangan yang telah ditukar sejak pertempuran dimulai.
-Mungkin menyadari bahwa satu-satunya serangan Ciel menangkis dengan pedangnya adalah yang memanfaatkan cakarnya, serigala emas mulai menyerang terutama dengan cakarnya. Itu mungkin lebih cerdas daripada monster lain mengingat dia bisa berbicara, jadi ini mungkin akan terjadi cepat atau lambat; tapi kami benar-benar dipaksa untuk bertahan sekarang.
+Aku bertanya-tanya berapa banyak serangan yang telah terjadi sejak pertarungan dimulai.
 
-Tetap saja, itu tidak seperti kita belum mendapatkan informasi apapun dari pertukaran sebelumnya; kami telah belajar bahwa dengan kemampuan fisiknya, yang paling dapat menyerang secara berurutan dengan kecepatan penuh adalah tiga kali.
+Mungkin menyadari bahwa satu-satunya serangan Ciel menangkis dengan pedangnya adalah ketika dia menggunakan cakarnya, serigala emas mulai menyerang dengan cakarnya. serigala itu mungkin lebih cerdas daripada monster lain mengingat dia bisa berbicara, jadi ini mungkin akan terjadi cepat atau lambat; tapi kami benar-benar dipaksa untuk bertahan sekarang.
+
+Tetap saja, bukannya kami belum mendapatkan informasi apapun dari serangan sebelumnya; kami telah belajar bahwa dengan kemampuan fisiknya, dia dapat menyerang secara berurutan dengan kecepatan penuh maksimal tiga kali saja.
+
 Meskipun Ciel tampaknya waspada terhadap serangan keempat berturut-turut hanya untuk memastikan, tiga kali kemungkinan batasnya.
-Apalagi serigala emas umumnya menyerang dalam garis lurus. Ia memiliki jangkauan yang luas ketika menggunakan cakarnya, tetapi sepertinya ia tidak dapat mengubah arahnya saat berada di tengah-tengah pergerakannya.
+
+Apalagi serigala emas umumnya menyerang dalam garis lurus. serigala itu memiliki jangkauan yang luas ketika menggunakan cakarnya, tetapi sepertinya sergiala itu tidak dapat mengubah arahnya saat berada di tengah-tengah pergerakannya.
 
 Tetap saja, Ciel melakukan serangan sekali ketika serigala emas tidak terus-menerus menyerang dengan cakarnya; tapi yang paling bisa dia lakukan saat itu adalah melukai monster itu dengan ringan, jadi itu tidak sebanding dengan risikonya untuk menyerang. Mempertimbangkan kecepatan serigala emas, beralih ke sihir tempur juga akan sulit. Saat Ciel dipaksa menjadi peran reaktif sebagai Putri Dansa, dia sudah berada pada posisi yang kurang menguntungkan.
 
