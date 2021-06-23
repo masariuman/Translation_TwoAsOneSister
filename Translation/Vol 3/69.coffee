@@ -143,67 +143,85 @@ Lagipula kami bisa tidur di mana saja dan karena kami punya tas sihir, tidak apa
 
 Tapi, karena kami akan melakukan ini selama beberapa tahun, akan menyenangkan setidaknya memiliki rumah. Apakah sesuatu seperti rumah kayu muat di dalam tas sihir kami? Saat pikiranku mulai mengembara ke arah itu dan Ciel hendak pergi, "Tunggu." Ketua Guild menghentikannya.
 
-Aku tidak punya bisnis di sini lagi.
-Maaf, tapi kami melakukannya di pihak kami. Silahkan duduk."
+"Aku tidak punya urusan di sini lagi." (Ciel)
 
-Iklan
+"Maaf, tapi kami memerlukannya di pihak kami. Silahkan duduk." (Ketua Guild)
+
 Ciel dengan enggan duduk kembali tampak tidak senang sementara Ketua Guild mengambil formulir permintaan.
 
-Kami memiliki permintaan yang ditunjuk untuk Kamu.」
-Penunjukan, berturut-turut?」
-Aku sadar bahwa belum ada preseden dalam hal ini. Tapi, karena urgensinya, itu diberikan persetujuan.」
-...... Isinya adalah?」
-Pengiriman persediaan ke ibukota kerajaan.
+"Kami memiliki permintaan yang ditunjuk untukmu." (Ketua Guild)
+
+"Penunjukan, berturut-turut?" (Ciel)
+
+"Aku sadar bahwa belum ada sesuatu seperti ini dalam hal ini. Tapi, karena daruratnya, ini diberikan persetujuan." (Ketua Guild)
+
+"...... Isinya adalah?" (Ciel)
+
+"Pengiriman persediaan ke ibukota kerajaan." (Ketua Guild)
 
 Ketua Guild menyerahkan formulir permintaan kepada Ciel dan dia mengkonfirmasi isinya.
-Meringkas apa yang tertulis, mereka ingin kita mengirimkan sejumlah besar persediaan ke ibukota kerajaan sesegera mungkin.
-Tapi, hanya menyampaikan ini tidak akan terlalu sulit. Meskipun jumlahnya banyak, kita harus bisa mengaturnya dengan menggunakan tas ajaib kita. Jika kita terburu-buru, kita mungkin akan mencapai ibukota dalam beberapa hari.
-Meskipun, ini dibutuhkan sesegera mungkin adalah sedikit hambatan, tidak mengatakan bahwa kita harus berada di sana besok.
+
+Meringkas apa yang tertulis, mereka ingin kami mengirimkan sejumlah besar persediaan ke ibukota kerajaan sesegera mungkin.
+
+Tapi, hanya menyampaikan ini tidak akan terlalu sulit. Meskipun jumlahnya banyak, kami harusnya bisa mengaturnya dengan menggunakan tas sihir kami. Jika kami bergegas, kami mungkin akan mencapai ibukota dalam beberapa hari.
+
+tapi, walaupun ini dibutuhkan sesegera mungkin, tapi ada sedikit keanehan, permintaan ini tidak mengatakan bahwa kami harus berada di sana besok.
 
 Tetap saja, ini tidak masuk akal.
 
 Dengan permintaan seperti ini, seharusnya tidak ada alasan untuk menunjuk Ciel.
-Guild juga harus memiliki tas ajaib mereka sendiri, jadi mereka hanya perlu menemukan seseorang yang bisa menunggang kuda atau berjalan cepat dengan berjalan kaki.
+
+Guild juga harusnya memiliki tas sihir mereka sendiri, jadi mereka hanya perlu menemukan seseorang yang bisa menunggang kuda atau berjalan cepat dengan berjalan kaki.
+
 Karena Aku belum pernah mendengar orang mengatakan bahwa Ciel dapat melakukan perjalanan cepat dengan berjalan kaki, Aku memiliki firasat buruk tentang ini.
 
-Ketika Aku memberi tahu Ciel kekhawatiran Aku ini, Itu benar. dia menjawab dengan setuju.
+Ketika Aku memberi tahu Ciel kekhawatiranku ini, [benar.] dia menjawab dengan setuju.
 
-Aku tidak mengerti mengapa harus Aku.
-Di hutan dekat ibukota, tanda-tanda akan datangnya penyerbuan telah diamati. Sudah mencapai titik di mana penyerbuan bisa terjadi kapan saja. Karena itu, telah diputuskan bahwa kami akan menugaskan Hunter terkuat di Norvell untuk ini.」
-Jadi, ada kemungkinan besar untuk diserbu. Tetap saja, bukankah aku diizinkan untuk tidak berpartisipasi selama penyerbuan ibu kota?」
-Janjinya seharusnya tidak memaksamu untuk bergabung dalam pertempuran. Ini hanya pengiriman barang, jadi tidak berlaku.
+"Aku tidak mengerti mengapa harus Aku." (Ciel)
 
-Tentu saja dia tidak salah mengatakan bahwa janji itu tentang tidak membuat kita bertengkar.
-Permintaannya adalah untuk menyampaikan sesuatu. Tidak perlu bagi Ciel untuk bertarung di sepanjang jalan. Dan bahkan jika dia melakukannya, maka pada akhirnya Ciel akan bertarung atas kemauannya sendiri, ya .
+"Di hutan dekat ibukota, tanda-tanda akan datangnya penyerbuan telah diamati. Sudah mencapai titik di mana penyerbuan bisa terjadi kapan saja. Karena itu, telah diputuskan bahwa kami akan menugaskan Hunter terkuat di Norvell untuk ini." (Ketua Guild)
 
-Apakah kita tidak punya pilihan untuk menerima ini?』
-Karena ini adalah permintaan yang ditentukan, pasti ada penalti jika kita menolak.
-Tetap saja, ada banyak hal yang ingin Aku konfirmasi terlebih dahulu, jadi bisakah Aku meminjam tubuh Kamu sebentar?
-『 Tentu, Aku tidak keberatan.
+"Jadi, ada kemungkinan besar untuk penyerbuan. Tetap saja, bukankah aku diizinkan untuk tidak berpartisipasi selama penyerbuan ibu kota?" (Ciel)
+
+"Janjinya seharusnya tidak memaksamu untuk bergabung dalam pertempuran. Ini hanya pengiriman barang, jadi tetap tidak berlaku." (Ketua Guild)
+
+Tentu saja dia tidak salah mengatakan bahwa janji itu tentang tidak membuat kami bertarung.
+
+Permintaannya adalah untuk menyampaikan sesuatu. Tidak perlu bagi Ciel untuk bertarung. Dan bahkan jika dia melakukannya, Ciel akan bertarung atas kemauannya sendiri.
+
+[Apakah kita tidak punya pilihan untuk menerima ini?] (Ciel)
+
+[Karena ini adalah permintaan yang ditentukan, pasti ada penalti jika kita menolak. Tetap saja, ada banyak hal yang ingin Aku konfirmasi terlebih dahulu, jadi bisakah Aku meminjam tubuhmu sebentar?] (Ain)
+
+[Tentu, Aku tidak keberatan.] (Ciel)
 
 Menerima persetujuannya, Aku meminjam tubuhnya untuk berbicara dengan Ketua Guild.
-Sementara Aku hanya bisa memberi tahu Ciel dan dia akan memberi tahu Ketua Guild, memainkan permainan telepon semacam ini bisa membuat percakapan menjadi rumit.
-Aku benar-benar ingin merenungkan mengapa penyerbuan monster terjadi sekarang. Menurut perkiraan Aku, seharusnya baik-baik saja selama beberapa tahun lagi. Kenapa saat ini……
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+sebenarnya Aku bisa memberi tahu Ciel dan dia akan memberi tahu Ketua Guild, tapi memainkan permainan telepon semacam ini bisa membuat percakapan menjadi rumit.
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+Aku benar-benar ingin ingin tahu mengapa penyerbuan monster terjadi sekarang. Menurut perkiraanku, seharusnya baik-baik saja selama beberapa tahun lagi. Kenapa sekarang...
 
-Untuk saat ini, aku harus mengesampingkan perasaanku, mengubah cara bicaraku, dan melakukan pertukaran ini dengan Ketua Guild.
+Untuk saat ini, aku harus mengesampingkan perasaanku, mengubah cara bicaraku, dan melakukan percakapan ini dengan Ketua Guild.
 
-"Aku melihat. Lalu, ada beberapa hal yang ingin Aku konfirmasi dan tanyakan. 」
-Tentu saja, itu wajar.」
-Apakah penunjukan ini disetujui dengan kesadaran penuh bahwa ini akan memperburuk persepsi Aku tentang guild?」
-...... Itu benar.
+"begitu ya. ada beberapa hal yang ingin Aku konfirmasi dan tanyakan." (Ain)
+
+"Tentu saja, itu wajar." (Ketua Guild)
+
+"Apakah penunjukan ini disetujui dengan kesadaran penuh bahwa ini akan memperburuk persepsiku tentang guild?" (Ain)
+
+"...... Itu benar." (Ketua Guild)
 
 Saat aku menunjukkan ketidaksenangan yang berlebihan, Ketua Guild mengerutkan alisnya dan mengangguk.
-Situasinya mungkin begitu mengerikan, tetapi untuk yang digunakan, ini benar-benar tidak bisa dimaafkan.
 
-Kamu tidak dapat menyelesaikan satu penyerbuan tanpa bergantung pada gadis kecil yang berkeliaran?」
-Ada konfirmasi monster Rank-A, tetapi seharusnya tidak ada masalah dalam hal potensi bertarung.
-Tapi, begitu penyerbuan dimulai, tidak ada yang tahu kapan itu akan berakhir. Akan sangat bagus jika itu berakhir pada hari pertama, tetapi mungkin tidak akan berakhir begitu cepat.」
-Dan itulah mengapa aku hanya harus mengirimkan persediaan?」
-Benar. Itulah satu-satunya permintaan yang diminta.
+Situasinya mungkin begitu mengerikan, tetapi untuk yang digunakan, yaitu kami, ini benar-benar tidak bisa dimaafkan.
+
+"kalian tidak dapat menyelesaikan satu penyerbuan tanpa bergantung pada gadis kecil yang berkeliaran?"
+
+"Ada konfirmasi monster Rank-A, tetapi seharusnya tidak ada masalah dalam hal potensi bertarung. Tapi, begitu penyerbuan dimulai, tidak ada yang tahu kapan itu akan berakhir. Akan sangat bagus jika itu berakhir pada hari pertama, tetapi mungkin tidak akan berakhir begitu cepat." (Ketua Guild)
+
+"Dan itulah mengapa aku hanya harus mengirimkan persediaan?" (Ain)
+
+"Benar. Itulah satu-satunya permintaan yang diminta." (Ketua Guild)
 
 Jika Aku ingat dengan benar, desak-desakan yang terjadi secara alami, tidak seperti yang dipicu secara artifisial, memiliki kecenderungan untuk ditarik keluar.
 Karena penyerbuan yang terjadi secara alami terjadi karena peningkatan jumlah monster yang ekstensif, Aku kira itu wajar.
