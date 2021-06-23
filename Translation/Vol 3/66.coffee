@@ -94,7 +94,7 @@ Makhluk yang diciptakan secara artifisial.
 
 Tiba-tiba, penjelasan Viviana-san tentang serigala sebagai utusan dewa muncul di benakku.
 
-Sementara Aku sadar bahwa ini tampaknya benar-benar tidak masuk akal; pada saat yang sama, Aku yakin bahwa itu tidak jauh dari Duke Rispeligia yang setidaknya mencoba untuk menciptakan utusan ilahi untuk tujuannya.
+Sementara Aku sadar bahwa ini tampaknya benar-benar tidak masuk akal; pada saat yang sama, Aku yakin bahwa itu tidak jauh dari Duke Rispeligia yang setidaknya mencoba untuk menciptakan utusan dewa untuk tujuannya.
 
 Aku tidak akan terkejut jika dia memiliki fasilitas dan peralatan untuk melakukannya secara rahasia juga.
 
