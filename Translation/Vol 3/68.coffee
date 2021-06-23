@@ -100,66 +100,85 @@ Kami mengubah arah kami dan dibawa ke area penyimpanan dimana material monster y
 
 Aku tidak tahu apakah itu karena pertimbangan atau hanya seperti biasanya, tetapi tidak ada seorang pun di area penyimpanan.
 
-Jadi, sudahkah kamu mengumpulkan sesuatu tentang monster itu?」
-Aku mengalahkan sesuatu yang sesuai dengan deskripsi.
+"Jadi, sudahkah kamu mengumpulkan sesuatu tentang monster itu?" (Ketua Guild)
+
+"Aku mengalahkan sesuatu yang sesuai dengan dideskripsikan." (Ciel)
 
 Saat Ciel menjawab dengan acuh tak acuh, Ketua Guild memiliki tatapan skeptis dan hendak mengatakan sesuatu sebagai balasan.
-Tapi sebelum dia bisa, dia melihat Ciel mengeluarkan serigala emas dari tas ajaib kami dan menutup mulutnya.
 
-Kamu benar-benar mengalahkannya.
-Sudah kubilang.」
-Apa ini?」
-Siapa yang tahu? Aku juga ingin tahu."
+Tapi sebelum dia bisa, dia melihat Ciel mengeluarkan serigala emas dari tas sihir kami dan menutup mulutnya.
 
-(Bab ini disediakan untuk kamu oleh Re:Library)
+"Kamu benar-benar mengalahkannya." (Ketua Guild)
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"kan Sudah kukatakan." (Ciel)
 
-Mungkin karena dikejutkan oleh serigala emas yang sangat besar, pertanyaan Ketua Guild itu melenceng.
-Ketua Guild menggaruk kepalanya yang botak Ya, itu masuk akal ……」 dan menggerutu begitu.
-Tetap saja, ada hal-hal yang kami pelajari selama pertempuran, jadi Aku menyarankan Ciel untuk menyampaikannya kepadanya.
+"Apa ini?" (Ketua Guild)
 
-Serigala ini berbicara. Itu tidak bisa mengadakan percakapan, tetapi itu membenci manusia.
-Ini jelas pada pemeriksaan lebih dekat tetapi ditutupi dengan jahitan di seluruh, jadi kemungkinan buatan manusia. Itu juga mengatakan sesuatu untuk efek itu.」
-「.......Apakah kamu yakin tentang itu?」
-Ya.
-Tentang serigala ini ......」
-youJika kamu ingin itu dinilai, Aku akan meninggalkannya di sini. Tetap saja, Aku ingin tahu tentang sesuatu, jadi beri tahu Aku hasilnya.
-Apakah kamu tahu sesuatu?」
-Untuk saat ini, tidak ada apa-apa. Hanya beberapa spekulasi. Begitu
-. Kami akan memberi tahu kamu tentang itu.
+"entahlah.. Aku juga ingin tahu." (Ciel)
+
+Mungkin karena dikejutkan oleh serigala emas yang sangat besar, pertanyaan Ketua Guild agak melenceng.
+
+Ketua Guild menggaruk kepalanya yang botak dan mengatakan "Ya, itu masuk akal".
+
+Tetap saja, ada hal-hal yang kami pelajari selama pertarungan, jadi Aku menyarankan Ciel untuk menyampaikannya kepadanya.
+
+"Serigala ini berbicara. serigala ini tidak bisa membuat percakapan, tetapi serigala ini membenci manusia. Ini sangat jelas kalau dilihat lebih dekat tapi dia ditutupi dengan jahitan di seluruh tubuhnya, jadi kemungkinan buatan manusia. serigala ini juga mengatakan sesuatu tentang efek itu." (Ciel)
+
+".......Apakah kamu yakin tentang itu?" (Ketua Guild)
+
+"Ya." (Ciel)
+
+"Tentang serigala ini ......" (Ketua Guild)
+
+"Jika kamu ingin itu mengeceknya, Aku akan meninggalkannya di sini. Tetap saja, Aku ingin tahu tentang sesuatu, jadi beri tahu Aku hasilnya." (Ciel)
+
+"Apakah kamu tahu sesuatu?" (Ketua Guild)
+
+"Untuk saat ini, tidak. Hanya beberapa spekulasi." (Ciel)
+
+"Begitu. Kami akan memberi tahumu jika hasilnya keluar." (Ketua Guild)
 
 Ketua Guild memberikan kata-katanya saat dia menatap serigala raksasa di lantai.
+
 Karena kami sudah di sini, kami juga mengeluarkan cukup banyak monster untuk menyelesaikan permintaan lain dan meminta permintaan diproses di tempat.
-Kami membawa cukup banyak bangkai monster, tetapi Ketua Guild tidak terkejut seperti dia dengan serigala emas dan hanya diam-diam menerimanya.
 
-Yang tersisa hanyalah menunjukkan kartu kamu ke meja resepsionis dalam perjalanan kembali dan itu akan selesai.」
-Ngomong-ngomong, kapan gerbang akan dibuka?」
-Setelah beberapa permintaan penyelidikan yang akan mengkonfirmasi bahwa keamanan levelnya kembali normal.」
-Kalau begitu, izinkan penggunaan gerbang.」
-Aku tidak keberatan memberi kamu satu tapi ...... mengapa?」
-Untuk melihat laut.
+Kami membawa cukup banyak bangkai monster, tetapi Ketua Guild tidak terkejut seperti dia terkejut waktu melihat serigala emas dan hanya diam-diam menerimanya.
 
-Sementara ketua serikat menjadi bingung, dia tidak meminta lebih dari itu dan hanya berjanji bahwa kami akan mengeluarkan izin di konter resepsi juga.
+"Yang tersisa hanyalah menunjukkan kartumu ke meja resepsionis ketika kembali dan itu akan selesai." (Ketua Guild)
 
-Nona Cielmer, menurut penilaian kamu, seberapa kuat monster ini?」
-Setidaknya A-rank. Aku belum pernah melawan monster di luar A-rank, jadi Aku tidak bisa memastikannya.
-Tetap saja, itu jauh lebih kuat dari B-rank.
+"Ngomong-ngomong, kapan gerbang akan dibuka?" (Ciel)
 
-Ketua Guild benar-benar terdiam setelah hanya menjawab Kami akan mengingatnya. untuk kata-kata Ciel, jadi kami meninggalkan area penyimpanan.
-Saat kami menyelesaikan pemrosesan dokumen di konter resepsionis, Aku merasakan Hunter yang berbeda mendekati konter, tetapi kami mengabaikan mereka dan meninggalkan Hunter Guild.
+"Setelah beberapa penyelidikan yang akan mengkonfirmasi bahwa keamanan levelnya kembali normal." (Ketua Guild)
+
+"Kalau begitu, izinkan aku melewati gerbang." (Ciel)
+
+"Aku tidak keberatan mengizinkanmu tapi ...... mengapa?" (Ketua Guild)
+
+"Untuk melihat laut." (Ciel)
+
+Ketua Guild menjadi bingung tapi dia tidak bertanya lebih dari itu dan hanya berjanji bahwa mereka akan mengeluarkan izin di konter resepsionis juga.
+
+"Nona Cielmer, menurut penilaianmu, seberapa kuat monster ini?" (Ketua Guild)
+
+"Setidaknya Rank-A. Aku belum pernah melawan monster diatas rank-A, jadi Aku tidak bisa memastikannya. Tetap saja, itu jauh lebih kuat dari rank-B." (Ciel)
+
+Ketua Guild benar-benar terdiam setelah hanya menjawab "Kami akan mengingatnya." untuk kata-kata Ciel, jadi kami meninggalkan area penyimpanan.
+
+Saat kami menyelesaikan pemrosesan dokumen di konter resepsionis, Aku merasakan Hunter yang berbeda mendekati konter, tetapi kami mengabaikan mereka dan meninggalkan Guild Hunter.
 
 ◇
-Iklan
 
 Langsung setelah meninggalkan guild, Ciel meninggalkan kota Norvell.
+
 Itu mungkin karena dia sangat ingin melihat laut.
 
 Di dalam hutan lebat, kami menuju jauh ke utara dan menemukan jalan pegunungan.
+
 Pegunungan yang dituju tampaknya relatif rendah karena meskipun kami berhasil mencapai puncaknya tanpa banyak kesulitan, jarak pandang dari sana buruk dan kami tidak dapat melihat laut.
 
 Sekitar tiga hari setelah meninggalkan kota, kami sekarang menuruni pegunungan sambil melanjutkan perjalanan lebih jauh ke utara.
-Seperti yang diharapkan, bepergian tanpa persinggahan — meskipun kami bermain dengan roh di sepanjang jalan — secara signifikan meningkatkan kecepatan perjalanan kami. Ada beberapa monster tingkat B yang menyerang kami di jalan tapi kami mengalahkan mereka tanpa banyak kesulitan. Mempertimbangkan ini, serigala emas itu mungkin sebenarnya adalah Rank-S.
+
+Seperti yang diharapkan, bepergian tanpa persinggahan, meskipun kami bermain dengan roh di sepanjang jalan, secara signifikan meningkatkan kecepatan perjalanan kami. Ada beberapa monster rank-B yang menyerang kami di jalan tapi kami mengalahkan mereka tanpa banyak kesulitan. Mempertimbangkan ini, serigala emas itu mungkin sebenarnya adalah Rank-S.
 
 Apa yang muncul saat kami turun ke dasar gunung adalah, sungguh mengejutkan, lebih banyak hutan yang menutupi bidang pandang kami.
 Meskipun sepertinya tidak ada yang berbeda, dibandingkan dengan apa yang ada di sisi lain gunung, hal-hal yang tidak terlihat telah berubah.
