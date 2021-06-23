@@ -196,30 +196,28 @@ Aku tidak dapat mengesampingkan kemungkinan mereka tidak dapat mendengar kami ju
 
 Wanita pohon itu menggerakkan bibirnya, tapi sepertinya dia menyadari bahwa aku tidak bisa mendengarnya dan dia menggelengkan kepalanya sekali sebelum mengangguk.
 
-Aku kira maksudnya kami sudah bertemu jadi seharusnya tidak Senang bertemu denganmu」 dan dia bisa mendengar suaraku.
+mungkin maksudnya kami sudah bertemu jadi seharusnya bukan "Senang bertemu denganmu" dan dia bisa mendengar suaraku.
 
-Maka mungkin bukan karena mereka tiba-tiba muncul sekarang, tetapi karena mereka ada di sana sejak awal dan kita hanya bisa melihat mereka sekarang.
+mungkin bukan karena mereka tiba-tiba muncul sekarang, tetapi karena mereka ada di sana sejak awal dan kami hanya bisa melihat mereka sekarang.
 
-Maaf jika Aku tidak sopan, tetapi bolehkah Aku mengajukan beberapa pertanyaan? Aku tidak begitu mengerti apa yang terjadi.
+"Maaf jika Aku tidak sopan, tetapi bolehkah Aku mengajukan beberapa pertanyaan? Aku tidak begitu mengerti apa yang sedang terjadi." (Ain)
 
-Setuju. Untuk memulainya, Aku akan bertanya tentang identitas mereka yang sebenarnya.
+Untuk memulainya, Aku akan bertanya tentang identitas mereka yang sebenarnya.
 
-Apakah Aku benar untuk berasumsi bahwa Kamu semua adalah roh?」
+"Apakah Aku benar untuk berasumsi bahwa kalian semua adalah roh?" (Ain)
 
-Yang ini afirmatif juga. Sejujurnya ini adalah satu-satunya jawaban yang bisa Aku berikan, jadi Aku akan mendapat masalah jika dia menyangkalnya.
-Aku tahu roh hanya ada sebagai informasi. Atau lebih tepatnya, Aku hanya tahu bahwa ada Pekerjaan tipe Spirit Channeler. Padahal, penjelasan yang Aku baca mengatakan Mereka menyalurkan kekuatan roh untuk menggunakan sihir. dan hanya itu, jadi Aku tidak tahu makhluk seperti apa roh itu.
+Sejujurnya ini adalah satu-satunya jawaban yang bisa Aku pikirkan, jadi Aku akan mendapat masalah jika dia menyangkalnya.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Aku tahu roh hanya ada sebagai informasi saja. Atau lebih tepatnya, Aku hanya tahu bahwa ada job SPIRIT CHANNELER+. penjelasan yang Aku baca mengatakan Mereka menyalurkan kekuatan roh untuk menggunakan sihir. dan hanya itu, jadi Aku tidak tahu makhluk seperti apa roh itu.
 
-(Katakan tidak pada pencuri konten!)
+Dari informasi yang Aku dapat dari pengetahuan kehidupan masa laluku dan dengan mempertimbangkan situasi saat ini, mereka seharusnya adalah makhluk yang memimpin alam. Aku hanya bisa meminta konfirmasi dalam hal ini.
 
-Iklan
-Dari informasi yang Aku dapat dari pengetahuan kehidupan masa lalu Aku dan dengan mempertimbangkan situasi saat ini, mereka seharusnya adalah makhluk yang memimpin alam. Aku hanya bisa meminta konfirmasi dalam hal ini.
 Lagipula, dari respon wanita pohon yang tersenyum tadi, dia sepertinya akan dengan senang hati menjawab.
 
-Dengan mengatakan itu, Aku menanyakan banyak hal yang berbeda. Aku tahu itu sejujurnya tidak sopan, tapi dia tetap menjawab tanpa ragu-ragu.
+Aku menanyakan banyak hal yang berbeda. Aku tahu itu sejujurnya tidak sopan, tapi dia tetap menjawab tanpa ragu-ragu.
 
 Tampaknya salah satu alasan mengapa kami tiba-tiba bisa melihat mereka adalah karena kami mengalahkan serigala emas. Tapi, hubungan antara mengalahkan serigala emas dan mendapatkan kemampuan untuk melihat roh adalah sebuah misteri.
+
 Wanita pohon tampaknya tahu jawabannya, tetapi kesulitan menjawab hanya dengan ya atau tidak.
 
 Roh datang dalam berbagai jenis dan tampaknya mengatur alam. Salah satu contohnya adalah semakin banyak roh tanah dan tumbuhan di suatu tempat, semakin besar hasil panennya. Kebetulan, wanita pohon adalah roh hutan.
