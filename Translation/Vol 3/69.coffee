@@ -21,78 +21,98 @@ Masalah yang lebih penting adalah apa identitas asli serigala emas itu.
 Meskipun Aku tidak yakin apakah ada orang di Norvell dengan job Monster Appraiser+, enam hari seharusnya lebih dari cukup untuk memanggil satu dari ibukota. Kami tidak memiliki pengalaman dengan ini, tetapi bepergian dengan menunggang kuda juga akan mengurangi waktu perjalanan.
 
 Terus terang, Ciel memiliki cara perjalanan yang jauh lebih cepat. Bahkan mungkin lebih cepat daripada bepergian dengan kuda.
+
 Dengan keadaan seperti ini, mungkin akan lebih baik jika kita menggunakannya dalam perjalanan ke Norvell dari ibu kota; tetapi jika kami melakukannya, akan lebih sulit untuk membuat jalan memutar di sepanjang jalan.
+
 Karena tujuan utama kami adalah untuk naik ke Rank-B, kami pikir akan lebih baik untuk melakukan perjalanan dengan berjalan kaki sehingga kami dapat melakukan permintaan yang dapat membantu kami dipromosikan saat berada di jalan.
+
 Aku baru tahu baru-baru ini bahwa ini adalah upaya yang tidak berarti. Tetap saja, mungkin saja kami hanya berhasil memenuhi persyaratan promosi berkat permintaan yang kami selesaikan dalam perjalanan dari ibukota ke Norvell.
-Jika itu masalahnya, maka itu tidak berarti. Itu tidak sia-sia.
+Jika itu masalahnya, itu masih berarti. Itu tidak sia-sia.
 
 Kembali ke topik.
 
-Seperti yang diharapkan, bahkan Guild Hunter pun tergerak.
-Tapi, tidak seperti saat serigala emas muncul, ketegangan tampaknya berkurang; seolah-olah mereka tidak memiliki investasi pribadi pada apa pun yang menyebabkan kegemparan ini.
-Mungkin sesuatu terjadi di kota yang jauh? Karena bahkan Guild Hunter terpengaruh, maka mungkin saja beberapa permintaan penguatan datang dari kota tersebut juga.
+Seperti yang diharapkan, bahkan Guild Hunter pun tidak tenang.
+
+Tapi, tidak seperti saat serigala emas muncul, ketegangan tampaknya berkurang; seolah-olah mereka tidak memiliki masalah pribadi pada apa pun yang menyebabkan kegemparan ini.
+
+Mungkin sesuatu terjadi di kota yang jauh? Karena bahkan Guild Hunter terpengaruh, mungkin saja beberapa permintaan bantuan datang dari kota tersebut juga.
 
 Di tengah semua ini, Ciel dengan cepat menuju ke meja resepsionis.
 
-「Apakah Guildmaster di sini?」
-「Uhh , ya. Apakah Kamu mungkin Cielmer- san ?」
-Ya.」
-Aku akan meneleponnya sekarang, jadi tolong tunggu di sini sebentar.」
+"Apakah Ketua Guild di sini?" (Ciel)
 
-Tampaknya diskusi itu cepat, karena ada tanggapan langsung.
-Guildmaster di sini menangani situasi seperti ini dengan baik.
-Padahal, untuk memulainya, satu-satunya guildmaster lain yang kami ketahui adalah mantan guildmaster ibu kota .
+"Uhh, ya. Apakah Kamu mungkin Cielmer-san ?" (resepsionis)
 
-Iklan
-Tak lama kemudian, guildmaster tiba dan kami dibawa ke kantornya.
+"Ya." (Ciel)
+
+"Aku akan memanggilnya sekarang, jadi tolong tunggu di sini sebentar." (resepsionis)
+
+percakapannya berasa cepat, karena ada tanggapan langsung.
+
+Ketua Guild di sini menangani situasi seperti ini dengan baik.
+
+yaah, satu-satunya Ketua Guild lain yang kami ketahui adalah mantan Ketua Guild ibu kota.
+
+Tak lama kemudian, Ketua Guild tiba dan kami dibawa ke ruangannya.
+
 Meskipun Aku tidak bisa mengatakan bahwa kami benar-benar terbiasa dengan ini, kami telah berada di sini beberapa kali sekarang, jadi Ciel dengan cepat duduk di sofa tanpa berpikir dua kali.
 
-Dan hasil penilaiannya adalah?」
-Sepertinya itu adalah『Utusan Ilahi Buatan. Begitu
-.
+"Dan hasilnya?" (Ciel)
 
-Seperti yang kita pikirkan.』
-Sebaliknya, Aku tidak tahu apa yang harus Aku lakukan jika itu berakhir menjadi monster biasa pada saat ini.』
-Jadi, apa yang harus Aku lakukan sekarang?』
+"Sepertinya itu adalah [Utusan Dewa Buatan]." (Ketua Guild) 
 
-Ciel menjawab guildmaster dengan acuh tak acuh, tetapi guildmaster menatap Ciel seolah dia ingin mengatakan sesuatu.
-Dia sepertinya ingin bertanya pada Ciel karena dia sepertinya tahu sesuatu tentang ini, tetapi haruskah kita menjawab?
+"Begitu ya..." (Ciel)
 
-Seharusnya baik-baik saja untuk mengatakan bahwa keluarga Rispelgia mungkin memiliki beberapa keterlibatan.
-Lagi pula, akan merepotkan jika dia dibiarkan apa adanya dan akhirnya membuat masalah lain lagi; dan jika kita memberi tahu mereka tentang ini, guild bahkan mungkin mulai memantau mereka sebagai hasilnya.』
-Begitu. Dimengerti.
+[Seperti yang kita pikirkan.] (Ciel)
 
-Lalu, apa yang ingin Kamu ketahui?」
-Apakah Kamu tahu sesuatu?」
-Aku tidak tahu. Aku hanya punya spekulasi.
-Dan spekulasi Kamu adalah?」
+[Sebaliknya, Aku tidak tahu apa yang harus Aku lakukan jika itu berakhir menjadi monster biasa.] (Ain)
 
-Kedengarannya bertele-tele, tetapi akan menjadi bencana jika kita dengan percaya diri menyebut nama Rispelgia dan akhirnya benar-benar salah. Sebaliknya, ada risiko bahwa kita akan mendapat masalah jika Rispelgia berpura-pura bodoh, jadi akan lebih baik untuk bersikeras bahwa itu hanya spekulasi.
-Kami bahkan tidak berdiskusi tentang ini, tapi Aku kira ini hanya menunjukkan pertumbuhan Ciel yang berkelanjutan.
-Padahal, Aku mempertanyakan apakah pertumbuhan semacam ini adalah sesuatu yang membahagiakan.
-Iklan
+[Jadi, apa yang harus Aku lakukan sekarang?] (Ciel)
+
+Ciel menjawab Ketua Guild dengan acuh tak acuh, tetapi Ketua Guild menatap Ciel seolah dia ingin mengatakan sesuatu.
+
+Dia sepertinya ingin bertanya pada Ciel karena ciel sepertinya tahu sesuatu tentang ini, tetapi haruskah kami memberitahunya?
+
+[Seharusnya baik-baik saja untuk mengatakan bahwa keluarga Rispelgia mungkin memiliki beberapa keterlibatan. Lagi pula, akan merepotkan jika dia dibiarkan begitu saja dan akhirnya membuat masalah lain lagi; dan jika kita memberi tahu mereka tentang ini, guild bahkan mungkin mulai memantau mereka sebagai hasilnya.] (Ain)
+
+[Begitu ya. baiklah.] (Ciel)
+
+"Lalu, apa yang ingin Kamu ketahui?" (Ciel)
+
+"Apakah Kamu tahu sesuatu?" (Ketua Guild)
+
+"Aku tidak tahu. Aku hanya punya spekulasi." (Ciel)
+
+"Dan spekulasimu?" (Ketua Guild)
+
+Kedengarannya bertele-tele, tetapi akan menjadi bencana jika kami dengan percaya diri menyebut nama Rispelgia dan akhirnya benar-benar salah. Sebaliknya, ada risiko bahwa kami akan mendapat masalah jika Rispelgia berpura-pura bodoh, jadi akan lebih baik untuk bersikeras bahwa itu hanya spekulasi.
+
+Kami bahkan tidak berdiskusi tentang ini, tapi Aku kira ini hanya menunjukkan pertumbuhan Ciel.
+
+Aku mempertanyakan apakah pertumbuhan semacam ini adalah sesuatu yang membahagiakan.
 
 Meskipun Aku ingin Ciel tumbuh menjadi orang yang baik dan terhormat, ini tidak selalu membawa kebaikan.
+
 Sebaliknya, menjadi agak licik membantu menjalani kehidupan di dunia mana pun.
-Selain itu, Aku sendiri memiliki keengganan untuk orang. Terlibat erat dengan orang-orang tampaknya tidak membawa apa-apa selain masalah, dan tidak ada yang tahu apa yang mereka pikirkan di bawah permukaan.
 
-Cukup tentang pendapat pribadi Aku dan pendidikan Ciel, mengetuk jembatan batu sebelum menyeberang harus menjadi tingkat kehati-hatian yang sempurna saat ini.
+Selain itu, Aku sendiri memiliki keengganan untuk orang. Terlibat erat dengan orang-orang tampaknya tidak membawa apa-apa selain masalah, dan tidak ada yang tahu apa yang mereka pikirkan.
 
-Rispelgia.
+Cukup tentang pendapat pribadiku dan pendidikan Ciel, mengetuk jembatan batu sebelum menyeberang adalah tingkat kehati-hatian yang sempurna saat ini.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Rispelgia." (Ciel)
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Ciel dengan singkat tapi jelas menyebut nama itu.
 
-Ciel singkat tapi jelas menyebut nama itu.
-Mungkin tidak mengharapkan nama itu keluar, Mustahil. sang guildmaster membantah dengan tidak percaya.
+Mungkin tidak mengharapkan nama itu keluar, "Mustahil.", Ketua Guild membantah dengan tidak percaya.
 
-Mengapa?」
-Duke Rispelgia adalah salah satu bangsawan di negeri ini yang memikirkan rakyat, mungkin yang paling berpikir bahkan di antara mereka.
-Tidak terpikirkan bahwa adipati akan menciptakan monster.
+"Mengapa?" (Ciel)
 
-Apa yang Rispelgia ingin ciptakan bukanlah monster. Sementara produk menjadi monster mungkin tidak masalah baginya selama dia dapat mencapai tujuannya, karena yang satu ini secara khusus adalah utusan dewa, dia pasti menginginkan sesuatu yang berhubungan dengan dewa.
+"Duke Rispelgia adalah salah satu bangsawan di negeri ini yang memikirkan rakyat, mungkin yang paling berpikir bahkan di antara mereka. Tidak terpikirkan bahwa beliau akan menciptakan monster." (Ketua Guild)
+
+Apa yang Rispelgia ingin ciptakan bukanlah monster. Sementara apa yang dia inginkan bisa menjadi monster dan mungkin tidak masalah baginya selama dia dapat mencapai tujuannya, karena yang satu ini secara khusus adalah utusan dewa, dia pasti menginginkan sesuatu yang berhubungan dengan dewa.
+
 Apakah tujuannya adalah untuk menaklukkan dunia, untuk meningkatkan wilayahnya, atau bahkan untuk menciptakan generasi baru umat manusia, Aku tidak memiliki cara untuk mengetahui dengan pasti.
+
 Tetap saja, aku ragu untuk memberi tahu guild tentang fakta bahwa dia mencoba menciptakan dewa dan telah mencobanya sebelumnya.
 
 Akan lebih baik untuk berhenti di situ, kan?』
@@ -111,7 +131,7 @@ Ini seharusnya mengalihkan perhatian guild ke Rispelgia, meski hanya sedikit. Ji
 
 Diskusi berakhir di sini. Mulai sekarang, kami akan membatasi aktivitas Hunter kami seminimal mungkin dan mungkin bersembunyi di beberapa gunung.
 Lagipula kita bisa tidur di mana saja dan karena kita punya tas ajaib, tidak apa-apa jika kita membeli makanan saat kita berada di kota untuk melakukan beberapa aktivitas Hunter secara berkala.
-Tapi, karena kita akan melakukan ini selama beberapa tahun, akan menyenangkan setidaknya memiliki rumah. Apakah sesuatu seperti rumah kayu muat di dalam tas ajaib kita? Saat pikiranku mulai mengembara ke arah itu dan Ciel hendak pergi, Tunggu. guildmaster menghentikannya.
+Tapi, karena kita akan melakukan ini selama beberapa tahun, akan menyenangkan setidaknya memiliki rumah. Apakah sesuatu seperti rumah kayu muat di dalam tas ajaib kita? Saat pikiranku mulai mengembara ke arah itu dan Ciel hendak pergi, Tunggu. Ketua Guild menghentikannya.
 
 Aku tidak punya bisnis di sini lagi.
 Maaf, tapi kami melakukannya di pihak kami. Silahkan duduk."
@@ -125,7 +145,7 @@ Aku sadar bahwa belum ada preseden dalam hal ini. Tapi, karena urgensinya, itu d
 ...... Isinya adalah?」
 Pengiriman persediaan ke ibukota kerajaan.
 
-Guildmaster menyerahkan formulir permintaan kepada Ciel dan dia mengkonfirmasi isinya.
+Ketua Guild menyerahkan formulir permintaan kepada Ciel dan dia mengkonfirmasi isinya.
 Meringkas apa yang tertulis, mereka ingin kita mengirimkan sejumlah besar persediaan ke ibukota kerajaan sesegera mungkin.
 Tapi, hanya menyampaikan ini tidak akan terlalu sulit. Meskipun jumlahnya banyak, kita harus bisa mengaturnya dengan menggunakan tas ajaib kita. Jika kita terburu-buru, kita mungkin akan mencapai ibukota dalam beberapa hari.
 Meskipun, ini dibutuhkan sesegera mungkin adalah sedikit hambatan, tidak mengatakan bahwa kita harus berada di sana besok.
@@ -151,22 +171,22 @@ Karena ini adalah permintaan yang ditentukan, pasti ada penalti jika kita menola
 Tetap saja, ada banyak hal yang ingin Aku konfirmasi terlebih dahulu, jadi bisakah Aku meminjam tubuh Kamu sebentar?
 『 Tentu, Aku tidak keberatan.
 
-Menerima persetujuannya, Aku meminjam tubuhnya untuk berbicara dengan guildmaster.
-Sementara Aku hanya bisa memberi tahu Ciel dan dia akan memberi tahu guildmaster, memainkan permainan telepon semacam ini bisa membuat percakapan menjadi rumit.
+Menerima persetujuannya, Aku meminjam tubuhnya untuk berbicara dengan Ketua Guild.
+Sementara Aku hanya bisa memberi tahu Ciel dan dia akan memberi tahu Ketua Guild, memainkan permainan telepon semacam ini bisa membuat percakapan menjadi rumit.
 Aku benar-benar ingin merenungkan mengapa penyerbuan monster terjadi sekarang. Menurut perkiraan Aku, seharusnya baik-baik saja selama beberapa tahun lagi. Kenapa saat ini……
 
 (Bab ini disediakan untuk Kamu oleh Re:Library)
 
 (Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
 
-Untuk saat ini, aku harus mengesampingkan perasaanku, mengubah cara bicaraku, dan melakukan pertukaran ini dengan guildmaster.
+Untuk saat ini, aku harus mengesampingkan perasaanku, mengubah cara bicaraku, dan melakukan pertukaran ini dengan Ketua Guild.
 
 "Aku melihat. Lalu, ada beberapa hal yang ingin Aku konfirmasi dan tanyakan. 」
 Tentu saja, itu wajar.」
 Apakah penunjukan ini disetujui dengan kesadaran penuh bahwa ini akan memperburuk persepsi Aku tentang guild?」
 ...... Itu benar.
 
-Saat aku menunjukkan ketidaksenangan yang berlebihan, guildmaster mengerutkan alisnya dan mengangguk.
+Saat aku menunjukkan ketidaksenangan yang berlebihan, Ketua Guild mengerutkan alisnya dan mengangguk.
 Situasinya mungkin begitu mengerikan, tetapi untuk yang digunakan, ini benar-benar tidak bisa dimaafkan.
 
 Kamu tidak dapat menyelesaikan satu penyerbuan tanpa bergantung pada gadis kecil yang berkeliaran?」
