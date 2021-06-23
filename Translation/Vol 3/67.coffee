@@ -146,43 +146,58 @@ Atau bahwa ada seorang wanita yang lebih besar dari gadis hijau di depan Ciel, k
 
 Atau makhluk-makhluk ini masuk dan keluar dari jepit rambut Ciel. Sepertinya mereka tidak bisa disentuh.
 
-Aku sama sekali tidak bisa merasakan kekuatan sihir dari mereka, atau lebih tepatnya, kekuatan sihir yang mereka pegang memiliki panjang gelombang yang sama persis dengan kekuatan sihir yang melayang-layang di lingkungan .
+Aku sama sekali tidak bisa merasakan energi sihir dari mereka, atau lebih tepatnya, energi sihir yang mereka punya memiliki panjang gelombang yang sama persis dengan energi sihir yang melayang-layang di lingkungan sekitar.
 
 Gadis hijau dengan main-main melompati Ciel, dan saat garis pandang Ciel terbuka, dia sekali lagi terkejut dengan apa yang dilihatnya.
+
 Sementara Aku merasa kasihan mengganggu mereka saat mereka bersenang-senang, Aku memanggil Ciel untuk pindah dari situasi kami saat ini.
 
-Ciel, kamu baik-baik saja?』
-Ain! Ain! Entah bagaimana ada banyak hal menggemaskan di sini! Di sini!』
-Apakah mereka tidak menakutimu?』
-Benar. Kenapa ya? Aku sama sekali tidak mendapatkan firasat buruk dari mereka.
-Apa itu?』
-Aku juga ingin memverifikasinya, jadi apakah Kamu keberatan jika Aku meminjam tubuh Kamu sebentar?』
-Tentu, silakan.』
+[Ciel, kamu baik-baik saja?] (Ain)
 
-Ciel bahkan tidak bisa memikirkan jawaban apa itu, jadi dia sangat bersemangat.
-Meskipun, bahkan tanpa itu, cukup jelas untuk melihat kegembiraannya.
+[Ain! Ain! Entah bagaimana ada banyak hal menggemaskan di sini! Di sini!] (Ciel)
+
+[Apakah mereka tidak menakutimu?] (Ain)
+
+[iya ya. Kenapa ya? Aku sama sekali tidak mendapatkan firasat buruk dari mereka. mereka itu Apa?] (Ciel)
+
+[Aku juga ingin memverifikasinya, jadi apakah Kamu keberatan jika Aku meminjam tubuhmu sebentar?] (Ain)
+
+[Tentu, silakan.] (Ciel)
+
+Ciel yang tidak bisa memikirkan jawabannya menjadi sangat bersemangat.
+
+Meskipun, bahkan tanpa hal seperti ini, ini bagus dapat melihat kegembiraannya.
+
 Tetap saja, Aku hanya berpikir bahwa Ciel biasanya setidaknya telah merumuskan asumsinya sendiri tentang mereka.
 
-Iklan
 Saat aku meminjam tubuh Ciel, gadis hijau yang melompat-lompat menatapku dengan mata terbuka lebar karena terkejut sebelum menjilatku.
-Bukan hanya dia, yang lain juga menunjukkan reaksi yang berbeda dibandingkan saat itu Ciel juga.
+
+Bukan hanya dia, yang lain juga menunjukkan reaksi yang berbeda dibandingkan saat Ciel yang mengendalikan tubuh.
+
 Meskipun mereka menggemaskan dan Aku ingin memanjakan mereka, sayangnya Aku tidak bisa menyentuh mereka, jadi Aku tidak bisa melakukan banyak hal untuk memanjakan mereka.
 
-Ciel yang cemberut menyegarkan Bukankah kamu cukup populer. juga membuatku ingin memberi lebih banyak perhatian padanya, tapi pertama-tama aku harus menyelesaikan tujuanku.
+Ciel yang cemberut berkata [Bukankah kamu cukup populer.] juga membuatku ingin memberi lebih banyak perhatian padanya, tapi pertama-tama aku harus menyelesaikan tujuanku.
 
 Di antara makhluk-makhluk ini, wanita itu tampaknya yang paling berpengetahuan. Setelah diperiksa lebih dekat, rambutnya memiliki bunga mekar dan dia memiliki tonjolan seperti tanduk kayu di kepalanya.
-Pakaiannya berwarna putih dan hijau pucat, dan tampaknya mirip dengan pakaian adat yang longgar.
-Meskipun dia secantik Ciel, dia meninggalkan kesan yang lebih mesra.
 
-"Senang bertemu denganmu. Bisakah kamu mendengar suaraku?
+Pakaiannya berwarna putih dan hijau pucat, dan tampaknya mirip dengan pakaian yang longgar.
 
-Aku mendekati wanita bertanduk pohon—singkatnya wanita pohon—dan pertama-tama memverifikasi apakah kami dapat berkomunikasi satu sama lain.
+Meskipun dia secantik Ciel, dia meninggalkan kesan yang lebih menarik perhatian.
+
+"Senang bertemu denganmu. Bisakah kamu mendengar suaraku?" (Ain)
+
+Aku mendekati wanita bertanduk pohon atau singkatnya wanita pohon, dan pertama-tama memverifikasi apakah kami dapat berkomunikasi satu sama lain.
+
 Ini karena meskipun gadis hijau itu sepertinya terkikik sebelumnya, aku sama sekali tidak bisa mendengar tawa yang datang darinya.
-Meskipun kita dapat melihatnya, kita tidak dapat menyentuh atau mendengarnya.
-Aku tidak dapat mengesampingkan kemungkinan mereka tidak dapat mendengar kita juga. Padahal, Aku pikir peluang untuk itu cukup rendah.
 
-Wanita pohon itu menggerakkan bibirnya, tapi sepertinya dia menyadari bahwa aku tidak bisa mendengarnya saat dia menggelengkan kepalanya sekali sebelum mengangguk.
-Aku kira dia berarti bahwa kita sudah bertemu jadi seharusnya tidak Senang bertemu denganmu」 dan dia bisa mendengar suaraku.
+Meskipun kami dapat melihatnya, kami tidak dapat menyentuh atau mendengarnya.
+
+Aku tidak dapat mengesampingkan kemungkinan mereka tidak dapat mendengar kami juga. Aku pikir peluang untuk itu cukup rendah.
+
+Wanita pohon itu menggerakkan bibirnya, tapi sepertinya dia menyadari bahwa aku tidak bisa mendengarnya dan dia menggelengkan kepalanya sekali sebelum mengangguk.
+
+Aku kira maksudnya kami sudah bertemu jadi seharusnya tidak Senang bertemu denganmu」 dan dia bisa mendengar suaraku.
+
 Maka mungkin bukan karena mereka tiba-tiba muncul sekarang, tetapi karena mereka ada di sana sejak awal dan kita hanya bisa melihat mereka sekarang.
 
 Maaf jika Aku tidak sopan, tetapi bolehkah Aku mengajukan beberapa pertanyaan? Aku tidak begitu mengerti apa yang terjadi.
