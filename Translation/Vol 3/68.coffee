@@ -258,4 +258,4 @@ Aku sedikit bersemangat untuk hari itu datang.
 
 ---------------------------
 
-pertama-tama
+pertama-tama, jujur lho saya sempat ngeluarkan air mata dikit waktu lihat ciel senang dan gembira melihat laut.... saya merasa... akhirnya bisa lihat dedek ciel kita seperti normal... dan mengingat kembali semua yang mereka lewati.. apalagi ketika ciel berhenti ngomong ketika dia ingin melihat semuanya... ada rasa tercampur sedih juga... mungkin ciel merasa ain akan menghilang setelah itu... makanya ciel mengatakan tidak apa-apa...
