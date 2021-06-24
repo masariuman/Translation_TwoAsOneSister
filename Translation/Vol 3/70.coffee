@@ -1,10 +1,13 @@
 CHAPTER 70: PROMOTION, ORDERING, AND THE DEVIATION’S RESOLUTION
 
-Sementara Aku mengatakan Aku akan mencoba yang terbaik, masih tidak dapat disangkal bahwa kami berada pada posisi yang kurang menguntungkan.
+walaupun Aku mengatakan Aku akan mencoba yang terbaik, masih tidak dapat disangkal bahwa kami berada pada posisi yang kurang menguntungkan.
+
 Karena Guild Hunter tidak mungkin menjadi organisasi yang begitu lemah untuk digulingkan hanya dari berhentinya seorang gadis Rank-C, berhenti sebagai ancaman kemungkinan tidak akan banyak berpengaruh.
 
 Tapi, kita juga sedang dalam situasi yang dapat mempengaruhi jalannya negara ini.
+
 Monster yang tak terhitung jumlahnya akan menelan ibukota kerajaan. Bahkan jika ibu kota hancur, sudah ditunjukkan di masa lalu bahwa ini tidak akan menghancurkan kerajaan; tetap saja, kekacauan tidak akan terhindarkan.
+
 Dan sementara kerajaan dan Guild Hunter adalah struktur yang berbeda, mereka mungkin memiliki hubungan yang erat. Jika sesuatu terjadi pada kerajaan, para Hunter akan memiliki pekerjaan mereka secara pribadi berkurang dan tidak ada yang tahu efek negatif apa yang akan ditimbulkannya. Karena itu, mereka secara alami akan membantu.
 
 Berdasarkan potensi tempur mereka, ibukota mungkin tidak akan jatuh kali ini, tetapi masih lebih baik untuk memiliki orang dan persediaan sebanyak mungkin.
