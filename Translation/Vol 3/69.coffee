@@ -253,28 +253,39 @@ Kami belum pernah bertarung melawan monster Rank-A, rank serigala emas tidak div
 
 begitu ya, Aku mengerti sekarang. Jadi di sinilah mereka akan menggunakan kartu sekali pakai milik mereka, ya.
 
-Umpan yang bagus untuk kami yang mengincar promosi rank-B. Aku kira alasan mengapa kemungkinan dipromosikan ke Rank-B di luar mencapai usia yang dipersyaratkan ditambahkan pada penandatanganan kontrak sihir adalah karena ekspektasi situasi semacam ini terjadi; untuk meninggalkan sarana untuk membuat kami melakukan penawaran mereka untuk satu waktu.
------
-Tetap saja, Aku tidak punya niat untuk melompat ke dalamnya dengan mudah.
+Umpan yang bagus untuk kami yang mengincar promosi rank-B. Aku kira alasan mengapa kemungkinan dipromosikan ke Rank-B selain mencapai usia yang dipersyaratkan ditambahkan pada penandatanganan kontrak sihir adalah karena ekspektasi situasi semacam ini terjadi; untuk meninggalkan sarana untuk membuat kami melakukan penawaran mereka untuk satu waktu.
 
-Logika macam apa itu?」
-Maksudmu?」
-Satu-satunya persyaratan yang aku miliki untuk mencapai Rank-B adalah usia. Segala sesuatu yang lain diselesaikan.
-Tapi terlepas dari itu, kamu bilang aku akan menjadi B-rank setelah menyelesaikan ini? 」
+Tetap saja, Aku tidak punya niat untuk dengan mudah menerimanya.
 
-Jika kita hanya kurang berkontribusi pada guild, maka aku bisa mengerti bagaimana menyelesaikan permintaan ini akan membuat kita menjadi B-rank.
-Jika kita hanya kurang dalam kemampuan, maka Aku dapat memahami hal yang sama terjadi juga.
-Tapi, yang kurang dari kami hanyalah usia. Tapi terlepas dari itu, apa sebenarnya yang dinilai permintaan ini untuk menghasilkan promosi Rank-B kami setelah selesai?
-Apakah mereka bermaksud mengatakan bahwa menyelesaikan permintaan ini akan menambah usia kita?
+"Logika macam apa itu?" (Ain)
 
-Kemungkinan penurunan pangkat jika Kamu tidak menerimanya, Kamu tahu?」
-「Ketika itu terjadi, Aku akan keluar dari guild.
+"Maksudnya?" (Ketua Guild)
 
-『Oh , kita berhenti?』
-『Umm , aku minta maaf untuk memutuskan sendiri.』
-『Hal ini baik-baik saja. Apa yang Kamu katakan masuk akal setelah semua.
-Selain itu, Aku juga setuju dengan itu, Ain.
+"Satu-satunya persyaratan yang aku miliki untuk mencapai Rank-B adalah usia. yang lainnya sudah diselesaikan. Tapi terlepas dari itu, kamu bilang aku akan menjadi rank-B setelah menyelesaikan ini?" (Ain)
 
-Aku akhirnya mendapatkan persetujuan Ciel setelah fakta, tetapi karena dia setuju dengan Aku, ini akan membuat segalanya lebih mudah.
-Sejujurnya, aku punya firasat bahwa bahkan jika kita menerima ini dengan jujur, mereka mungkin masih akan menemukan beberapa alasan untuk tidak membiarkan kita menjadi B-rank. Aku juga punya firasat bahwa kami akan dibuat untuk melakukan hal-hal lain di luar pengiriman. Aku tidak bisa mengambil risiko memiliki apa yang seharusnya menjadi umpan satu kali yang digunakan pada kami lagi dan lagi tanpa kami pernah dipromosikan.
+Jika kami hanya kurang berkontribusi pada guild, aku bisa mengerti bagaimana menyelesaikan permintaan ini akan membuat kami menjadi B-rank.
+
+Jika kami hanya kurang dalam kemampuan, Aku dapat memahami hal yang sama terjadi juga.
+
+Tapi, yang kurang dari kami hanyalah usia. Tapi terlepas dari itu, apa sebenarnya yang dinilai dari permintaan ini untuk menghasilkan promosi Rank-B kami setelah selesai?
+
+Apakah mereka bermaksud mengatakan bahwa menyelesaikan permintaan ini akan menambah usia kami?
+
+"ada kemungkinan rankmu menurun jika Kamu tidak menerimanya, Kamu tahu?" (Ketua Guild)
+
+"Ketika itu terjadi, Aku akan keluar dari guild." (Ain)
+
+[Oh, kita keluar dari guild?] (Ciel)
+
+[Umm, aku minta maaf untuk memutuskannya sendiri.] (Ain)
+
+[tidak apa. Apa yang Kamu katakan masuk akal juga. Selain itu, Aku juga setuju dengan itu, Ain.] (Ciel)
+
+Aku akhirnya mendapatkan persetujuan Ciel, dan karena dia setuju denganku, ini akan membuat segalanya lebih mudah.
+
+Sejujurnya, aku punya firasat bahwa bahkan jika kami menerima ini, mereka mungkin masih akan menemukan beberapa alasan untuk tidak membiarkan kami menjadi rank-B. Aku juga punya firasat bahwa kami akan melakukan hal-hal lain di luar pengiriman. Aku tidak bisa mengambil risiko untuk mengambil kesempatan sekali saja tapi membuat kami digunakan terus-menerus tanpa dipromosikan.
+
 Dengan mengatakan itu, Aku ingin mencoba yang terbaik untuk memastikan promosi Rank-B kami di sini.
+
+---------------------
+
