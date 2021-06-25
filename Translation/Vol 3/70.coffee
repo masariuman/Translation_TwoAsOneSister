@@ -211,32 +211,58 @@ Meninggalkan Guild Hunter, Ciel langsung menuju gerbang kota.
 
 Matahari sudah terbenam ketika kami keluar dari Norvell, jadi kami menyerah pada perjalanan dengan kecepatan penuh dan memutuskan untuk berjalan sejauh yang kami bisa.
 
-Berada di tengah alam saat peredupan terasa cukup suram. Aku mungkin akan merasa kesepian atau tidak nyaman jika Aku sendirian.
-Tapi, Aku memiliki Ciel bersama Aku sekarang, jadi setidaknya kita bisa berbicara sambil melanjutkan.
+Berada di tengah alam saat sore menjelang terasa cukup suram. Aku mungkin akan merasa kesepian atau tidak nyaman jika Aku sendirian.
 
-Meskipun demikian, Aku bertanya-tanya mengapa penyerbuan terjadi sekarang?
-Seharusnya baik-baik saja untuk satu atau dua tahun lagi, kan?」
-Berdasarkan perkiraan kami, yaitu ...... Tapi, itu hanya didasarkan pada korelasi dengan penyerbuan masa lalu, jadi mungkin ada beberapa pengecualian.
-Karena itu juga mungkin bahwa monster telah mereproduksi lebih cepat dari sebelumnya, kan? 」
-『Jika itu penyebabnya, masalah akan jika ini hanya kasus untuk hutan itu atau apakah ini juga bisa terjadi di tempat lain, tapi ... ..』
-「 Ini adalah masalah yang harus diserahkan kepada para ahli, kan?」
-『Bagaimanapun, penilaian amatir Aku akhirnya melenceng beberapa tahun.
-Nah, memikirkan kembali sekarang, membuat penilaian hanya berdasarkan harga ramuan mungkin merupakan kesalahan.
-Berbicara tentang ramuan, Aku ingin tahu apakah Aku akhirnya bisa membuat ramuan juga.
-Kamu ingin membuat ramuan?』
-Bagaimanapun, jika Aku bisa membuatnya, kita bisa mendapatkan uang bahkan jika kita berhenti menjadi Hunter.
+Tapi, Aku memiliki Ciel bersamaku sekarang, jadi setidaknya kami bisa berbicara sambil melanjutkannya.
 
-Permintaan tampaknya cukup tinggi, jadi kita harus bisa menjual jika kita bisa membuatnya. Selain itu, sementara itu tergantung pada bahan yang dibutuhkan, kami mungkin bisa memanen bahan itu sendiri; jadi ini bisa dilakukan.
-Lagi pula, setelah memanennya, jamu akan bertahan lama ……
+[mengapa penyerbuan terjadi sekarang? Seharusnya baik-baik saja untuk satu atau dua tahun lagi, kan?] (Ciel)
 
-Iklan
-『Ahh!』
-「 Untuk Ain untuk berteriak seperti itu, itu tidak biasa. Ada apa?」
-Kalau tidak salah ingat, jamu bisa bertahan satu sampai dua tahun jika disimpan dengan benar, kan?』
-Dari yang kami dengar, ya. Begitu, jadi itu sebabnya penyerbuan itu keluar dari perkiraan kami.
-Tepat. Dengan pemikiran ini, kami kemungkinan akan memperkirakan penyerbuan ini dengan benar jika kami telah memeriksa catatan permintaan sebagai gantinya.』
+[Berdasarkan perkiraan kita, iya ...... Tapi, itu hanya didasarkan pada korelasi dengan penyerbuan masa lalu, jadi mungkin ada beberapa pengecualian.] (Ain)
+
+[Karena itu juga mungkin saja monster telah bereproduksi lebih cepat dari sebelumnya, kan?] (Ciel)
+
+[Jika itu penyebabnya, masalah akan menjadi apakah ini ini hanya kasus untuk hutan itu atau apakah ini juga bisa terjadi di tempat lain, tapi ...] (Ain)
+
+[Ini adalah masalah yang harus diserahkan kepada para ahli, kan?] (Ciel)
+
+[Bagaimanapun juga, penilaian amatirku akhirnya melenceng beberapa tahun. Nah, memikirkan kembali sekarang, membuat penilaian hanya berdasarkan harga potion mungkin salah juga.] (Ain)
+
+[Berbicara tentang potion, Aku ingin tahu apakah Aku akhirnya bisa membuat potion juga.] (Ciel)
+
+[Kamu ingin membuat Potion?] (Ain)
+
+[Bagaimanapun juga, jika Aku bisa membuatnya, kita bisa mendapatkan uang bahkan jika kita berhenti menjadi Hunter.] (Ciel)
+
+Permintaan potion tampaknya cukup tinggi, jadi kami harusnya bisa menjualnya jika kami bisa membuatnya. Selain itu, walaupun itu tergantung pada bahan yang dibutuhkan, kami mungkin bisa mencari bahan itu sendiri; jadi ini bisa dilakukan.
+
+Lagi pula, setelah mencarinya, herb akan bertahan lama ......
+
+[Ahh!] (Ain)
+
+[Untuk Ain untuk berteriak seperti itu, itu tidak biasa. Ada apa?] (Ciel)
+
+[Kalau tidak salah, herb bisa bertahan satu sampai dua tahun jika disimpan dengan benar, kan?] (Ain)
+
+[Dari yang kita dengar, ya. Begitu, jadi itu sebabnya penyerbuan itu keluar dari perkiraan kita.] (Ciel)
+
+[Benar. Dengan pemikiran ini, kita kemungkinan akan memperkirakan penyerbuan ini dengan benar jika kita memeriksa catatan permintaan sebagai gantinya.] (Ain)
 
 Entah bagaimana, Aku merasa sangat segar. Ini bukan karena reproduksi abnormal atau penyebab buatan.
-Para alkemis kemungkinan menggunakan ramuan yang mereka simpan, menunda harganya agar tidak kalah dengan ramuan yang dibawa dari luar, dan bekerja keras untuk mempertahankannya selama dua tahun. Ramuan adalah penyelamat orang-orang dalam pertempuran, jadi tidak aneh jika mereka memiliki banyak persediaan herbal untuk digunakan dalam keadaan darurat.
 
-Meski begitu, terus menerus memproduksi jumlah ramuan yang sama seharusnya sulit dalam situasi ini, jadi Aku mungkin akan mengetahui hal ini jika Aku lebih memperhatikan dan menyelidiki jumlah ramuan yang disediakan. Tidak ada yang bisa Aku lakukan bahkan jika Aku memikirkannya sekarang, tetapi Aku senang bahwa salah satu kekhawatiran Aku telah diselesaikan sebelum pekerjaan besar itu.
+Para alchemist kemungkinan menggunakan herb yang mereka simpan, menunda harganya agar tidak kalah dengan potion yang dibawa dari luar, dan bekerja keras untuk mempertahankannya selama dua tahun. potion adalah penyelamat orang-orang dalam pertempuran, jadi tidak aneh jika mereka memiliki banyak persediaan herb untuk digunakan dalam keadaan darurat.
+
+Meski begitu, terus menerus memproduksi jumlah potion yang sama seharusnya sulit dalam situasi ini, jadi Aku mungkin akan mengetahui hal ini jika Aku lebih memperhatikan dan menyelidiki jumlah potion yang disediakan. Tidak ada yang bisa Aku lakukan bahkan jika Aku memikirkannya sekarang, tetapi Aku senang bahwa salah satu kekhawatiranku telah diselesaikan sebelum pekerjaan besar yang akan kami hadapi.
+
+-------------------------
+
+Akhirnya.. AKHIRNYA.... AAAKKKHIIRRNNYAAAAA !!!!!! akhirnya ainciel kita akan keluar dari negara ini !!! negara yang tidak mengharagi ainciel kita... kalau dipikir-pikir, orang yang menghargai ainciel kebanyakan bukan dari negara ini... carol dan celia, serta tim foolish gathering... mereka bukan berasal dari negara ini... untuk kasus ketua guild kali ini, kebetulan saja dia sudah mencari tahu tentang ainciel kita.. jadi bisa bersikap sopan ... memang negara ini orangnya kacau kacau... semoga dinegara sebelah ainciel kita tidak mengalami hal yang dialami seperti sampai saat ini lagi...
+
+dan ain kalau sudah marah agak seram juga... IQ nya bisa over sekali... bisa memikirkan segala kemungkinan yang akan terjadi dari sisi mana saja dan mempersiapkan yang terbaik... bukankah ini jadinya ain meang jenius dan cerdas ??? dan dedek ciel kita mempelajari semua ini dari ain, jadi tentu saja dedek ciel kita juga menjadi cerdas... bahkan ain sendiri mengakui dia terlalu banyak berpikir... walaupun ain terkadang ada sedikit salah, tapi kesalahan itu pun juga masih bisa ditutup dengan alasan ain sendiri yang bahkan masuk akal juga setelah ain mengatakannya... sasuga ain-sama... ups salah cerita....
+
+dan saya ingin sekali lihat dedek ciel kita tersenyum atau memiliki ekpresi sewajarnya dengan umurnya apalagi ketika bermain dengna para roh... aah ingin sekali melihatnya... toloongg artist siapapun garap dong artnya... aaaaaa...
+
+untuk ketua guild kali ini bisa dibilang dia selain sopan, juga agak waspada agar tidak membuat kesalahan pribadi kepada ainciel... tentu saja kalau dibandingkan dengan ketua guild dari ibukota kerajaan, yang kali ini tentu layak dan pantas menyandang gelar ketua guild... yaah sampai saat ini baru 2 ketua guild saja yang diceritakan, waktu di sannosis semuanya hanya celia dan carol saja yang mengurus mereka... sepertinya penulis ingin langsung membuat perbedaan 2 macam ketua guild.. dan semoga kedepannya ketua guildnya tidak mengacau dan merepotkan ainciel kita lagi...
+
+dan saya tidak menyangka dedek ciel sudah memikirkan alternatif lain kalau mereka mau keluar dan berhenti menjadi hunter... ya !! membuat potion, tentu saja kalau bisa, ainciel kita tidak perlu capek capek lagi membuat permintaan pengumpulan bahannya ke guild, mereka bisa mencari sendiri... seperti ehem... ehem... red.. dari... hidup santai.. ehem.. ehem.. dan mungkin bisa.... buka apotek sendiri.. ehehehe....
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
