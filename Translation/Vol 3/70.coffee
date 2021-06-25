@@ -134,10 +134,11 @@ Merasakan seseorang mendekat, aku memberi tahu Ciel dan ekspresinya kembali sepe
 
 Ketua Guild Membuka pintu dan memasuki ruangan dan memiliki beberapa lembar kertas dan ransel yang cukup besar di tangannya untuk dibawa oleh Ciel.
 
-Dari waktu ke waktu, butuh sekitar satu atau dua jam tetapi dia pasti mendapat izin dari atas. Dengan mengingat hal itu, ini adalah respons yang sangat cepat.
+butuh sekitar satu atau dua jam tetapi dia pasti mendapat izin dari atasan. Dengan mengingat hal itu, ini adalah respons yang sangat cepat.
+
 Aku memperkirakan itu akan memakan waktu beberapa hari, tetapi Aku kira situasinya lebih mendesak daripada yang Aku kira.
 
-Kasus khusus ini telah diakui. Nona Cielmer, ini akan menjadi kartu Rank-B Kamu.
+"Kasus khusus ini telah diakui. Nona Cielmer, ini akan menjadi kartu Rank-B Kamu." (Ketua Guild)
 
 Ketua Guild menempatkan kartu yang lebih megah daripada yang digunakan sampai C-rank di atas meja.
 Ciel hendak mengambilnya tapi Tunggu. Aku menghentikannya.
