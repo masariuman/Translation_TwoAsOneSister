@@ -1,120 +1,145 @@
 CHAPTER 70: PROMOTION, ORDERING, AND THE DEVIATION’S RESOLUTION
 
-walaupun Aku mengatakan Aku akan mencoba yang terbaik, masih tidak dapat disangkal bahwa kami berada pada posisi yang kurang menguntungkan.
+walaupun Aku mengatakan akan mencoba yang terbaik, masih tidak dapat disangkal bahwa kami berada pada posisi yang kurang menguntungkan.
 
 Karena Guild Hunter tidak mungkin menjadi organisasi yang begitu lemah untuk digulingkan hanya dari berhentinya seorang gadis Rank-C, berhenti sebagai ancaman kemungkinan tidak akan banyak berpengaruh.
 
-Tapi, kita juga sedang dalam situasi yang dapat mempengaruhi jalannya negara ini.
+Tapi, kami juga sedang dalam situasi yang dapat mempengaruhi jalannya negara ini.
 
-Monster yang tak terhitung jumlahnya akan menelan ibukota kerajaan. Bahkan jika ibu kota hancur, sudah ditunjukkan di masa lalu bahwa ini tidak akan menghancurkan kerajaan; tetap saja, kekacauan tidak akan terhindarkan.
+Monster yang tak terhitung jumlahnya akan menelan ibukota kerajaan. Bahkan jika ibu kota hancur, di masa lalu, ini tidak akan menghancurkan kerajaan. tapi tetap saja, kekacauan tidak akan terhindarkan.
 
-Dan sementara kerajaan dan Guild Hunter adalah struktur yang berbeda, mereka mungkin memiliki hubungan yang erat. Jika sesuatu terjadi pada kerajaan, para Hunter akan memiliki pekerjaan mereka secara pribadi berkurang dan tidak ada yang tahu efek negatif apa yang akan ditimbulkannya. Karena itu, mereka secara alami akan membantu.
+Dan sementara kerajaan dan Guild Hunter adalah struktur yang berbeda, mereka mungkin memiliki hubungan yang erat. Jika sesuatu terjadi pada kerajaan, para Hunter akan kekuarangan pekerjaan mereka dan tidak ada yang tahu efek negatif apa yang akan ditimbulkannya. Karena itu, mereka secara alami akan membantu.
 
 Berdasarkan potensi tempur mereka, ibukota mungkin tidak akan jatuh kali ini, tetapi masih lebih baik untuk memiliki orang dan persediaan sebanyak mungkin.
 
 ......Aku agak melebih-lebihkan, tapi memikirkannya mulai mengganggu.
 
-Bagaimana hal-hal berakhir menyusahkan ini?
+kenapa semuanya menjadi menyusahkan?
 
-Ya, mari kita membuatnya lebih sederhana.
+Yeah, mari kita membuatnya lebih sederhana.
 
 Apa yang diinginkan guild adalah agar Ciel mengirimkan persediaan.
-Tapi, tingkat kesulitannya adalah Rank-B bahkan dengan pertimbangan sederhana dan ketika memikirkannya secara normal, itu adalah Rank-A. Di sisi lain, Ciel adalah C-rank.
+
+Tapi, tingkat kesulitannya adalah Rank-B dan bahkan dengan pertimbangan sederhana ketika memikirkannya secara normal, itu adalah Rank-A. Di sisi lain, Ciel adalah rank-C.
+
 Itu sebabnya kami akan dipromosikan ke Rank-B sebagai hadiah untuk penyelesaian.
 
 Karena kami ingin mencapai Rank-B, tidak ada alasan untuk menolak.
-Tetap saja, alasan kenapa aku tidak mau menerima...... adalah karena guild membuat kita menari di telapak tangan mereka membuat kita kesal.
-Kalau tidak, itu karena Guild Hunter membuat pembenaran dalam melanggar aturan mereka sendiri.
 
-Either way, itu sangat kekanak-kanakan dari Aku jika Aku mengatakannya sendiri.
+Tetap saja, alasan kenapa aku tidak mau menerima...... adalah karena guild membuat kami menari di telapak tangan mereka dan itu membuatku kesal.
 
-Iklan
-Tapi, jika kita terus mematuhinya dengan tenang, mereka mungkin akan terus memanfaatkan kita di masa depan. Karena itu, kita harus tetap bersikap egois kekanak-kanakan di sini. Paling tidak, kita sama sekali tidak memiliki kewajiban apa pun terhadap negara ini.
-Karena merekalah yang melanggar aturan, kebenaran ada di pihak kita.
+atau, itu karena Guild Hunter membuat pembenaran dalam melanggar aturan mereka sendiri.
 
-Selain itu, pihak lain kemungkinan sepenuhnya menyadari bahwa tindakan pergi ke ibukota itu menyakitkan bagi kita.
+apapun itu, aku agak bersikap sangat kekanak-kanakan.
 
-Kalau dipikir-pikir, apa Rank dari Utusan Ilahi Buatan?
-「 ...... Sekitar ujung atas A-rank atau ujung bawah S-rank.」
-Dengan kata lain, Kamu membuat C-ranker menerima Permintaan Rank-S.」
-……」
+Tapi, jika kami terus mematuhinya dengan tenang, mereka mungkin akan terus memanfaatkan kami di masa depan. Karena itu, kami harus tetap bersikap egois di sini. Paling tidak, kami sama sekali tidak memiliki kewajiban apa pun terhadap negara ini.
 
-Mendengar kata-kataku, guildmaster menjawab dengan diam.
+Karena merekalah yang melanggar aturan, kebenaran ada di pihak kami.
 
-Selanjutnya, Kamu menunjuk permintaan lain dari A-rank atau lebih tinggi.」
-...... Itu benar. Demi negara ini, kita tidak punya pilihan lain.」
-Guild negara ini mempublikasikan Pekerjaanku dan berkolusi dengan seorang bangsawan untuk membunuhku untuk menghapus kegagalan mereka. Hunter negara ini menyebabkan penyerbuan untuk menjebak Aku karena kebencian yang tidak dapat dibenarkan. Orang-orang negara ini memusuhi Aku hanya karena menjadi Song Princess.
-Tapi aku masih berkontribusi pada Hunter Guild sampai sekarang, bukan?」
-……」
-Aku tidak mengatakan bahwa aku tidak pernah menerima permintaan itu. Tetap saja, bahkan hanya pergi ke ibukota berbahaya bagiku.
-Ada kemungkinan seorang bangsawan akan bergerak untuk membunuhku lagi.
-Tapi Kamu mengatakan Kami akan menjadikan Kamu Rank-B jika Kamu menyelesaikannya, jadi lakukan permintaan ini?」
+Selain itu, pihak lain kemungkinan sepenuhnya menyadari bahwa tindakan pergi ke ibukota itu menyakitkan bagi kami.
 
-Tidak peduli seberapa sopan Aku mengatakannya, itulah pernyataan Hunter Guild di sini.
-Dari sudut pandang optimis, itu bisa diartikan sebagai dalih untuk memberikan pencapaian yang jelas untuk mempromosikan kita ke Rank-B lebih awal.
-Tapi, jika itu masalahnya, maka serigala emas seharusnya sudah lebih dari cukup.
+"apa Rank dari Utusan dewa Buatan?" (Ain)
+
+"...... Sekitar rank-A atas atau bawah rank-S." (Ketua Guild)
+
+"Dengan kata lain, Kamu membuat hunter rank-C menerima Permintaan Rank-S." (Ain)
+
+"......" (Ketua Guild)
+
+Mendengar kata-kataku, Ketua Guild menjawab dengan diam.
+
+"dan lagi, Kamu memberikan permintaan lain rank-A atau lebih tinggi." (Ain)
+
+"...... Itu benar. Demi negara ini, kami tidak punya pilihan lain." (Ketua Guild)
+
+"Guild di negara ini mempublikasikan jobku dan berkolusi dengan seorang bangsawan untuk membunuhku untuk menghapus kegagalan mereka. Hunter negara ini menyebabkan penyerbuan untuk menjebakku karena kebencian yang tidak dapat dibenarkan. Orang-orang negara ini memusuhiku hanya karena aku seorang Song Princess. Tapi aku masih berkontribusi pada Guild Hunter sampai sekarang, bukan?" (Ain)
+
+"......" (Ketua Guild)
+
+"Aku tidak mengatakan bahwa aku tidak pernah menerima permintaan itu. Tetap saja, bahkan hanya pergi ke ibukota sudah berbahaya bagiku. Ada kemungkinan seorang bangsawan akan bergerak untuk membunuhku lagi. Tapi Kamu mengatakan 'Kami akan menjadikanmu Rank-B jika Kamu menyelesaikannya, jadi lakukan permintaan ini' ?" (Ain)
+
+Tidak peduli seberapa sopan Aku mengatakannya, itulah pernyataan Guild Hunter di sini.
+
+Dari sudut pandang optimis, itu bisa diartikan sebagai dalih untuk memberikan pencapaian yang jelas untuk mempromosikan kami ke Rank-B lebih awal.
+
+Tapi, jika itu masalahnya, serigala emas seharusnya sudah lebih dari cukup.
 
 Pada akhirnya, situasi saat ini hanyalah konsekuensi dari guild yang terus-menerus menyebabkan kami menurunkan pendapat kami tentang mereka.
-Seperti Aku sekarang, tidak mungkin Aku bisa menafsirkan kata-kata guild dengan optimis.
-Iklan
 
-Jika bukan promosi setelah selesai, lalu apa yang kamu inginkan?」
-Kamu tidak tahu?」
-Promosi ke Rank-B dulu, ya ……」
-Apakah ada masalah?」
-Apakah guild itu tidak dapat dipercaya? Kamu?」
-Kamu berpikir sebaliknya? Secara alami, Aku tidak akan mentolerir penurunan pangkat ke kelas-C karena kegagalan penyelesaian juga.
+untuk Aku yang sekarang, tidak mungkin Aku bisa menafsirkan kata-kata guild dengan optimis.
 
-Apakah Kamu setengah tidur? Aku ingin mengatakan itu dengan keras, dan mata Aku mungkin mengatakan itu kepada guildmaster, tetapi guildmaster sendiri tampaknya telah menerima ini sebagai reaksi alami, karena wajahnya terlihat pasrah.
+"Jika bukan promosi setelah selesai, lalu apa yang kamu inginkan?" (Ketua Guild)
 
-Klaim kami adalah membuat Rank-C menerima ini adalah masalahnya, jadi promosikan kami ke Rank-B terlebih dahulu. Tidak lebih, tidak kurang. Hanya dengan melakukan itu, guild akan bisa dengan berani menunjuk ini ke Ciel. Padahal, karena permintaannya seharusnya A-rank secara normal, mereka mungkin juga tidak berani tentang hal itu.
+"Kamu tidak bisa mengetahuinya?" (Ain)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Promosi ke Rank-B dulu, ya ..." (Ketua Guild)
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"Apakah ada masalah?" (Ain)
 
-Jika klaim kami disetujui tetapi mereka bersikeras bahwa kegagalan akan menyebabkan penurunan pangkat, Aku akan lari dari sini.
-Biasanya, satu kegagalan tidak akan menyebabkan penurunan pangkat, dan bahkan jika mereka mempromosikanku, permintaannya masih setara dengan A-rank. Jika mereka bahkan mencoba untuk menurunkan kita karena kegagalan dengan ini, maka Guild hanya menjadi tirani.
+"Apakah guild sangat tidak dapat dipercaya bagimu?" (Ketua Guild)
 
-Dipahami. Aku akan mencoba bernegosiasi dengan pihak atas. Apakah Kamu menginginkan sesuatu yang lain?」
-Sediakan tas ajaib untuk membawa barang masuk.
-Tentu saja. Tunggu di sini sebentar.
+"Kamu berpikir seperti itu? Secara alami, Aku tidak akan mentolerir penurunan rank ke rank-C karena kegagalan penyelesaian juga." (Ain)
 
-Guildmaster yang putus asa meninggalkanku dan keluar dari ruangan.
-Sepertinya tuntutan kami berhasil. Atau lebih tepatnya, melewati penghalang pertama.
-Aku marah tetapi memikirkannya sekarang, guildmaster berada dalam posisi yang sangat sulit. Bagaimanapun juga, negara ini sedang dalam masalah serius, dan guildmaster bukanlah orang yang benar-benar berselisih denganku, jadi dari sudut pandangnya, dia hanya terjebak di antaranya.
+Apakah Kamu setengah tidur? Aku ingin mengatakan itu dengan keras, dan mataku mungkin mengatakan itu kepada Ketua Guild, tetapi Ketua Guild sendiri tampaknya telah menerima ini sebagai reaksi alami, karena wajahnya terlihat pasrah.
 
-Ini berjalan lancar, bukan?
-Aku setuju. Ini berjalan dengan sangat baik, mungkin berkat guildmaster guild ini.』
-Jika guildmaster adalah yang berasal dari ibukota, segalanya akan menjadi lebih sulit.
-Sementara Aku memiliki banyak hal untuk dikatakan terhadap guild itu sendiri, Aku pribadi tidak 'tidak memiliki apa pun terhadap guildmaster di sini, jadi rasanya aku membuatnya mendapatkan ujung tongkat yang pendek.
-Tapi, Aku tidak punya niat membuat kompromi. 』
-『Dalam hal ini, setelah kami dipromosikan, akan kita pergi tanpa menyelesaikan permintaan?』
-『Mari kita tidak melakukan itu.』
-『Oh baik.』
+Klaim kami adalah membuat Rank-C menerima ini adalah masalahnya, jadi promosikan kami ke Rank-B terlebih dahulu. Tidak lebih, tidak kurang. Hanya dengan melakukan itu, guild akan bisa dengan berani menunjuk Ciel melakukannya. karena permintaannya seharusnya rank-A secara normal, mereka mungkin juga tidak berani untuk hal itu.
 
-Setelah kita menjadi B-rank, kita akan dapat meninggalkan negara bahkan tanpa menyelesaikan permintaan.
-Tapi, jika kita melakukan itu maka kita akan berakhir dalam konflik nyata melawan guild.
-Bahkan jika kita gagal, jika kita tidak menunjukkan hasil yang terlihat, mungkin akan sulit untuk bergerak ketika kita mencapai Central.
-Selain itu, mengabaikan permintaan yang diterima mungkin akan meninggalkan rasa tidak enak di mulutku. Itu hanya pendapat pribadi Aku, tapi Aku tidak ingin Ciel menjadi orang yang mudah mengingkari janji.
+Jika klaim kami disetujui tetapi mereka bersikeras bahwa kegagalan akan menyebabkan penurunan rank, Aku akan lari dari sini.
+
+Biasanya, satu kegagalan tidak akan menyebabkan penurunan rank, dan bahkan jika mereka mempromosikanku, permintaannya masih setara dengan rank-A. Jika mereka bahkan mencoba untuk menurunkan rank kami karena kegagalan ini, maka Guild hanya menjadi kejam.
+
+"baiklah. Aku akan mencoba bernegosiasi dengan pihak atas. Apakah Kamu menginginkan sesuatu yang lain?" (Ketua Guild)
+
+"Sediakan tas sihir untuk membawa semua barangnya." (Ain)
+
+"Tentu saja. Tunggu di sini sebentar." (Ketua Guild)
+
+Ketua Guild yang putus asa meninggalkanku dan keluar dari ruangan.
+
+Sepertinya tuntutan kami berhasil. Atau lebih tepatnya, melewati tahap pertama.
+
+Aku marah tetapi setelah kupikirkan, Ketua Guild berada dalam posisi yang sangat sulit. Bagaimanapun juga, negara ini sedang dalam masalah serius, dan Ketua Guild bukanlah orang yang benar-benar berselisih denganku, jadi dari sudut pandangnya, dia hanya terjebak di antaranya.
+
+[Ini berjalan lancar, kan?] (Ciel)
+
+[Aku setuju. Ini berjalan dengan sangat baik, mungkin berkat Ketua Guild guild ini.] (Ain)
+
+[Jika Ketua Guild adalah yang berasal dari ibukota, segalanya akan menjadi lebih sulit.] (Ciel)
+
+[walaupun Aku memiliki banyak hal untuk dikatakan terhadap guild itu sendiri, Aku pribadi tidak tidak memiliki apa pun terhadap Ketua Guild di sini, jadi rasanya aku membuatnya terpojok. Tapi, Aku tidak punya niat membuat persetujuan.] (Ain)
+
+[Dalam hal ini, setelah kita dipromosikan, apakah kita pergi tanpa menyelesaikan permintaan?] (Ciel)
+
+[Mari kita tidak melakukan itu.] (Ain)
+
+[Oh ok.] (Ciel)
+
+Setelah kami menjadi rank-B, kami akan dapat meninggalkan negara bahkan tanpa menyelesaikan permintaan.
+
+Tapi, jika kami melakukan itu, kami akan berakhir dalam konflik nyata melawan guild.
+
+Bahkan jika kami gagal, jika kami tidak menunjukkan hasil yang terlihat, mungkin akan sulit untuk bergerak ketika kami mencapai Central.
+
+Selain itu, mengabaikan permintaan yang diterima mungkin akan meninggalkan rasa tidak enak di mulutku. Itu hanya pendapat pribadiku, tapi Aku tidak ingin Ciel menjadi orang yang mudah mengingkari janji.
 
 Itu sebabnya ketika menerima permintaan, Aku ingin berusaha semaksimal mungkin.
 
 ◇
 
-Karena guildmaster keluar untuk sementara waktu, Aku mengembalikan tubuh ke Ciel dan ketika Ciel kembali, dia bermain dengan roh.
+Karena Ketua Guild keluar untuk sementara waktu, Aku mengembalikan tubuh ke Ciel dia bermain dengan roh.
+
 Karena dia hanya melihat, aku tidak yakin apakah "bermain" akan menjadi kata yang tepat untuk menggambarkannya, tapi karena Ciel menunjukkan ekspresi yang sesuai dengan usianya, aku juga puas.
-Iklan
 
 Merasakan seseorang mendekat, aku memberi tahu Ciel dan ekspresinya kembali seperti biasa.
 
-Membuka pintu dan memasuki ruangan, guildmaster memiliki beberapa lembar kertas dan ransel yang cukup besar di tangannya untuk dibawa oleh Ciel.
+Ketua Guild Membuka pintu dan memasuki ruangan dan memiliki beberapa lembar kertas dan ransel yang cukup besar di tangannya untuk dibawa oleh Ciel.
+
 Dari waktu ke waktu, butuh sekitar satu atau dua jam tetapi dia pasti mendapat izin dari atas. Dengan mengingat hal itu, ini adalah respons yang sangat cepat.
 Aku memperkirakan itu akan memakan waktu beberapa hari, tetapi Aku kira situasinya lebih mendesak daripada yang Aku kira.
 
 Kasus khusus ini telah diakui. Nona Cielmer, ini akan menjadi kartu Rank-B Kamu.
 
-Guildmaster menempatkan kartu yang lebih megah daripada yang digunakan sampai C-rank di atas meja.
+Ketua Guild menempatkan kartu yang lebih megah daripada yang digunakan sampai C-rank di atas meja.
 Ciel hendak mengambilnya tapi Tunggu. Aku menghentikannya.
 Menerima ini akan sama dengan menerima permintaan. Aku tidak berpikir bahwa mereka masih akan menipu kita pada saat ini, tetapi akan lebih baik untuk mengkonfirmasi isi permintaan itu lagi.
 
@@ -129,7 +154,7 @@ Selain itu, tidak ada perubahan khusus.
 Ini seharusnya cukup, tetapi Aku ingin menambahkan satu baris lagi.
 Dan itu?」
 
-Saat guildmaster bertanya demikian, Ciel menulis kalimat tambahan sebagai balasan.
+Saat Ketua Guild bertanya demikian, Ciel menulis kalimat tambahan sebagai balasan.
 Melihat formulir permintaan yang dikembalikan, ketua guild tampak seperti hendak mengatakan sesuatu; tapi tanpa menyinggung kalimat, Cukup adil. dia menjawab begitu dan menandatangani.
 Ciel juga menandatangani, dan mengambil kartu Rank-B.
 
@@ -155,7 +180,7 @@ Begitukah. Aku merasa terhormat mendengarnya.」
 Lakukan yang terbaik.
 Iklan
 
-Mendengar komentar singkat Ciel, guildmaster menunjukkan ekspresi bingung tapi kemudian tersenyum masam.
+Mendengar komentar singkat Ciel, Ketua Guild menunjukkan ekspresi bingung tapi kemudian tersenyum masam.
 Karena dia memiliki tampilan yang tangguh, senyum masam hanya menakutkan tetapi hanya pada saat ini, samar-samar aku bisa merasakan pesona darinya.
 Jika dia adalah ketua guild di ibukota kerajaan, maka hubungannya dengan Ciel mungkin akan jauh berbeda.
 Kami mungkin dengan senang hati ... akan menjadi berlebihan, tetapi kami mungkin telah bergabung dengan pelanggaran terhadap penyerbuan paling tidak.
