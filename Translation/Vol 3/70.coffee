@@ -140,59 +140,77 @@ Aku memperkirakan itu akan memakan waktu beberapa hari, tetapi Aku kira situasin
 
 "Kasus khusus ini telah diakui. Nona Cielmer, ini akan menjadi kartu Rank-B Kamu." (Ketua Guild)
 
-Ketua Guild menempatkan kartu yang lebih megah daripada yang digunakan sampai C-rank di atas meja.
-Ciel hendak mengambilnya tapi Tunggu. Aku menghentikannya.
-Menerima ini akan sama dengan menerima permintaan. Aku tidak berpikir bahwa mereka masih akan menipu kita pada saat ini, tetapi akan lebih baik untuk mengkonfirmasi isi permintaan itu lagi.
+Ketua Guild menempatkan kartu yang lebih megah daripada yang digunakan sampai rank-C di atas meja.
 
-Tegaskan kembali detail permintaan.」
-...... Benar. Ini adalah formulir permintaan baru. Ini juga sekaligus merupakan kontrak sihir, jadi bacalah.」 」
-Dimengerti.」
+Ciel hendak mengambilnya tapi [Tunggu.], Aku menghentikannya.
+
+Menerima ini akan sama dengan menerima permintaan. Aku tidak berpikir bahwa mereka masih akan menipu kami pada saat ini, tetapi akan lebih baik untuk mengkonfirmasi isi permintaan itu lagi.
+
+"konfirmasi kembali detail permintaan." (Ciel)
+
+"...... Benar. Ini adalah formulir permintaan baru. Ini juga sekaligus merupakan kontrak sihir, jadi bacalah." (Ketua Guild)
+
+"Baiklah" (Ciel)
 
 Ciel menerima formulir permintaan dan memeriksa detailnya.
-Penambahan baru adalah bahwa Penerimaan permintaan akan menghasilkan pengakuan sebagai Rank-B.」 dan Penerima akan mengerahkan upaya sebanyak mungkin untuk menyelesaikan permintaan. termasuk dalam formulir.
+
+Penambahan barunya adalah 'bahwa Penerimaan permintaan akan menghasilkan pengakuan sebagai Rank-B.' dan 'Penerima akan mengerahkan upaya sebanyak mungkin untuk menyelesaikan permintaan.'.
+
 Selain itu, tidak ada perubahan khusus.
 
-Ini seharusnya cukup, tetapi Aku ingin menambahkan satu baris lagi.
-Dan itu?」
+"Ini seharusnya cukup, tetapi Aku ingin menambahkan satu baris lagi." (Ciel)
 
-Saat Ketua Guild bertanya demikian, Ciel menulis kalimat tambahan sebagai balasan.
-Melihat formulir permintaan yang dikembalikan, ketua guild tampak seperti hendak mengatakan sesuatu; tapi tanpa menyinggung kalimat, Cukup adil. dia menjawab begitu dan menandatangani.
+"Dan apa itu?" (Ketua Guild)
+
+Saat Ketua Guild bertanya demikian, Ciel menulis kalimat tambahan sebagai jawabannya.
+
+Melihat formulir permintaan yang dikembalikan, ketua guild tampak seperti hendak mengatakan sesuatu; tapi, "Cukup adil.", dia menjawab begitu dan menandatangani.
+
 Ciel juga menandatangani, dan mengambil kartu Rank-B.
 
-Haruskah “sudah” atau “akhirnya” dalam kasus ini?』
-Akhirnya, kurasa. Akhirnya, kami memiliki kunci yang diperlukan untuk meninggalkan negara ini.』
-Aku kira begitu, tapi Aku tidak merasakan banyak kegembiraan dari ini.
-Sama dengan Aku.
-Tetap saja, masih ada masalah di depan kita sekarang. Mari kita cepat mengirimkannya dan meninggalkan negara ini, oke ?
-Haruskah kita pergi dengan kecepatan penuh?』
-youSelama kamu baik-baik saja dengan itu, Ain.
-Kalau begitu, itu akan baik-baik saja.
+[Haruskah “sudah” atau “akhirnya” dalam kasus ini?] (Ciel)
 
-Ciel memasukkan kartu Rank-B ke dalam tas ajaib kami dan meletakkan kartu Rank-C kami di atas meja sebagai gantinya.
-Kemudian, dia memanggul ransel—tas ajaib yang menyimpan persediaan.
-Ciel segera menuju langsung ke arah pintu tetapi tepat sebelum dia keluar, dia berhenti di jalurnya.
+[Akhirnya, sepertinya. Akhirnya, kita memiliki kunci yang diperlukan untuk meninggalkan negara ini.] (Ain)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+[Aku juga berpukir begitu, tapi Aku tidak merasakan banyak kegembiraan dari ini.] (Ciel)
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+[aku juga.] (Ain)
 
-Kamu baik-baik saja.「
-Begitukah. Aku merasa terhormat mendengarnya.」
-Lakukan yang terbaik.
-Iklan
+[Tetap saja, masih ada masalah di depan kita sekarang. Mari kita cepat mengirimkannya dan meninggalkan negara ini, oke ?] (Ciel)
 
-Mendengar komentar singkat Ciel, Ketua Guild menunjukkan ekspresi bingung tapi kemudian tersenyum masam.
-Karena dia memiliki tampilan yang tangguh, senyum masam hanya menakutkan tetapi hanya pada saat ini, samar-samar aku bisa merasakan pesona darinya.
-Jika dia adalah ketua guild di ibukota kerajaan, maka hubungannya dengan Ciel mungkin akan jauh berbeda.
-Kami mungkin dengan senang hati ... akan menjadi berlebihan, tetapi kami mungkin telah bergabung dengan pelanggaran terhadap penyerbuan paling tidak.
+[Haruskah kita pergi dengan kecepatan penuh?] (Ain)
 
-Urutan kejadiannya mengerikan, waktunya mengerikan, pertemuannya mengerikan. Itu mungkin hanya ini.
+[Selama kamu baik-baik saja dengan itu, Ain.] (Ciel)
 
-Meninggalkan Hunter Guild, Ciel langsung menuju gerbang kota.
+[Kalau begitu ayi kita pergi dengan kecepatan penuh.] (Ain)
+
+Ciel memasukkan kartu Rank-B ke dalam tas sihir kami dan meletakkan kartu Rank-C kami di atas meja sebagai gantinya.
+Kemudian, dia memakai ransel tas sihir yang menyimpan persediaan.
+
+Ciel segera menuju langsung ke arah pintu tetapi tepat sebelum dia keluar, dia berhenti.
+
+"Kamu layak dan pantas menjadi ketua guild." (Ciel)
+
+"Begitukah. Aku merasa terhormat mendengarnya." (Ketua Guild)
+
+"Lakukanlah yang terbaik." (Ciel)
+
+Mendengar komentar singkat Ciel, Ketua Guild menunjukkan ekspresi bingung tapi kemudian tersenyum kecut.
+
+Karena dia memiliki tampilan yang tangguh, senyumnya hanya terlihat menakutkan tetapi hanya pada saat ini, aku bisa merasakan kehangantannya sedikit.
+
+Jika dia adalah ketua guild di ibukota kerajaan, hubungannya dengan Ciel mungkin akan jauh berbeda.
+
+Kami mungkin dengan senang hati ... ini akan menjadi berlebihan, tapi kami mungkin akan bergabung dengan baris depan melawan penyerbuan.
+
+ini semua adalah Urutan kejadiannya mengerikan, waktunya mengerikan, pertemuannya mengerikan.
+
+Meninggalkan Guild Hunter, Ciel langsung menuju gerbang kota.
 
 ◇
 
 Matahari sudah terbenam ketika kami keluar dari Norvell, jadi kami menyerah pada perjalanan dengan kecepatan penuh dan memutuskan untuk berjalan sejauh yang kami bisa.
+
 Berada di tengah alam saat peredupan terasa cukup suram. Aku mungkin akan merasa kesepian atau tidak nyaman jika Aku sendirian.
 Tapi, Aku memiliki Ciel bersama Aku sekarang, jadi setidaknya kita bisa berbicara sambil melanjutkan.
 
