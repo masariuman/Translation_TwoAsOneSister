@@ -34,53 +34,63 @@ Ciel menjadi sangat bersemangat, jadi agar tidak mempengaruhi penilaiannya, aku 
 
 [Menurut pendapatku, tidak ada yang bisa Kamu lakukan saat itu. BARRIER Ain hanya tidak cocok dengna lawannya, jadi tidak perlu khawatir tentang itu.] (Ciel)
 
-Aku tidak bisa membantah jika kamu mengatakannya seperti itu tapi... Mengesampingkan itu, kita mungkin mendapat masalah jika tidak melakukannya. periksa kemampuan pertahanan kita saat ini, kau tahu?』
-Itu benar. Aku akan mencoba mengambil beberapa serangan kalau begitu.
+[Aku tidak bisa membantah jika kamu mengatakannya seperti itu tapi... Mengesampingkan itu, kita mungkin mendapat masalah jika tidak memeriksa kemampuan +BARRIER kita saat ini, kau tahu?] (Ain)
 
-Aku senang Ciel akan menghiburku seperti itu, tapi dengan percaya diri menerima serangan dengan penghalang yang akan menghancurkannya adalah sesuatu yang tidak bisa aku biarkan terjadi. Demi menjaga Ciel agar tidak menjadi bahan tertawaan juga, aku harus memiliki pemahaman yang tepat tentang kemampuanku sendiri.
-Selain itu, Aku ingin mencoba bereksperimen dengan kekuatan yang kami dapatkan dari serigala emas. Aku menduga bahwa menggunakannya seharusnya membuat kita mampu bertahan melawan sesuatu seperti cakar serigala emas, tetapi ini masih tidak lebih dari spekulasi.
+[Itu benar. Aku akan mencoba menerima beberapa serangan kalau begitu.] (Ciel)
 
-Bagaimanapun, sejak kami selesai berdiskusi, Aku mulai bernyanyi.
+Aku senang Ciel setuju seperti itu, tapi dengan percaya diri menerima serangan dengan +BARRIER dan bisa menghancurkannya adalah sesuatu yang tidak bisa aku biarkan terjadi. Demi menjaga Ciel agar tidak menjadi bahan tertawaan juga, aku harus memiliki pemahaman yang tepat tentang kemampuanku sendiri.
 
-Ada berbagai macam sihir, tetapi yang memiliki hubungan baik dengan Putri Tari adalah sihir api, air, dan es.
-Bagaimanapun, ini memungkinkan penggunaan sihir yang mencolok. Seperti yang diharapkan, mampu mempesona dan mengesankan adalah hal mendasar.
+Selain itu, Aku ingin mencoba bereksperimen dengan kekuatan yang kami dapatkan dari serigala emas. Aku menduga bahwa menggunakannya seharusnya membuat kami mampu bertahan melawan sesuatu seperti cakar serigala emas, tetapi ini masih tidak lebih dari spekulasi.
+
+setelah kami selesai berdiskusi, Aku mulai bernyanyi.
+
+Ada berbagai macam sihir, tetapi yang memiliki hubungan baik dengan dance princess adalah sihir api, air, dan es.
+
+sihir-sihir ini memungkinkan penggunaan sihir yang mencolok. Seperti yang diharapkan, mampu mempesona dan mengesankan adalah hal mendasar.
+
 Sihir sendiri merupakan alat peraga untuk menarik mata, agar tariannya tampil lebih mempesona.
+
 Dan mereka yang dapat melakukannya memiliki afinitas yang baik dengannya.
 
-Iklan
+Untuk alasan ini, kami hanya membuat set panggung air dan es tetapi kami dapat menyiapkan panggung api atau tanah jika kami mau.
 
-Untuk alasan ini, kami hanya membuat set panggung air dan es tetapi kami dapat menyiapkan panggung api atau bumi jika kami mau.
-Sebuah panggung bumi sulit dibedakan tetapi jika kita mengabaikan pengeluaran kekuatan sihir, Ciel dapat mengubah beberapa kilometer di sekitarnya menjadi hutan. Padahal, melakukan hal seperti itu akan melelahkan Ciel bahkan sebelum dia bisa menari. Hutan seluas beberapa kilometer yang tiba-tiba terwujud bukanlah masalah kecil, jadi kita mungkin tidak akan melakukan hal seperti itu.
-Sesuatu seperti meninggikan tanah atau mengubah area menjadi hamparan bunga akan menekan biaya kekuatan sihir.
+Sebuah panggung tanah sulit dibuat tetapi jika kami mengabaikan pengeluaran energi sihir, Ciel dapat mengubah beberapa kilometer di sekitarnya menjadi hutan. dan melakukan hal seperti itu akan melelahkan Ciel bahkan sebelum dia bisa menari. Hutan seluas beberapa kilometer yang tiba-tiba terwujud bukanlah masalah kecil, jadi kami mungkin tidak akan melakukan hal seperti itu.
 
-Jika kita menganggap tanah, air, api, dan angin sebagai elemen dasar, maka yang memiliki afinitas buruk dengan Putri Tari adalah angin......atau begitulah menurutku. Meskipun kami sering menggunakan sihir angin sendiri, itu bukan karena kemampuan Putri Tari tetapi lebih merupakan tampilan kemampuan Ciel dalam sihir.
+Sesuatu seperti meninggikan tanah atau mengubah area menjadi hamparan bunga akan menekan penggunaan energi sihir tetap rendah.
 
-Karena memikat adalah suatu keharusan, Aku berpikir bahwa atribut angin, yang tidak terlihat dari mata telanjang, akan memiliki afinitas yang buruk dengan Putri Dansa, tetapi ternyata bukan itu masalahnya sama sekali. Dan itu mengarah pada mode perjalanan kami untuk kesempatan ini.
+Jika kami menganggap tanah, air, api, dan angin sebagai elemen dasar, maka yang memiliki afinitas buruk dengan dance princess adalah angin......atau begitulah menurutku. Meskipun kami sering menggunakan sihir angin sendiri, itu bukan karena kemampuan dance princess tetapi lebih merupakan kemampuan Ciel dalam sihir.
 
-Intinya, Ciel bisa berlari menembus langit.
+Karena memikat adalah suatu keharusan, Aku berpikir bahwa atribut angin, yang tidak terlihat dari mata telanjang, akan memiliki afinitas yang buruk dengan dance princess, tetapi ternyata bukan itu masalahnya sama sekali. Dan itu mengarah pada mode perjalanan kami untuk kesempatan ini.
 
-Dia bisa berjalan di udara, menjadikannya panggung angin.
-Sebagai tarian, mungkin bisa digambarkan sebagai semacam tarian makhluk halus atau tarian peri. Dugaan Aku adalah bahwa melihat roh-roh gembira melompat-lompat di udara meningkatkan penguasaan Ciel dengan itu.
+Intinya, Ciel bisa berlari di langit.
+
+Dia bisa berjalan di udara, dan menjadikannya panggung angin.
+
+Sebagai tarian, mungkin bisa digambarkan sebagai semacam tarian roh atau tarian peri. mungkin melihat roh-roh gembira melompat-lompat di udara meningkatkan penguasaan Ciel dengan itu.
 
 Meskipun ada orang yang bisa menggunakan sihir untuk terbang di langit, ini adalah sesuatu yang hanya bisa dicapai oleh penyihir kelas atas setelah berusaha keras untuk melakukannya.
+
 Ciel sendiri adalah penyihir yang hebat, tetapi terbang tanpa latihan sebelumnya jelas sangat tidak mungkin.
 
 Kembali ke topik.
+
 Dengan kakinya yang kurus dan ramping, Ciel menggenggam udara dan melompat ke langit.
-Mencocokkan lagu Aku, dia berlari di udara seperti anak rusa yang berlari kencang di ladang.
+
+Mencocokkan laguku, dia berlari di udara seperti anak rusa yang berlari kencang di ladang.
+
 Memperhatikan hal ini, sebuah roh mulai terbang dengan riang di sekitar Ciel.
 
 Saat roh yang satu ini mulai bermain, roh-roh di sekitarnya mulai bermain juga, dan Ciel mengikuti dan bergabung.
-Dengan keadaannya sekarang, itu berubah menjadi kurang tarian dan lebih seperti festival. Padahal, karena kita masih bergerak maju di udara dengan kemampuan Putri Tari, jangan pikirkan itu.
-Pada pemeriksaan lebih dekat, roh-roh itu sepertinya bergerak mengikuti irama lagu Aku, tapi jangan pikirkan itu.
-Ada juga beberapa dari mereka yang mencoba bernyanyi bersama, tetapi jangan pikirkan itu juga.
+
+Dengan keadaannya sekarang, itu berubah menjadi lebih seperti festival. karena kita masih bergerak maju di udara dengan kemampuan dance princess, yaah aku tidak terlalu memikirkannya.
+
+Pada pemeriksaan lebih dekat, roh-roh itu sepertinya bergerak mengikuti irama laguku, tapi lebih baik aku tidak memikirkan itu.
+
+Ada juga beberapa dari mereka yang mencoba bernyanyi bersama, tetapi aku mencoba tidak memikirkan itu juga.
 
 Ini menghangatkan hati, jadi semuanya baik-baik saja.
-Fakta bahwa roh-roh itu dapat mendengar suaraku tidak terlalu penting secara khusus.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Fakta bahwa roh-roh itu dapat mendengar suaraku tidak terlalu penting juga.
 
 Tidak ada masalah dengan mereka yang digosok. Untuk memulainya, aku bahkan tidak tahu apakah aku bisa memberi buff spirit.
 Bagaimanapun, mereka jelas makhluk yang berbeda dari makhluk hidup normal.
