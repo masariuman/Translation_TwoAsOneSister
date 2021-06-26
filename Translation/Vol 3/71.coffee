@@ -117,41 +117,53 @@ Meskipun Aku mungkin bisa mencari lagu biasa juga, Aku tidak cukup ahli untuk me
 Baiklah, mari kita tinggalkan kesanku tentang musik.
 
 Lagi pula, Aku bisa melihat siluet besar dalam bidang penglihatanku.
----
-Akan baik-baik saja jika kami berada di tanah, tetapi tidak peduli bagaimana Aku melihatnya, kita berada di langit.
-Bukannya monster yang bisa terbang itu tidak ada. Ada monster dengan fitur mirip burung.
-Tapi, monster terbang pada umumnya merepotkan. Fakta bahwa ia bisa terbang cukup merepotkan, tentu saja, tapi ini karena kebanyakan dari mereka juga monster Rank tinggi.
-Iklan
 
+Akan baik-baik saja jika kami berada di tanah, tetapi tidak peduli bagaimana Aku melihatnya, kami berada di langit.
+
+monster yang bisa terbang itu ada. Ada monster dengan bentuknya mirip burung.
+
+Tapi, monster terbang pada umumnya merepotkan. Fakta bahwa ia bisa terbang cukup merepotkan. kebanyakan dari mereka juga monster Rank tinggi.
 
 Mereka adalah makhluk mistis yang terkenal bahkan di kehidupan masa laluku.
 
 Sekarang karena jaraknya sangat dekat, aku bisa melihat apa yang tampak seperti wyvern. Kadal terbang Rank-A.
-Karena kita bertemu satu di sini, maka penyerbuan kemungkinan sudah dimulai.
+
+Karena kami bertemu satu di sini, maka penyerbuan kemungkinan sudah dimulai.
+
 Aku tidak tahu apa skala penyerbuan ini, tetapi hanya dari penampilan wyvern, kerusakan pada ibukota mungkin akan menjadi besar.
 
-Jika memungkinkan, aku lebih suka mengabaikan semua wyvern ini, pergi ke ibukota, meninggalkan perbekalan, dan melarikan diri, tapi sayangnya mereka menuju ke arah kita.
-Jika ini hanya monster yang dibumi, kita bisa mengabaikan mereka semua di sini dari langit.
-Kita bisa menuju ke ibukota sambil melarikan diri dari para wyvern, tetapi dalam situasi kita saat ini, Aku merasa bahwa kita bisa ditangkap karena membawa serta wyvern.
+Jika memungkinkan, aku lebih suka mengabaikan semua wyvern ini, pergi ke ibukota, meninggalkan tas sihir berisi permintaan, dan melarikan diri, tapi sayangnya mereka menuju ke arah kami.
 
-Sekarang, bagaimana jika kita berjalan saja? Dalam situasi itu, kami akan dipaksa untuk melewati monster yang jumlahnya jauh lebih banyak daripada wyvern ini—ada sekitar sepuluh dari mereka dari apa yang bisa kulihat—dan dengan jumlah murni sendirian, melakukan perjalanan melalui langit bukanlah kesalahan.
-Untungnya, sepertinya monster lain tidak menuju ke arah kita seperti para wyvern.
+Jika ini hanya monster yang ditanah, kami bisa mengabaikan mereka semua di sini dari langit.
 
-Mulai sekarang, apakah kita mendarat di tanah atau melawan mereka di sini di udara akan tergantung pada Ciel, tetapi tampaknya Ciel memilih untuk bertarung karena dia tidak menunjukkan tanda-tanda menuju ke tanah.
-Seperti yang telah kita diskusikan sebelumnya, aku memasang penghalang berbentuk bola agar Ciel dapat menerima serangan.
+kami bisa menuju ke ibukota sambil melarikan diri dari para wyvern, tetapi dalam situasi kami saat ini, Aku merasa bahwa kami bisa ditangkap karena membawa wyvern ke ibukota.
+
+Sekarang, bagaimana jika kami berjalan saja? Dalam situasi itu, kami akan dipaksa untuk melewati monster yang jumlahnya jauh lebih banyak daripada wyvern ini yang sekitar sepuluh dari apa yang bisa kulihat dan dengan jumlah ini sendiri, melakukan perjalanan melalui langit bukanlah kesalahan.
+
+Untungnya, sepertinya monster lain tidak menuju ke arah kami seperti para wyvern.
+
+sekarang, apakah kami mendarat di tanah atau melawan mereka di sini di udara akan tergantung pada Ciel, tetapi tampaknya Ciel memilih untuk bertarung karena dia tidak menunjukkan tanda-tanda menuju ke tanah.
+
+Seperti yang telah kami diskusikan sebelumnya, aku memasang +BARRIER berbentuk bola agar Ciel dapat menerima serangan.
 
 Wyvern yang mendekat memiliki sisik hijau, cakar tajam, dan ekor, dengan lengan dan sayapnya menyatu.
-Sementara Aku belum membaca tentang mereka secara menyeluruh, jika Aku tidak salah, karena ekor mereka memiliki racun, hanya satu goresan dari itu akan membuat pertempuran tidak menguntungkan.
-Ini cukup berbahaya untuk pengujian penghalang, tetapi itu berarti tidak masalah selama itu tidak menghancurkan penghalang.
 
-Juga, sekarang sudah dekat, mudah untuk memahami bahwa wyvern sangat besar.
-Ini beberapa kali ukuran Ciel, sehingga memiliki semacam kesan bos terakhir.
+Aku belum membaca tentang mereka secara menyeluruh, tapi jika Aku tidak salah, karena ekor mereka memiliki racun, hanya satu goresan dari itu akan membuat pertempuran tidak menguntungkan.
+
+Ini cukup berbahaya untuk pengujian +BARRIER, tetapi itu berarti tidak masalah selama itu tidak menghancurkan +BARRIER.
+
+ketika wyvern dekat, mudah untuk memahami bahwa wyvern sangat besar.
+
+ukurannya beberapa kali dari ukuran Ciel, sehingga memiliki semacam kesan bos terakhir.
+
 Meskipun Aku pikir itu tidak jauh lebih besar dari serigala emas, serigala berjalan dengan empat kaki dan, sebaliknya, kadal ini terbang seperti berjalan dengan dua kaki, jadi yang ini terasa lebih menakutkan.
 
 Ini seperti dinding.
 
 Wyvern pertama yang mendekat terbang pada ketinggian yang lebih tinggi dari Ciel dan kemudian tiba-tiba menukik ke bawah untuk menangkap Ciel dengan cakarnya.
-Seperti seorang matador, Ciel dengan gesit mengelak dan, pada satu kesempatan, cakarnya mengenai penghalang dengan sengaja.
+
+Seperti seorang matador, Ciel dengan gesit mengelak dan, cakarnya dikenakan dengan +BARRIER dengan sengaja.
+
 Tabrakan yang kuat hampir membuat Ciel kehilangan keseimbangan, tetapi dia dengan terampil menggunakan sihir untuk pulih.
 
 Pada saat yang sama, Aku yakin akan kemenangan pertempuran ini.
