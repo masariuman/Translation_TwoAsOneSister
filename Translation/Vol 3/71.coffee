@@ -1,24 +1,33 @@
 BABAK 71: SKY, WYVERN, DAN DANCE PRINCESS
 
-alam telah berakhir dan kali ini, kita akan melakukan perjalanan dengan kecepatan maksimum Ciel.
+hari telah berakhir dan kali ini, kami akan melakukan perjalanan dengan kecepatan maksimum Ciel.
 
-Kamu dapat beristirahat kapan pun kamu mau, oke Ciel?』
-Kalau begitu, kita mungkin akan bepergian sepanjang hari.
+[Kamu dapat beristirahat kapan pun kamu mau, oke Ciel?] (ain)
+
+[Kalau seperti itu, kita mungkin akan bepergian sepanjang hari.] (Ciel)
 
 Ciel berkata sambil terkikik, tapi karena ini mengharuskanku bernyanyi terus menerus, aku tidak akan bisa menyuruhnya istirahat. Karena itu, walaupun aku tidak keberatan jika itu hanya lelucon, aku akan khawatir jika Ciel benar-benar bermaksud seperti itu.
+
 Aku bisa berhenti bernyanyi untuk memanggilnya, tetapi dengan metode perjalanan ini, Ciel mungkin terluka jika aku tiba-tiba berhenti bernyanyi.
 
-Jangan khawatir. Lagipula, tubuh ini bukan hanya milikku.
-Dimengerti. Aku percaya padamu, Ciel. Juga, satu hal lagi.』
-Tentang apa yang harus dilakukan saat menghadapi musuh, kan?」
-Ya. Kali ini, ada kemungkinan bertemu monster A-rank, jadi Aku akan kesulitan untuk menyebut ini aman.』
-Aku akan mengamati dulu dan jika situasinya tampaknya dapat ditangani, mari kita kalahkan mereka segera. Jika tidak, maka mari kita mundur.」
-Itu seharusnya baik-baik saja. Tapi, ada satu hal yang ingin Aku tanyakan dari Kamu.
-Apa itu? Aku akan melakukan apa pun yang Kamu minta!
+[Jangan khawatir. Lagipula, tubuh ini bukan hanya milikku.] (Ciel)
+
+[Baiklah . Aku percaya padamu, Ciel. Juga, satu hal lagi...] (Ain)
+
+[Tentang apa yang harus dilakukan saat menghadapi musuh, kan?] (Ciel)
+
+[Ya. Kali ini, ada kemungkinan bertemu monster A-rank, jadi Aku akan kesulitan untuk menyebut ini aman.] (Ain)
+
+[Aku akan mengamati dulu dan jika situasinya tampaknya dapat ditangani, kita kalahkan mereka segera. Jika tidak, kita mundur.] (Ciel)
+
+[Itu seharusnya baik-baik saja. Tapi, ada satu hal yang ingin Aku minta.] (Ain)
+
+[Apa itu? Aku akan melakukan apa pun yang Kamu minta!] (Ciel)
 
 Ciel menjadi sangat bersemangat, jadi agar tidak mempengaruhi penilaiannya, aku dengan tenang menyampaikan permintaanku padanya.
 
-Jika kita menghadapi Rank-A, Aku akan menggunakan penghalang berbentuk bola. Sekali sudah cukup tapi tolong terima serangan dengan penghalang itu.
+Jika kita menghadapi Rank-A, Aku akan menggunakan +BARRIER berbentuk bola. Sekali sudah cukup tapi tolong terima serangan dengan penghalang itu.
+
 Kamu ingin melihat seberapa kuat Rank-A, kan? Tetap saja, Aku pikir penghalang Kamu dapat memblokir serangan mereka sepenuhnya.」
 Serigala emas menerobos penghalang Aku, jadi ......』
 Menurut pendapat Aku, tidak ada yang bisa Kamu lakukan saat itu.
