@@ -168,95 +168,114 @@ Tabrakan yang kuat hampir membuat Ciel kehilangan keseimbangan, tetapi dia denga
 
 Pada saat yang sama, Aku yakin akan kemenangan pertempuran ini.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+wyvern itu mungkin memiliki cara lain untuk menyerang, tetapi tidak peduli berapa banyak ia mengulangi serangan yang sama sebelumnya, itu tidak akan menghancurkan +BARRIERku.
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
-
-Itu mungkin memiliki cara lain untuk menyerang, tetapi tidak peduli berapa banyak ia mengulangi serangan yang sama sebelumnya, itu tidak akan menghancurkan penghalang Aku.
 Atau lebih tepatnya, tombak es jauh lebih kuat dari ini.
+
 Selanjutnya, kami memblokir ekornya yang mendekat.
-Ini mungkin memiliki beberapa trik lain di lengan bajunya, tetapi tidak ada keraguan bahwa kita berada dalam posisi yang jauh lebih menguntungkan.
+
+dia mungkin memiliki beberapa trik lain di lengannya, tetapi tidak ada keraguan bahwa kami berada dalam posisi yang jauh lebih menguntungkan.
+
 Yup, kurasa serigala emas itu benar-benar tidak normal.
 
-Tetap saja, sementara kita mungkin tidak akan kalah di sini, aku tidak tahu apakah kita bisa mengalahkannya.
+Tetap saja, sementara kami mungkin tidak akan kalah di sini, aku tidak tahu apakah kami bisa mengalahkannya.
+
 Kuncinya di sini adalah apakah serangan Ciel efektif melawan monster Rank-A atau tidak.
 
 Seolah bermain-main dengan seekor wyvern yang menyerang, Ciel berlari melintasi langit.
-Sekarang terbang bebas di langit seperti gadis penyihir, Ciel menembakkan bilah angin di setiap kesempatan yang diberikan dan terus melukai wyvern.
-Jika dia mengenakan pakaian berenda dan memiliki tongkat, itu mungkin akan terlihat sempurna. Tidak ada masalah dengan usianya juga, tapi karena apa yang digunakan Ciel lebih dekat dengan sihir daripada sihir, kurasa itu membuatnya lebih menjadi gadis penyihir.
 
-Selain lelucon, saat ini ada terlalu banyak wyvern yang membuatnya sulit untuk melanjutkan serangan.
+terbang bebas di langit seperti gadis penyihir, Ciel menembakkan bilah angin di setiap kesempatan yang ada dan terus melukai wyvern.
 
-Untungnya, para wyvern tampaknya tidak pandai dalam pertempuran udara karena mereka tampaknya tidak dapat mengikuti gerakan yang tajam dan tepat, jadi kita hanya harus bertahan lebih lama dari mereka.
+Jika dia mengenakan pakaian berenda dan memiliki tongkat, itu mungkin akan terlihat sempurna. Tidak ada masalah dengan usianya juga, tapi karena apa yang digunakan Ciel lebih dekat dengan sihir(SORCERY+) daripada sihir(MAGIC+), kurasa itu membuatnya lebih menjadi gadis penyihir(SORCERY+).
+
+tapi, saat ini ada terlalu banyak wyvern yang membuatnya sulit untuk melanjutkan serangan.
+
+Untungnya, para wyvern tampaknya tidak pandai dalam pertempuran udara karena mereka tampaknya tidak dapat mengikuti gerakan yang tajam dan tepat, jadi kami hanya harus bertahan lebih lama dari mereka.
+
 Mereka kemungkinan besar menargetkan makhluk di tanah dan tubuh mereka yang besar kemungkinan membuat mereka sulit untuk menargetkan mangsa kecil.
+
 Saat aku memikirkan itu, aku mendeteksi reaksi yang datang dari jauh agak terlambat.
-Sebuah ekor dengan cepat menempati bidang penglihatanku dengan akurat menghantam kepala Ciel.
 
-Sementara penghalang dapat memblokir serangan, dibanting di udara berarti tidak ada cara untuk mengarahkan kembali kekuatan benturan.
-Sebelum Aku selesai memikirkan betapa buruknya jika dipalu ke tanah dengan cara ini, Aku menggunakan apa yang Aku rencanakan untuk digunakan untuk percobaan kedua Aku.
+Sebuah ekor dengan cepat menempati bidang penglihatanku, dengan akurat menghantam kepala Ciel.
 
-Kekuatan misterius yang digunakan oleh serigala emas yang menyatu dengan penghalangku.
-Sama seperti bagaimana Aku menggunakan kekuatan sihir dalam sihir, Aku mengedarkannya ke seluruh tubuh dan melepaskannya ke luar. Fakta bahwa aku bisa mengedarkan energi yang lebih kuat daripada kekuatan sihir adalah semua berkat sirkuit sihir atipikal Ciel.
+Sementara +BARRIER dapat memblokir serangan, dibanting di udara berarti tidak ada cara untuk mengarahkan efek benturannya.
 
-Iklan
+Sebelum Aku selesai memikirkan betapa buruknya jika dipalu ke tanah dengan cara ini, Aku menggunakan apa yang Aku rencanakan untuk digunakan untuk percobaan keduaku.
 
-Setelah terjun payung yang berlangsung kurang dari satu detik, atau mungkin bungee jump tanpa kabel, Aku hanya merasakan sensasi mendarat di tanah, seolah-olah tidak ada dampak sama sekali.
+Kekuatan misterius yang digunakan oleh serigala emas yang menyatu dengan +BARRIERku.
+
+Sama seperti bagaimana Aku menggunakan energi sihir dalam sihir, Aku mengedarkannya ke seluruh tubuh dan melepaskannya ke luar. Fakta bahwa aku bisa mengedarkan energi yang lebih kuat daripada energi sihir adalah semua berkat sirkuit sihir Ciel.
+
+Setelah terjun payung yang berlangsung kurang dari satu detik, atau mungkin terjun bebas tanpa kabel, Aku hanya merasakan sensasi mendarat di tanah, seolah-olah tidak ada dampak sama sekali.
+
 Menyadari apa yang terjadi, Ciel melihat sekeliling dan area di sekitarnya berubah menjadi kawah kecil.
 
 Melihat ke atas, wyvern dengan cepat mendekati kami.
+
 Tanpa mengalihkan pandangan dari makhluk besar yang mendekat di depan mata kami, Ciel tidak melakukan apa-apa.
-Saat aku sedang memikirkan apa yang ada di pikirannya, cakar wyvern yang menyerang menabrak penghalang dan patah.
 
-Mungkin merasakan sakit, jika bukan kemarahan karena hal-hal yang tidak terjadi seperti yang direncanakan, wyvern meraung sebelum melarikan diri kembali ke langit.
-Ya. Sepertinya kemampuan pertahanan penghalang telah meningkat.
+Saat aku sedang memikirkan apa yang ada di pikirannya, cakar wyvern yang menyerang menabrak +BARRIER dan patah.
 
-Apa yang harus kita lakukan tentang itu? 』
+Mungkin merasakan sakit, karena hal-hal yang tidak terjadi seperti yang direncanakan, wyvern meraung sebelum melarikan diri kembali ke langit.
+
+Ya. Sepertinya kemampuan pertahanan +BARRIER telah meningkat.
+
+[Apa yang akan kita lakukan sekarang?] (Ain)
 
 Karena kami jatuh dari langit, Aku berhenti bernyanyi dan bertanya pada Ciel.
-Wyvern tampaknya masih terkunci pada Ciel, saat mereka mengitari kami di udara.
 
-Berkat Ain, aku tidak akan kalah melawan mereka tetapi pergi ke ibukota kerajaan seperti ini juga akan buruk, kan? 」
-『Akan lebih baik untuk menghindari melakukan hal itu, ya』.
-「 Lalu ada pilihan lain selain untuk mengalahkan mereka; tetap saja, akan sulit untuk menggunakan apa pun selain sihir angin di langit, sementara di bawah sini sihir lain kemungkinan tidak akan mencapai mereka.
-Jadi, bagaimana kalau Aku mencoba bertingkah seperti Putri Tari pada kesempatan ini?」
-Itu mungkin ide yang bagus. Aku akan memberikan dukungan agar Kamu tidak basah.
+Wyvern tampaknya masih terkunci pada Ciel karena mereka mengitari kami di udara.
 
-Dengan langkah kami selanjutnya yang diputuskan, Aku mulai bernyanyi sekali lagi. Apa yang akan kita tampilkan sekarang adalah semacam upacara, jadi aku menyanyikan lagu khusyuk yang cocok untuk itu. Ciel menendang tanah, membangun panggung yang disederhanakan.
-Setelah itu, Ciel menggunakan jubahnya sebagai pengganti stola dan berlutut seolah-olah hendak berdoa.
-Meskipun kami belum melakukan sebanyak ini sampai sekarang untuk beberapa alasan, ini adalah bentuk paling khas dari kemampuan Putri Tari.
+[Berkat Ain, aku tidak akan kalah melawan mereka tetapi pergi ke ibukota kerajaan seperti ini juga akan buruk, kan?] (Ciel)
 
-Atur panggung, tampilkan musik, dan tawarkan tarian.
+[ya, Akan lebih baik untuk menghindari melakukan hal itu.] (Ain)
+
+[Lalu ada pilihan lain selain untuk mengalahkan mereka; tetap saja, akan sulit untuk menggunakan apa pun selain sihir angin di langit, sementara di bawah sini sihir lain kemungkinan tidak akan mencapai mereka.] Jadi, bagaimana kalau Aku mencoba bertingkah seperti dance princess pada kesempatan ini?] (Ciel)
+
+[Itu mungkin ide yang bagus. Aku akan memberikan dukungan agar Kamu tidak basah.] (Ain)
+
+Dengan langkah kami selanjutnya yang diputuskan, Aku mulai bernyanyi sekali lagi. Apa yang akan kami tampilkan sekarang adalah semacam upacara persembahan, jadi aku menyanyikan lagu religi yang cocok untuk itu. Ciel menendang tanah, membangun panggung yang disederhanakan.
+
+Setelah itu, Ciel menggunakan jubahnya sebagai pengganti selendang dan berlutut seolah-olah hendak berdoa.
+
+Meskipun kami belum melakukan sebanyak ini sampai sekarang untuk beberapa alasan, ini adalah bentuk paling khas dari kemampuan dance princess.
+
+mengatur panggung, menampilkan musik, dan menawarkan tarian.
 
 Ciel perlahan berdiri dan tanpa ada ketidakseimbangan di inti tubuhnya, dia kemudian melakukan putaran yang lembut dan lambat.
+
 Dia menggerakkan tubuh langsingnya dengan hebat, bergerak seperti aliran yang mengalir lembut, terus menerus menyamai laguku.
+
 Mengikuti gerakannya, jubahnya menangkap udara, yang membentangkannya lebar-lebar, dan mengikuti gerakan Ciel seolah-olah tidak terpengaruh oleh tarikan gravitasi.
 
 Apa yang mungkin menjadi bagian yang paling disesalkan adalah bahwa Ciel mengenakan pakaian yang benar-benar seperti Hunter.
-Atau mungkin galerinya hanya berisi kadal.
-
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Katakan tidak pada pencuri konten!)
+Atau mungkin penontonnya hanya berisi kadal.
 
 Ditutupi awan tebal, langit menjadi gelap dan mungkin merasakan sesuatu, para wyvern mulai bergerak dengan kacau.
 
---Menitik
+--tik
 
 Setetes air hujan jatuh dari langit.
 
---Tetesan-tetesan
+--tik tik tik (bunyi hujan diatas genteng ~~~)
 
 Lalu dua, lalu tiga. Tak lama kemudian, rintik-rintik hujan yang semakin banyak jumlahnya kini jatuh tanpa henti.
-Suara tetesan itu terhubung menjadi satu, dan ujungnya secara bertahap dan terus-menerus dicungkil.
 
-Di tengah derasnya arus, Ciel terus menari sendirian.
+Suara tetesan itu terhubung menjadi satu.
 
-Berputar-putar, seolah tak sabar menunggu berkah biadab ini.
+Di tengah derasnya hujan, Ciel terus menari sendirian.
+
+Berputar-putar, seolah tak sabar menunggu berkah hujan ini.
 
 Mengalir halus dan lambat, seolah merayakan dunia yang kejam ini.
 
 Roh-roh dengan gembira melompat-lompat.
-Roh biru khususnya berenang di langit.
+
+khususnya Roh biru berenang di langit.
 
 Wyvern yang gagal melarikan diri sayapnya terbanting oleh tetesan air hujan dan jatuh ke tanah.
+
 Dan saat kilat menyambar, Ciel mengakhiri tariannya.
+
+-----------------
+
