@@ -92,27 +92,33 @@ Ini menghangatkan hati, jadi semuanya baik-baik saja.
 
 Fakta bahwa roh-roh itu dapat mendengar suaraku tidak terlalu penting juga.
 
-Tidak ada masalah dengan mereka yang digosok. Untuk memulainya, aku bahkan tidak tahu apakah aku bisa memberi buff spirit.
-Bagaimanapun, mereka jelas makhluk yang berbeda dari makhluk hidup normal.
+Tidak ada masalah juga kalau mereka mendapat buff. pada dasarnya, aku bahkan tidak tahu apakah aku bisa memberi buff ke roh.
+
+mereka jelas makhluk yang berbeda dari makhluk hidup normal.
 
 Tetap saja, dari mata orang-orang yang tidak bisa melihat roh, tindakan Ciel cerdik.
-Bagaimanapun, dia tertawa dan tersenyum di langit yang kosong, jadi orang mungkin berpikir bahwa dia gila.
-Sambil mempertimbangkan kebutuhan untuk berpikir saat menggunakan ini, Aku terus bernyanyi seperti biasa karena tidak ada gunanya berbicara dengannya tentang ini sekarang, atau lebih tepatnya kita akan hancur jika Aku berhenti bernyanyi.
+
+dia tertawa dan tersenyum di langit yang kosong, jadi orang mungkin berpikir bahwa dia gila.
+
+Sambil mempertimbangkan kebutuhan untuk berpikir saat menggunakan ini, Aku terus bernyanyi seperti biasa karena tidak ada gunanya berbicara dengannya tentang ini sekarang, atau lebih tepatnya kami akan hancur jika Aku berhenti bernyanyi.
 
 ◇
 
 Tiga hari setelah meninggalkan kota Norvell.
+
 Sambil merenungkan apakah Aku sedang malas atau tidak, Aku berulang kali menyanyikan lagu yang sama.
+
 Atau lebih tepatnya, aku menyanyikan lagu yang bisa terus berlanjut tanpa henti. Aku akan mengganti lagu yang berbeda setelah Aku muak, tetapi Aku mungkin telah menyanyikan lagu yang sama selama beberapa jam sekarang.
 
-Game BGM, mereka luar biasa.
+BGM+ Game, sungguh luar biasa.
 
-Meskipun Aku mungkin bisa mencari lagu biasa juga, Aku tidak cukup ahli untuk melakukannya, jadi lagu yang dibuat berulang dari awal sangat membantu untuk waktu yang lama seperti ini.
+Meskipun Aku mungkin bisa mencari lagu biasa juga, Aku tidak cukup ahli untuk melakukannya, jadi lagu yang dibuat berulang sangat membantu untuk waktu yang lama seperti ini.
 
-Baiklah, mari kita tinggalkan kesan Aku tentang musik.
+Baiklah, mari kita tinggalkan kesanku tentang musik.
 
-Lagi pula, Aku bisa melihat siluet besar dalam bidang penglihatan Aku.
-Akan baik-baik saja jika kita berada di tanah, tetapi tidak peduli bagaimana Aku melihatnya, kita berada di langit.
+Lagi pula, Aku bisa melihat siluet besar dalam bidang penglihatanku.
+---
+Akan baik-baik saja jika kami berada di tanah, tetapi tidak peduli bagaimana Aku melihatnya, kita berada di langit.
 Bukannya monster yang bisa terbang itu tidak ada. Ada monster dengan fitur mirip burung.
 Tapi, monster terbang pada umumnya merepotkan. Fakta bahwa ia bisa terbang cukup merepotkan, tentu saja, tapi ini karena kebanyakan dari mereka juga monster Rank tinggi.
 Iklan
