@@ -26,12 +26,14 @@ Aku bisa berhenti bernyanyi untuk memanggilnya, tetapi dengan metode perjalanan 
 
 Ciel menjadi sangat bersemangat, jadi agar tidak mempengaruhi penilaiannya, aku dengan tenang menyampaikan permintaanku padanya.
 
-Jika kita menghadapi Rank-A, Aku akan menggunakan +BARRIER berbentuk bola. Sekali sudah cukup tapi tolong terima serangan dengan penghalang itu.
+[Jika kita menghadapi Rank-A, Aku akan menggunakan +BARRIER berbentuk bola. Sekali saja sudah cukup tapi tolong terima serangan dengan +BARRIER itu.] (Ain)
 
-Kamu ingin melihat seberapa kuat Rank-A, kan? Tetap saja, Aku pikir penghalang Kamu dapat memblokir serangan mereka sepenuhnya.」
-Serigala emas menerobos penghalang Aku, jadi ......』
-Menurut pendapat Aku, tidak ada yang bisa Kamu lakukan saat itu.
-Penghalang Ain hanyalah lawan yang buruk, jadi tidak perlu khawatir tentang itu.」
+[Kamu ingin melihat seberapa kuat Rank-A, kan? Tetap saja, Aku pikir +BARRIERmu dapat memblokir serangan mereka sepenuhnya.] (Ciel)
+
+[Serigala emas menerobos BARRIERku, jadi ......] (Ain)
+
+[Menurut pendapatku, tidak ada yang bisa Kamu lakukan saat itu. BARRIER Ain hanya tidak cocok dengna lawannya, jadi tidak perlu khawatir tentang itu.] (Ciel)
+
 Aku tidak bisa membantah jika kamu mengatakannya seperti itu tapi... Mengesampingkan itu, kita mungkin mendapat masalah jika tidak melakukannya. periksa kemampuan pertahanan kita saat ini, kau tahu?』
 Itu benar. Aku akan mencoba mengambil beberapa serangan kalau begitu.
 
