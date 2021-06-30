@@ -1,28 +1,40 @@
 CHAPTER 72: ESTOQUE AND PARTING
 
 Saat hujan reda, kami mendekati Wyvern yang tumbang dan melihat tubuh hijau mereka sekarang hangus hitam.
+
 Saat Ciel memanggil petir ke wyvern ini, jika semuanya berjalan dengan baik, mungkin saja dia akhirnya mampu menggunakan sihir petir.
+
 Setelah memastikan kematian mereka, mayat-mayat itu dimasukkan ke dalam tas ajaib kami.
 
 Kemudian, mengamati daerah sekitarnya dengan cermat, Aku melihat bahwa meskipun hujan cukup deras untuk menjatuhkan wyvern, tanahnya hanya berlumpur dan hampir tidak mengalami kerusakan.
+
 Saat roh hutan yang datang bersama kami tersenyum sebagai balasan ketika aku mengarahkan pandanganku padanya, ini mungkin ulah mereka.
+
 Karena, secara alami, menggunakan Putri Tari umumnya akan menyebabkan peningkatan kerusakan tambahan, Aku akan sangat berterima kasih jika mereka melakukan lebih banyak perawatan lanjutan semacam ini.
+
 Karena dia mungkin bisa mendengarku, aku mengucapkan terima kasih tanpa meminjam tubuh Ciel.
 
-Ini harus menjadi yang terakhir dari mereka, kan?」
-Karena ini hanya bagian dari penyerbuan, terbang ke ibukota mungkin merupakan pilihan yang lebih baik.
-Apakah tidak ada monster terbang lain?」
-Bahkan jika ada, itu seharusnya masih kurang merepotkan daripada bepergian di darat.
-Penyerbuan tampaknya berskala besar.』
-Kalau begitu, mari kita lanjutkan setelah istirahat sejenak.」
+[Ini harus menjadi yang terakhir dari mereka, kan?]
+
+[Karena ini hanya bagian dari penyerbuan, terbang ke ibukota mungkin merupakan pilihan yang lebih baik.]
+
+[Apakah tidak ada monster terbang lain?]
+
+[Bahkan jika ada, itu seharusnya masih kurang merepotkan daripada bepergian di darat.]
+
+[Penyerbuan tampaknya berskala besar.]
+
+[Kalau begitu, mari kita lanjutkan setelah istirahat sejenak.]
 
 Mungkin merasa lelah dari pertempuran wyvern, Ciel mengatakannya sebelum menuju ke area yang tidak berlumpur dan basah.
 
-Tetap saja, aku bertanya-tanya mengapa mereka datang ke arah kita?」
-Mungkin karena kita berada di langit?
-Mungkin para wyvern melihat langit sebagai wilayah mereka sendiri dan dengan mereka diaduk oleh penyerbuan, itu mungkin menyebabkan mereka menyerang apa pun yang ada di langit.』
-Langit adalah wilayahku, namun betapa merepotkannya mereka.」
-Aku setuju , mungkin tidak ada yang lebih cocok dengan langit sepertimu, Ciel.
+[Tetap saja, aku bertanya-tanya mengapa mereka datang ke arah kita?]
+
+[Mungkin karena kita berada di langit? Mungkin para wyvern melihat langit sebagai wilayah mereka sendiri dan dengan mereka diaduk oleh penyerbuan, itu mungkin menyebabkan mereka menyerang apa pun yang ada di langit.]
+
+[Langit adalah wilayahku, namun betapa merepotkannya mereka.]
+
+[Aku setuju , mungkin tidak ada yang lebih cocok dengan langit sepertimu, Ciel.]
 
 Bagaimanapun, dia dinamai sesuai dengan langit. Sambil bercanda satu sama lain, kami kemudian beristirahat sejenak.
 
