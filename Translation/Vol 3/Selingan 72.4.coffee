@@ -48,51 +48,55 @@ Selain itu, dia mungkin terkejut dengan kekuatanku, jadi aku ragu.
 
 [Baiklah.] (Viviana)
 
-Meskipun merasa lega dengan kata-katanya, Aku juga tertekan oleh bagaimana permintaannya berikutnya meninggalkan sebagian besar pemikiran Aku.
-Sebuah sihir yang bisa menunjukkan kemampuan seseorang, menurutku, sangat sulit untuk dipilih.
-Mungkinkah dia menilai Aku berdasarkan pilihan sihir Aku di sini juga?
+Meskipun merasa lega dengan kata-katanya, Aku juga tertekan oleh bagaimana permintaannya berikutnya,
 
-Iklan
+Sebuah sihir yang bisa menunjukkan kemampuan seseorang, menurutku, sangat sulit untuk dipilih.
+
+Mungkinkah dia menilaiku berdasarkan pilihan sihirku di sini juga?
 
 Saat aku sedang berpikir keras, Cielmer menciptakan dinding tanah yang akan menjadi targetnya.
+
 Dari segi jarak, seharusnya sekitar 12-13 langkah.
+
 Itu tidak berarti jauh, tetapi sangat sulit untuk mencapai target sejauh ini untuk pemula dalam sihir.
 
-Bagaimanapun, berpikir bahwa sihir yang biasanya aku gunakan sudah cukup baik, aku mulai membaca mantraku yang biasa.
-Lima bola api ditembakkan secara berurutan. Agak sulit untuk dikendalikan, tetapi karena Aku tidak dapat menghasilkan banyak kekuatan ofensif, ini adalah satu-satunya pilihan Aku.
-Yaitu, untuk menutupi manipulasi kekuatan sihirku dan menggunakan sihir beberapa kali dengan satu mantra. Ini adalah kekuatan sihir Aku, kecepatan dan pemboman terus menerus.
-Masalahnya adalah, casting chantless umum untuk sihir khusus seseorang menjadi biasa semakin tinggi tingkat pekerjaan sihir dan dengan demikian, semakin Aku Rank, semakin Aku kehilangan keuntungan Aku.
+Bagaimanapun juga, berpikir bahwa sihir yang biasanya aku gunakan sudah cukup baik, aku mulai membaca mantraku.
 
-Satu dari lima meleset dari target, tapi hanya itu yang bisa kulakukan dengan level manipulasi kekuatan sihirku.
-Jika Aku harus membuat alasan, sihir Aku akan berbahaya jika dicoba oleh orang lain.
+Lima bola api ditembakkan secara berurutan. Agak sulit untuk dikendalikan, tetapi karena Aku tidak dapat menghasilkan banyak kekuatan ofensif, ini adalah satu-satunya pilihanku.
 
-Setelah melihat sihirku, Cielmer muncul seolah-olah dia sedang memikirkan sesuatu sebelum memberitahuku untuk menggunakan lingkaran sihir kali ini.
+Yaitu, untuk menutupi manipulasi energi sihirku dan menggunakan sihir beberapa kali dengan satu mantra. Ini adalah kekuatan sihirku, kecepatan dan pemboman terus menerus.
+
+Masalahnya adalah, tidak menyebutkan mantra untuk sihir khusus akan menjadi biasa semakin tinggi tingkat job sihir dan dengan demikian, semakin Ranku naik, semakin Aku kehilangan keuntunganku.
+
+Satu dari lima meleset dari target, tapi hanya itu yang bisa kulakukan dengan level manipulasi energi sihirku.
+
+Jika Aku harus membuat alasan, sihirku akan berbahaya jika dicoba oleh orang lain.
+
+Setelah melihat sihirku, Cielmer sepertinya seolah-olah dia sedang memikirkan sesuatu sebelum memberitahuku untuk menggunakan lingkaran sihir kali ini.
 
 Sejujurnya, aku sangat buruk dengan lingkaran sihir. Tetap saja, tidak melakukan ini tidak akan memulai apa pun.
 Butuh beberapa waktu, tetapi Aku berhasil menghancurkan dinding tanah yang tidak dapat Aku rusak sebelumnya.
 
-"Bagaimana itu?"
+"Bagaimana?" (Viviana)
 
-Sekarang Aku telah menunjukkan apa yang Aku bisa, Aku meminta kritik.
-Aku benar-benar mengungkapkan kecanggungan Aku sehingga tidak ada yang bisa Aku lakukan untuk saat ini.
-Iklan
+Sekarang Aku telah menunjukkan apa yang Aku bisa, Aku meminta kritiknya.
 
+Aku benar-benar mengungkapkan kecerobohanku sehingga tidak ada yang bisa Aku lakukan untuk saat ini.
 
-Viviana- san , kamu bukan orang biasa, kan?」
-Apa ini tiba-tiba?」
+"Viviana-san, kamu bukan orang biasa, kan?" (Ain)
+
+"ada apa kenapa tiba=tiba bertanya begitu?" (Viviana)
 
 Apakah dia mungkin bermaksud mengatakan bahwa Aku yang kurang dalam kekuatan sihir?
-Mengabaikan total kekuatan sihirku, mengingat jumlah kekuatan sihir yang bisa aku gunakan pada satu waktu, mau bagaimana lagi. Meskipun Aku sudah mendengar komentar semacam ini berkali-kali sampai sekarang, Aku tidak terlalu senang mendengarnya.
-Aku kira itu masih cukup baik bahwa dia tidak menghina Aku secara langsung. Saat aku memikirkan itu, Cielmer terus berbicara.
 
-Hanya saja ... ini bukan sesuatu yang bisa Aku katakan secara gratis, Kamu tahu.
-Aku pikir Kamu sudah tahu sebanyak ini, tetapi yang bisa Aku katakan secara hukum adalah bahwa Kamu "tidak baik dengan sirkulasi".」
+Mengabaikan total kekuatan sihirku, mengingat jumlah kekuatan sihir yang bisa aku gunakan pada satu waktu, yah mau bagaimana lagi. Meskipun Aku sudah mendengar komentar semacam ini berkali-kali sampai sekarang, Aku tidak terlalu senang mendengarnya.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Aku kira itu masih cukup baik bahwa dia tidak menghinaku secara langsung. Saat aku memikirkan itu, Cielmer terus berbicara.
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"Hanya saja ... ini bukan sesuatu yang bisa Aku katakan secara gratis. Aku pikir Kamu sudah tahu sebanyak ini, tetapi yang bisa Aku katakan sekarang hanya bahwa Kamu 'tidak baik dengan sirkulasi'." (Ain)
 
 Dia secara akurat mengenai titik lemahku.
+
 Dengan bukan sesuatu yang bisa dia katakan secara gratis, apakah itu berarti dia memiliki beberapa saran untukku?
 Dalam hal ini, dia pada dasarnya berbeda dari orang-orang yang Aku konsultasikan sampai sekarang.
 Dan jika demikian, mungkin yang terbaik adalah menjawab pertanyaan dengan jujur. Dia sepertinya tidak sedang mempermainkanku.
