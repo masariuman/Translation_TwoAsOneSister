@@ -179,64 +179,84 @@ Mataku dibutakan saat Aku meninggalkan hutan yang redup, jadi Aku membuat bayang
 
 Dan saat aku menggerakkan tanganku ke samping, di depan mataku ada warna biru yang luas.
 
-Aku bisa memahami birunya langit di atas Aku, tetapi biru luas di depan Aku jauh dan luas, dan meskipun terhubung ke langit, jelas merupakan sesuatu yang berbeda.
+Aku bisa memahami birunya langit di atasku, tetapi biru luas di depanku jauh dan luas, dan meskipun terhubung ke langit, jelas merupakan sesuatu yang berbeda.
 
 Selain itu, tidak seperti langit, yang satu ini berkilau karena memantulkan cahaya matahari.
 
 Saat Aku menyadari bahwa biru luas ini semuanya air, Aku segera mengerti bahwa inilah yang disebut laut.
 
 Begitu luas. Sangat biru. Mataku, apakah mereka juga berkilau seperti ini?
-Apakah ini cara Ain melihat mereka?
 
-Iklan
+Apakah ini bagaimana ain melihat mataku?
 
-Ain! Ain! Airnya sangat biru!」
-Ya, cukup biru.』
-Dan itu sangat besar!」 Ya
-, ini benar-benar membawaku kembali. Ini adalah pertama kalinya Aku melihat laut di sini.
+[Ain! Ain! Airnya sangat biru!] (Ciel)
+
+[Ya, cukup biru.] (Ain)
+
+[Dan itu sangat besar!] (Ciel)
+
+[Ya, ini benar-benar membuatku bernostalgia. Ini adalah pertama kalinya Aku melihat laut di sini.] (Ain)
 
 Perasaan melihat sesuatu untuk pertama kalinya. Aku tidak tahu bagaimana mengungkapkan perasaan ini kepada Ain, jadi Aku berbicara sambil membiarkan kata-kata Aku keluar dengan sendirinya.
-Aku ingin berbagi perasaan ini dengan Ain, Aku ingin dia kagum seperti Aku juga.
-Tapi setelah mendengar jawaban Ain, aku menyadari sesuatu. Ini bukan pertama kalinya Ain melihat laut.
-Dengan itu dalam pikiran Aku, Aku tidak bisa membantu tetapi menjadi sedikit murung.
 
-Ain, apakah lautan yang pernah kamu lihat sebelumnya ... juga seperti ini?」
+Aku ingin berbagi perasaan ini dengan Ain, Aku ingin dia kagum seperti Aku juga.
+
+Tapi setelah mendengar jawaban Ain, aku menyadari sesuatu. Ini bukan pertama kalinya Ain melihat laut.
+
+Dengan itu dalam pikiranku, Aku tidak bisa menahannya tetapi menjadi sedikit murung.
+
+[Ain, apakah lautan yang pernah kamu lihat sebelumnya ... juga seperti ini?] (Ciel)
 
 Ingin lebih memahami emosi Ain, aku menanyakan itu.
 
-"Ayo lihat. Langit dan laut berwarna biru, dan awan serta ombak berwarna putih. Seperti yang ada dalam ingatanku.
-Tapi, ada sesuatu yang berbeda sekarang.』
-Benarkah? Apa itu? 」
-『Aku tidak bisa melihat roh kembali kemudian.』
-「Fufu , mereka terlihat seperti mereka sedang menikmati diri mereka sendiri. Katakan, Ain.」
+[hmmmm... Langit dan laut berwarna biru, dan awan serta ombak berwarna putih. Seperti yang ada dalam ingatanku. Tapi, ada sesuatu yang berbeda sekarang.] (Ain)
+
+[Benarkah? Apa itu?] (Ciel)
+
+[Aku tidak bisa melihat roh dulunya.] (Ain)
+
+[Fufu, mereka terlihat seperti mereka sedang menikmati diri mereka sendiri. hey, Ain...] (Ciel)
 
 Lautan di mana roh-roh ceria bermain-main. Sepertinya Ain belum pernah melihat yang seperti ini sebelumnya.
-Jika itu masalahnya, apakah saat ini kita mengalami hal yang sama untuk pertama kalinya?
 
-Apa itu?』
-Ini bukan seluruh lautan, kan?」
-Ya, itu harus mengelilingi benua, jadi Kamu dapat mengatakan bahwa lautan di sini hanya sebagian kecil darinya.
-Lautan ini menghadap ke tebing, tetapi seharusnya ada tempat di mana ada pelabuhan yang dibangun untuk memancing dan Aku percaya bahwa ada pantai berpasir di mana Kamu bisa lebih dekat dengan laut.』
+Jika itu masalahnya, apakah saat ini kami mengalami hal yang sama untuk pertama kalinya?
+
+[ada Apa?] (Ain)
+
+[Ini bukan seluruh lautan, kan?] (Ciel)
+
+[Ya, laut harus mengelilingi benua, jadi Kamu dapat mengatakan bahwa lautan di sini hanya sebagian kecil darinya. Lautan ini menghadap ke tebing, tetapi seharusnya ada tempat di mana ada pelabuhan yang dibangun untuk memancing dan Aku percaya bahwa ada pantai berpasir di mana Kamu bisa lebih dekat dengan laut.] (Ain)
 
 Mungkin ada lautan yang belum pernah dilihat Ain sebelumnya.
+
 Lain kali Aku melihat laut, itu bukan pertama kalinya Aku melihat laut juga.
+
 Kalau begitu, apakah itu akan membuatku lebih dekat dengan Ain?
 
-Kalau begitu, begitu kita meninggalkan negara ini, mari kita pergi melihat berbagai lautan lainnya. Mari kita lihat berbagai langit lainnya. Yuk kunjungi berbagai tempat lainnya. Lalu……"
+[Kalau begitu, ketika kita meninggalkan negara ini, mari kita pergi melihat berbagai lautan lainnya. Mari kita lihat berbagai langit lainnya. ayo kunjungi berbagai tempat lainnya. Lalu......] (Ciel)
 
-Mari kita banyak mengenang di sini, di sini, di lautan pertama yang kita lihat bersama.
-
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Katakan tidak pada pencuri konten!)
+ayo kita banyak mengenang di sini, di sini, di lautan pertama yang kita lihat bersama.
 
 Itulah yang Aku pikirkan untuk dikatakan, tetapi Aku memutuskan untuk menahan diri untuk saat ini.
-Lagi pula, tidak ada yang tahu kapan kita akan kembali ke sini dan sampai sekarang, kita masih tidak memiliki kenangan untuk dikenang.
+
+Lagi pula, tidak ada yang tahu kapan kami akan kembali ke sini dan sampai sekarang, kami masih tidak memiliki kenangan untuk dikenang.
 
 Selain itu, Aku yakin bahwa percakapan semacam itu terjadi secara spontan tanpa perencanaan sebelumnya.
 
-Lalu apa?』
-Bukan apa-apa. Jangan khawatir tentang itu.
+[Lalu apa?] (Ain)
+
+[Bukan apa-apa. Jangan khawatir tentang itu.] (Ciel)
 
 Aku menggelengkan kepalaku dan mengakhiri percakapan.
-Begitukah. Ketika Aku mendengar Ain bergumam, Aku membakar adegan ini ke dalam ingatan Aku, sehingga suatu hari nanti Aku dapat berbicara tentang lautan yang kita lihat di sini.
+
+[Begitu.] Ketika Aku mendengar Ain bergumam, Aku membakar adegan ini ke dalam ingatanku, sehingga suatu hari nanti Aku dapat berbicara tentang lautan yang kami lihat di sini.
+
+--------------------------
+
+Akhirnya SUDUT PANDANG DEDEK CIEEEEL !!!!!!
+
+pertama tama, seperti sebelumnya, saya sangat bersemangat menerjemahkan ini, mengapa ? karena kita bisa melihat dedek ciel kita bersikap layaknya anak 12 tahun !!! riang menemukan hal-hal baru !!!!! bahkan dedek ciel kita sangat bersenang senang dengan roh... tapi dedek ciel kita sepertinya terlalu dipaksakan bersikap dewasa, tidak apa-apa bergantung sama ain dan berpikir riang saja... tidak perlu menyesal tidak waspada... ain kita akan selalu melindungi dedek ciel kita !!!
+
+daaaaaaaaaaaannnn, akhirnya kita tahu apa yang dipikirkan dedek ciel ketika tidak menyelesaikan perkataannya !!! agak sedih juga... tapi saya harap itu terjadi, dimana nanti ketika perjalanan berakhir, mereka mengenang disini atau membuat rumah disini ? entahlah tapi ini rasanya membuat saya terharu... semoga ain kita sangat peka kepada dedek ciel kita... karena sesungguhnya dedek ciel kita sangat membutuhkan perhatian dan kasih sayang... bersikap tidak peduli atau kuat bukan berarti dedek ciel kita tidak membutuhkan kasih sayang dan perhatian ... semoga saja mereka bahagia !!!
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
