@@ -150,64 +150,92 @@ Lagi pula, ada beberapa orang yang mendekat.
 ◇
 
 Setelah mengalahkan si pembunuh dan Hunter yang pendendam, Aku menyerahkan penanganan si pembunuh kepada Cielmer.
+
 Dia tampaknya memiliki beberapa kontak untuk ini, tetapi bukankah dia baru saja tiba di sini di ibukota beberapa hari yang lalu?
+
 Yah, Cielmer seharusnya tidak memiliki masalah, jadi aku mungkin tidak perlu terlalu mengkhawatirkannya.
+
 Bahkan jika si pembunuh terbunuh di suatu tempat di luar pandanganku, si pembunuh hanya mendapatkan apa yang pantas dia dapatkan.
 
-Karena Aku telah menyelesaikan tugas Aku, Aku menuju ke penginapan tempat Cielmer menginap.
-Serius, kenapa dia tinggal di penginapan kelas atas seperti itu.
+Karena Aku telah menyelesaikan tugasku, Aku menuju ke penginapan tempat Cielmer menginap.
 
-Menyampaikan tujuan Aku ke resepsionis, Aku dipandu ke kamarnya.
-Setelah resepsionis mengetuk pintu dan Tamu Kamu telah tiba. berkata demikian, Cielmer membuka pintu tanpa berpikir dua kali.
-Orang-orang mencoba mengambil nyawanya beberapa saat yang lalu, bukankah ini terlalu ceroboh terhadapnya?
+kenapa dia tinggal di penginapan kelas atas seperti itu.
 
-「Ketika Aku membuka pintu, Kamu membuat wajah aneh, kan?」
-「Itulah hal pertama yang Kamu tanyakan? Sepertinya kamu agak ceroboh mengingat situasimu, itu saja.」
-Kamulah yang membawaku keluar ketika aku berencana untuk menghabiskan sepanjang hari di dalam kamarku, kamu tahu?」
-Itu ...... aku punya keadaanku sendiri , baik. Aku sudah memberitahumu itu, bukan?
+Menyampaikan tujuanku ke resepsionis, Aku dipandu ke kamarnya.
+
+Setelah resepsionis mengetuk pintu dan berkata "Tamumu telah tiba.", Cielmer membuka pintu tanpa berpikir dua kali.
+
+Orang-orang mencoba mengambil nyawanya beberapa saat yang lalu, bukankah ini terlalu ceroboh?
+
+"Ketika Aku membuka pintu, Kamu membuat wajah aneh, kan?" (Ain)
+
+"Itulah hal pertama yang Kamu tanyakan? Sepertinya kamu agak ceroboh mengingat situasimu, itu saja." (Viviana)
+
+"Kamulah yang membawaku keluar ketika aku berencana untuk menghabiskan sepanjang hari di dalam kamarku, kamu tahu?" (Ain)
+
+"Itu ...... aku punya keadaanku sendiri. Aku sudah memberitahumu, kan?" (Viviana)
 
 Mengungkapkan fakta bahwa aku membawanya sejujurnya menyakitkan.
-Karena Aku tidak bisa mengatakan apa-apa selain itu, Aku menatapnya membela diri dan Itu benar. dia dengan cepat mundur.
-Seolah-olah aku anak di sini.
+
+Karena Aku tidak bisa mengatakan apa-apa selain itu, Aku menatapnya membela diri dan "Itu benar." dia dengan cepat mundur.
+
+Seolah-olah akulah anak kecil di sini.
 
 Setelah itu, kami membahas keadaan serangan yang terjadi tadi.
+
 Dari sisi Cielmer, tampaknya seorang bangsawan terlibat dan karena Ketua Guild kemungkinan besar akan terlibat dalam hal ini, tidak peduli seberapa banyak aku memikirkannya, itu membuatku sakit kepala.
-Terlebih lagi, Cielmer tampaknya memiliki hubungan dengan pemimpin bawah tanah guild secara tiba-tiba. Ini hanya sakit kepala satu demi satu.
 
-Ngomong-ngomong, kita sedang membicarakan kompensasiku, kan?」
-Ya, benar. Itulah mengapa aku bergegas ke sini.
+Terlebih lagi, Cielmer tampaknya memiliki hubungan dengan pemimpin guild Underground secara tiba-tiba. Ini hanya membuatku sakit kepala.
 
-Kita akhirnya kembali ke topik yang ingin Aku bahas.
-Tidak hanya masalah jangka panjang Aku yang akan terpecahkan, melihat proses untuk melakukannya mungkin menunjukkan kepada Aku kemungkinan baru dalam ilmu sihir juga.
+"Ngomong-ngomong, kita sedang membicarakan kompensasiku, kan?" (Ain)
+
+"Ya, benar. Itulah mengapa aku bergegas ke sini." (Viviana)
+
+kami akhirnya kembali ke topik yang ingin Aku bahas.
+
+Tidak hanya masalah jangka panjangku yang akan terpecahkan, melihat proses untuk melakukannya mungkin menunjukkan kepadaku kemungkinan baru dalam sihir juga.
+
 Cielmer pasti menyembunyikan sesuatu. Kompensasinya akan menjadi menakutkan secara proporsional.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Karena Aku mungkin membutuhkannya ketika Aku pergi ke Central, Aku ingin meminta perlindungan dari keluargamu." (Ain)
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"Oh, itu benar. Karena itu kamu, kemungkinan besar kamu akan mencapai Rank B dalam waktu dekat. Dan memiliki seseorang yang mendukungmu, dalam arti tertentu, akan memudahkanmu untuk bergerak. Tetap saja, apa yang Kamu maksud dengan 'mungkin membutuhkannya'?" (Viviana)
 
-Karena Aku mungkin membutuhkannya ketika Aku pergi ke Central, Aku ingin meminta perlindungan dari keluarga Kamu.」
-Oh, itu benar. Karena itu kamu, kemungkinan besar kamu akan mencapai Rank B dalam waktu dekat.
-Dan memiliki seseorang yang mendukung Kamu, dalam arti tertentu, akan memudahkan Kamu untuk bergerak. Tetap saja, apa yang Kamu maksud dengan ' mungkin membutuhkannya '?」
-Aku sudah memiliki orang lain yang mungkin melindungi Aku, jadi itu untuk asuransi.」
-Diperlakukan sebagai asuransi cukup kasar, bukan begitu?」
-Iklan
+"Aku sudah memiliki orang lain yang mungkin melindungiku, jadi itu untuk asuransi." (Ain)
+
+"Diperlakukan sebagai asuransi cukup kasar, kan?" (Viviana)
 
 
 Sebagai seseorang yang pernah dianggap sebagai wanita dari keluarga terhormat, terlepas dari penampilanku, diperlakukan dengan enteng itu tidak menyenangkan.
-Bagaimanapun, penampilan itu penting di dunia itu. Kebanggaan lebih penting daripada makanan. Padahal, bagaimanapun juga, aku bukan lagi penghuni dunia itu.
 
-Aku lebih suka aman daripada bersikap sopan. Selain itu, aku punya firasat bahwa kamu tidak akan marah karena hal seperti itu.」
-Yah, itu benar. Tetap saja, itu bukan sesuatu yang bisa Aku putuskan sendiri, dan bahkan jika Aku mendukung Kamu sendiri, Aku bukan pewaris yang sah, jadi itu tidak akan berarti banyak.
-Jadi sebagai gantinya, maukah Kamu menyelesaikan dengan pengenalan rumah? Jika ada hal lain, maka Aku akan mempertimbangkannya juga.
+Bagaimanapun juga, penampilan itu penting di dunia Bangsawan itu. Kebanggaan lebih penting daripada makanan. Padahal, bagaimanapun juga, aku bukan lagi penghuni dunia itu.
 
-Apakah Aku begitu mudah dibaca? Aku sudah hidup sebagai Hunter untuk waktu yang lama sekarang, jadi tidak ada yang membantu.
-Sejujurnya, Aku ingin memberikan janji yang tegas, tetapi karena ini masalah keluarga, penilaian kepala keluarga akan diperlukan.
+"Aku lebih suka aman daripada bersikap sopan. Selain itu, aku punya firasat bahwa kamu tidak akan marah karena hal seperti itu." (Ain)
+
+"Yah, itu benar. Tetap saja, itu bukan sesuatu yang bisa Aku putuskan sendiri, dan bahkan jika Aku mendukungmu sendiri, Aku bukan pewaris yang sah, jadi itu tidak akan berarti banyak. Jadi sebagai gantinya, maukah Kamu mengenalkan dirimu kerumahku? Jika ada hal lain, maka Aku akan mempertimbangkannya juga." (Viviana)
+
+Apakah Aku begitu mudah dibaca? Aku sudah hidup sebagai Hunter untuk waktu yang lama sekarang, jadi mau bagaimana lagi.
+
+Sejujurnya, Aku ingin memberikan janji yang pasti, tetapi karena ini masalah keluarga, penilaian kepala keluarga akan diperlukan.
+
 Karena perkenalan yang tidak dapat diandalkan jelas tidak cukup sebagai hadiah, Aku memutuskan untuk bertanya kepada Cielmer apakah dia memiliki permintaan lain.
 
-Kalau begitu, bisakah Kamu menulis surat pengantar untuk Aku? Aku tidak yakin kapan Aku akan mencapai Rank B, dan juga tidak ada jaminan bahwa Aku akan dapat menghubungi Kamu ketika saatnya tiba.
+"Kalau begitu, bisakah Kamu menulis surat pengantar untukku? Aku tidak yakin kapan Aku akan mencapai Rank B, dan juga tidak ada jaminan bahwa Aku akan dapat menghubungimu ketika saatnya tiba." (Ain)
 
 Dalam hal surat pengantar, maka perlu mempertimbangkan isi yang akan ditulis.
+
 Bergantung pada apa yang tertulis, itu mungkin dapat digunakan untuk orang lain selain Cielmer, dengan risiko penyalahgunaannya.
-Tapi, karena itu hanya akan sedikit lebih banyak bekerja di pihak Aku, Aku setuju. Sebaliknya, itu masih tidak cukup untuk menebus kompensasi jika Kamu bertanya kepada Aku.
+
+Tapi, karena itu hanya akan sedikit lebih banyak pekerjaan di pihakku, Aku setuju. Sebaliknya, menurutku itu masih tidak cukup untuk menebus kompensasi.
+
 Setelah ini Aku diminta untuk merahasiakan apa yang terjadi di sini, tetapi bahkan Aku tidak serendah itu untuk menyebarkan ini ke publik.
+
 Dan akhirnya, Cielmer memulai penjelasannya.
+
+--------------------------
+
+yeoo kali ini kita masuk ke selingan dengan sudut pandang viviana ketika viviana ingin meminta saran dan bantuan dari ainciel kita... saya penasaran akan ada berapa banyak sudut pandang yang akan dibahas di arc ini... karena memang saya juga penasaran apa yang dipikirkan viviana ketika bersama ainciel, mandi bersama, dan sebagainya... 
+
+untuk chapter kali ini kurang lebih mirip dengan chapter 55-57, tapi kali ini kita hanya melihat dari sudut pandang viviana saja, dan banyak yang diringkas berhubung kita juga sudah tahu bagaimana pertarungan dan hal-hal yang tidak diperlukan untuk mengetahui pemikiran sudut pandang viviana kali ini... dan kali ini kita bisa mengetahui sebenarnya viviana mempercayai ainciel kita, dan viviana masih merasa sangat berhutang budi kepada ainciel kita dan dia berpikir apa yang diminta ainciel masih belum cukup untuk membayar semuanya... yah semoga saja ini berlanjut, saya penasaran apa yang viviana pikirkan ketika mandi bersama ainciel, atau ketika dia mengetahui ainciel kita sudah naik rank menjadi rank-b... menarik, sungguh menarik !!
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
