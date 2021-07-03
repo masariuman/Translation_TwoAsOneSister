@@ -7,32 +7,46 @@ Gadis itu, Cielmer,benar-benar tidak bersalah dalam situasi ini, tetapi karena J
 Aku tidak terlalu mempermasalahkan itu, justru situasi seperti inilah yang menyebabkan kami ada di sini, jadi aku dengan senang hati menerimanya.
 
 Tapi, jika Aku harus mengakui apakah Cielmer membutuhkan perlindungan atau tidak, itu mungkin tidak.
-Melawan seorang pembunuh yang bisa Aku tangani, Cielmer akan mampu menanganinya sendiri; sementara itu seorang pembunuh yang bahkan dia tidak bisa tangani adalah sesuatu yang tidak akan mampu aku lawan.
-Kemampuannya sebagai seorang penyihir jauh lebih besar dariku. Kegagalan sepertiku yang tidak bisa mengedarkan kekuatan sihir dengan benar tidak bisa dibandingkan. Jika Aku harus mengatakan, Aku kira Aku di sini sebagai tindakan balasan terhadap kesombongan diri yang dapat disebabkan oleh usianya.
+
+Melawan seorang pembunuh yang bisa Aku tangani, Cielmer akan mampu menanganinya sendiri; tapi seorang pembunuh yang bahkan tidak bisa dia tangani adalah sesuatu yang tidak akan mampu aku lawan.
+
+Kemampuannya sebagai seorang penyihir jauh lebih besar dariku. Kegagalan sepertiku yang tidak bisa mengedarkan energi sihir dengan benar tidak bisa dibandingkan. mungkin aku di sini sebagai tindakan balasan terhadap keangkuhan diri yang dapat disebabkan oleh usianya.
 
 Terhadap seseorang seperti dia yang jauh di atasku, yang kumiliki bukanlah rasa iri melainkan rasa hormat.
-Dia gadis berusia dua belas tahun. Apa yang Kamu bahkan lakukan untuk menjadi begitu mampu pada usia itu?
-Ada orang bodoh di luar sana yang akan menunjuk dan berteriak "Cheater!" terhadap orang-orang yang unggul tetapi pada level Cielmer, itu bukan sesuatu yang bisa dijelaskan hanya dengan itu.
-Jika hanya selingkuh bisa membuat seorang gadis berusia 12 tahun menjadi sekuat ini, maka kekuatan para penyihir saat ini seharusnya dua atau tiga tingkat lebih besar dari sekarang.
 
-Singkatnya, apa yang ingin Aku katakan adalah bahwa tidak dapat dihindari bagi Aku untuk berkonsultasi dengan Cielmer tentang sihir Aku.
-Ketika Kamu menyadari kekurangan Kamu sendiri dan seseorang yang lebih besar dari Kamu muncul, mau tidak mau Kamu ingin meminta bimbingan mereka.
-Jika seorang pendekar pedang Rank-S muncul di hadapan kita, aku yakin Chasse akan memohon untuk memiliki spar juga.
+Dia gadis berusia dua belas tahun. Apa yang bahkan Kamu lakukan untuk menjadi begitu pada usia itu?
+
+Ada orang bodoh di luar sana yang akan menunjuk dan berteriak "Cheater!"+ terhadap orang-orang yang unggul tetapi pada level Cielmer, itu bukan sesuatu yang bisa dijelaskan hanya dengan itu.
+
+Jika hanya curang bisa membuat seorang gadis berusia 12 tahun menjadi sekuat ini, maka kekuatan para penyihir saat ini seharusnya dua atau tiga tingkat lebih besar dari yang ada sekarang.
+
+Singkatnya, apa yang ingin Aku katakan adalah bahwa tidak dapat dihindari bagiku untuk berkonsultasi dengan Cielmer tentang sihirku.
+
+Ketika Kamu menyadari kekuranganmu sendiri dan seseorang yang lebih besar darimu muncul, mau tidak mau Kamu ingin meminta bimbingan mereka.
+
+Jika seorang pendekar pedang Rank-S muncul di hadapan kami, aku yakin Chasse akan memohon untuk latih tanding juga.
 
 Dengan mengatakan itu, kami pergi ke luar tembok ibu kota.
+
 Membawa target pengawal ke luar tembok adalah ide yang bodoh, jadi aku cukup ragu.
+
 Tapi, hanya karena kita di luar bukan berarti aku mengabaikan tugas penjagaanku.
+
 Membuat alasan itu untuk diriku sendiri, aku memutuskan untuk berkonsultasi dengan Cieler dengan sihirku.
 
-Sekarang, apa yang harus dilakukan. Silakan gunakan sihir terkuat Kamu ... Itu tidak mungkin, kan?
+[Sekarang, apa yang harus dilakukan. Silakan gunakan sihir terkuatmu ... Itu tidak mungkin, kan?] (Ain)
 
 Saat meminta saran, tidak diragukan lagi bahwa menampilkan sihir terkuat adalah metode yang efektif.
-Tapi, untuk seorang pengawal, mengkonsumsi sejumlah besar kekuatan sihir sulit untuk diabaikan begitu saja.
+
+Tapi, untuk seorang pengawal, mengkonsumsi sejumlah besar energi sihir sulit untuk diabaikan begitu saja.
+
 Selain itu, dia mungkin terkejut dengan kekuatanku, jadi aku ragu.
 
-...... Aku harus mempertahankan setidaknya cukup sihir untuk melindungi Kamu, jadi tentu saja, ya.」
-Dalam hal ini, Aku akan membuat target, jadi tolong lemparkan sihir yang dapat menampilkan kemampuan Kamu sampai batas tertentu. 」
-「Dipahami.」
+[...... Aku harus mempertahankan setidaknya memiliki cukup sihir untuk melindungimu, jadi tentu saja, ya.] (Viviana)
+
+[kalau begitu, Aku akan membuat target, jadi tolong tembakkan sihir yang dapat menampilkan kemampuanmu sampai batas tertentu.] (Ain)
+
+[Baiklah.] (Viviana)
 
 Meskipun merasa lega dengan kata-katanya, Aku juga tertekan oleh bagaimana permintaannya berikutnya meninggalkan sebagian besar pemikiran Aku.
 Sebuah sihir yang bisa menunjukkan kemampuan seseorang, menurutku, sangat sulit untuk dipilih.
