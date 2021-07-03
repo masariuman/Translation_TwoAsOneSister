@@ -1,8 +1,10 @@
 INTERLUDE: VIVIANA, SORCERY GUIDANCE, AND RESULTS
 
-Kemarin seorang gadis yang bahkan belum dewasa melawan guildmaster.
-Gadis itu—Cielmer—benar-benar tidak bersalah dalam situasi ini, tetapi karena Ayubnya dan gravitasi dari apa yang dia katakan, diputuskan bahwa aku menjaganya.
-Aku tidak terlalu mempermasalahkan itu, justru situasi seperti inilah yang menyebabkan kita ada di sini, jadi aku dengan senang hati menerimanya.
+Kemarin seorang gadis yang bahkan belum dewasa melawan Ketua Guild.
+
+Gadis itu, Cielmer,benar-benar tidak bersalah dalam situasi ini, tetapi karena Jobnya dan tekanan dari apa yang dia katakan, diputuskan bahwa aku menjaganya.
+
+Aku tidak terlalu mempermasalahkan itu, justru situasi seperti inilah yang menyebabkan kami ada di sini, jadi aku dengan senang hati menerimanya.
 
 Tapi, jika Aku harus mengakui apakah Cielmer membutuhkan perlindungan atau tidak, itu mungkin tidak.
 Melawan seorang pembunuh yang bisa Aku tangani, Cielmer akan mampu menanganinya sendiri; sementara itu seorang pembunuh yang bahkan dia tidak bisa tangani adalah sesuatu yang tidak akan mampu aku lawan.
@@ -141,7 +143,7 @@ Karena Aku tidak bisa mengatakan apa-apa selain itu, Aku menatapnya membela diri
 Seolah-olah aku anak di sini.
 
 Setelah itu, kami membahas keadaan serangan yang terjadi tadi.
-Dari sisi Cielmer, tampaknya seorang bangsawan terlibat dan karena guildmaster kemungkinan besar akan terlibat dalam hal ini, tidak peduli seberapa banyak aku memikirkannya, itu membuatku sakit kepala.
+Dari sisi Cielmer, tampaknya seorang bangsawan terlibat dan karena Ketua Guild kemungkinan besar akan terlibat dalam hal ini, tidak peduli seberapa banyak aku memikirkannya, itu membuatku sakit kepala.
 Terlebih lagi, Cielmer tampaknya memiliki hubungan dengan pemimpin bawah tanah guild secara tiba-tiba. Ini hanya sakit kepala satu demi satu.
 
 Ngomong-ngomong, kita sedang membicarakan kompensasiku, kan?」
