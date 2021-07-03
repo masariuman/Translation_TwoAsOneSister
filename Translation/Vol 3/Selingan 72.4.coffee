@@ -98,44 +98,54 @@ Aku kira itu masih cukup baik bahwa dia tidak menghinaku secara langsung. Saat a
 Dia secara akurat mengenai titik lemahku.
 
 Dengan bukan sesuatu yang bisa dia katakan secara gratis, apakah itu berarti dia memiliki beberapa saran untukku?
-Dalam hal ini, dia pada dasarnya berbeda dari orang-orang yang Aku konsultasikan sampai sekarang.
-Dan jika demikian, mungkin yang terbaik adalah menjawab pertanyaan dengan jujur. Dia sepertinya tidak sedang mempermainkanku.
 
-"Betul sekali. Aku, dalam arti tertentu, adalah seorang bangsawan. Tapi, bukan bangsawan kerajaan ini tepatnya.
-Aku anggota keluarga terkemuka di Central, Aku kira.
-The Central adalah tempat Markas Besar Persekutuan dan begitu juga berada, kan?
-Ada bangsawan di sana? Aku agak berharap tidak ada.
+dia berbeda dari orang-orang yang Aku konsultasikan sampai sekarang.
 
-Agak sulit menjelaskan tentang Central. Sebaliknya, sering terjadi bahkan di negara lain yang orang tidak akan mengerti.
-Jika hanya berdasarkan garis keturunan, maka kita akan menjadi bangsawan dari satu negara, tetapi bukan bangsawan yang terdaftar di negara lain.
-Dan bahkan di Central, kami sebenarnya bukan bangsawan, tepatnya. Tapi, karena lebih mudah untuk menjelaskannya dengan cara ini, Aku akan berhenti di situ.
+Dan jika demikian, mungkin yang terbaik adalah menjawab pertanyaannya dengan jujur. Dia sepertinya tidak sedang mempermainkanku.
 
-Ada bangsawan, kurang lebih. Lagi pula, semakin banyak orang yang berkumpul di suatu tempat, semakin banyak kebutuhan orang untuk memimpin mereka.
-Selain manajemen puncak Persekutuan, para pemimpin ini termasuk orang-orang yang peduli dengan fungsi administratif Central. Mereka adalah bangsawan Central.
-Tapi, ini adalah meritokrasi mutlak. Tidak peduli seberapa besar pengaruh keluarga seseorang, yang tidak kompeten segera dibuang, jadi bangsawan di sana mungkin sedikit berbeda dari yang kamu bayangkan.
-Jadi dengan kata lain, tidak peduli seberapa hebat keluarga bangsawan, selalu ada seseorang di atas, jika bukan badan audit, yang menahan mereka, kan?」
-Dan itu akan menjadi pendiri guild, tokoh utama di balik kemerdekaan Central, Fiiyanamia- sama .
-Pendiri guild ...... Pendirinya masih hidup?」
-Bagaimanapun, dia adalah elf. Aku belum pernah bertemu langsung dengannya, tetapi ada cukup bukti untuk mendukung ini.
+"benar sekali. Aku, dalam arti tertentu, adalah seorang bangsawan. Tapi, bukan bangsawan kerajaan ini tepatnya. Aku anggota keluarga terkemuka di Central, mungkin." (Viviana)
 
-Sederhananya, Central adalah kediaman Fiiyanamia- sama yang berumur panjang .
+"Central adalah tempat Markas Besar Guild berada, kan? Ada bangsawan di sana? Aku agak berharap tidak ada." (Ain)
+
+Agak sulit menjelaskan tentang Central.
+
+Jika hanya berdasarkan garis keturunan, maka kami akan menjadi bangsawan dari satu negara, tetapi bukan bangsawan yang terdaftar di negara lain.
+
+Dan bahkan di Central, kami sebenarnya bukan bangsawan. Tapi, karena lebih mudah untuk menjelaskannya dengan cara ini, Aku akan berhenti di situ.
+
+"Ada juga bangsawan. Lagi pula, semakin banyak orang yang berkumpul di suatu tempat, semakin banyak kebutuhan orang untuk memimpin mereka. Selain manajemen petinggi Guild, para pemimpin ini termasuk orang-orang yang peduli dengan fungsi administratif Central. Mereka adalah bangsawan Central. Tapi, ini adalah meritokrasi mutlak. Tidak peduli seberapa besar pengaruh keluarga seseorang, yang tidak kompeten segera dibuang, jadi bangsawan di sana mungkin sedikit berbeda dari yang kamu bayangkan." (Viviana)
+
+"Jadi dengan kata lain, tidak peduli seberapa hebat keluarga bangsawan, selalu ada seseorang di atas mereka, jika bukan badan audit, yang menahan mereka, kan?" (Ain)
+
+"Dan itu akan menjadi pendiri guild, tokoh utama di balik kemerdekaan Central, Fiiyanamia-sama." (Viviana)
+
+"Pendiri guild ...... Pendirinya masih hidup?" (Ain)
+
+"dia adalah elf. Aku belum pernah bertemu langsung dengannya, tetapi ada cukup bukti untuk mendukung ini." (Viviana)
+
+Sederhananya, Central adalah kediaman Fiiyanamia-sama yang berumur panjang .
+
 Kami, atau lebih tepatnya penduduk Central, tidak lebih dari pekerja lepas di halaman rumahnya.
-Karena itu, tidak ada lawan Fiiyanamia- sama . Jika Kamu tidak menyukainya, maka Kamu hanya akan disuruh pergi.
 
-Jadi ada ras selain manusia kalau begitu.
+Karena itu, tidak ada melawan Fiiyanamia-sama. Jika Kamu tidak menyukainya, Kamu hanya akan disuruh pergi.
 
-Cielmer berkata dengan sungguh-sungguh tetapi, kalau dipikir-pikir, dia harus lahir dan besar di negara ini.
+"Jadi ada ras selain manusia ya." (Ain)
 
-「Oh , jadi kamu lahir di negara ini, yang benar?」
-「Ya, itu benar. Tapi kemudian, mengapa tidak ada satupun dari mereka di negara ini?」
-Estoque tidak mengakui ras lain, kau tahu. Aku percaya bahwa ini adalah pengetahuan yang relatif umum ……」
-Aku tidak dibesarkan dengan pengetahuan umum, Kamu tahu.
-Iklan
+Cielmer berkata dengan serius tapi, kalau dipikir-pikir, dia harusnya lahir dan besar di negara ini.
 
+"Oh, jadi kamu lahir di negara ini, kan?" (Viviana)
 
-Aku tiba-tiba dijatuhkan bom. Aku tahu bahwa dia harus memiliki sesuatu yang terjadi dengannya untuk anak berusia dua belas tahun seperti dia untuk mampu menggunakan sihir sejauh ini, tetapi dia mungkin telah melalui pengalaman yang lebih keras dari yang aku bayangkan.
-Meskipun bukannya Aku tidak penasaran, mari kita membahas topik ini dengan bijaksana.
-Lagi pula, ada beberapa orang cerdik yang mendekat.
+"Ya, itu benar. Tapi mengapa tidak ada satupun dari mereka di negara ini?" (Ain)
+
+"Estoque tidak mengakui ras lain. Aku percaya bahwa ini adalah pengetahuan yang relatif umum ......" (Viviana)
+
+"Aku tidak dibesarkan dengan pengetahuan umum." (Ain)
+
+Aku tiba-tiba menjatuhkan bom. Aku tahu bahwa dia memiliki sesuatu yang terjadi dengannya untuk anak berusia dua belas tahun seperti dia untuk mampu menggunakan sihir sejauh ini, tetapi dia mungkin telah melalui pengalaman yang lebih keras dari yang aku bayangkan.
+
+Meskipun bukannya Aku tidak penasaran, mari kita tidak membahas topik ini.
+
+Lagi pula, ada beberapa orang yang mendekat.
 
 ◇
 
