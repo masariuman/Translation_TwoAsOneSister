@@ -1,6 +1,6 @@
 CHAPTER 72: ESTOQUE AND PARTING
 
-Saat hujan reda, kami mendekati Wyvern yang tumbang dan melihat tubuh hijau mereka sekarang hangus hitam.
+Saat hujan reda, kami mendekati Wyvern yang tumbang dan melihat tubuh hijau mereka yang menjadi hangus hitam.
 
 Saat Ciel memanggil petir ke wyvern ini, jika semuanya berjalan dengan baik, mungkin saja dia akhirnya mampu menggunakan sihir petir.
 
@@ -41,59 +41,78 @@ Bagaimanapun, dia dinamai sesuai dengan langit. Sambil bercanda satu sama lain, 
 ◇
 
 Di dalam awan debu yang terangkat di bawah kami ada segerombolan monster yang menyerbu ke depan.
+
 Aku yakin bahwa bahkan jika kita jatuh ke dalamnya, Ciel kemungkinan tidak akan menerima goresan sebanyak itu.
+
 Namun, itu hanya untuk kasus Ciel; Aku tidak tahu apakah para Hunter yang berjuang untuk ibukota akan berakhir baik-baik saja.
+
 Tak satu pun dari mangsa biasa Hunter Rank rendah, seperti goblin, slime, kelinci bertanduk, dan sejenisnya, hadir. Dan dari posisi kami, kami juga tidak bisa melihat serigala.
+
 Yang sering kita lihat adalah orc dan ogre. Dari monster yang lebih kuat, cyclops.
+
 Meskipun tidak ada monster berbasis hewan, varietas yang tampak lebih kuat dari masing-masing monster hadir.
 
 Karena penyerbuan yang diselesaikan Ciel sendirian di Sannois tidak ada bandingannya dengan yang ini, sepertinya menyelesaikan ini akan memakan waktu lama.
+
 Namun, karena sepertinya monster berperingkat rendah sedang diserbu dan diinjak-injak sampai mati oleh monster berperingkat lebih tinggi di belakang mereka, tidak mungkin setiap monster yang kita lihat di sini benar-benar mencapai ibukota kerajaan.
 
-Iklan
-
 Saat ibu kota mulai terlihat, aku bisa melihat ada area terbuka di sekitar gerbang.
+
 Sepertinya mereka telah mengatur pertahanan mereka dengan cara yang akan menghentikan monster mendekati gerbang.
+
 Di atas tembok ibu kota adalah orang-orang yang menggunakan busur dan sihir untuk menyerang monster yang mendekatinya.
+
 Saat kami diberitahu, tampaknya ada orang kuat yang bertarung di tanah karena aku bisa merasakan kekuatan sihir mereka yang kuat. Karena ada tempat dengan monster yang jelas lebih sedikit, individu yang dimaksud mungkin ada di sana.
 
 Karena akan buruk jika kami terlihat, kami mengambil jalan memutar untuk memasuki ibu kota dan mendarat di atas atap yang memadai.
+
 Kemungkinan karena penyerbuan masih berlangsung, ada sedikit lalu lintas tetapi masih sibuk.
+
 Orang-orang atau divisi yang bertanggung jawab untuk melenyapkan monster semuanya sibuk, tetapi semua orang mungkin berperilaku di dalam rumah mereka.
+
 Dan bagi mereka yang punya uang, mereka mungkin sudah melarikan diri dari ibukota.
 
 Jika memungkinkan, Aku lebih suka kita diam-diam menyelesaikan permintaan ini, tetapi tempat yang kita tuju adalah tempat yang sibuk di ibukota bahkan sekarang, Guild Hunter.
+
 Meskipun aku ingin menyembunyikan wajah Ciel, karena keamanan kita terjamin di dalam Guild Hunter, mungkin lebih baik jika itu terlihat.
 
-Sementara kita akhirnya sampai sejauh ini, pergi ke guild masih merepotkan. Ah , tolong belok kanan di jalan berikutnya.』
-Kita sudah sampai sejauh ini, jadi kenapa tidak……. tidak baik, bukan? Apakah ini yang Kamu bicarakan?」
-Ya, di sini. Aku tidak akan mengatakan bahwa itu tidak baik, tetapi akan lebih baik untuk mengingat bahwa menyelesaikan sesuatu karena sia-sia untuk tidak melakukannya tidak selalu merupakan pilihan terbaik.
-Kali ini, ini masalah perasaan pribadiku dan kontrak sihir yang mengharuskan kita melakukannya.
-Tapi sebagai gantinya, kita bisa segera menyelesaikan tugas kita, kan?」
+[Sementara kita akhirnya sampai sejauh ini, pergi ke guild masih merepotkan. Ah , tolong belok kanan di jalan berikutnya.]
+
+[Kita sudah sampai sejauh ini, jadi kenapa tidak……. tidak baik, bukan? Apakah ini yang Kamu bicarakan?]
+
+[Ya, di sini. Aku tidak akan mengatakan bahwa itu tidak baik, tetapi akan lebih baik untuk mengingat bahwa menyelesaikan sesuatu karena sia-sia untuk tidak melakukannya tidak selalu merupakan pilihan terbaik. Kali ini, ini masalah perasaan pribadiku dan kontrak sihir yang mengharuskan kita melakukannya.]
+
+[Tapi sebagai gantinya, kita bisa segera menyelesaikan tugas kita, kan?]
 
 Saat menggunakan deteksi untuk memberi tahu Ciel tentang jalan tanpa orang, kami melanjutkan pembicaraan kosong kami.
+
 Meskipun tidak setiap kali masalah terjadi di Guild Hunter, karena masalah besar telah terjadi di sini, aku hanya merasa bahwa sesuatu akan terjadi.
 
 Saat kami mendekati Persekutuan Hunter sambil membuat jalan memutar, tempat itu tampak sibuk seperti yang diantisipasi.
+
 Kemungkinan ditugaskan sebagai dukungan logistik, para Hunter berperingkat rendah—atau orang-orang yang tampaknya begitu—bergerak mengikuti instruksi dari staf guild.
+
 Ada juga orang-orang yang terbungkus perban berlarian di antara mereka, serta orang-orang dengan tandu menuju ke arah gerbang yang dikerumuni monster.
 
 Namun, Aku tidak melihat orang yang terluka dibawa masuk.
+
 Tetapi ketika Aku memikirkan hal itu, Aku menyadari bahwa perawatan luka mungkin adalah tanggung jawab gereja. Aku tidak tahu di mana gereja itu berada.
+
 Karena gereja tampaknya tidak terlalu mengingini kekuatan Song Princess, aku tidak berniat untuk mendekatinya.
+
 Setelah mengamati sebentar, Ciel menunggu lalu lintas di Hunter Guild berkurang sebelum masuk ke dalam.
+
 Di gedung itu banyak Hunter, mungkin diperintahkan untuk tetap siaga atau berhenti bergabung dalam pertempuran; beberapa dari mereka sedang beristirahat sementara yang lain bekerja.
+
 Namun, aura kelelahan bersama yang merembes dari mereka cukup menceritakan betapa sulitnya penyerbuan itu.
 
 Sekarang apa yang akan terjadi ketika seseorang seperti Ciel memasuki situasi ini?
 
 Tidak ada yang mengganggu kita setidaknya, tapi kita menarik perhatian dan, yang terpenting, aku bisa merasakan permusuhan.
+
 Pada akhirnya, kami tidak menyembunyikan wajah kami, jadi Aku kira itu bisa menjadi bagian dari alasannya.
+
 Secara kasar memindai area itu, Aku tidak melihat siapa pun yang Aku anggap sebagai kenalan.
-
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
 
 Mengabaikan semua tatapan mereka, Ciel menuju ke konter.
 Biasanya, resepsionis wanita muda akan menangani meja resepsionis, tetapi hari ini seorang wanita veteran, yang tampaknya berusia sekitar 30-an, ditugaskan. Aku kira karena ini adalah keadaan darurat, mereka memprioritaskan efisiensi di sini.
