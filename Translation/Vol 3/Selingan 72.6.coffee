@@ -3,147 +3,182 @@ INTERLUDE: CIEL AND ○○ ※CIEL POV
 Ciel and Spirits
 
 Mawar es merobek serigala emas.
-Mungkin karena penghalang itu tidak bekerja melawannya, Ain lebih berhati-hati, atau lebih tepatnya khawatir, dari biasanya, tapi kami berhasil mengalahkannya.
-Ain cenderung berpikir bahwa penghalangnya adalah satu-satunya fitur penebusannya, tetapi kenyataannya adalah bahwa Ain melakukan banyak hal.
 
-Penghalangnya adalah pemberian, penyembuhan dan pengintaian adalah peran lainnya juga, dan yang terpenting, tanpa lagu Ain, Aku tidak akan mampu mengeluarkan semua yang Aku miliki. Juga, hanya kehadirannya saja sudah meyakinkan.
+Mungkin karena +BARRIER itu tidak bekerja melawannya, Ain lebih berhati-hati, atau lebih tepatnya khawatir dari biasanya, tapi kami berhasil mengalahkannya.
+
+Ain cenderung berpikir bahwa +BARRIER adalah satu-satunya kekuatannya, tetapi kenyataannya adalah bahwa Ain melakukan banyak hal.
+
++BARRIERnya adalah yang utama, tapi penyembuhan dan pengintaian adalah peran lainnya juga, dan yang terpenting, tanpa lagu Ain, Aku tidak akan mampu mengeluarkan semua yang Aku miliki. Juga, hanya kehadirannya saja sudah meyakinkan.
+
 Tetap saja, betapa Ain ingin melindungiku, sejujurnya membuatku bahagia.
-Saat ini, Aku masih selalu mengandalkan Ain, tetapi Aku ingin Ain dapat mengandalkan Aku suatu hari nanti.
 
-Sambil merenungkan itu, Aku mengamati sekeliling Aku dan melihat bahwa serigala emas menyebabkan es naik menjadi tidak simetris. Dengan betapa canggungnya kelihatannya, aku tidak bisa menahan diri untuk tidak mengungkapkannya dengan kata-kata.
+Saat ini, Aku masih selalu mengandalkan Ain, tetapi Aku ingin Ain dapat mengandalkanku suatu hari nanti.
 
-Meskipun tidak dikalahkan bahkan setelah dibekukan sebelumnya, ini seharusnya berhasil. Berpikir begitu, aku mengamatinya dari jauh ketika tiba-tiba sesuatu keluar dari serigala emas.
+Sambil merenungkan itu, Aku mengamati sekelilingku dan melihat bahwa serigala emas menyebabkan es menjadi tidak simetris. Dengan betapa canggungnya kelihatannya, aku tidak bisa menahan diri untuk tidak mengungkapkannya dengan kata-kata.
+
+Meskipun tidak dikalahkan bahkan setelah dibekukan sebelumnya, kali ini seharusnya berhasil. Berpikir begitu, aku mengamatinya dari jauh dan tiba-tiba sesuatu keluar dari serigala emas.
+
 Hal misterius ini anehnya tidak nyaman, tapi aku ingin tahu apa pendapat Ain tentang ini?
-Ain mengatakan sesuatu tentang kekhasan cakar serigala emas, jadi mungkin ini dia.
 
-Saat satu pikiran itu muncul di benakku, aku terus berpikir lebih dan lebih.
+Ain mengatakan sesuatu tentang kekhasan cakar serigala emas, jadi mungkin ini seperti itu.
+
+aku terus berpikir lebih dan lebih.
+
 Misalnya, apakah Rispelgia mungkin terlibat dalam hal ini? Jika itu masalahnya, bukankah hal yang mengalir ke dalam diriku adalah sesuatu yang berhubungan dengan dewa?
+
 Saat aku menatap serigala dalam pemikiran yang mendalam, sesuatu tiba-tiba melewati bidang pandangku.
 
 Mengejar benda ini bergerak dari kanan ke kiri, pandanganku bergeser.
 
-Dan di sana… ada seseorang.
+Dan di sana... ada seseorang.
+
 Orang yang sangat kecil.
+
 Dengan tubuh yang hanya sedikit lebih besar dari wajahku.
 
 Dengan rambut hijau yang memantulkan cahaya dan mata hijau seperti permata mengenakan pakaian dengan warna hijau yang sama sambil samar-samar bersinar.
 
-Iklan
-
 Lengan kecil, kaki kecil.
-Sampai sekarang, Aku hampir tidak memiliki kesempatan untuk melihat seseorang yang lebih kecil dari Aku, jadi ini terasa agak baru bagi Aku.
-Dia memiliki penampilan seseorang, tetapi bukan ketidaknyamanan yang Aku rasakan dari orang lain.
+
+Sampai sekarang, Aku hampir tidak memiliki kesempatan untuk melihat seseorang yang lebih kecil dariku, jadi ini terasa agak baru bagiku.
+
+Dia memiliki penampilan manusia, tetapi bukan ketidaknyamanan yang Aku rasakan dari orang lain.
 
 Apakah karena tidak ada kebencian dalam ekspresinya?
+
 Apakah karena aku tidak merasakan permusuhan karena makhluk ini jauh lebih kecil dariku?
 
 Saat aku menatapnya, makhluk kecil itu bertemu pandang denganku.
 
 Dengan ekspresi bingung, dia melayang dari kanan ke kiri.
+
 Meski hanya gerakan kecil, entah kenapa, aku semakin bersemangat.
 
-Setidaknya, karena makhluk ini bukan manusia, aku merasa kita bisa bergaul.
-Dia sangat kecil, sangat gelisah, bagaimana Aku menggambarkannya?
-Pada awalnya, Aku tidak tahu perasaan apa ini, tetapi ketika Aku sampai pada, Adorable. Ini sudah keluar dari bibir Aku.
+Setidaknya, karena makhluk ini bukan manusia, aku merasa kami bisa bergaul.
+
+Dia sangat kecil, sangat aktif, bagaimana Aku menggambarkannya?
+
+Pada awalnya, Aku tidak tahu perasaan apa ini, tapi, "Imutnya.", keluar dari bibirku.
+
 Dia terlihat terkejut dan kemudian tersenyum lebar, membuatku tersenyum juga.
 
-Sementara aku menganggap Ain menggemaskan, makhluk ini memiliki jenis menggemaskan yang berbeda untuknya, kurasa.
-Itu kata yang sama, Tapi memberikan perasaan yang berbeda bagi Aku. Itu entah bagaimana lucu.
+aku menganggap Ain menggemaskan, tapi makhluk ini memiliki jenis menggemaskan yang berbeda untuknya, kurasa.
+
+Itu kata yang sama, Tapi memberikan perasaan yang berbeda bagiku. Itu entah bagaimana lucu.
 
 Bagaimana dia mendekati tanganku ketika aku mendekatinya cukup menggemaskan, dan bagaimana dia terlihat kecewa ketika dia melewati tanganku ketika mencoba meraihnya juga menggemaskan.
-Saat dia menyemangati dirinya sendiri dan mulai terbang di sekitar Aku, Aku menyadari bahwa ada banyak makhluk yang mirip dengan ini di sekitar Aku.
+
+Saat dia menyemangati dirinya sendiri dan mulai terbang di sekitarku, Aku menyadari bahwa ada banyak makhluk yang mirip dengan ini di sekitarku.
+
 Entah bagaimana, Aku bersenang-senang. Aku menjadi sangat bersemangat.
-Ciel, kamu baik-baik saja?
+
+[Ciel, kamu baik-baik saja?] (Ain)
 
 Mendengar panggilan Ain, aku memanggil namanya dengan penuh semangat.
-Sementara Ain mungkin benar-benar menganggap dirinya sebagai dia , dia adalah Song Princess jadi dia adalah dia.
 
-Entah bagaimana ada banyak hal yang menggemaskan di sini! Di sini!』
-Apakah mereka tidak menakutimu?』
-Benar. Kenapa ya? Aku sama sekali tidak mendapatkan firasat buruk dari mereka.
-Apakah mereka?"
+Ain mungkin benar-benar menganggap dirinya sebagai laki-laki , tapi dia adalah Song Princess jadi dia adalah perempuan.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+[Entah bagaimana ada banyak hal yang menggemaskan di sini! Di sini!] (Ciel)
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+[Apakah mereka tidak menakutimu?] (Ain)
+
+[Benar. Kenapa ya? Aku sama sekali tidak mendapatkan firasat buruk dari mereka. mereka sebenarnya apa?] (Ciel)
 
 Aku mungkin menjadi sedikit terlalu bersemangat.
-Jika Aku berpikir lebih tenang, Aku seharusnya memverifikasi terlebih dahulu apakah makhluk-makhluk ini.
-Meskipun Aku tidak berpikir bahwa mereka berbahaya, jelas lebih baik waspada daripada tidak memiliki pengetahuan.
 
-Aku ingin memverifikasi itu juga, jadi apakah Kamu keberatan jika Aku meminjam tubuh Kamu sebentar?
-Tentu, silakan. feel
+Jika Aku berpikir lebih tenang, Aku seharusnya memverifikasi terlebih dahulu apa makhluk-makhluk ini.
 
-Karena Ain tampaknya memiliki gagasan tentang identitas mereka yang sebenarnya, Aku beralih dengannya.
-Tidak, sebenarnya, Aku sangat malu karena sangat bersemangat seperti biasanya sehingga Aku beralih dengannya untuk mengabaikan topik ini.
+Meskipun Aku tidak berpikir bahwa mereka berbahaya, jelas lebih baik waspada daripada tidak memiliki pengetahuan tentang ini.
+
+[Aku ingin memverifikasi itu juga, jadi apakah Kamu keberatan jika Aku meminjam tubuhmu sebentar?] (Ain)
+
+[Tentu, silakan.] (Ciel)
+
+Karena Ain tampaknya memiliki pemikiran tentang identitas mereka yang sebenarnya, Aku beralih dengannya.
+
+Tidak, sebenarnya, Aku sangat malu karena sangat bersemangat dari biasanya sehingga Aku beralih dengannya untuk mengabaikan topik ini.
+
 Mungkin jika Aku lebih tenang, Aku juga bisa menyadari apa identitas mereka yang sebenarnya.
 
 Ini semua salah Ain karena berada di sana untuk melindungiku.
 Karena perlindungannya, rasa waspadaku berkurang.
 
-Meskipun ini adalah omong kosong biasa dari Aku. Aku perlu merenung dengan benar dan waspada di waktu berikutnya.
+Meskipun ini adalah omong kosong biasa dariku. Aku perlu merenung dengan benar dan waspada di waktu berikutnya.
 
 Kembali ke topik.
 
-Saat kami bertukar, anak-anak kecil mulai bertindak berbeda.
-Berbeda denganku, di mana mereka terbang dengan riang di sekitarku, setelah Ain masuk, mereka meringkuk cukup dekat dengannya seolah-olah untuk menunjukkan kasih sayang.
+Saat kami bertukar, orang-orang kecil mulai bertindak berbeda.
 
-Bukankah kamu cukup populer.
-Iklan
+Berbeda denganku, di mana mereka terbang dengan riang di sekitarku, setelah Ain mengambil alih tubuhku, mereka meringkuk cukup dekat dengannya seolah-olah untuk menunjukkan kasih sayang.
 
+[Bukankah kamu cukup populer?] (Ciel)
 
-Aku bahkan tidak bisa memaksakan diri untuk menyayangi Ain. Paling tidak, tidak bertatap muka secara langsung.
+Aku bahkan tidak bisa memaksakan diri untuk menyayangi Ain. Paling tidak, tidak secara langsung.
+
 Aku bertanya-tanya bagaimana Aku bisa mesra dengan Ain?
-Hampir tidak ada yang tertulis tentang ini di kertas sihir pria itu, tapi apakah mungkin jika aku membuat Vessel seperti golem atau homunculus?
+
+Hampir tidak ada yang tertulis tentang ini di kertas sihir pria itu, tapi apakah mungkin jika aku membuat wadah seperti golem atau homunculus?
 
 Aku ingin menyelidikinya dengan serius, tetapi ini belum waktunya untuk itu.
-Masih banyak waktu sebelum aku berusia 15 tahun dan menjadi B-rank, jadi aku akan melakukan sebanyak yang aku bisa selama itu.
 
-"Senang bertemu denganmu. Bisakah kamu mendengar suaraku?
+Masih banyak waktu sebelum aku berusia 15 tahun dan menjadi rank-B, jadi aku akan melakukan sebanyak yang aku bisa selama itu.
 
-Saat aku merenungkan hal itu, Ain memanggil yang terbesar—yang masih lebih kecil dari tinggiku—di antara makhluk-makhluk ini.
+"Senang bertemu denganmu. Bisakah kamu mendengar suaraku?" (Ain)
+
+Saat aku merenungkan hal itu, Ain memanggil yang terbesar, yang masih lebih kecil dari tinggiku, di antara makhluk-makhluk ini.
+
 Dia seperti orang dewasa, dengan tanduk di kepalanya dan bentuk humanoid.
 
-Aku kira-kira memperhatikan ini saat bermain dengan anak-anak kecil, tetapi suara mereka tidak dapat menjangkau kami.
+Aku menyadari ini saat bermain dengan yang kecil, tetapi suara mereka tidak dapat menjangkau kami.
+
 Tapi, suara kami tampaknya terdengar oleh mereka.
 
-Sekarang Aku tahu, meskipun hanya mungkin melalui pertanyaan yang dapat dijawab dengan ya atau tidak, percakapan itu mungkin.
+Sekarang Aku tahu, meskipun hanya mungkin melalui pertanyaan yang dapat dijawab dengan ya atau tidak, percakapan bisa dilakukan.
+
 Sungguh menakjubkan bahwa Ain segera mengetahuinya.
 
-Jadi, Ain bertanya apakah mereka adalah roh .
-Pada topik roh, seharusnya ada Pekerjaan yang disebut Penyalur Roh.
-Juga, Aku pikir ada cerita di mana mereka muncul. Makhluk yang berada di sisi kita, Tapi tidak dapat berinteraksi dengannya.
+Jadi, Ain bertanya apakah mereka adalah roh.
+
+Pada topik roh, seharusnya ada job yang disebut Spirit Channeler.
+
+Juga, Aku pikir ada cerita di mana mereka muncul. Makhluk yang berada di sisi kami, Tapi tidak dapat berinteraksi dengannya.
+
 Mereka seperti alam itu sendiri dan memiliki kekuatan yang sangat besar.
 
-Kalau begitu, apakah anak kecil ini juga memiliki kekuatan besar? Padahal bagi Aku tidak terasa seperti itu.
+Kalau begitu, apakah yang kecil ini juga memiliki kekuatan besar? Padahal bagiku tidak terasa seperti itu.
 
 Terlepas dari kenyataan bahwa satu-satunya tanggapan yang didapat Ain adalah penegasan, penolakan, dan keduanya sulit dibedakan, Ain berhasil mengumpulkan berbagai informasi dari roh.
+
 Jika itu Aku, Aku tidak tahu harus bertanya apa. Dalam situasi seperti ini, Aku terus-menerus memikirkan betapa Aku kurang dalam pengalaman Tapi pada saat yang sama, Aku diingatkan tentang betapa andalnya Ain.
+
+--------------------
 
 Ciel dan Laut
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
-
 Mengalahkan serigala emas dan melapor ke guild, aku kemudian segera meninggalkan kota Norvell.
+
 Setelah lebih dari dua tahun sejak kami melarikan diri dari rumah pria itu, Aku akhirnya memiliki kesempatan untuk melihatnya.
+
 Saat Aku menyadari hal itu, Aku tidak bisa menahan perasaan gelisah dan Aku tidak bisa diganggu untuk tinggal di kota selama sehari lebih lama.
-Iklan
 
+Ini semua berkat Ain, tapi selama kami memiliki persediaan makanan, aku bisa pergi kemanapun aku mau. Tanpa memandang waktu dan musim.
 
-Ini semua berkat Ain, tapi selama kita menyiapkan makanan, aku bisa pergi kemanapun aku mau. Tanpa memandang waktu dan musim.
 Aku telah bepergian sambil mengandalkan Ain tetapi, entah bagaimana, tiga hari ini sejak meninggalkan kota terasa agak berbeda dari perjalanan biasanya.
+
 Mampu melihat roh sekarang mungkin menjadi bagian dari itu tapi... Aku punya firasat kalau bukan itu juga.
 
-Saat kami mencapai sisi lain dari pegunungan, angin aneh yang belum pernah Aku rasakan sebelumnya menyelimuti tubuh Aku.
+Saat kami mencapai sisi lain dari pegunungan, angin aneh yang belum pernah Aku rasakan sebelumnya menyelimuti tubuhku.
+
 Udaranya sangat lembab dan bahkan baunya pun ada.
+
 Dari jauh, Aku mendengar semacam suara bergema.
 
 Ada yang berbeda. Sambil merasakan antisipasi ini, kami keluar dari hutan.
-Mata Aku dibutakan saat Aku meninggalkan hutan yang redup, jadi Aku membuat bayangan dengan tangan Aku dan menunggu mata Aku beradaptasi.
+
+Mataku dibutakan saat Aku meninggalkan hutan yang redup, jadi Aku membuat bayangan dengan tanganku dan menunggu mataku beradaptasi.
 
 Dan saat aku menggerakkan tanganku ke samping, di depan mataku ada warna biru yang luas.
+
 Aku bisa memahami birunya langit di atas Aku, tetapi biru luas di depan Aku jauh dan luas, dan meskipun terhubung ke langit, jelas merupakan sesuatu yang berbeda.
 
 Selain itu, tidak seperti langit, yang satu ini berkilau karena memantulkan cahaya matahari.
