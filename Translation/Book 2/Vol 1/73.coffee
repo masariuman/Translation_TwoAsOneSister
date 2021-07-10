@@ -26,14 +26,19 @@ Kami bahkan tidak ingin pergi ke kota dan desa di sepanjang jalan, jadi kami men
 
 kami bisa terbang melintasi perbatasan nasional, tapi mungkin akan buruk jika kami ketahuan nanti, dan kami bisa melewati perbatasan secara legal sekarang, jadi kami akan melewatinya dengan berjalan kaki setelah turun beberapa saat.
 
-「Perbatasan Nasional akan berarti bahwa itu sebuah negara terpisah dari sini, kan?」
-『Yang benar itu.』
-「Menimbang bahwa, hanya tampak seperti dinding kota yang lebih besar, itu tidak benar-benar merasa terpisah.」
-『Hmm , bahwa karena negara-negara adalah hal-hal yang diputuskan secara sewenang-wenang oleh orang-orang, Kamu mengerti?
-Ini pertama kalinya aku melewati perbatasan juga, jadi masih terasa tidak nyata.』
-Jadi kamu juga merasakan hal yang sama, Ain? Itu luar biasa entah bagaimana.」
-Benarkah?』
-Bagaimanapun, aku berbagi pengalaman pertamaku dengan Ain. Kamu memiliki lebih banyak pengalaman daripada yang Aku miliki, bukan?
+[Perbatasan Nasional artinya itu negara terpisah dari sini, kan?] (Ciel)
+
+[Benar.] (Ain)
+
+[itu hanya tampak seperti dinding kota yang lebih besar, itu tidak benar-benar terasa terpisah.] (Ciel)
+
+[Hmmm... itu karena negara adalah hal-hal yang diputuskan secara sewenang-wenang oleh orang-orang, Kamu mengerti? Ini pertama kalinya aku melewati perbatasan juga, jadi ini masih terasa tidak nyata.] (Ain)
+
+[Jadi kamu juga merasakan hal yang sama, Ain? Itu luar biasa entah bagaimana.] (Ciel)
+
+[Benarkah?] (Ain)
+
+[Bagaimanapun juga, aku berbagi pengalaman pertamaku dengan Ain. Kamu memiliki lebih banyak pengalaman daripada yang Aku miliki, bukan?] (Ciel)
 
 Ciel langsung memberitahuku begitu.
 Tentu saja Aku telah mengalami lebih banyak hal dibandingkan dengan Ciel.
