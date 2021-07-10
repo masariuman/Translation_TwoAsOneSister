@@ -40,11 +40,14 @@ kami bisa terbang melintasi perbatasan nasional, tapi mungkin akan buruk jika ka
 
 [Bagaimanapun juga, aku berbagi pengalaman pertamaku dengan Ain. Kamu memiliki lebih banyak pengalaman daripada yang Aku miliki, bukan?] (Ciel)
 
-Ciel langsung memberitahuku begitu.
+Ciel langsung berkata begitu.
+
 Tentu saja Aku telah mengalami lebih banyak hal dibandingkan dengan Ciel.
-Tapi, setiap pengalaman yang Aku alami di dunia ini adalah pengalaman pertama Aku.
+
+Tapi, setiap pengalaman yang Aku alami di dunia ini adalah pengalaman pertamaku.
 
 Tapi, Aku kira tidak salah untuk mengatakan bahwa Ciel dan Aku belum berbagi pengalaman ini dengan benar.
+
 Karena Aku sangat fokus melindungi Ciel, Aku tidak pernah memiliki kesempatan untuk melakukannya.
 
 Iklan
