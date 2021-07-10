@@ -46,24 +46,29 @@ Tentu saja Aku telah mengalami lebih banyak hal dibandingkan dengan Ciel.
 
 Tapi, setiap pengalaman yang Aku alami di dunia ini adalah pengalaman pertamaku.
 
-Tapi, Aku kira tidak salah untuk mengatakan bahwa Ciel dan Aku belum berbagi pengalaman ini dengan benar.
+Tapi, itu benar bahwa Ciel dan Aku belum berbagi pengalaman dengan benar.
 
 Karena Aku sangat fokus melindungi Ciel, Aku tidak pernah memiliki kesempatan untuk melakukannya.
 
-Iklan
-Tidak, Aku tidak pernah berusaha untuk mendapatkan kesempatan itu, bukan?
+Tidak, Akulah yang tidak pernah berusaha untuk mendapatkan kesempatan itu, kan?
+
 Lagi pula, aku hanyalah makhluk yang meminjam ruang di dalam Ciel.
 
-...... Itu sebabnya, itulah mengapa Aku menamai diri Aku Ainsel.
+...... Itu sebabnya, itulah mengapa Aku menamai diriku Ainsel.
 
-Tetap saja, aku punya kenangan, kenangan pertama yang kita bagi bersama.
-Itu rahasia darinya, tapi salah satunya adalah saat pertama kali kita melihat dua bulan di langit malam dunia ini.
+Tetap saja, aku punya kenangan, kenangan pertama yang kami bagi bersama.
 
-Yang lain…
+aku hanya menyimpannya pada diriku sendiri, tapi salah satunya adalah saat pertama kali kami melihat dua bulan di langit malam dunia ini.
 
-『Orang pertama yang menari lagu-lagu Aku adalah Kamu, Ciel.』
-「Hm ? Ufufu , begitu? Benarkah? Apakah itu benar?」
-Itu benar. Bagus sekali
+Yang lainnya...
+
+[Orang pertama yang menari dengan lagu-laguku adalah Kamu, Ciel.] (Ain)
+
+[Hm ? Ufufu , begitukah? Benarkah? Apakah itu benar?] (Ciel)
+
+[Itu benar.] (Ain)
+
+Bagus sekali
 ! Benar-benar indah!
 Aku senang, sangat senang!」
 Ya, Aku juga. Aku senang Kamu merasa seperti itu, Ciel.

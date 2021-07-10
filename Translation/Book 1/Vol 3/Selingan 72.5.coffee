@@ -313,7 +313,7 @@ Tapi, dari sudut pandangnya, keberadaanku tidak begitu penting baginya.
 
 "Aku akan menyampaikan itu dan melaporkan semua yang telah terjadi hari ini. Jika memungkinkan, kami lebih suka jika Kamu juga bergabung dengan kami, tapi mau bagaimana lagi. Maaf telah mengganggumu hari ini. Dan terima kasih." (Viviana)
 
-Cielmer sangat mirip moody cat, tapi itu membuatku semakin menyukainya.
+Cielmer sangat mirip Kucing Muram, tapi itu membuatku semakin menyukainya.
 
 dia tidak percaya padaku, tapi dia masih perhatian padaku.
 
