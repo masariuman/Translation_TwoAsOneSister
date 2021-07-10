@@ -13,14 +13,18 @@ Saat bepergian di udara, Aku bernyanyi tanpa henti sementara Ciel terus menari. 
 Berkat ini, perjalanan ini sangat menyenangkan.
 
 Pemandangan yang terlihat di bawah kami juga berangsur-angsur berubah, jadi Aku tidak pernah bosan dengan pemandangannya.
-Aku kira Aku bisa menggambarkannya seperti mengemudi di jalan raya yang indah tanpa harus memikirkan mobil lain.
+
+Aku bisa menggambarkannya seperti mengemudi di jalan raya yang indah tanpa harus memikirkan mobil lain.
+
 Mungkin sebuah pesawat akan menjadi analogi yang lebih dekat, tetapi Kamu tidak bisa benar-benar menari atau bernyanyi di dalam pesawat.
+
 Kamu juga tidak bisa menari di dalam mobil.
 
-Bagaimanapun, itu sempurna untuk melupakan peristiwa merepotkan yang terjadi di Ibukota.
+Bagaimanapun juga, ini sempurna untuk melupakan peristiwa merepotkan yang terjadi di Ibukota.
+
 Kami bahkan tidak ingin pergi ke kota dan desa di sepanjang jalan, jadi kami mencapai perbatasan nasional dalam beberapa hari.
 
-Sementara kita bisa terbang melintasi perbatasan nasional seperti kita, mungkin akan buruk jika kita ketahuan nanti, dan kita bisa melewati perbatasan secara legal sekarang, jadi kita akan melewatinya dengan berjalan kaki setelah turun beberapa saat.
+kami bisa terbang melintasi perbatasan nasional, tapi mungkin akan buruk jika kami ketahuan nanti, dan kami bisa melewati perbatasan secara legal sekarang, jadi kami akan melewatinya dengan berjalan kaki setelah turun beberapa saat.
 
 「Perbatasan Nasional akan berarti bahwa itu sebuah negara terpisah dari sini, kan?」
 『Yang benar itu.』
