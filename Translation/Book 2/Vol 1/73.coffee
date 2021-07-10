@@ -68,10 +68,13 @@ Yang lainnya...
 
 [Itu benar.] (Ain)
 
-Bagus sekali
-! Benar-benar indah!
-Aku senang, sangat senang!」
-Ya, Aku juga. Aku senang Kamu merasa seperti itu, Ciel.
+[ITU BAGUS! itu Benar-benar BAGUS! Aku senang, aku sangat senang!] (Ciel)
 
-Aku benar-benar.
-Tetap saja, setelah kami tenang dan waktu bagi Aku untuk memberi tahu Ciel semuanya datang, apakah kami dapat mempertahankan hubungan yang sama seperti yang kami miliki sampai saat ini?
+[Ya, Aku juga. Aku senang Kamu merasa seperti itu, Ciel.] (AIn)
+
+Aku benar-benar senang.
+
+Tetap saja, setelah kami selesai dan waktu bagiku untuk memberi tahu Ciel semuanya tiba, apakah kami dapat mempertahankan hubungan yang sama seperti yang kami miliki sampai saat ini?
+
+--------------
+
