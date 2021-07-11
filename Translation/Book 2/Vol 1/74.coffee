@@ -112,161 +112,193 @@ Pertukaran semacam ini lagi, Aku baru saja melakukan sesuatu seperti ini baru-ba
 
 [Baiklah aku mengerti.] (Ciel)
 
-Kami tidak berurusan dengan seseorang dari Estoque. Itu sebabnya tidak seperti yang terjadi sampai sekarang, untuk memastikan keamanan yang lebih besar, kita perlu bertindak dengan cara yang akan mendapatkan kepercayaan pihak lain.
+Kami tidak berurusan dengan seseorang dari Estoque. Itu sebabnya tidak seperti yang terjadi sampai sekarang, untuk memastikan keamanan yang lebih besar, kami perlu bertindak dengan cara yang akan mendapatkan kepercayaan pihak lain.
 
-「Saya Nama Ainsel.
-Dan, pada saat yang sama, Aku juga dipanggil Cielmer. Karena sulit untuk dijelaskan secara sederhana, mohon maafkan Aku karena membuat pengantar semacam ini.
+"namaku Ainsel. Dan, pada saat yang sama, aku juga dipanggil Cielmer. Karena sulit untuk dijelaskan secara sederhana, mohon maafkan Aku karena membuat perkenalan semacam ini." (Ain)
 
-Sesuatu berubah dengan kekuatan sihir, tapi sepertinya tidak buruk, jadi kurasa aku sudah dimaafkan untuk saat ini.
+Sesuatu berubah dengan energi sihirnya, tapi sepertinya tidak buruk, jadi kurasa aku sudah dimaafkan untuk saat ini.
 
-Aku sadar ini pasti tidak sopan, tetapi apakah benar untuk menganggap bahwa kamu adalah Fiiyanamia-sama ?」
-
-Setuju.
-Iklan
-
-Aku berencana memasuki Central sekarang, apakah itu baik-baik saja?」
+"Aku sadar ini pasti tidak sopan, tetapi apakah benar untuk menganggap bahwa kamu adalah Fiiyanamia-sama?" (Ain)
 
 Setuju.
 
-"Terima kasih banyak. Sekarang, Aku akan menuju ke depan.
+"Aku berencana memasuki Central sekarang, apakah itu tidak masalah?"(Ain)
 
-Pada titik ini kekuatan sihir kembali ke keadaan awalnya, jadi Aku beralih dengan Ciel.
+Setuju.
 
-Apakah kamu sudah selesai?」
-Ya. Hanya untuk memastikan, mungkin lebih baik kamu menyapanya juga.』
-Seperti yang kamu lakukan, Ain?」
-Jika memungkinkan.
-Aku Cielmer. Silakan bertemu dengan kamu.
+"Terima kasih banyak. Sekarang, Aku akan melangkah kedepan." (Ain)
+
+Pada titik ini energi sihir kembali ke keadaan awalnya, jadi Aku beralih dengan Ciel.
+
+[Apakah kamu sudah selesai?] (Ciel)
+
+[Ya. Hanya untuk memastikan, mungkin lebih baik kamu menyapanya juga.] (Ain)
+
+[Seperti yang kamu lakukan, Ain?] (Ciel)
+
+[Jika memungkinkan.] (Ain)
+
+"Aku Cielmer. Senang bertemu denganmu." (Ciel)
 
 Dari samping, itu hanya akan terlihat seperti Ciel yang berbicara ke dinding tetapi karena tidak ada tanda-tanda orang di sekitar, itu tidak masalah.
-Meskipun sulit untuk mengatakan bahwa pertukaran itu tanpa masalah, karena kami baru saja menyapa Fiiyanamia-sama , kami sekarang dapat memasuki Central tanpa khawatir.
-Bahkan jika ini sebenarnya bukan Fiiyanamia-sama , bersikap sopan kepada seseorang di level yang lebih tinggi seharusnya tidak merugikan kita.
+
+Meskipun sulit untuk mengatakan bahwa percakapan itu tanpa masalah, karena kami baru saja menyapa Fiiyanamia-sama, kami sekarang dapat memasuki Central tanpa khawatir.
+
+Bahkan jika ini sebenarnya bukan Fiiyanamia-sama , bersikap sopan kepada seseorang di level yang lebih tinggi seharusnya tidak merugikan kami.
 
 Ini adalah pengalaman yang cukup aneh.
 
 ◇
 
-Meskipun kami akhirnya mencapai pos pemeriksaan, saat Ciel menunjukkan kartu Rank-B-nya, wajah prajurit yang berinteraksi dengan kami dengan cepat berubah.
+Meskipun kami akhirnya mencapai pos pemeriksaan, saat Ciel menunjukkan kartu Rank-B-nya, wajah penjaga yang berinteraksi dengan kami dengan cepat berubah.
 
-Kartu ini tidak palsu, kan?」
-Kamu pikir Kartu Hunter bisa dipalsukan?」
-Nah, itu poin yang bagus. Kalau begitu, aku tidak bisa membiarkanmu lewat.
-Kenapa? Status Aku sebagai B-rank dapat dikonfirmasi.
+"Kartu ini tidak palsu, kan?"
 
-(Bab ini disediakan untuk kamu oleh Re:Library)
+"Kamu pikir Kartu Hunter bisa dipalsukan?" (Ciel)
 
-(Jika kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"Nah, itu poin yang bagus. Kalau begitu, aku tidak bisa membiarkanmu lewat."
+
+"Kenapa? Statusku sebagai rank-B dapat dikonfirmasi." (Ciel)
 
 um . Apa itu tentang bisa masuk tanpa khawatir lagi?
-Ini tidak seperti Fiiyanamia-sama akan berada di sana di pos pemeriksaan, jadi Aku telah mempertimbangkan perselisihan yang mungkin terjadi.
-Tetap saja, daripada itu terjadi karena keraguan terhadap Rank-B Ciel, tampaknya dalam hal ini perhatiannya tertuju pada Ciel sendiri, dan mau tak mau aku berpikir bahwa beberapa omong kosong total sedang terjadi saat ini.
-Iklan
 
+yaaah Fiiyanamia-sama tidak juga akan berada di sana di pos pemeriksaan, jadi Aku telah mempertimbangkan perselisihan yang mungkin terjadi.
 
-「Oh , ada tidak salah bahwa kamu sedang B-rank. Tapi, Persekutuan Hunter telah memerintahkan untuk menangkap seorang Hunter bernama Cielmer.」
-...... Dari Markas Besar?」
-「Tidak, itu dari Persekutuan Ibukota Kerajaan Estoque.
-Biasanya ini harus melalui Markas Besar terlebih dahulu, tetapi tanah Estoque saat ini sedang diinjak-injak. Karena kamu berasal dari sana, maka tidak ada bedanya dengan mengabaikan tanggung jawabmu sebagai Hunter.
-Tapi kamu datang ke sini berniat untuk melewati menggunakan kartu serikat kamu? Tak tahu malu, bukan?」
-Konfirmasi dengan Markas Besar.
-Selain itu, Aku pernah mendengar bahwa kamu membuat keributan besar di Persekutuan Ibukota Estoque dan menyebabkan banyak korban.
-Tidak perlu mengkonfirmasi apa pun.
+Tetap saja, daripada itu terjadi karena keraguan terhadap Rank-B Ciel, tampaknya dalam hal ini perhatiannya tertuju pada Ciel sendiri, dan mau tak mau aku berpikir bahwa beberapa hal yang tidak masuk akal sedang terjadi saat ini.
 
-"Apa yang harus Aku lakukan? Pada tingkat ini, kita akan dibawa pergi.』
-Mungkin tidak akan terlihat bagus jika kita tiba-tiba membuat keributan, jadi mari kita ikuti dengan tenang untuk saat ini.
-Saat ada sesuatu yang terasa salah, kita akan beralih ke pelanggaran.』
-Dimengerti.
+"Oh , ada tidak salah bahwa kamu sedang rank-B. Tapi, Guild Hunter telah memerintahkan untuk menangkap seorang Hunter bernama Cielmer."
 
-"Sangat baik. Bawa aku pergi.
-Betapa baiknya kamu patuh. Tapi jangan coba-coba kabur.
-Karena, kamu tahu, penjara gerbang ini ditempeli dengan penghambat sihir.
+"...... Dari Markas Besar?" (Ciel)
 
-Tampaknya dalam suasana hati yang baik, prajurit itu membawa Ciel.
+"Tidak, itu dari Guild Ibukota Kerajaan Estoque. Biasanya ini harus melalui Markas Besar terlebih dahulu, tetapi tanah Estoque saat ini sedang diserang penyerbuan. Karena kamu berasal dari sana, maka tidak ada bedanya dengan mengabaikan tanggung jawabmu sebagai Hunter. Tapi kamu datang ke sini berniat untuk melewati menggunakan kartu Guildmu? bukankah kamu Tak tahu malu?"
+
+"Konfirmasilah dengan Markas Besar." (Ciel)
+
+"Selain itu, Aku pernah mendengar bahwa kamu membuat keributan besar di Guild Ibukota Estoque dan menyebabkan banyak korban. jadi Tidak perlu mengkonfirmasi apa pun."
+
+[Apa yang harus Aku lakukan? Pada tingkat ini, kita akan dibawa mereka.] (Ciel)
+
+[Mungkin tidak akan terlihat bagus jika kita tiba-tiba membuat keributan, jadi mari kita ikuti dengan tenang untuk saat ini. Saat ada sesuatu yang terasa salah, kita akan beralih ke menyerang.] (Ain)
+
+[Baiklah.] (Ciel)
+
+"ok kalau begitu, silahkan bawa aku" (Ciel)
+
+"Bagus kamu patuh. Tapi jangan coba-coba kabur. Karena, penjara gerbang ini ditempeli dengan penghambat sihir."
+
+Tampaknya dalam suasana hati yang baik, penjaga itu membawa Ciel.
+
 Kami melewati beberapa pintu dan mencapai tangga menuju bawah tanah.
 
-Tapi, ada sesuatu yang menggangguku. Kami diberitahu bahwa ada penghambat sihir di sini, tetapi Aku tidak melihat tanda-tanda ini terjadi di mana pun.
-Seluruh tempat dipenuhi dengan kekuatan sihir Fiiyanamia-sama .
+Tapi, ada sesuatu yang menggangguku. Kami diberitahu bahwa ada penghambat sihir di sini, tetapi Aku tidak melihat tanda-tanda ini di mana pun.
 
-Pada akhirnya, bahkan setelah memasuki sel dan dikunci, kekuatan sihir Fiiyanamia-sama masih ada.
-Selain itu, penghalang dan deteksi Aku belum hilang juga.
+Seluruh tempat ini dipenuhi dengan energi sihir Fiiyanamia-sama.
 
-Katakan Ain, apakah sihir benar-benar dilarang di sini?』
-Penghalang dan pendeteksiku berfungsi. Ciel, bisakah kamu menggunakan sihir?
+Pada akhirnya, bahkan setelah memasuki sel dan dikunci, energi sihir Fiiyanamia-sama masih ada.
 
-Iklan
+Selain itu, +BARRIER dan +DETECTIONku belum hilang juga.
+
+[Ain, apakah sihir benar-benar dihambat di sini?] (Ciel)
+
+[+BARRIER dan +DETECTIONku berfungsi. Ciel, bisakah kamu menggunakan sihir?] (Ciel)
+
 Menanggapi pertanyaanku, Ciel mengucapkan mantra.
-Pengecorannya berjalan lancar seperti biasa, tetapi sihirnya tidak aktif dan kekuatan sihir yang tidak memiliki tempat untuk pergi berputar di dalam Ciel.
-Dengan mengatakan itu, itu hanya kekuatan sihir senilai satu mantra. Itu bahkan tidak layak dibandingkan dengan pil saat itu.
 
-Itu tidak aktif.』
-Kalau begitu, seperti yang kuduga, itu adalah tipe yang menghambat penggunaan sihir baru.』
-Begitu. Tapi jika itu masalahnya, bukankah itu tidak ada gunanya dalam situasi seperti ini?』
-『Aku curiga pasti ada sesuatu yang bisa mendeteksi sihir saat masuk.
-Meskipun sepertinya tidak cukup untuk mendeteksi sihirku.』
-Seperti yang diharapkan, kamu luar biasa Ain, luar biasa!』
+pengucapannya berjalan lancar seperti biasa, tetapi sihirnya tidak aktif dan energi sihir yang tidak memiliki tempat untuk keluar berputar di dalam Ciel.
+
+itu hanya energi sihir senilai satu mantra. Itu bahkan tidak layak dibandingkan dengan pil saat itu.
+
+[Itu tidak aktif.] (Ciel)
+
+[seperti yang kuduga, itu adalah tipe yang menghambat penggunaan sihir baru.] (Ain)
+
+[Begitu. Tapi jika itu masalahnya, bukankah itu tidak ada gunanya dalam situasi seperti ini?] (Ciel)
+
+[Aku curiga pasti ada sesuatu yang bisa mendeteksi sihir saat masuk. Meskipun sepertinya tidak cukup untuk mendeteksi sihirku.] (Ain)
+
+[Seperti yang diharapkan, kamu luar biasa Ain, luar biasa!] (Ciel)
 
 Untuk beberapa alasan, Ciel sangat menyanjungku hari ini.
+
 Tidak, dia memujiku. Aku senang, tetapi Aku benar-benar bingung bagaimana harus bereaksi.
 
-Sekarang, apa yang harus kita lakukan?』
-Karena bahkan tempat ini dipenuhi dengan kekuatan sihir Fiiyanamia-sama , kita bisa mencoba bertanya.』
-Maukah kamu melakukannya?』
-Tidak sama sekali.
+[Sekarang, apa yang harus kita lakukan?] (Ciel)
+
+[Karena bahkan tempat ini dipenuhi dengan energi sihir Fiiyanamia-sama, kita bisa mencoba bertanya.] (Ain)
+
+[Maukah kamu melakukannya?] (Ciel)
+
+[Baiklah.] (Ain)
 
 Aku harus meminjam tubuh Ciel untuk ini tapi......kami bisa bertukar tanpa masalah sama sekali.
-Aku kemudian segera mencoba menghubungi Fiiyanamia-sama .
 
-Fiiyanamia-sama . Bolehkah aku meminta waktumu? Ini Ainsel.
+Aku kemudian segera mencoba menghubungi Fiiyanamia-sama.
+
+"Fiiyanamia-sama. Bolehkah aku meminta waktumu? Ini Ainsel." (Ain)
 
 Dari kata-kataku, Fiiyanamia-sama menunjukkan respon.
 
-Karena kesalahan, atau lebih tepatnya dendam pribadi atau balas dendam yang salah arah, kami telah ditahan. Tapi, apakah tidak apa-apa bagi kita untuk mencoba melarikan diri? Kami kemungkinan akan merusak penjara gerbang tapi ……」
+"Karena kesalahan, atau lebih tepatnya dendam pribadi atau balas dendam yang salah arah, kami telah ditahan. Tapi, apakah tidak apa-apa untuk kita untuk mencoba melarikan diri? Kami kemungkinan akan merusak penjara gerbang tapi ......" (Ain)
 
-Jawabannya adalah ya. Tampaknya kita diizinkan untuk menghancurkannya.
+Jawabannya adalah ya. Tampaknya kami diizinkan untuk menghancurkannya.
 
-Dimengerti, terima kasih banyak.
-
-(Bab ini disediakan untuk kamu oleh Re:Library)
-
-(Katakan tidak pada pencuri konten!)
+"Dimengerti, terima kasih banyak." (Ain)
 
 Aku menundukkan kepalaku sebagai ucapan terima kasih dan saat aku akan bertukar dengan Ciel, sesuatu tiba-tiba muncul di pikiranku, jadi aku mencoba menggunakan sihir.
-Ini mantra angin hangat yang biasa.
-Mantra tersebut diaktifkan. Ini cukup sulit untuk dikendalikan, tetapi aktivasinya sendiri tidak menjadi masalah.
+
+mantra angin hangat yang biasa.
+
+Mantra tersebut aktif. Ini cukup sulit untuk dikendalikan, tetapi aktivasinya sendiri tidak menjadi masalah.
 
 Setelah ini, Aku beralih dengan Ciel.
 
-"Apa yang harus kita lakukan? Bahkan jika Ain dapat menggunakan ilmu sihir, aku tidak bisa. 』
-『Anda harus dapat menggunakan penguatan fisik, ya?』
-『Oh , kamu benar sedang.』
+[Apa yang harus kita lakukan? Bahkan jika Ain dapat menggunakan sihir, aku tidak bisa melakukannya.] (Ciel)
 
-Karena hanya menghambat kekuatan sihir yang dipancarkan dari tubuh seseorang, penguatan fisik, yang dilakukan dengan mengedarkan kekuatan sihir di dalam tubuh, dapat digunakan tanpa masalah.
+[kamu harusnya bisa menggunakan penguatan fisik, kan?] (Ain)
+
+[Oh, kamu benar.] (Cel)
+
+Karena penghambat ini hanya menghambat energi sihir yang dipancarkan dari tubuh seseorang, penguatan fisik, yang dilakukan dengan mengedarkan energi sihir di dalam tubuh, dapat digunakan tanpa masalah.
+
 Atau setidaknya anggapan itu tidak salah.
-Dalam hal ini, seharusnya bisa untuk mematahkan palang ini tapi......aku lupa masalah yang paling mendasar.
 
-Jika kami menumpuk penguatan Song Princess dengan penguatan fisik kamu sendiri melalui kekuatan sihir, Aku pikir kamu harus dapat menghancurkan sel kami tapi ......』
-Itu memang tampak masuk akal. Mari kita coba itu.』
-Tolong tunggu. kamu mungkin akan menderita rebound.
-kamu dapat menyembuhkan Aku, Ain. Aku akan baik baik saja."
+Dalam hal ini, seharusnya ini saja bisa untuk mematahkan besi penjara ini tapi......aku lupa masalah yang paling mendasar.
 
-Mengatakan demikian, Ciel membanting tinjunya ke jeruji penjara.
+[Jika kita memakai penguatan Song Princess dengan penguatan fisikmu sendiri melalui energi sihir, Aku pikir kamu dapat menghancurkan penjara tapi ......] (Ain)
+
+[Itu memang tampak masuk akal. Mari kita coba itu.] (Ciel)
+
+[tunggu. kamu mungkin akan kesakitan karena efek sampingnya.] (Ain)
+
+[kamu dapat menyembuhkanku, Ain. Aku akan baik baik saja.] (Ciel)
+
+Ciel memukulkan tinjunya ke jeruji penjara.
+
 Ini sudah menyakitkan. Dia terlalu memperkuat tubuhnya.
+
 Aku buru-buru mulai bernyanyi, semakin memperkuat tubuh Ciel.
 
-Tinju Ciel membentur jeruji besi. Batang mulai melengkung dan pecah.
-Dan karena rebound, tangan Ciel juga patah.
-Ini sangat menyakitkan, jadi Aku segera menyembuhkannya. Meskipun bukan seolah-olah aku tidak bisa menahannya, rasa sakit sama sekali tidak menyenangkan.
+Tinju Ciel membentur jeruji besi. Batang besinya mulai melengkung dan pecah.
 
-"Kita berhasil!"
+Dan karena ciel menerima kekuatan yang sama pada tangannya, tangan Ciel juga patah.
 
-Iklan
-Sementara Ciel tampak senang, aku terkejut dengan ketegasannya.
-Yah, karena Ciel lemah dalam hal fisik, kurasa dia senang bisa melakukan sebanyak ini tanpa memanfaatkan kemampuan Putri Tari.
+Ini sangat menyakitkan, jadi Aku segera menyembuhkannya. Meskipun aku bisa menahannya, rasa sakit sama sekali tidak menyenangkan.
 
-Sekarang kita bisa bergerak maju, ayo segera tinggalkan tempat ini.』
-Benar. Entah bagaimana, kami akhirnya membuat jalan memutar yang aneh.
-Tetap saja, tempat ini mungkin bagus untuk latihan sihir, bukan?』
-Sekarang setelah kamu menyebutkannya, itu benar. Mampu menggunakan sihir di sini akan menjadi pencapaian.
-Kalau begitu, mungkin kita harus datang ke sini lagi lain kali.
+[Kita berhasil!] (Ciel)
 
-Sementara Aku setuju dengannya tentang itu, Aku pikir memutuskan bagaimana menghadapi prajurit di atas lebih penting sekarang.
+Ciel tampak senang, tapi aku terkejut dengan kemampuannya untuk memutuskan sesuatu dengan cepat.
+
+Yah, karena Ciel lemah dalam hal fisik, kurasa dia senang bisa melakukan sebanyak ini tanpa memanfaatkan kemampuan Dance Princess.
+
+[Sekarang kita bisa bergerak, ayo segera tinggalkan tempat ini.] (Ain)
+
+[Benar. Entah bagaimana, kita akhirnya membuat jalan memutar yang aneh. Tetap saja, tempat ini mungkin bagus untuk latihan sihir, bukan?] (Ciel)
+
+[Sekarang setelah kamu menyebutkannya, itu benar. Mampu menggunakan sihir di sini akan menjadi pencapaian.] (Ain)
+
+[Kalau begitu, mungkin kita harus datang ke sini lagi lain kali.] (Ciel)
+
+Aku setuju dengannya tentang itu, tapi kupikir memutuskan bagaimana menghadapi penjaga yang berada di atas lebih penting sekarang.
+
+------------------------------------
+
