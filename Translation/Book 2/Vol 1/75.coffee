@@ -308,3 +308,10 @@ Sementara itu, Aku berdoa agar kami dapat dengan cepat menyelesaikan masalah yan
 
 ----------------------------
 
+WOOOOOAAAAAAA DEDEK CIEL KITA KALI INI SANGAT KEREN !!! MANTAP !!!!SAVAGE !!!!! BAHAHAHAHHAHAHAHAA PUAASSS... MAKAN TU DIKACANGI GAK BISA NGAPA NGAPAIN BAHAHAHAHA... duuh jadi tentara penjaga gerbang malu sekali pastinya gak bisa menghentikan anak kecil yang hanya jalan santai saja... bahkan diabaikan ainciel bahahahaha... duuh puas sekali kali ini... tidak peduli bagaimanapun yang penting sampai tujuan saja... bahahahahahahahahahahaha...
+
+memang ain sungguh lembut, bahkan sempat masih kasihan dengan para tentara.. tapi ini pertama kalinya dedek ciel kita marah dan mengatakan dia marah... dan saya yakin para pembaca sekalian yang budiman juga merasakan hal yang sama !! bahahaha, untung saja ain langsung berubah pikiran dan mengikuti kemauan dedek ciel... alhasil, hasilnya memuaskan !! hahahaha... jujur saya sendiri menerjemahkan chapter ini gak berhenti senyum.. bukan senyum karena manis manis tee tee, tapi ada senyum puas hahahhahahahahaa.. bahkan tentara yang mengepung ketika di gerbang kota saja juga ketakutan... kasihaaaan...
+
+dari yang saya baca sampai sekarang, mungkin central seperti kota yang penuh pohon di setiap jalannya, mungkin karena Fiiyanamia adalah elf yang mencintai alam ? mungkin mirip seperti kota kota yang banyak pohon di pinggir jalannya setelah atau di trotoarnya... dan dari yang kita baca terdapat banyak ladang, dan sumber daya alam lainnya juga sehingga banyaknya roh alam berkeliaran... menarik, tapi sayang ainciel kita tidak bisa menikmati kota karena dikawal, semoga saja masalah ini cepat selesai dan ainciel kita bisa hidup damai... semoga saja bisa bertemu carol dan celia lagi , atau bahkan viviana akan ke central setelah penyerbuan di Estoque....
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
