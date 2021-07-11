@@ -1,7 +1,9 @@
 CHAPTER 75: SOLDIERS, WALKING, AND CITY
 
-Untuk saat ini, kami meninggalkan sel dan kembali ke jalur awal kami.
-Kami tidak punya niat untuk tertangkap kali ini, jadi Aku membuat penghalang berbentuk bola di sekitar Ciel untuk mencegah siapa pun mendekat.
+Untuk saat ini, kami meninggalkan sel penjaran dan kembali ke jalur awal kami.
+
+Kami tidak punya niat untuk tertangkap kali ini, jadi Aku membuat +BARRIER berbentuk bola di sekitar Ciel untuk mencegah siapa pun mendekat.
+
 Dalam perjalanan kembali, Aku mendengar suara langkah kaki dan kemudian dua tentara muncul. Keduanya sepertinya tidak asing bagiku, jadi mereka mungkin bukan yang dari sebelumnya.
 
 Apa yang kamu pikir kamu lakukan?」

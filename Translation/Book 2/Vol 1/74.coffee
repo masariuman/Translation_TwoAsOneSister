@@ -150,7 +150,7 @@ Ini adalah pengalaman yang cukup aneh.
 
 ◇
 
-Meskipun kami akhirnya mencapai pos pemeriksaan, saat Ciel menunjukkan kartu Rank-B-nya, wajah penjaga yang berinteraksi dengan kami dengan cepat berubah.
+Meskipun kami akhirnya mencapai pos pemeriksaan, saat Ciel menunjukkan kartu Rank-B-nya, wajah tentara penjaga yang berinteraksi dengan kami dengan cepat berubah.
 
 "Kartu ini tidak palsu, kan?"
 
@@ -186,7 +186,7 @@ Tetap saja, daripada itu terjadi karena keraguan terhadap Rank-B Ciel, tampaknya
 
 "Bagus kamu patuh. Tapi jangan coba-coba kabur. Karena, penjara gerbang ini ditempeli dengan penghambat sihir."
 
-Tampaknya dalam suasana hati yang baik, penjaga itu membawa Ciel.
+Tampaknya dalam suasana hati yang baik, tentara itu membawa Ciel.
 
 Kami melewati beberapa pintu dan mencapai tangga menuju bawah tanah.
 
@@ -298,14 +298,14 @@ Yah, karena Ciel lemah dalam hal fisik, kurasa dia senang bisa melakukan sebanya
 
 [Kalau begitu, mungkin kita harus datang ke sini lagi lain kali.] (Ciel)
 
-Aku setuju dengannya tentang itu, tapi kupikir memutuskan bagaimana menghadapi penjaga yang berada di atas lebih penting sekarang.
+Aku setuju dengannya tentang itu, tapi kupikir memutuskan bagaimana menghadapi tetara yang berada di atas lebih penting sekarang.
 
 ------------------------------------
 
-hadeeeh~~ belum aja keluar pagar sudah kena masalah lagi... terus ini penjaga bersikeras tidak mau konfirmasi dulu ke markas besar, nanti kalau dipecat jangan salahkan ainciel lhoo... kerajaan Estoque sudah kacau deh... sepertinya saya sudah bisa membayangkan akan ada perang antara markas utama vs Estoque yang rasis dan Estoque mungkin akan dikuasai rispelgia...
+hadeeeh~~ belum aja keluar pagar sudah kena masalah lagi... terus ini tentara penjaga bersikeras tidak mau konfirmasi dulu ke markas besar, nanti kalau dipecat jangan salahkan ainciel lhoo... kerajaan Estoque sudah kacau deh... sepertinya saya sudah bisa membayangkan akan ada perang antara markas utama vs Estoque yang rasis dan Estoque mungkin akan dikuasai rispelgia...
 
 dan kali ini ainciel kita langsung beretemu dengan pendiri guild ? bukan bertemu sih, lebih tepatnya berinteraksi, dan semoga saja memang pendiri guild... Saya yakin orang yang berinteraksi dengan ainciel sangat tertarik dan penasaran... kalau memang orang tersebut adalah Fiiyanamia, dia pasti penasaran bagaimana seorang anak bisa memakai sihir detection, atau sesuai dengan laporan, bisa sekuat itu dalam usia muda, sedangkan Fiiyanamia, mungkin saja bisa sekuat itu karena elf yang memiliki usia yang panjang dan memiliki peluang berlatih lebih lama... interaksi ain kali ini cukup sopan, sedangkan dedek ciel, seperti biasa, kurang tertarik dan kalau bukan hanya karena ain yang menyuruhnya maka mungkin dedek ciel kita juga tidak akan memperkenalkan dirinya...
 
-daaan, baru aja mau pindah negara , sudah ada masalah lagi sama penjaga perbatasan... ini kerajaan Estoque bermasalah sekali, dendam amat sama ainciel... untung saja Fiiyanamia tidak terlalu menahan ainciel kita... dan mengizinkan ainciel kita menghancurkan penjara untuk kabur... dan apa apaan penjaga ini agak sedikit sewenang juga... tapi ah sudahlah mereka juga akan menghadapi ainciel kita di chapter berikutnya... pasti kalang kabut nantinya bahahhaha... tapi dedek ciel kita tidak mempermasalahkan rasa sakit atau terluka asal bisa sembuh ?? waduh ini sungguh tidak baik untuk kesehatan emosi dedek ciel kita, semoga ain bisa mengarahkan emosi dedek ciel kita kearah yang seharusnya ... semoga saja...
+daaan, baru aja mau pindah negara , sudah ada masalah lagi sama tentara penjaga perbatasan... ini kerajaan Estoque bermasalah sekali, dendam amat sama ainciel... untung saja Fiiyanamia tidak terlalu menahan ainciel kita... dan mengizinkan ainciel kita menghancurkan penjara untuk kabur... dan apa apaan tentara ini agak sedikit sewenang juga... tapi ah sudahlah mereka juga akan menghadapi ainciel kita di chapter berikutnya... pasti kalang kabut nantinya bahahhaha... tapi dedek ciel kita tidak mempermasalahkan rasa sakit atau terluka asal bisa sembuh ?? waduh ini sungguh tidak baik untuk kesehatan emosi dedek ciel kita, semoga ain bisa mengarahkan emosi dedek ciel kita kearah yang seharusnya ... semoga saja...
 
 nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
