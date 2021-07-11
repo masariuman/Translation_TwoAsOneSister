@@ -195,24 +195,34 @@ Karena aku mungkin bisa menanyakannya, aku harus mencoba bertanya padanya kapan-
 ◇
 
 Setelah melewati perbatasan nasional, hal pertama yang akan Kamu lihat di Central bukanlah kota besar atau sejenisnya.
-Ada jalan yang terpelihara dengan baik, dengan desa dan ladang di sepanjang jalan, membuatnya terasa seperti tempat yang agak tenang.
-Aku berharap untuk melihat area yang lebih berkembang, jadi itu agak mengejutkan.
 
-Di sisi lain, itu berlimpah di alam dan roh dapat dilihat sering.
+Ada jalan yang terpelihara dengan baik, dengan desa dan ladang di sepanjang jalan, membuatnya terasa seperti tempat yang agak tenang.
+
+Aku mengira akan melihat area yang lebih berkembang, jadi itu agak mengejutkan.
+
+Di sisi lain, tempat tersebut berlimpah dengan alam dan roh dapat dilihat dimana-mana.
+
 Setiap roh akan mendekat saat melihat Ciel dan mereka akan bermain sebentar sebelum pergi.
+
 Aku senang melihat Ciel menikmati dirinya sendiri.
 
 Setelah satu malam berkemah sejak kami mulai berjalan, kami sekarang dapat melihat sebuah kota yang tampaknya menjadi jantung Central.
-Sementara kita bisa mencapai kota ini tanpa mengambil satu hari pun jika kita melakukan perjalanan melalui udara, Aku tidak berencana untuk melakukan ini segera saat pertama kali memasuki Central.
-Lagi pula, jika kita melakukan perjalanan melalui udara, Fiiyanamia- sama juga akan melihatnya.
+
+kami bisa mencapai kota ini tanpa mengambil satu hari pun jika kami melakukan perjalanan melalui udara, tapi Aku tidak berencana untuk melakukan ini segera saat pertama kali memasuki Central.
+
+Lagi pula, jika kami melakukan perjalanan melalui udara, Fiiyanamia-sama juga akan melihatnya.
 
 Nah, kota dalam pandangan kami besar, bahkan sebanding dengan Ibukota Kerajaan Estoque.
-Sebaliknya, tampaknya menjadi kota yang lebih besar dari Ibukota Kerajaan Estoque.
+
+tapi tampaknya lebih besar dari Ibukota Kerajaan Estoque.
+
 Di luar kota ada hutan dan sungai mengalir di seluruh kota. Tampaknya menjadi tempat yang kaya akan alam.
 
 Aku memperhatikannya saat kami berjalan tetapi ada banyak orang yang menunggu di gerbang menuju kota. Saat Ciel bergabung dengan barisan, seseorang segera mengikuti di belakangnya.
+
 Mungkin karena Ciel mengantri sendirian di usianya, dia menarik perhatian orang-orang di dekatnya tetapi perhatian itu dengan cepat bubar.
-Dan seperti yang Aku bayangkan berapa lama garis ini bisa berlangsung, beberapa tentara datang bergegas dari gerbang.
+
+Dan seperti yang Aku bayangkan seberapa lama garis ini bisa berlangsung, beberapa tentara datang bergegas dari gerbang.
 
 Dan saat mereka mendekat, mereka mengepung Ciel.
 
