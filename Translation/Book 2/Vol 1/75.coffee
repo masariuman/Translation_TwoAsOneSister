@@ -158,11 +158,13 @@ Tapi, sehubungan dengan pertanyaannya, Aku tidak tahu bagaimana menjawabnya.
 
 Berjalan... Bukankah cara dia berjalan saat ini sudah cukup ?
 
-Aku bertanya-tanya apakah para bangsawan atau bangsawan akan memiliki cara berjalan yang berbeda.
-Bahkan cara para Tentara berjalan tadi agak seperti menari dengan cara mereka mengatur napas mereka, kan?』
-Begitu. Jadi Kamu ingin memasukkan bahkan cara Kamu berjalan ke Dance Princess, kan?』
-Bukankah ini bagus? Aku pikir jika Aku bisa melakukan ini, maka itu akan nyaman dalam banyak hal. Begitu
-, itu benar. Paling tidak, itu bisa membuat segalanya lebih aman.
+[Aku bertanya-tanya apakah para bangsawan atau kerajaan memiliki cara berjalan yang berbeda. Bahkan cara para Tentara berjalan tadi agak seperti menari dengan cara mereka mengatur napas mereka, kan?] (Ciel)
+
+[Begitu. Jadi Kamu ingin membuat cara Kamu berjalanmu menjadi bagian dalam Dance Princess, kan?] (Ain)
+
+[Bukankah itu bagus? Aku pikir jika Aku bisa melakukannya, itu akan nyaman dalam banyak hal.] (Ciel)
+
+[Begitu, itu benar. Paling tidak, itu bisa membuat segalanya lebih aman.] (Ain)
 
 Jika Dance Princess bisa aktif hanya dengan berjalan, maka itu akan sangat kuat melawan penyergapan dan serangan mendadak.
 Seolah-olah Aku terus-menerus bernyanyi.
