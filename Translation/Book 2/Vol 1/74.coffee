@@ -1,52 +1,66 @@
 CHAPTER 74: HIGHER LEVEL, PRISON, AND SORCERY INHIBITOR
 
-Segel Tingkat Tinggi, Penjara, dan Sihir
+Kami mendekat di dekat tembok perbatasan tetapi pendaratan kami tidak terlihat, kami turun agak jauh.
 
-Sekarang. Kami mendekat di dekat tembok perbatasan tetapi pendaratan kami tidak terlihat, kami turun agak jauh.
-Karena itu, kami menuju pos pemeriksaan perbatasan dengan berjalan di sepanjang tembok.
+kami menuju pos pemeriksaan perbatasan dengan berjalan di sepanjang tembok.
+
 Berada dalam suasana hati yang sangat baik setelah percakapan kami sebelumnya, langkah Ciel sangat ringan.
 
 Dan saat dinding berada dalam jangkauan lengan, sesuatu mengganggu sihirku.
-Entah bagaimana, itu ...... bercampur dengan milikku?
-Sihir yang sangat mirip dengan sihir pendeteksi yang selalu kugunakan tampaknya dikerahkan di dekat dinding.
+
+Entah bagaimana, itu ... bercampur dengan milikku?
+
+Sihir yang sangat mirip dengan sihir +DETECTION yang selalu kugunakan tampaknya dikerahkan di dekat dinding.
 
 Tidak aneh jika mempertimbangkan alasan keamanan, mungkin ada sesuatu yang dikerahkan agar orang yang mencurigakan tidak mendekati dan melewati perbatasan secara ilegal.
-Yang mengejutkan Aku, bagaimanapun, sihir ini sama, jika tidak lebih besar dari milik Aku.
-Yang paling bisa Aku lakukan adalah memperkirakan secara kasar hal-hal apa yang Aku rasakan melalui kekuatan sihir yang Aku gunakan.
+
+Yang mengejutkanku, bagaimanapun juga, sihir ini sama, tapi lebih besar dari milikku.
+
+Yang paling bisa Aku lakukan adalah memperkirakan secara kasar hal-hal apa yang Aku rasakan melalui energi sihir yang Aku gunakan.
 
 Penyembunyian sihir ini juga sebanding dengan milikku.
+
 Aku bertanya-tanya, berapa banyak orang yang mampu memperhatikan ini?
 
-Ain, apakah ada yang salah?」
-Ada sihir yang dikerahkan di dekat dinding. Karena itu adalah sihir pendeteksi yang mirip dengan milikku, itu seharusnya tidak berbahaya tetapi kastor kemungkinan besar akan mendeteksi kita.
-Tidak ada keraguan bahwa sihir ini setara, jika tidak lebih besar, dengan milikku.
-Sihir deteksi sama, jika tidak lebih besar dari Ain …… kan?』
+[Ain, apakah ada yang salah?] (Ciel)
+
+[Ada sihir yang dikerahkan di dekat dinding. Karena itu adalah sihir +DETECION yang mirip dengan milikku, itu seharusnya tidak berbahaya tetapi pemilik sihir kemungkinan besar akan mendeteksi kita. Tidak diragukan lagi bahwa sihir ini setara denganku jika tidak lebih besar daripada milikku.] (Ain)
+
+[Sihir +DETECTION yang setara jika tidak lebih besar dari Ain ...... kan?] (Ciel)
 
 Ciel beralih untuk berbicara hanya di kepalanya.
-Keputusannya untuk melakukan ini, meskipun membuat frustrasi, adalah benar. Sihir kemungkinan mampu mengambil suara jika kastor menginginkannya.
-Ini hanya yang tepat.
 
-Jika mereka mau, mereka mungkin bisa merasakan warna dan suara juga.
-Selain itu, mengingat jangkauan penyebarannya, itu lebih bertenaga daripada milikku.』
-Itu luar biasa. Bukankah ini akan menjadi pertemuan pertama kita dengan sihir yang lebih besar dari Ain?』
-Ada juga tombak es.』
-Tapi sihir Ain lebih besar sekarang daripada dulu. Apakah Aku salah?』
-Yah, itu mungkin benar tapi…』
+Keputusannya untuk melakukan ini, meskipun membuat frustrasi, adalah benar. Sihir kemungkinan mampu mengambil suara jika pemilik sihir menginginkannya.
 
-Dengan asumsi bahwa kita memasuki permusuhan dengan penyihir yang melemparkan ini, apakah Aku akan mampu membela Ciel?
-Jika kastor seperti Aku dan mendapatkan kekuatan mereka melalui pengorbanan sihir tempur, maka Aku mungkin bisa.
-Namun, jika kita diserang oleh sihir tempur pada level yang sama seperti ini, kemungkinan aku bisa menahannya adalah 50-50.
-Pertama dasi dengan tombak es, lalu dipotong dengan mudah oleh serigala emas, dan kali ini mungkin dihancurkan dari depan.
+[Jika mereka mau, mereka mungkin bisa merasakan warna dan suara juga. Selain itu, mengingat jangkauan penyebarannya, itu lebih bertenaga daripada milikku.] (Ain)
 
-Iklan
+[Itu luar biasa. Bukankah ini akan menjadi pertemuan pertama kita dengan sihir yang lebih besar dari Ain?] (Ciel)
 
-Aku hanya bisa merasakan perasaan kekalahan. Bagaimanapun, ini sudah yang ketiga kalinya. Bahkan Aku mengerti bahwa ada hal-hal yang lebih baik untuk dilakukan daripada bermalas-malasan.
+[tapi tombak es juga lebih besar.] (Ain)
 
-Untuk memulai dengan Ain, kita hanya perlu menghindari menjadi musuh dengan penyihir.』
-Benar, itu mungkin pilihan terbaik tapi...』
-Jika kecurigaanku benar, kita tidak boleh terlibat dalam permusuhan dalam waktu dekat, kau tahu? 』
-『Ciel, kamu tahu identitas tukang sihir ini?』
-『 Fiiyanamia. Aku tidak bisa membayangkan itu menjadi orang lain.
+[Tapi sihir Ain lebih besar sekarang daripada dulu. Apakah Aku salah?] (Ciel)
+
+[Yah, itu mungkin benar tapi...] (Ain)
+
+Dengan asumsi bahwa kami memasuki permusuhan dengan orang yang menggunatan +DETECTION ini, apakah Aku akan mampu melindungi Ciel?
+
+Jika pengguna sihir tersebut seperti Aku yang mendapatkan kekuatan melalui pengorbanan sihir tempur, mungkin aku bisa melindungi ciel.
+
+Tapi, jika kami diserang oleh sihir tempur pada level yang sama seperti ini, kemungkinan aku bisa menahannya adalah 50-50.
+
+seimbang dengan tombak es, lalu dipotong dengan mudah oleh serigala emas, dan kali ini mungkin dihancurkan dari depan.
+
+Aku hanya bisa merasakan perasaan kekalahan. Bagaimanapun juga, ini sudah yang ketiga kalinya. Bahkan Aku mengerti bahwa ada hal-hal yang lebih baik untuk dilakukan daripada bermalas-malasan.
+
+[pada dasarnya Ain, kita hanya perlu menghindari menjadi musuh dengan orang yang melakukan ini.] (Ciel)
+
+[Benar, itu mungkin pilihan terbaik tapi...] (Ain)
+
+[Jika kecurigaanku benar, kita tidak boleh terlibat dalam permusuhan dalam waktu dekat, kau tahu?] (Ciel)
+
+[Ciel, kamu tahu identitas orang ini?] (Ain)
+
+[Fiiyanamia. Aku tidak bisa membayangkan orang lain selain dia.] (Ciel)
 
 Sekarang dia menyebutkannya, Fiiyanamia- sama benar - benar tersangka yang paling mungkin.
 Menjadi atasan Central, tidak aneh baginya untuk memantau perbatasan Central. Yah, ya, aneh bagi yang di atas untuk melakukan ini.
@@ -143,11 +157,11 @@ Tetap saja, daripada itu terjadi karena keraguan terhadap Rank-B Ciel, tampaknya
 Iklan
 
 
-「Oh , ada tidak salah bahwa kamu sedang B-rank. Namun, Persekutuan Hunter telah memerintahkan untuk menangkap seorang Hunter bernama Cielmer.」
+「Oh , ada tidak salah bahwa kamu sedang B-rank. Tapi, Persekutuan Hunter telah memerintahkan untuk menangkap seorang Hunter bernama Cielmer.」
 ...... Dari Markas Besar?」
 「Tidak, itu dari Persekutuan Ibukota Kerajaan Estoque.
 Biasanya ini harus melalui Markas Besar terlebih dahulu, tetapi tanah Estoque saat ini sedang diinjak-injak. Karena kamu berasal dari sana, maka tidak ada bedanya dengan mengabaikan tanggung jawabmu sebagai Hunter.
-Namun kamu datang ke sini berniat untuk melewati menggunakan kartu serikat kamu? Tak tahu malu, bukan?」
+Tapi kamu datang ke sini berniat untuk melewati menggunakan kartu serikat kamu? Tak tahu malu, bukan?」
 Konfirmasi dengan Markas Besar.
 Selain itu, Aku pernah mendengar bahwa kamu membuat keributan besar di Persekutuan Ibukota Estoque dan menyebabkan banyak korban.
 Tidak perlu mengkonfirmasi apa pun.
@@ -164,7 +178,7 @@ Karena, kamu tahu, penjara gerbang ini ditempeli dengan penghambat sihir.
 Tampaknya dalam suasana hati yang baik, prajurit itu membawa Ciel.
 Kami melewati beberapa pintu dan mencapai tangga menuju bawah tanah.
 
-Namun, ada sesuatu yang menggangguku. Kami diberitahu bahwa ada penghambat sihir di sini, tetapi Aku tidak melihat tanda-tanda ini terjadi di mana pun.
+Tapi, ada sesuatu yang menggangguku. Kami diberitahu bahwa ada penghambat sihir di sini, tetapi Aku tidak melihat tanda-tanda ini terjadi di mana pun.
 Seluruh tempat dipenuhi dengan kekuatan sihir Fiiyanamia- sama .
 
 Pada akhirnya, bahkan setelah memasuki sel dan dikunci, kekuatan sihir Fiiyanamia- sama masih ada.
@@ -200,7 +214,7 @@ Fiiyanamia- sama . Bolehkah aku meminta waktumu? Ini Ainsel.
 
 Dari kata-kataku, Fiiyanamia- sama menunjukkan respon.
 
-Karena kesalahan, atau lebih tepatnya dendam pribadi atau balas dendam yang salah arah, kami telah ditahan. Namun, apakah tidak apa-apa bagi kita untuk mencoba melarikan diri? Kami kemungkinan akan merusak penjara gerbang tapi ……」
+Karena kesalahan, atau lebih tepatnya dendam pribadi atau balas dendam yang salah arah, kami telah ditahan. Tapi, apakah tidak apa-apa bagi kita untuk mencoba melarikan diri? Kami kemungkinan akan merusak penjara gerbang tapi ……」
 
 Jawabannya adalah ya. Tampaknya kita diizinkan untuk menghancurkannya.
 
