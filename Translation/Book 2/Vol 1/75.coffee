@@ -62,13 +62,16 @@ Meskipun mungkin berbeda jika kami melarikan diri secara diam-diam atau bergerak
 
 Tetap saja, tidak sepertiku, Ciel tidak menganggapku tipe orang yang melakukan sesuatu yang kekanak-kanakan seperti ini, jadi ini tampak tidak biasa.
 
-Saat aku bertanya-tanya tentang ini, Ciel cemberut bibirnya.
+Saat aku memikirkan ini, bibir Ciel cemberut.
 
-『Ain, Aku mungkin tidak terlihat seperti itu tapi aku marah kau tahu?』
-『Umm , kenapa begitu?』
+[Ain, Aku mungkin tidak terlihat seperti itu tapi aku marah, kau tahu?] (Ciel)
+
+[Umm, kenapa ?] (Ain)
 
 Selama ini, Ciel biasanya hanya marah jika ada yang menghinaku.
+
 Juga, Aku tidak berpikir dia pernah cukup marah untuk mengatakan bahwa dia marah.
+
 Lagi pula, bahkan apa yang baru saja dilakukan oleh Guild Hunter tampaknya tidak terlalu mempengaruhi Ciel.
 
 Maksud Aku, Aku bersenang-senang dalam perjalanan ke sini, Kamu tahu?
