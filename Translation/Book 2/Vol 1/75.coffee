@@ -18,7 +18,7 @@ Koridornya sempit. Dengan dua tentara berdiri di samping satu sama lain, melewat
 
 tapi, mengayunkan pedang di jalan sempit ini juga akan sulit bagi mereka.
 
-Tampak tidak senang dengan sikap Ciel, kedua prajurit itu memerah karena marah.
+Tampak tidak senang dengan sikap Ciel, kedua Tentara itu memerah karena marah.
 
 "Bisakah Aku memintamu untuk kembali ke sel?"
 
@@ -26,7 +26,7 @@ Tampak tidak senang dengan sikap Ciel, kedua prajurit itu memerah karena marah.
 
 "Kalau begitu, kami harus menggunakan kekerasan."
 
-Para prajurit mengangkat pedang mereka, masing-masing dipegang dengan kedua tangan, membuat mereka jauh lebih mengintimidasi.
+Para Tentara mengangkat pedang mereka, masing-masing dipegang dengan kedua tangan, membuat mereka jauh lebih mengintimidasi.
 
 Dengan mereka yang mendekat seperti itu, biasanya ini akan menakutkan tetapi, setelah bertarung melawan serigala emas dan wyvern, mau tak mau aku merasa kecewa kalau dibandingkan dengan mereka.
 
@@ -36,11 +36,11 @@ Dan mungkin mereka mengayunkan dengan kekuatan yang cukup besar, karena mereka t
 
 Tapi, bagi tentara yang melindungi perbatasan negara, apakah tingkat kekuatan ini cukup untuk tugas mereka?
 
-Mengesampingkan para prajurit yang tercengang, Ciel terus berjalan melewati koridor.
+Mengesampingkan para Tentara yang tercengang, Ciel terus berjalan melewati koridor.
 
 "Ada yang lari dari penjara!"
 
-Karena tidak mampu meraih Ciel saat dia dengan santai melewati mereka, salah satu prajurit berteriak demikian.
+Karena tidak mampu meraih Ciel saat dia dengan santai melewati mereka, salah satu Tentara berteriak demikian.
 
 Meskipun Aku tidak tahu berapa banyak orang yang menjaga gerbang ini, mereka mungkin tidak memiliki siapa pun yang mampu menangkap Ciel.
 
@@ -74,76 +74,92 @@ Juga, Aku tidak berpikir dia pernah cukup marah untuk mengatakan bahwa dia marah
 
 Lagi pula, bahkan apa yang baru saja dilakukan oleh Guild Hunter tampaknya tidak terlalu mempengaruhi Ciel.
 
-Maksud Aku, Aku bersenang-senang dalam perjalanan ke sini, Kamu tahu?
-Bagaimanapun, kami akhirnya meninggalkan Estoque dan Ain telah banyak bernyanyi di jalan.
-Itu sebabnya aku marah karena kita diseret seperti itu.』
-Begitu. Yah, aku juga relatif kesal sejak awal.』
-Kalau begitu, bisakah kita berjalan?』
-Benar, ayo jalan.
-Iklan
+[Maksudku, Aku bersenang-senang dalam perjalanan ke sini, Kamu tahu? kita akhirnya meninggalkan Estoque dan Ain telah banyak bernyanyi di jalan. Itu sebabnya aku marah karena kita diseret seperti itu.] (Ciel)
 
-Saat para prajurit berdiri dan berlari mengejar kami, Aku memperluas penghalang sehingga mereka tidak bisa mendekat dan Ciel terus berjalan maju.
+[Begitu. Yah, aku juga relatif kesal sejak awal.] (Ain)
+
+[Kalau begitu, bisakah kita berjalan?] (Ciel)
+
+[Benar, ayo kita jalan saja.] (Ain)
+
+Saat para Tentara berdiri dan berlari mengejar kami, Aku memperluas +BARRIER sehingga mereka tidak bisa mendekat dan Ciel terus berjalan maju.
 
 ◇
 
-Saat kami kembali ke jalan asli kami, dua tentara lagi muncul, menyebabkan kami dikepung di semua sisi; tetapi karena tidak ada dari mereka yang bisa menembus penghalang kami, para prajurit menyadari bahwa itu tidak ada harapan dan mereka hanya mengikuti kami sebagai gantinya.
+Saat kami kembali ke jalan asli kami, dua tentara lagi muncul, menyebabkan kami dikepung di semua sisi; tetapi karena tidak ada dari mereka yang bisa menembus +BARRIER kami, para Tentara menyadari bahwa itu tidak ada gunanya dan mereka hanya mengikuti kami sebagai gantinya.
+
 Ketika kami kembali ke gerbang, 10 lagi menunggu kami, jadi pada akhirnya ada 14 tentara.
-Melihat para prajurit hanya mengikuti kami, seorang prajurit — yang pertama kami temui yang tampaknya berpangkat tinggi di antara yang bergabung belakangan — mulai menegur mereka.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Melihat para Tentara hanya mengikuti kami, seorang Tentara — yang pertama kami temui yang tampaknya berpangkat tinggi — mulai menegur mereka.
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"Kalian semua, apa yang kalian lakukan? Cepat tangkap dia!"
 
-Kamu banyak, apa yang kamu lakukan? Cepat dan tangkap dia!」
-Tidak mungkin, pemimpin.
-「Haah . Dia hanya berjalan, bukan?
-Tetap saja, terlepas dari penampilannya, dia adalah Hunter Rank-B. Mari kita amankan ini. Kelilingi dia!
+"itu mustahil, ketua."
 
-Atas perintah pemimpin, para prajurit mengepung Ciel.
-Sementara Aku memuji dia karena mengambil tindakan hati-hati tanpa tertipu oleh penampilan Ciel, ini tidak akan cukup untuk menembus penghalang Aku.
+"Haah. Dia hanya berjalan, bukan? terlepas dari penampilannya, dia tetap Hunter Rank-B. Mari kita selesaikan ini. Kelilingi dia!"
 
-"Pemimpin. Dia menggunakan penghalang. 」
-「Tsk . Kalau dipikir-pikir, dia adalah seorang penyihir. Bergeser ke D3.
+Atas perintah ketua, para Tentara mengepung Ciel.
 
-Aku tidak tahu arti kata-katanya, tetapi para prajurit mengubah formasi mereka mengikuti perintah pemimpin. Para prajurit membentuk kelompok 6, berbaris dengan pemimpin di antara mereka, dan mengacungkan pedang mereka.
-Menghancurkan penghalang itu sederhana, serang saja sampai rusak. Karena kastor harus memperbaiki penghalang mereka jika itu robek meskipun hanya sedikit karena kerusakan, itu akan menghabiskan kekuatan sihir.
+Aku memuji dia karena mengambil tindakan hati-hati tanpa tertipu oleh penampilan Ciel, tapi ini tidak akan cukup untuk menembus +BARRIERku.
+
+"Ketua. Dia menggunakan +BARRIER."
+
+"Tsk. Kalau dipikir-pikir, dia adalah seorang penyihir. Ganti ke D3."
+
+Aku tidak tahu arti kata-katanya, tetapi para Tentara mengubah formasi mereka mengikuti perintah Ketua. Para Tentara membentuk kelompok 6, berbaris dengan ketua di antara mereka, dan mengacungkan pedang mereka.
+
+Menghancurkan +BARRIER itu sederhana, serang saja sampai rusak. Karena pemilik +BARRIER memperbaiki +BARRIER mereka jika itu robek meskipun hanya sedikit karena kerusakan, itu akan menghabiskan energi sihir.
+
 Jika titik lemah menjadi sasaran, maka robekan ini akan lebih mudah terjadi.
-Dan karena mempertahankan penghalang juga menghabiskan kekuatan sihir, pertempuran berlarut-larut mungkin diperlukan paling buruk tetapi penghalang itu akan tetap hilang pada akhirnya.
 
-Jika memungkinkan, menghancurkan penghalang dengan satu serangan kuat adalah yang terbaik.
-Sama seperti apa yang terjadi dengan tombak es, penghalang itu akan segera menghilang.
+Dan karena mempertahankan +BARRIER juga menghabiskan energi sihir, pertempuran yang lama mungkin diperlukan tetapi +BARRIER itu akan tetap hilang pada akhirnya.
 
-Tapi, penghalangku adalah sesuatu yang bahkan seorang wyvern tidak bisa menguranginya. Selain itu, Aku mendapatkan lebih banyak kekuatan sihir melalui pemulihan alami daripada yang Aku habiskan untuk mempertahankan penghalang.
+Jika memungkinkan, menghancurkan +BARRIER dengan satu serangan kuat adalah yang terbaik.
 
-"Menyerang!"
+Sama seperti apa yang terjadi dengan tombak es, +BARRIER itu akan segera menghilang.
 
-Atas perintah pemimpin, 12 tentara mulai bergerak. Seolah-olah itu adalah pertunjukan, semuanya bergerak serempak.
+Tapi, +BARRIERku adalah sesuatu yang bahkan seekor wyvern tidak bisa menghilangkannya. Selain itu, Aku mendapatkan lebih banyak energi sihir melalui pemulihan alami daripada yang Aku habiskan untuk mempertahankan +BARRIER.
+
+"SERAAANG!"
+
+Atas perintah Ketua, 12 tentara mulai bergerak. Seolah-olah itu adalah pertunjukan, semuanya bergerak serempak.
+
 Dengan satu kaki ke depan, mereka menarik kembali lengan mereka, dan masing-masing 6 dari kelompok itu menusukkan pedang mereka di tempat yang sama persis.
-Sementara Aku kagum bahwa mereka berani menyerang dengan pedang biasa, Aku lebih terkejut dengan kekuatan serangan itu.
-Itu hampir sekuat serangan wyvern. Itu cukup kuat untuk menghentikan Ciel di jalurnya dan jika Aku hanya menilai potensi ofensifnya, itu mungkin akan bertahan melawan monster Rank-A.
 
-Dengan kata lain, penghalangnya masih sangat bagus.
+Aku kagum bahwa mereka berani menyerang dengan pedang biasa, tapi Aku lebih terkejut dengan kekuatan serangan itu.
 
-Karena itu, setelah serangan ini, Ciel terus berjalan seolah tidak terjadi apa-apa.
+Itu hampir sekuat serangan wyvern. Itu cukup kuat untuk menghentikan Ciel berjalan dan jika Aku hanya menilai potensi ofensifnya, itu mungkin akan bertahan melawan monster Rank-A.
 
-Melihat ini, mereka mengulangi serangan untuk kedua dan ketiga kalinya tetapi itu bahkan tidak menghabiskan sedikit kekuatan sihirku.
-Sejujurnya, aku mengalami surplus kekuatan sihir.
-Di sisi lain, para prajurit ...... atau lebih tepatnya pemimpin sudah terengah-engah dengan bahunya.
+Dengan kata lain, +BARRIERnya masih sangat bagus.
 
-Aku bertanya-tanya mengapa, tetapi mungkin koordinasi sempurna para prajurit adalah karena pekerjaan pemimpin.
-Komandan sebagai Pekerjaan tentu saja tampak masuk akal.
+Setelah serangan ini, Ciel terus berjalan seolah tidak terjadi apa-apa.
 
-Katakan, Ain.
-Apa itu?』
-Apakah berjalan cukup baik seperti ini?』
-Apa maksudmu dengan itu?』
+Melihat ini, mereka mengulangi serangan untuk kedua dan ketiga kalinya tetapi itu bahkan tidak menghabiskan sedikit energi sihirku.
 
-Meskipun ini adalah hal yang cukup menarik yang mereka tunjukkan, sepertinya Ciel sudah muak, saat dia memanggilku.
+jujur, energi sihirku terlalu berlebihan.
+
+Di sisi lain, para Tentara ...... atau lebih tepatnya Ketua sudah terengah-engah dengan bahunya.
+
+Aku bertanya-tanya mengapa, tetapi mungkin koordinasi sempurna para Tentara adalah karena job Ketua.
+
+Komandan sebagai job tentu saja tampak masuk akal.
+
+[Ain...] (Ciel)
+
+[Apa?] (Ain)
+
+[Apakah berjalan cukup seperti ini saja?] (Ciel)
+
+[Apa maksudmu?] (Ain)
+
+Meskipun ini adalah hal yang cukup menarik yang mereka tunjukkan, sepertinya Ciel sudah muak, dan dia memanggilku.
+
 Tapi, sehubungan dengan pertanyaannya, Aku tidak tahu bagaimana menjawabnya.
-Berjalan… Bukankah cara dia berjalan saat ini sudah cukup baik?
+
+Berjalan... Bukankah cara dia berjalan saat ini sudah cukup ?
 
 Aku bertanya-tanya apakah para bangsawan atau bangsawan akan memiliki cara berjalan yang berbeda.
-Bahkan cara para prajurit berjalan tadi agak seperti menari dengan cara mereka mengatur napas mereka, kan?』
+Bahkan cara para Tentara berjalan tadi agak seperti menari dengan cara mereka mengatur napas mereka, kan?』
 Begitu. Jadi Kamu ingin memasukkan bahkan cara Kamu berjalan ke Dance Princess, kan?』
 Bukankah ini bagus? Aku pikir jika Aku bisa melakukan ini, maka itu akan nyaman dalam banyak hal. Begitu
 , itu benar. Paling tidak, itu bisa membuat segalanya lebih aman.
@@ -216,8 +232,8 @@ Dapatkah Aku mengikuti mereka?』
 Ya. Lagi pula, kita mungkin akan membuang banyak waktu menunggu antrean bergerak maju apa adanya.
 
 Saat Ciel dan Aku sampai pada kesimpulan yang sama, Pimpin jalan. Ciel menjawab demikian.
-Dan meskipun memiliki ekspresi bingung di wajah mereka, Baiklah, ikutilah. para prajurit membimbing kami masuk.
-Para prajurit mengepung Ciel ke segala arah saat kami berjalan, jadi Aku bertanya-tanya bagaimana ini akan muncul dari masyarakat umum.
+Dan meskipun memiliki ekspresi bingung di wajah mereka, Baiklah, ikutilah. para Tentara membimbing kami masuk.
+Para Tentara mengepung Ciel ke segala arah saat kami berjalan, jadi Aku bertanya-tanya bagaimana ini akan muncul dari masyarakat umum.
 Apakah itu terlihat seperti pengawalan atau penangkapan? Tergantung pada yang mana, itu mungkin mempengaruhi bagaimana orang-orang Central akan memperlakukan kita.
 
 Jika kita diburu karena ini, aku akan mengajukan keluhan.
@@ -226,8 +242,8 @@ Jika kita diburu karena ini, aku akan mengajukan keluhan.
 Haruskah Aku?」
 Tidak, silakan lanjutkan apa adanya.
 
-Saat kami sedang dipandu, seorang prajurit dengan takut-takut bertanya kepada Ciel.
-Ciel hanya menjawab dengan jawaban singkat, tetapi prajurit itu mengakhiri percakapan dengan panik.
+Saat kami sedang dipandu, seorang Tentara dengan takut-takut bertanya kepada Ciel.
+Ciel hanya menjawab dengan jawaban singkat, tetapi Tentara itu mengakhiri percakapan dengan panik.
 Aku ingin tahu apa yang dia maksud dengan itu. Ciel tidak terlalu berjuang melawan siapa pun pada setiap kesempatan.
 
 (Bab ini disediakan untuk Kamu oleh Re:Library)
@@ -243,7 +259,7 @@ Sementara tidak ada percakapan lagi sejak saat itu, kami secara bertahap melewat
 Tempat ini memiliki lingkungan yang berbeda dibandingkan dengan tempat tinggal manusia lain yang pernah kami kunjungi sampai sekarang, tetapi karena tentara mengelilingi kami, kami tidak dapat melihat dengan jelas.
 Aku seharusnya bisa melihatnya jika aku mencoba, tetapi aku lebih suka melihatnya bersama dengan Ciel jika memungkinkan, jadi aku menahan diri.
 
-Dari celah di antara para prajurit, Aku melihat kota yang penuh dengan tanaman hijau.
+Dari celah di antara para Tentara, Aku melihat kota yang penuh dengan tanaman hijau.
 Tampaknya pohon ditanam di kedua sisi jalan dan, melihat ke atas, Aku dapat melihat daun besar yang mulai berubah menjadi merah.
 Musim tampaknya musim gugur sekarang. Di dunia ini, musim gugur adalah musim untuk mempersiapkan datangnya musim dingin.
 
