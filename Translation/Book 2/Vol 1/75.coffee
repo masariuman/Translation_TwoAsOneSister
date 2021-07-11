@@ -166,28 +166,30 @@ Berjalan... Bukankah cara dia berjalan saat ini sudah cukup ?
 
 [Begitu, itu benar. Paling tidak, itu bisa membuat segalanya lebih aman.] (Ain)
 
-Jika Dance Princess bisa aktif hanya dengan berjalan, maka itu akan sangat kuat melawan penyergapan dan serangan mendadak.
-Seolah-olah Aku terus-menerus bernyanyi.
-Selain itu, di antara orang-orang kelas atas, bahkan cara seseorang berjalan mungkin akan membuat perbedaan. Aku tidak terlalu tahu banyak tentang itu, tetapi tidak berlebihan untuk mengatakan bahwa cara orang berjalan di peragaan busana dan acara—meskipun pakaian juga merupakan faktor—adalah salah satu yang membuat orang terpesona.
+Jika Dance Princess bisa aktif hanya dengan berjalan, itu akan sangat kuat melawan penyergapan dan serangan mendadak.
+
+itu sama seperti Aku terus-menerus bernyanyi tanpa henti.
+
+Selain itu, di antara orang-orang kelas atas, bahkan cara seseorang berjalan mungkin akan membuat perbedaan. Aku tidak terlalu tahu banyak tentang itu, tetapi tidak berlebihan untuk mengatakan bahwa cara orang berjalan di peragaan busana dan acara, meskipun pakaian juga merupakan faktor, adalah salah satu yang membuat orang terpesona.
 
 Tapi, ada beberapa masalah.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+[Tapi, sayangnya Aku tidak tahu cara berjalan dengan benar.] (Ain)
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+[Benarkah? Kamu sepertinya tahu tentang etika dan sopan santun, Ain, jadi Aku pikir Kamu akan tahu.] (Ciel)
 
-Tapi, sayangnya Aku tidak tahu cara berjalan dengan benar.
-Benarkah? Kamu sepertinya tahu tentang etiket dan sopan santun, Ain, jadi Aku pikir Kamu akan tahu.』
-Etiket Aku hanya didasarkan pada pengetahuan tingkat permukaan. Selain itu, etiket adalah sesuatu yang berubah tergantung pada negara atau wilayah.
-Dalam hal berjalan, sejujurnya Aku hanya memiliki gagasan yang kabur tentang hal itu. Akan lebih baik untuk memperhatikan postur Kamu untuk saat ini dan kemudian bertanya pada ahlinya nanti.』
-Postur, kan? Ini juga penting saat menari. Sulit untuk berputar ketika intiku tidak stabil.』
-Kalau begitu, bukankah itu berarti kamu sudah berjalan dengan benar, Ciel?』
-Menurutmu begitu?』
-Iklan
+[Etikaku hanya didasarkan pada pengetahuan tingkat permukaan. Selain itu, etika adalah sesuatu yang berubah tergantung pada negara atau wilayah. Dalam hal berjalan, sejujurnya Aku hanya memiliki pengetahuan samar-samar tentang hal itu. Akan lebih baik untuk memperhatikan posturmu untuk saat ini dan kemudian bertanya pada ahlinya nanti.] (Ain)
 
+[Postur, kan? Ini juga penting saat menari. Sulit untuk berputar ketika intiku tidak stabil.] (Ciel)
 
-Saat Ciel berjalan, orang-orang di sekitar kami mulai berkurang satu per satu — mungkin karena kelelahan — dan sebelum aku menyadarinya, tidak ada orang di sekitar kami lagi.
-Jauh di belakang kami, aku bisa mendengar suara berteriak keras. Apakah Fiiyanamia- sama tidak menganggap suara-suara seperti ini mengganggu?
+[Kalau begitu, bukankah itu berarti kamu sudah berjalan dengan benar, Ciel?] (Ain)
+
+[Menurutmu begitu?] (Ciel)
+
+Saat Ciel berjalan, orang-orang di sekitar kami mulai berkurang satu per satu, mungkin karena kelelahan, dan tanpa kusadari, tidak ada orang di sekitar kami lagi.
+
+Jauh di belakang kami, aku bisa mendengar suara berteriak keras. Apakah Fiiyanamia-sama tidak menganggap suara-suara seperti ini mengganggu?
+
 Karena aku mungkin bisa menanyakannya, aku harus mencoba bertanya padanya kapan-kapan.
 
 ◇
