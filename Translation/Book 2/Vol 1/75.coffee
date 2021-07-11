@@ -226,63 +226,85 @@ Dan seperti yang Aku bayangkan seberapa lama garis ini bisa berlangsung, beberap
 
 Dan saat mereka mendekat, mereka mengepung Ciel.
 
-Aku kira itu diharapkan bahwa mereka telah dihubungi tentang apa yang terjadi. Kami merusak penjara setelah semua. 』
-『Tapi kami sudah mendapat izin untuk melakukan itu, kan?』
-『Hmm ...... Nah, meskipun Fiiyanamia- sama memiliki pengetahuan penuh dari itu, yang tidak selalu berarti bahwa mereka yang di bawah nya sadar, Kamu lihat?
+[sudah kuduga mereka telah dihubungi tentang apa yang terjadi. yaaah kita juga merusak penjara mereka.] (Ain)
 
-Cielmer, benar?」
-Ya.
-Kami membutuhkan Kamu untuk mengikuti kami ke Guild Hunter.
-「Mengapa?」
-Mereka ingin mendengar detail lengkapnya. Saat ini, kami tidak memiliki niat untuk menyakiti.
+[Tapi kita sudah mendapat izin untuk melakukan itu, kan?] (Ciel)
 
-Meskipun mereka tampaknya tidak bermusuhan, meskipun demikian, Aku tidak percaya itu perlu untuk mengelilingi seorang gadis muda seperti ini.
-Jika ini karena mereka menyadari kekuatan kita, maka kurasa ini tidak akan cukup.
-Atau, apakah orang-orang ini mungkin Hunter Rank-S? Sejujurnya sulit untuk mengukur kekuatan dalam hal orang.
+[Hmm ...... Nah, meskipun Fiiyanamia-sama mengetahui itu, tidak selalu berarti bahwa mereka yang di bawah nya mengetahuinya, Kamu mengerti?] (Aun)
 
-Tetap saja, jika kita harus mengantri dalam antrean panjang ini, maka aku punya firasat bahwa dibawa ke Guild Hunter segera mungkin akan membuatku lebih bahagia.
+"Cielmer, benar?"
 
-Dapatkah Aku mengikuti mereka?』
-Ya. Lagi pula, kita mungkin akan membuang banyak waktu menunggu antrean bergerak maju apa adanya.
+"Ya." (Ciel)
 
-Saat Ciel dan Aku sampai pada kesimpulan yang sama, Pimpin jalan. Ciel menjawab demikian.
-Dan meskipun memiliki ekspresi bingung di wajah mereka, Baiklah, ikutilah. para Tentara membimbing kami masuk.
-Para Tentara mengepung Ciel ke segala arah saat kami berjalan, jadi Aku bertanya-tanya bagaimana ini akan muncul dari masyarakat umum.
-Apakah itu terlihat seperti pengawalan atau penangkapan? Tergantung pada yang mana, itu mungkin mempengaruhi bagaimana orang-orang Central akan memperlakukan kita.
+"Kami ingin Kamu untuk mengikuti kami ke Guild Hunter."
 
-Jika kita diburu karena ini, aku akan mengajukan keluhan.
+"Mengapa?" (Ciel)
 
-...... Jadi Kamu tidak akan berjuang?」
-Haruskah Aku?」
-Tidak, silakan lanjutkan apa adanya.
+"Mereka ingin mendengar detail lengkapnya. Saat ini, kami tidak memiliki niat untuk menyakiti."
+
+Meskipun mereka tampaknya tidak bermusuhan, meskipun demikian, Aku tidak percaya perlu untuk mengelilingi seorang gadis muda seperti ini.
+
+Jika ini karena mereka menyadari kekuatan kami, kurasa ini tidak akan cukup.
+
+Atau, apakah orang-orang ini mungkin Hunter Rank-S? jujur sulit untuk mengukur kekuatan dalam hal orang.
+
+Tetap saja, jika kami harus mengantri dalam antrean panjang ini, maka aku punya firasat bahwa dibawa ke Guild Hunter segera mungkin akan membuatku lebih bahagia.
+
+[Bolehkan Aku mengikuti mereka?] (Ciel)
+
+[Ya. Lagi pula, kita mungkin akan membuang banyak waktu menunggu antrean ini.] (Ain)
+
+Saat Ciel dan Aku sampai pada kesimpulan yang sama, "Pimpin jalannya.", Ciel menjawab demikian.
+
+Dan meskipun memiliki ekspresi bingung di wajah mereka, "Baiklah, ikutilah kami.", para Tentara membimbing kami masuk.
+
+Para Tentara mengepung Ciel ke segala arah saat kami berjalan, jadi Aku bertanya-tanya masyarakat umum akan memandang kami.
+
+Apakah itu terlihat seperti pengawalan atau penangkapan? Tergantung pada yang mana, itu mungkin mempengaruhi bagaimana orang-orang Central akan memperlakukan kami.
+
+Jika kami diburu karena ini, aku akan mengajukan keluhan.
+
+"...... Jadi Kamu tidak akan melawan?"
+
+"Haruskah Aku?" (CIel)
+
+"Tidak, silakan lanjutkan apa adanya."
 
 Saat kami sedang dipandu, seorang Tentara dengan takut-takut bertanya kepada Ciel.
+
 Ciel hanya menjawab dengan jawaban singkat, tetapi Tentara itu mengakhiri percakapan dengan panik.
-Aku ingin tahu apa yang dia maksud dengan itu. Ciel tidak terlalu berjuang melawan siapa pun pada setiap kesempatan.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Aku ingin tahu apa yang dia maksud dengan itu. Ciel tidak terlalu serius melawan siapa pun.
 
-(Katakan tidak pada pencuri konten!)
+Di Guild Ibukota Kerajaan Estoque dan perbatasan nasional, Ciel hanya berjalan , tidak lebih.
 
-Iklan
-
-Di Persekutuan Ibukota Kerajaan Estoque dan perbatasan nasional, Ciel hanya berjalan , tidak lebih.
 Dia mungkin telah menghancurkan jeruji besi, tetapi tidak ada pilihan lain dalam hal itu.
 
-Sementara tidak ada percakapan lagi sejak saat itu, kami secara bertahap melewati antrian dan akhirnya melewati gerbang kota.
+tidak ada percakapan lagi sejak saat itu, tapi kami secara bertahap melewati antrian dan akhirnya melewati gerbang kota.
+
 Tempat ini memiliki lingkungan yang berbeda dibandingkan dengan tempat tinggal manusia lain yang pernah kami kunjungi sampai sekarang, tetapi karena tentara mengelilingi kami, kami tidak dapat melihat dengan jelas.
+
 Aku seharusnya bisa melihatnya jika aku mencoba, tetapi aku lebih suka melihatnya bersama dengan Ciel jika memungkinkan, jadi aku menahan diri.
 
 Dari celah di antara para Tentara, Aku melihat kota yang penuh dengan tanaman hijau.
-Tampaknya pohon ditanam di kedua sisi jalan dan, melihat ke atas, Aku dapat melihat daun besar yang mulai berubah menjadi merah.
-Musim tampaknya musim gugur sekarang. Di dunia ini, musim gugur adalah musim untuk mempersiapkan datangnya musim dingin.
 
-Satu-satunya pengalaman Aku tentang musim dingin yang dingin adalah kerlip salju.
+Tampaknya pohon ditanam di kedua sisi jalan dan, melihat ke atas, Aku dapat melihat daun besar yang mulai berubah menjadi merah.
+
+tampaknya sekarang musim gugur. Di dunia ini, musim gugur adalah musim untuk mempersiapkan datangnya musim dingin.
+
+Satu-satunya pengalamanku tentang musim dingin yang dingin adalah salju.
+
 Mungkin salju bahkan menumpuk selama musim dingin di Norvell dan tempat-tempat lain.
-Terlepas dari apakah tumpukan salju atau tidak, dingin yang keras masih akan mencegah tanaman tumbuh dan dengan suhu, berburu hewan tidak akan berjalan seperti yang direncanakan.
+
+Terlepas dari apakah tumpukan salju atau tidak, dingin yang keras masih akan mencegah tanaman tumbuh dan dengan suhu dingin, berburu hewan tidak akan berjalan seperti yang direncanakan.
 
 Yah, Aku benar-benar tidak punya waktu untuk menikmati pergantian musim selama kami di Estoque.
-Dan berkat penghalangku, hawa dingin tidak menghentikan kami untuk menyelesaikan permintaan, jadi aku ingat kami berterima kasih selama musim dingin.
+
+Dan berkat +BARRIERku, hawa dingin tidak menghentikan kami untuk menyelesaikan permintaan, jadi aku ingat kami mendapatkan terima kasih selama musim dingin.
 
 Mungkin menyenangkan bermain salju bersama Ciel suatu saat nanti.
-Sementara itu, Aku berdoa agar kami dapat dengan cepat menyelesaikan masalah ini tepat di depan kami.
+
+Sementara itu, Aku berdoa agar kami dapat dengan cepat menyelesaikan masalah yang ada tepat di depan kami.
+
+----------------------------
+
