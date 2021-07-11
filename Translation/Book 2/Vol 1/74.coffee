@@ -78,38 +78,39 @@ Jika ini masalahnya, energi sihir ini yang dengan keras berubah komposisinya sec
 
 [Entah bagaimana, komposisi energi sihir berubah terus-menerus, seolah-olah meminta perhatian.] (Ain)
 
-Begitukah? Apakah kamu keberatan melakukan itu?
+[Begitukah? Apakah kamu keberatan melakukan itu?] (Ciel)
 
-Bagaimana Aku bisa menggambarkannya? Ini seperti dari serangkaian beberapa angka, itu hanya mengubah angka demi satu.
-Sebagai contoh: jika Aku menganggap kekuatan sihir yang ada di alam adalah "159845158794651984156", maka Aku biasanya akan menyamarkan kekuatan sihir yang Aku gunakan untuk sihir Aku sebagai "159845158794651884156".
-Semakin banyak penyimpangan untuk setiap digit, semakin mudah keajaiban untuk dideteksi. Seharusnya lebih bisa dimengerti untuk memikirkannya seperti itu.
-Iklan
+Bagaimana Aku bisa menggambarkannya? Ini seperti dari serangkaian beberapa angka dan itu hanya mengubah angka satu digit saja.
 
+Sebagai contoh: jika Aku menganggap energi sihir yang ada di alam adalah "159845158794651984156", maka Aku biasanya akan menyamarkan energi sihir yang Aku gunakan untuk sihirku sebagai "159845158794651884156".
 
-Jadi, seolah-olah dia sangat ingin aku pergi Aha! , kekuatan sihir sihir ini telah melakukan perubahan halus yang konstan pada angkanya sampai sekarang.
-Ini sebenarnya bukan angka.
-Sementara orang yang tidak sadar tidak akan terganggu, bagi mereka yang melakukannya, itu tidak menyenangkan. Ini seperti ada sesuatu yang berkedip masuk dan keluar di sudut mata kamu.
+Semakin banyak penyimpangan untuk setiap digit, semakin mudah sihirnya untuk mendeteksi. Seharusnya lebih bisa dimengerti seperti itu.
 
-"Senang bertemu denganmu. Apakah suara ini tidak terdengar?
+Jadi, seolah-olah dia sangat ingin aku berkata "Aha!", energi sihir sihir ini telah melakukan perubahan halus yang konstan pada angkanya sampai sekarang.
+
+tapi Ini sebenarnya bukan angka.
+
+orang yang tidak sadar tidak akan terganggu tapi bagi mereka yang melakukannya, itu tidak menyenangkan. Ini seperti ada sesuatu yang muncul dan hilang pada pandangan di sudut matamu.
+
+"Senang bertemu denganmu. Apakah suara ini tidak bisa terdengar?" (Ain)
 
 Seperti yang Aku katakan, perubahan itu tiba-tiba berhenti sejenak sebelum kemudian berubah secara halus.
-Karena itu bereaksi terhadap suaraku, respons ini seharusnya tidak.
 
-(Bab ini disediakan untuk kamu oleh Re:Library)
+Karena itu bereaksi terhadap suaraku, respons ini berarti 'tidak' atau berarti dia bisa mendengarku.
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"Jadi kamu bisa mendengarku?" (Ain)
 
-Jadi kamu bisa mendengarku, kan?」
+Ada tanggapan yang berbeda kali ini, jadi itu pasti bermaksud iya.
 
-Ada tanggapan yang berbeda kali ini, jadi itu harus menjadi penegasan.
 Pertukaran semacam ini lagi, Aku baru saja melakukan sesuatu seperti ini baru-baru ini juga.
 
-Ciel, aku sedang berpikir untuk membagikan namaku tapi bagaimana menurutmu?』
-Itu tidak biasa.
-Aku tidak keberatan, tapi kenapa begitu?』
-Fiiyanamia-sama memiliki pengaruh yang menonjol di dunia ini, dan dia jelas berada di level yang berbeda.
-Selain itu, terbukti bahwa dia tertarik dengan kami, jadi itu untuk membuktikan bahwa kami tidak bermusuhan ...... Aku kira. Juga, jika kita ketahuan nanti, itu pasti akan berakhir buruk bagi kita.』
-Dimengerti.
+[Ciel, aku sedang berpikir untuk meberitahu namaku tapi bagaimana menurutmu?] (Ain)
+
+[Itu tidak biasa. Aku tidak keberatan, tapi kenapa?] (Ciel)
+
+[Fiiyanamia-sama memiliki pengaruh yang menonjol di dunia ini, dan dia jelas berada di level yang berbeda. Selain itu, terbukti bahwa dia tertarik dengan kita, jadi itu untuk membuktikan bahwa kita tidak bermusuhan ...... mungkin. Juga, jika kita ketahuan nanti, itu pasti akan berakhir buruk untuk kita.] (Ain)
+
+[Baiklah aku mengerti.] (Ciel)
 
 Kami tidak berurusan dengan seseorang dari Estoque. Itu sebabnya tidak seperti yang terjadi sampai sekarang, untuk memastikan keamanan yang lebih besar, kita perlu bertindak dengan cara yang akan mendapatkan kepercayaan pihak lain.
 
