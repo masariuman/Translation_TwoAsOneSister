@@ -62,17 +62,22 @@ Aku hanya bisa merasakan perasaan kekalahan. Bagaimanapun juga, ini sudah yang k
 
 [Fiiyanamia. Aku tidak bisa membayangkan orang lain selain dia.] (Ciel)
 
-Sekarang dia menyebutkannya, Fiiyanamia- sama benar - benar tersangka yang paling mungkin.
-Menjadi atasan Central, tidak aneh baginya untuk memantau perbatasan Central. Yah, ya, aneh bagi yang di atas untuk melakukan ini.
-Tapi, jika itu adalah Fiiyanamia- sama , maka dia seharusnya tidak memiliki alasan langsung untuk memusuhi kita......Kurasa.
+setelah kupikir-pikir, Fiiyanamia-sama benar-benar orang yang paling mungkin dapat melakukan ini.
 
-Karena kita masuk melalui prosedur yang benar, setidaknya dia tidak boleh menyerang kita tanpa pertanyaan.
+Menjadi atasan Central, tidak aneh baginya untuk memantau perbatasan Central. Yah, itu aneh bagi atasan untuk melakukan ini.
 
-Jika ini masalahnya, maka kekuatan sihir yang dengan keras mengubah komposisinya hanya secara halus tidak dimaksudkan untuk menjadi intimidasi tetapi semacam sinyal bagi kita.
+Tapi, jika itu adalah Fiiyanamia-sama, maka dia seharusnya tidak memiliki alasan langsung untuk memusuhi kami......mungkin.
 
-Katakan, bisakah Aku berbicara dengan Fiiyanamia- sama (temp) sebentar?』
-Kamu bisa melakukannya Ain?』
-Entah bagaimana, komposisi kekuatan sihir berubah terus-menerus, seolah-olah meminta perhatian.』
+Karena kami masuk melalui prosedur yang benar, setidaknya dia tidak boleh menyerang kami tanpa pertanyaan.
+
+Jika ini masalahnya, energi sihir ini yang dengan keras berubah komposisinya secara halus tidak dimaksudkan untuk menjadi intimidasi tetapi semacam sinyal bagi kami.
+
+[ciel, bisakah Aku berbicara dengan Fiiyanamia-sama sebentar?] (Ain)
+
+[Kamu bisa melakukannya Ain?] (Ciel)
+
+[Entah bagaimana, komposisi energi sihir berubah terus-menerus, seolah-olah meminta perhatian.] (Ain)
+
 Begitukah? Apakah kamu keberatan melakukan itu?
 
 Bagaimana Aku bisa menggambarkannya? Ini seperti dari serangkaian beberapa angka, itu hanya mengubah angka demi satu.
@@ -102,7 +107,7 @@ Pertukaran semacam ini lagi, Aku baru saja melakukan sesuatu seperti ini baru-ba
 Ciel, aku sedang berpikir untuk membagikan namaku tapi bagaimana menurutmu?』
 Itu tidak biasa.
 Aku tidak keberatan, tapi kenapa begitu?』
-Fiiyanamia- sama memiliki pengaruh yang menonjol di dunia ini, dan dia jelas berada di level yang berbeda.
+Fiiyanamia-sama memiliki pengaruh yang menonjol di dunia ini, dan dia jelas berada di level yang berbeda.
 Selain itu, terbukti bahwa dia tertarik dengan kami, jadi itu untuk membuktikan bahwa kami tidak bermusuhan ...... Aku kira. Juga, jika kita ketahuan nanti, itu pasti akan berakhir buruk bagi kita.』
 Dimengerti.
 
@@ -113,7 +118,7 @@ Dan, pada saat yang sama, Aku juga dipanggil Cielmer. Karena sulit untuk dijelas
 
 Sesuatu berubah dengan kekuatan sihir, tapi sepertinya tidak buruk, jadi kurasa aku sudah dimaafkan untuk saat ini.
 
-Aku sadar ini pasti tidak sopan, tetapi apakah benar untuk menganggap bahwa kamu adalah Fiiyanamia- sama ?」
+Aku sadar ini pasti tidak sopan, tetapi apakah benar untuk menganggap bahwa kamu adalah Fiiyanamia-sama ?」
 
 Setuju.
 Iklan
@@ -133,8 +138,8 @@ Jika memungkinkan.
 Aku Cielmer. Silakan bertemu dengan kamu.
 
 Dari samping, itu hanya akan terlihat seperti Ciel yang berbicara ke dinding tetapi karena tidak ada tanda-tanda orang di sekitar, itu tidak masalah.
-Meskipun sulit untuk mengatakan bahwa pertukaran itu tanpa masalah, karena kami baru saja menyapa Fiiyanamia- sama , kami sekarang dapat memasuki Central tanpa khawatir.
-Bahkan jika ini sebenarnya bukan Fiiyanamia- sama , bersikap sopan kepada seseorang di level yang lebih tinggi seharusnya tidak merugikan kita.
+Meskipun sulit untuk mengatakan bahwa pertukaran itu tanpa masalah, karena kami baru saja menyapa Fiiyanamia-sama , kami sekarang dapat memasuki Central tanpa khawatir.
+Bahkan jika ini sebenarnya bukan Fiiyanamia-sama , bersikap sopan kepada seseorang di level yang lebih tinggi seharusnya tidak merugikan kita.
 
 Ini adalah pengalaman yang cukup aneh.
 
@@ -152,7 +157,7 @@ Kenapa? Status Aku sebagai B-rank dapat dikonfirmasi.
 (Jika kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
 
 um . Apa itu tentang bisa masuk tanpa khawatir lagi?
-Ini tidak seperti Fiiyanamia- sama akan berada di sana di pos pemeriksaan, jadi Aku telah mempertimbangkan perselisihan yang mungkin terjadi.
+Ini tidak seperti Fiiyanamia-sama akan berada di sana di pos pemeriksaan, jadi Aku telah mempertimbangkan perselisihan yang mungkin terjadi.
 Tetap saja, daripada itu terjadi karena keraguan terhadap Rank-B Ciel, tampaknya dalam hal ini perhatiannya tertuju pada Ciel sendiri, dan mau tak mau aku berpikir bahwa beberapa omong kosong total sedang terjadi saat ini.
 Iklan
 
@@ -179,9 +184,9 @@ Tampaknya dalam suasana hati yang baik, prajurit itu membawa Ciel.
 Kami melewati beberapa pintu dan mencapai tangga menuju bawah tanah.
 
 Tapi, ada sesuatu yang menggangguku. Kami diberitahu bahwa ada penghambat sihir di sini, tetapi Aku tidak melihat tanda-tanda ini terjadi di mana pun.
-Seluruh tempat dipenuhi dengan kekuatan sihir Fiiyanamia- sama .
+Seluruh tempat dipenuhi dengan kekuatan sihir Fiiyanamia-sama .
 
-Pada akhirnya, bahkan setelah memasuki sel dan dikunci, kekuatan sihir Fiiyanamia- sama masih ada.
+Pada akhirnya, bahkan setelah memasuki sel dan dikunci, kekuatan sihir Fiiyanamia-sama masih ada.
 Selain itu, penghalang dan deteksi Aku belum hilang juga.
 
 Katakan Ain, apakah sihir benar-benar dilarang di sini?』
@@ -203,16 +208,16 @@ Untuk beberapa alasan, Ciel sangat menyanjungku hari ini.
 Tidak, dia memujiku. Aku senang, tetapi Aku benar-benar bingung bagaimana harus bereaksi.
 
 Sekarang, apa yang harus kita lakukan?』
-Karena bahkan tempat ini dipenuhi dengan kekuatan sihir Fiiyanamia- sama , kita bisa mencoba bertanya.』
+Karena bahkan tempat ini dipenuhi dengan kekuatan sihir Fiiyanamia-sama , kita bisa mencoba bertanya.』
 Maukah kamu melakukannya?』
 Tidak sama sekali.
 
 Aku harus meminjam tubuh Ciel untuk ini tapi......kami bisa bertukar tanpa masalah sama sekali.
-Aku kemudian segera mencoba menghubungi Fiiyanamia- sama .
+Aku kemudian segera mencoba menghubungi Fiiyanamia-sama .
 
-Fiiyanamia- sama . Bolehkah aku meminta waktumu? Ini Ainsel.
+Fiiyanamia-sama . Bolehkah aku meminta waktumu? Ini Ainsel.
 
-Dari kata-kataku, Fiiyanamia- sama menunjukkan respon.
+Dari kata-kataku, Fiiyanamia-sama menunjukkan respon.
 
 Karena kesalahan, atau lebih tepatnya dendam pribadi atau balas dendam yang salah arah, kami telah ditahan. Tapi, apakah tidak apa-apa bagi kita untuk mencoba melarikan diri? Kami kemungkinan akan merusak penjara gerbang tapi ……」
 
