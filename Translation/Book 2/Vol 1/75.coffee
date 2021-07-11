@@ -4,47 +4,62 @@ Untuk saat ini, kami meninggalkan sel penjaran dan kembali ke jalur awal kami.
 
 Kami tidak punya niat untuk tertangkap kali ini, jadi Aku membuat +BARRIER berbentuk bola di sekitar Ciel untuk mencegah siapa pun mendekat.
 
-Dalam perjalanan kembali, Aku mendengar suara langkah kaki dan kemudian dua tentara muncul. Keduanya sepertinya tidak asing bagiku, jadi mereka mungkin bukan yang dari sebelumnya.
+Dalam perjalanan kembali, Aku mendengar suara langkah kaki dan kemudian dua tentara muncul. Keduanya sepertinya asing bagiku, jadi mereka mungkin bukan yang dari sebelumnya.
 
-Apa yang kamu pikir kamu lakukan?」
-Pergi ke Central.
-Jadi, suara-suara dari sel yang kamu lakukan?」
-Ya.
+"kamu pikir, Apa yang kamu lakukan?"
+
+"Pergi ke Central." (Ciel)
+
+"Jadi, suara-suara dari sel itu darimu?"
+
+"Ya." (Ciel)
 
 Koridornya sempit. Dengan dua tentara berdiri di samping satu sama lain, melewati akan sulit.
-Padahal, mengayunkan pedang di jalan sempit ini juga akan sulit bagi mereka.
-Tampak tidak senang dengan sikap tumpul Ciel, kedua prajurit itu memerah karena marah.
 
-Bisakah Aku meminta Kamu untuk kembali?」
-Tidak.
-Kalau begitu, kita harus menggunakan kekuatan.」
+tapi, mengayunkan pedang di jalan sempit ini juga akan sulit bagi mereka.
+
+Tampak tidak senang dengan sikap Ciel, kedua prajurit itu memerah karena marah.
+
+"Bisakah Aku memintamu untuk kembali ke sel?"
+
+"Tidak." (Ciel)
+
+"Kalau begitu, kami harus menggunakan kekerasan."
 
 Para prajurit mengangkat pedang mereka, masing-masing dipegang dengan kedua tangan, membuat mereka jauh lebih mengintimidasi.
-Dengan mereka yang mendekat seperti itu, biasanya ini akan menakutkan tetapi, setelah bertarung melawan serigala emas dan wyvern, mau tak mau aku merasa kecewa jika dibandingkan.
-Faktanya, mereka tampaknya tidak menjadi ancaman besar karena meskipun mereka menyerang Ciel saat dia berjalan ke depan, pedang mereka hanya ditolak oleh penghalang.
-Dan Aku kira mereka mengayunkan dengan kekuatan yang cukup besar, karena mereka mendarat di bagian belakang mereka dari mundur.
+
+Dengan mereka yang mendekat seperti itu, biasanya ini akan menakutkan tetapi, setelah bertarung melawan serigala emas dan wyvern, mau tak mau aku merasa kecewa kalau dibandingkan dengan mereka.
+
+Faktanya, mereka tidak menjadi ancaman besar karena meskipun mereka menyerang Ciel saat ciel berjalan, pedang mereka hanya ditolak oleh +BARRIER.
+
+Dan mungkin mereka mengayunkan dengan kekuatan yang cukup besar, karena mereka terdorong mundur kebelakang karena pantulannya.
 
 Tapi, bagi tentara yang melindungi perbatasan negara, apakah tingkat kekuatan ini cukup untuk tugas mereka?
 
 Mengesampingkan para prajurit yang tercengang, Ciel terus berjalan melewati koridor.
 
-Ada jalan keluar!」
+"Ada yang lari dari penjara!"
 
 Karena tidak mampu meraih Ciel saat dia dengan santai melewati mereka, salah satu prajurit berteriak demikian.
+
 Meskipun Aku tidak tahu berapa banyak orang yang menjaga gerbang ini, mereka mungkin tidak memiliki siapa pun yang mampu menangkap Ciel.
+
 Karena ini seharusnya menjadi lokasi yang berharga, seharusnya tidak ada orang yang benar-benar lemah di sini, tapi aku juga ragu ada orang yang akan menugaskan orang terkuat mereka di sini.
 
-Iklan
-
 Sebaliknya, Aku bertanya-tanya dengan siapa orang-orang ini berafiliasi.
-Apakah mereka tentara Central? Hunter dari Guild Hunter? Tentara pribadi Fiiyanamia- sama ?
-Mungkin bukan tentara swasta. Sebaliknya, karena perintah untuk menangkap Ciel datang dari Persekutuan Hunter, mereka kemungkinan terkait dengan Persekutuan Hunter.
 
-Kamu tidak berlari, Ciel?』
-Apakah akan lebih baik jika aku melakukannya?』
-Meskipun berlari sepertinya tidak perlu, tidakkah kamu merasa kasihan pada mereka?』
+Apakah mereka tentara Central? Hunter dari Guild Hunter? Tentara pribadi Fiiyanamia-sama ?
 
-Meskipun mungkin berbeda jika kita melarikan diri secara diam-diam atau bergerak dengan kecepatan tinggi, tidak dapat menangkap seorang gadis yang hanya berjalan santai akan memalukan seumur hidup.
+Mungkin bukan tentara pribadi. Sebaliknya, karena perintah untuk menangkap Ciel datang dari Guild Hunter, mereka kemungkinan terkait dengan Guild Hunter.
+
+[Kamu tidak berlari, Ciel?] (Ain)
+
+[Apakah akan lebih baik jika aku melakukannya?] (Ciel)
+
+[Meskipun berlari sepertinya tidak perlu, tidakkah kamu merasa kasihan pada mereka?] (Ain)
+
+Meskipun mungkin berbeda jika kami melarikan diri secara diam-diam atau bergerak dengan kecepatan tinggi, tidak dapat menangkap seorang gadis yang hanya berjalan santai akan memalukan seumur hidup.
+
 Tetap saja, tidak sepertiku, Ciel tidak menganggapku tipe orang yang melakukan sesuatu yang kekanak-kanakan seperti ini, jadi ini tampak tidak biasa.
 
 Saat aku bertanya-tanya tentang ini, Ciel cemberut bibirnya.
