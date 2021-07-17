@@ -109,52 +109,70 @@ Tunggu? Apakah ini yang disebut pesta teh? Salah satu aktivitas wanita bangsawan
 
 [Begitu. kalau begitu itu tidak bisa dihindari.] (Ciel)
 
-"Aku Aku? Apakah ini pesta teh pertama Kamu?」
-Ini pertama Aku, ya.
-Apalagi, tidak seperti sebelumnya, Kamu tampaknya mengalami kesulitan berbicara. Kamu dapat berbicara seperti biasa, Kamu tahu?」
-Oke.
+"ara ara~? Apakah ini pesta teh pertamamu?" (Fiiyanamia)
 
-Aku merasa cemas mendengar tanggapan Ciel, yang mungkin merupakan sifat Jepang Aku yang mengangkat kepalanya.
+"ya, Ini pertama kalina untukku." (Ciel)
+
+"tidak seperti sebelumnya, yang mana Kamu tampaknya mengalami kesulitan berbicara. Kamu dapat berbicara seperti biasa, Kamu tahu?" (Fiiyanamia)
+
+"Oke." (Ciel)
+
+Aku merasa cemas mendengar tanggapan Ciel, yang mungkin merupakan sifat Jepangku yang bergejolak.
+
 Dan seolah menertawakan kekhawatiranku, keduanya melanjutkan percakapan mereka.
 
-Pesta teh adalah sesuatu yang hanya perlu Kamu nikmati. Ini akan tergantung pada waktu dan tempat, tapi Cielmer-chan akan menjadi orang dipenuhi, sehingga Kamu tidak perlu khawatir tentang hal itu begitu banyak menurut Aku. 」
-「Saya akan dipenuhi?」
-「 Aku Aku? Apakah Kamu mungkin memiliki harga diri yang rendah? Tetap saja, Kamu akan mengerti ini pada akhirnya.」
-Dimengerti.
+"Pesta teh adalah sesuatu yang hanya perlu Kamu nikmati. Ini akan tergantung pada waktu dan tempat, tapi Cielmer-chan akan menjadi orang yang dilayani, sehingga menurutku Kamu tidak perlu khawatir tentang hal itu begitu banyak." (Fiiyanamia)
+
+"aku akan dilayani?" (Ciel)
+
+"ara ara~? Apakah Kamu mungkin memiliki harga diri yang rendah? Tetap saja, Kamu akan mengerti ini pada akhirnya." (Fiiyanamia)
+
+"Baiklah." (Ciel)
 
 Setelah menjawab, Ciel menyesap teh hitamnya.
+
 Meskipun memiliki kepahitan teh yang berbeda, Aku juga bisa merasakan manisnya.
-Di antara teh yang kita minum selama ini, itu yang paling mudah diminum.
+
+Di antara teh yang kami minum selama ini, itu yang paling mudah diminum.
 
 Tampaknya itu cocok dengan selera Ciel karena dia memiliki ekspresi yang agak senang.
-Ciel tidak terlalu pilih-pilih tentang makanan selama itu memiliki semacam rasa, jadi aku senang melihat dia mulai menemukan kesukaan dan ketidaksukaannya sendiri.
-Padahal, menjadi pemilih adalah masalah lain dalam dirinya sendiri.
-Iklan
 
-Sementara Aku tidak terlalu menyukainya, mari kita lanjutkan diskusi sebelumnya.
-Yang tentangmu. Apa bukti yang Kamu miliki untuk menjadi subjek tes?
-Ini terkait dengan nama Ainsel, kan?」
-Ain adalah orang spesialku, dia selalu bersamaku.
-Dengan selalu bersamamu, maksudmu?」
-Ain bilang dia menghantuiku.
+Ciel tidak terlalu pilih-pilih tentang makanan selama itu memiliki semacam rasa, jadi aku senang melihat dia mulai menemukan kesukaan dan ketidaksukaannya sendiri.
+
+menjadi pemilih adalah masalah lain juga.
+
+"Sementara Aku tidak terlalu menyukainya, mari kita lanjutkan diskusi sebelumnya. diskusi tentangmu. Apa bukti yang Kamu miliki untuk menjadi subjek tes? Ini terkait dengan nama Ainsel, kan?" (Fiiyanamia)
+
+"Ain adalah orang spesialku, dia selalu bersamaku." (Ciel)
+
+"Dengan selalu bersamamu, maksudmu?" (Fiiyanamia)
+
+"Ain bilang dia menghantuiku." (Ciel)
 
 Mendengar kata-kata Ciel, Fiiyanamia-sama menatap tajam ke arah kami.
+
 Mata emasnya hampir tampak seperti bisa melihat apa saja, itu meresahkan.
 
-Aku mengerti, Aku mengerti. Dua jenis kekuatan sihir dalam satu tubuh. Kamu memiliki dua jiwa, ya?
-Selain itu, bukan satu jiwa yang terbelah menjadi dua, sepertinya yang satu ditambahkan ke yang lain.
-Aku pikir. Ain harus tahu lebih banyak tentang itu. Begitukah
-? Kalau begitu, bisakah aku mengobrol dengan Ainsel-chan ?」
+"Aku mengerti, Aku mengerti. Dua jenis energi sihir dalam satu tubuh. Kamu memiliki dua jiwa, ya? Selain itu, bukan satu jiwa yang terbelah menjadi dua, sepertinya yang satu ditambahkan ke yang lain." (Fiiyanamia)
 
-Ain, apakah akan baik-baik saja?』
-Aku tidak keberatan. Sebaliknya, topik ini akan lebih mudah dijelaskan jika Aku melakukannya.
+"kupikir, Ain harusnya tahu lebih banyak tentang itu." (Ciel)
 
-Lagipula, aku datang ke dunia ini praktis tepat setelah Ciel lahir.
+"Begitukah ? Kalau begitu, bisakah aku mengobrol dengan Ainsel-chan ?" (Fiiyanamia)
+
+[Ain, apakah kamu tidak keberatan?] (Ciel)
+
+[Aku tidak keberatan. Sebaliknya, topik ini akan lebih mudah dijelaskan jika Aku melakukannya.] (Ain)
+
+Lagipula, aku datang ke dunia ini tepat setelah Ciel lahir.
+
 Apa yang Ciel sampaikan kepada Fiiyanamia-sama tidak lebih dari apa yang dia dengar dariku.
-Kami telah bertukar tempat, tetapi apa yang harus Aku katakan sekarang?
 
-Aku praktis tidak pernah muncul ke permukaan sebagai Ainsel, jadi Aku tidak tahu harus berkata apa terlebih dahulu.
-Juga, Aku merasa sangat tidak nyaman dirujuk dengan – chan. Rasa dingin menjalari tulang belakangku.
+aku telah mengambil alih tubuh, tetapi apa yang harus Aku katakan sekarang?
+
+Aku tidak pernah muncul ke permukaan sebagai Ainsel, jadi Aku tidak tahu harus berkata apa terlebih dahulu.
+
+Juga, Aku merasa sangat tidak nyaman dipanggil dengan –chan. Rasa dingin menjalari tulang belakangku.
+
 Untuk saat ini, kurasa aku harus menyapa dulu agar aman.
 
 Senang bertemu denganmu lagi. Nama Aku Ainsel.」
