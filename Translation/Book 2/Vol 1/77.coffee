@@ -59,61 +59,66 @@ Atau lebih tepatnya, mengapa dia akan membawaku (atau menyuruhku pergi?) ke ruma
 
 Paling tidak, ini pertama kalinya kami bertemu Fiiyanamia-sama dan kami tidak cukup akrab untuk tinggal di rumahnya. Secara alami, Ciel tidak dalam posisi dan status apa pun untuk disambut oleh kepala negara.
 
-Melihat ke bawah saat Aku bertanya-tanya ini, Aku melihat bahwa roh hutan masih di pangkuan Aku. Melihat kecantikan senyum ramah benar-benar menghangatkan hati.
+ketika aku Melihat ke bawah karena Aku sedang berpikir, Aku melihat roh hutan masih di pangkuanku. Melihat kecantikan dan senyum ramahnya benar-benar menghangatkan hati.
 
-Mengerti? Dipahami. Topik yang akan ditanyakan kepada Cielmer-chan hari ini adalah tentang Artificial Divine Messenger, kan?」
+"Paham? paham. Topik yang akan ditanyakan kepada Cielmer-chan hari ini adalah tentang utusan dewa buatan, kan?" (Fiiyanamia)
 
-Sebelum Aku menyadarinya, Fiiyanamia-sama menjadi tuan rumah diskusi. Berdasarkan posisinya, seharusnya tidak ada masalah dengan hostingnya.
-Saat Fiiyanamia-sama bertanya pada Pak Skinhead, dia menjawab dengan anggukan.
-Iklan
+tanpa kusdari, Fiiyanamia-sama menjadi pembuka diskusi. Berdasarkan posisinya, seharusnya tidak ada masalah.
 
-Sebelum itu, izinkan Aku memperkenalkan diri. Lagipula aku tidak bisa lebih awal.
-Nama Aku Dourthe. Aku bagian dari staf eksekutif Hunter Guild. Maafkan aku atas apa yang terjadi sebelumnya. Tidak, untuk banyak ketidaknyamanan yang disebabkan oleh Guild Hunter Estoque dalam perjalananmu ke sini.
+Saat Fiiyanamia-sama bertanya pada Pak Botak, dia menjawab dengan anggukan.
 
-Mr. Skinhead—Dourthe-san— menurunkan kepalanya.
+"Sebelum itu, izinkan Aku memperkenalkan diri. aku tidak bisa memperkenalkan diri lebih awal. Nama Aku Dourthe. Aku bagian dari staf eksekutif Guild Hunter. Maafkan aku atas apa yang terjadi sebelumnya. Tidak, untuk banyak ketidaknyamanan yang disebabkan oleh Guild Hunter Estoque dalam perjalananmu ke sini." (Dourthe)
 
-Selama reparasi dan tindakan pencegahan yang tepat dilakukan, maka Aku tidak keberatan.
-Ya, tentu saja.
+Pak Botak, Dourthe-san, menurunkan kepalanya.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Selama reparasi dan tindakan pencegahan yang tepat dilakukan, Aku tidak keberatan." (Ain)
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"Ya, tentu saja." (Dourthe)
 
-Mendengar nada lelahnya, aku yakin bahwa Dourthe-san memiliki posisi yang sama dengan Chasse-san dari Fool's Gathering.
+Mendengar nada lelahnya, aku yakin Dourthe-san memiliki posisi yang sama dengan Chasse-san dari fools gathering.
+
 Tipe yang akan diberikan pekerjaan yang merepotkan, tipe orang yang telah melalui banyak hal.
+
 Aku tahu ini sulit, tapi tolong lakukan yang terbaik.
 
-Apakah kamu sudah selesai sekarang? Maaf tapi bisakah kita kembali ke topik utama?」
+"Apakah kamu sudah selesai sekarang? Maaf tapi bisakah kita kembali ke topik utama?" (Fiiyanamia)
 
 Fiiyanamia-sama mengarahkan pembicaraan kembali ke diskusi awal.
-Ya, memiliki seseorang yang akan memaksa diskusi kembali ke utas utama sangat penting.
-Jika Fiiyanamia-sama ada di sana lebih awal, maka mungkin diskusinya akan berjalan lancar. Sebaliknya, itu semua berkat Fiiyanamia-sama yang berakhir di tempat itu.
 
-Bahkan jika Kamu bertanya kepada Aku tentang Utusan Ilahi Buatan, tidak banyak yang Aku ketahui tentang mereka.
-Yang Aku tahu adalah, karena itu buatan, maka Duke Rispelgia bisa menjadi orang yang membuatnya.」
-Itulah intinya. Mengapa Kamu mencurigai Duke Rispelgia di sini?」
-Sebagai seorang Duke, dia pasti memiliki sejumlah besar aset, jadi bukankah dia seharusnya menjadi tersangka yang kuat?」
+Ya, memiliki seseorang yang akan memaksa diskusi kembali ke topik utama sangat penting.
 
-Aku menghindari pertanyaan itu, tetapi memang benar bahwa mencoba membuat monster harus membutuhkan fasilitas yang sesuai dan menghabiskan banyak uang. Itu sebabnya tidak wajar jika nama seorang duke, yang pasti punya uang, datang ke sini.
+Jika Fiiyanamia-sama ada di sini lebih awal, maka mungkin diskusinya akan berjalan lancar. tapi, itu semua berkat Fiiyanamia-sama juga semuanya berakhir begitu.
+
+"Bahkan jika Kamu bertanya kepadaku tentang Utusan Dewa Buatan, tidak banyak yang Aku ketahui tentang mereka. Yang Aku tahu adalah, karena itu buatan, maka Duke Rispelgia bisa menjadi orang yang membuatnya." (Ain)
+
+"Itulah intinya. Mengapa Kamu mencurigai Duke Rispelgia di sini?" (Dourthe)
+
+"Sebagai seorang Duke, dia pasti memiliki sejumlah besar aset, jadi bukankah dia seharusnya menjadi tersangka yang kuat?" (Ain)
+
+Aku menghindari pertanyaan itu, tetapi memang benar bahwa mencoba membuat monster harus membutuhkan fasilitas yang sesuai dan menghabiskan banyak uang. Itu sebabnya wajar jika nama seorang duke, yang pasti punya uang, muncul.
+
 Jika itu bisa dilakukan dengan murah, maka monster buatan pasti sudah menjadi masalah.
+
 Dourthe-san menggaruk kepalanya sebelum menghela napas berat.
 
-Duke Rispelgia dari Estoque terkenal dengan reputasinya yang baik bahkan di antara para Hunter.
-Bahkan dari sudut pandang nasional, dia harus menjadi bangsawan yang sangat diakui. Dia sama sekali bukan seseorang yang bisa diselidiki secara acak.」
-Yang berarti bahwa alasan yang jelas untuk penyelidikan diperlukan.
-Tapi bukankah aku sudah memberikan lokasi ke mansion tersembunyi yang dimiliki Duke Rispelgia untuk alasan yang tepat itu?」
-「Kami sudah sibuk karena penyerbuan yang sedang berlangsung di Estoque, kau tahu. Kami tidak bisa melakukan investigasi yang tepat.
-Kami memang mengirim Hunter untuk memastikan, tetapi tidak ada apa-apa di sana.」
-Itu karena itu disembunyikan oleh penghalang.
-Penghalang ...... Maka seorang penyihir dengan keterampilan perhatian akan diperlukan.
+"Duke Rispelgia dari Estoque terkenal dengan reputasinya yang baik bahkan di antara para Hunter. Bahkan dari sudut pandang nasional, dia menjadi bangsawan yang sangat diakui. Dia sama sekali bukan seseorang yang bisa diselidiki secara acak." (Dourthe)
+
+"Yang berarti bahwa alasan yang jelas untuk penyelidikan diperlukan. Tapi bukankah aku sudah memberikan lokasi ke mansion tersembunyi yang dimiliki Duke Rispelgia untuk alasan itu?" (Ain)
+
+"Kami sudah sibuk karena penyerbuan yang sedang berlangsung di Estoque. Kami tidak bisa melakukan investigasi yang tepat. Kami memang mengirim Hunter untuk memastikan, tetapi tidak ada apa-apa di sana." (Dourthe)
+
+"Itu karena itu disembunyikan oleh +BARRIER." (Ain)
+
+"+BARRIER ...... kalau begitu seorang penyihir dengan keterampilan perhatian akan diperlukan." (Dourthe)
 
 Dourthe-san mulai berpikir dengan ekspresi serius.
-Melihat itu, mereka tampaknya menganggap kasus ini sangat penting. Jika monster yang mengalahkan tidak hanya Hunter Rank rendah tetapi bahkan Hunter Rank C dibuat dengan tangan manusia, Aku kira upaya hemat bukanlah pilihan.
 
-Pertama-tama, mengapa Kamu tahu tentang penghalang ini, Cielmer-dono ?」
-Iklan
+Melihat itu, mereka tampaknya menganggap kasus ini sangat penting. Jika monster yang mengalahkan tidak hanya Hunter Rank rendah tetapi bahkan Hunter Rank C dibuat dengan tangan manusia, Aku kira upaya minimal bukanlah pilihan.
 
-Aku kira alasan dia merujuk kami dengan – dono adalah karena kami adalah tamu Fiiyanamia-sama .
+"Pertama-tama, mengapa Kamu tahu tentang +BARRIER ini, Cielmer-dono ?" (Dourthe)
+
+Aku kira alasan dia merujuk kami dengan –dono adalah karena kami adalah tamu Fiiyanamia-sama.
+
 Aku tidak terbiasa dipanggil seperti itu, jadi rasanya aneh.
 
 Berapa banyak yang harus Aku katakan?』
