@@ -187,47 +187,42 @@ Untuk saat ini, kurasa aku harus menyapa dulu agar aman.
 
 Aku melakukan yang terbaik untuk memastikan bahwa ketika seseorang yang mampu merasakan energi sihir pada tingkat yang sama denganku muncul, mereka akan salah membaca energi Ciel.
 
-Aku hanya menyadarinya setelah pemeriksaan dekat. Seorang penyihir kelas atas hanya akan menyadari sesuatu yang tidak pada tempatnya, kau tahu?
-Selain itu, yang lebih mudah adalah dari reaksi para roh.
+"Aku hanya menyadarinya setelah pemeriksaan lebih dekat. Seorang penyihir kelas atas hanya akan menyadari sesuatu yang tidak pada tempatnya, kau tahu? Selain itu, yang lebih mudah diketahui adalah dari reaksi para roh." (Fiiyanamia)
 
 Mengatakan demikian, Fiiyanamia-sama dengan geli mengalihkan pandangannya ke pangkuanku.
+
 Mengikuti tatapannya, seperti yang kuduga, roh hutan sedang duduk di pangkuanku.
+
 Roh hutan melambai ke Fiiyanamia-sama, dan Fiiyanamia-sama balas melambai.
+
 Apakah mereka saling mengenal?
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
-
-Dengan betapa berbedanya reaksi roh terhadap kalian berdua, mereka yang dapat melihat kemungkinan besar akan segera menyadari sesuatu yang tidak pada tempatnya.
-Tetapi dengan mengatakan itu, mereka mungkin tidak akan berpikir bahwa Kamu menjadi orang yang berbeda.
-Nah, maukah Kamu memberi tahu Aku apa yang telah dilakukan Duke Rispelgia pada kalian berdua?
-Iklan
+"Dengan betapa berbedanya reaksi roh terhadap kalian berdua, mereka yang dapat melihat roh kemungkinan besar akan segera menyadari sesuatu yang tidak pada tempatnya. Tetapi dengan mengatakan itu, mereka mungkin tidak akan berpikir bahwa Kamu menjadi orang yang berbeda. Nah, maukah Kamu memberi tahuku apa yang telah dilakukan Duke Rispelgia pada kalian berdua?" (Fiiyanamia)
 
 Karena kami keluar dari topik, Fiiyanamia-sama dengan paksa mengalihkan pembicaraan.
 
-Tujuan pria itu adalah mengubah Ciel menjadi dewa. Tepatnya, ummm, darah dewa...... darah yang hanya bisa diambil sekali...... dia......」
+"Tujuan pria itu adalah mengubah Ciel menjadi dewa. Tepatnya, ummm, darah dewa...... darah yang hanya bisa diambil sekali...... dia......" (Ain)
 
-Itu bukan sesuatu yang bisa dikatakan begitu santai, jadi aku hanya bisa ragu. Bagaimanapun, ini adalah topik yang sangat sensitif bagi Ciel. Bahkan jika Ciel mengatakan kepada Aku 『Saya tidak keberatan jika Kamu mengatakannya, Kamu tahu? di dalam kepala Aku.
-Untungnya, Fiiyanamia-sama sepertinya sudah mengerti dan 「Kamu tidak perlu mengatakannya. mengatakannya padaku.
+Itu bukan sesuatu yang bisa dikatakan begitu santai, jadi aku hanya bisa ragu. Bagaimanapun, ini adalah topik yang sangat sensitif bagi Ciel. Bahkan jika Ciel mengatakan kepadaku [Aku tidak keberatan jika Kamu mengatakannya, Kamu tahu?], di dalam kepala Aku.
 
-Mengenai apa sebenarnya yang dia lakukan dalam upaya menjadikan Ciel dewa, aku tidak tahu apa-apa.
-Tapi, karena Pekerjaan adalah sesuatu yang diberikan oleh para dewa, dia tampaknya berspekulasi bahwa mengikuti jejak Pekerjaan akan mengarah pada para dewa.」
-Pekerjaan...... Yang bisa disebut hadiah yang diberikan oleh para dewa kepada umat manusia yang tidak unggul apa-apa.」
+Untungnya, Fiiyanamia-sama sepertinya sudah mengerti dan berkata "Kamu tidak perlu mengatakannya."  padaku.
 
-Fiiyanamia-sama memiliki pandangan yang jauh. Cara dia berbicara dengan cara memutar seperti itu membuatku ingin bertanya padanya tentang hal itu, tapi aku memutuskan untuk melanjutkan topik kita saat ini.
+"Mengenai apa sebenarnya yang dia lakukan dalam upaya menjadikan Ciel dewa, aku tidak tahu apa-apa. Tapi, karena job adalah sesuatu yang diberikan oleh para dewa, dia tampaknya berspekulasi bahwa mengikuti jejak job akan mengarah pada para dewa." (Ain)
 
-Dengan menelusuri kekuatan sihir, yang mungkin diberikan oleh para dewa, dikonsumsi selama penggunaan Pekerjaan, dia bisa mengetahui di mana para dewa berada dan memiliki dewa yang merasuki Ciel, membuat Ciel sendiri menjadi dewa. Ini hanya spekulasi, tapi sepertinya aku tidak salah.」
-Dan ini gagal, kan?」
-Yang merasuki dan menghantui Ciel bukanlah dewa, tapi untuk beberapa alasan, aku sebagai gantinya.
-Aku percaya bahwa dia tidak tahu apakah dewa tinggal di Ciel atau bahwa Aku menghantuinya, jadi Rispelgia menilai Ciel gagal, Aku pikir, berusia 5 tahun.
-Dia sepertinya berpikir bahwa tubuh membutuhkan waktu untuk beradaptasi dengan dewa.」
-Uh-huh, sekarang aku mengerti mengapa kamu menyebut dirimu sebagai subjek ujian.
-Tidak ada kebohongan dalam kata-katamu juga. Tapi, ada dua masalah.
+"Job...... Yang bisa disebut hadiah yang diberikan oleh para dewa kepada umat manusia yang tidak unggul apa-apa." (Fiiyanamia)
+
+Fiiyanamia-sama memiliki pandangan yang jauh. Cara dia berbicara dengan cara memutar seperti itu membuatku ingin bertanya padanya tentang hal itu, tapi aku memutuskan untuk melanjutkan topik kami saat ini.
+
+"Dengan menelusuri energi sihir, yang mungkin diberikan oleh para dewa, dikonsumsi selama penggunaan job, dia bisa mengetahui di mana para dewa berada dan dengan memiliki dewa yang merasuki Ciel, membuat Ciel sendiri menjadi dewa. Ini hanya spekulasi, tapi sepertinya aku tidak salah." (Ain)
+
+"Dan ini gagal, kan?" (Fiiyanamia)
+
+"Yang merasuki dan menghantui Ciel bukanlah dewa, tapi untuk beberapa alasan, aku sebagai gantinya. Aku percaya bahwa dia tidak tahu apakah dewa tinggal di tubuh Ciel atau bahwa Aku menghantuinya, jadi kupikir Rispelgia menilai Ciel gagal ketika berusia 5 tahun. Dia sepertinya berpikir bahwa tubuh membutuhkan waktu untuk beradaptasi dengan dewa." (Ain)
+
+"Uh-huh, sekarang aku mengerti mengapa kamu menyebut dirimu sebagai subjek penelitian. Tidak ada kebohongan dalam kata-katamu juga. Tapi, ada dua masalah." (Fiiyanamia)
 
 Fiiyanamia-sama mengangkat dua jari dan kemudian menunjuk ke arahku.
 
-Iklan
 Tidak ada bukti kuat yang bisa diceritakan kepada orang-orang, serta bukti bahwa itu benar-benar dilakukan oleh Duke Rispelgia, kan?」
 Tepat. Kalian berdua ingin merahasiakan keberadaan Ainsel, kan?」
 Itu benar.
