@@ -168,58 +168,72 @@ Apakah Kamu mengatakan kepadaku untuk mati? Secara implisit menyampaikan itu, or
 
 "Jika itu benar, maka itu lebih dari cukup." (Pak Botak)
 
-Mereka ada di dalam tas ajaib, jadi Aku bisa menunjukkan bukti penaklukan.
-Setelah itu, informasi tentang penyerbuan, bukan? Jika orang-orang yang hadir di sini telah menaruh kepercayaan penuh pada informasi yang diteliti oleh seorang amatir yang melewatkan waktu luangnya, maka Aku harus meminta maaf. Tapi, jika bukan karena informasi ini tersedia untuk memulai, Aku tidak berpikir bahwa persiapan apa pun akan dilakukan.
-Nah, apakah masih ada tuduhan bagi Aku mengenai hal ini?
-Tidak, hasil ini layak untuk diberi imbalan kompensasi.
-Dengan ini masalah Estoque harus diselesaikan secara praktis.
-Tapi, ini hanya setengahnya, bukan? Memang benar aku merusak selnya, jadi sepertinya ini akan menjadi masalah serius.
+"Mereka ada di dalam tas sihir, jadi Aku bisa menunjukkan bukti penaklukan. Setelah itu, informasi tentang penyerbuan, bukan? Jika orang-orang yang hadir di sini telah menaruh kepercayaan penuh pada informasi yang diteliti oleh seorang amatir yang melewatkan waktu luangnya, maka Aku harus meminta maaf. Tapi, jika bukan karena informasi ini, Aku tidak berpikir bahwa persiapan apa pun akan dilakukan. Nah, apakah masih ada tuduhan untukku mengenai hal ini?" (Ain)
+
+"Tidak, hasil ini layak untuk diberi imbalan kompensasi." (Pak Botak)
+
+Dengan ini masalah Estoque harus selesai.
+
+Tapi, ini hanya setengahnya, kan? Memang benar aku merusak penjara, jadi sepertinya ini akan menjadi masalah serius.
+
 Aku sudah muak dengan ini ... Saat aku merasa setengah pasrah, wanita elf yang diam sampai sekarang mengangkat tangannya.
 
-Apakah ini sudah selesai? Bisakah kita ...... Tidak, Aku kira Aku harus memperkenalkan diri terlebih dahulu.
-Aku Yunmica Ma Messi. Aku semacam penengah bagi para Peri Tengah.」
-Namanya Bajo Tua Sentro. Sama dengan Yunmi, aku mediator dari para Kurcaci. 」
-「Oh , jika Bajo pergi bersama, maka Aku kira Aku akan bergabung. Aku Wangwan Liev. Mediator Beastmen.
-Senang bertemu denganmu. Aku Cielmer.
+"Apakah ini sudah selesai? Bisakah kita ...... Tidak, Aku kira Aku harus memperkenalkan diri terlebih dahulu. Aku Yunmica Ma Messi. Aku semacam perwakilan bagi para elf di central." (Lionel Messi ༼ ͡° ͜ʖ ͡° ༽)
 
-Mereka semua tiba-tiba memperkenalkan diri, jadi Aku membayar dengan baik dan memberi tahu mereka nama Ciel.
-Sementara nama Ciel sudah muncul lebih awal dan mereka seharusnya sudah mengenal kita sekarang sejak mereka berkumpul di sini, kita belum benar-benar memperkenalkan diri, jadi tindakan ini seharusnya bermakna.
-Dengan perkenalan yang terlambat selesai, elf Yunmica- san berbalik ke arah manusia.
+"Namaku Bajo Tua Sentro. Sama dengan Yunmi, aku perwakilan dari para dwarf." (Bajo)  (TN : YA KALIAN TIDAK SALAH BACA, ITU NAMANYA!!! LOKAL INDO SEKALI !!)
 
-Sekarang kembali ke topik. Bisakah kita menghentikannya dengan lelucon ini sekarang?
-Aku akan mengatakannya sekarang, tapi aku berpihak padanya. Bajo, Wang, itu sama dengan kalian berdua, kan?」
-Kamu di sana.」
-Yup.
+"Oh, jika Bajo juga, Aku juga akan bergabung. Aku Wangwan Liev. Mediator Beastmen." (Wangwan)
 
-Mendengar pengumuman Yunmica- san , beberapa manusia mulai gemetar di kursi mereka.
-Di antara mereka, pendeta (suhu) menjadi merah padam dan bersandar ke depan dari kursinya.
+"Senang bertemu denganmu. Aku Cielmer." (Ain)
 
-「Dalam hal ini, bagaimana Kamu bisa menjelaskan apa yang terjadi di penjara perbatasan ini?」
-「Oh , Aku memberi izin untuk itu, Kamu tahu?」
+Mereka semua tiba-tiba memperkenalkan diri, jadi Aku membalas dengan baik dan memberi tahu mereka dengan nama ciel.
 
-Sebuah suara datang dari belakangku dan tatapan semua orang berkumpul di sana.
+nama Ciel sudah muncul dari awal dan mereka seharusnya sudah mengenal kami sekarang sejak mereka berkumpul di sini, tapi kami belum benar-benar memperkenalkan diri, jadi tindakan ini seharusnya bermakna.
 
-Iklan
-Dia memiliki rambut putih yang sama dengan Ciel, kulit halus dan bersih, dan sosok yang ramping. Tingginya ... agak lebih pendek dari rata-rata tinggi wanita di dunia ini.
-Meskipun matanya sedikit terbalik, itu tidak memberinya kesan kasar dan matanya yang lebar bersinar dengan warna emas.
+Dengan perkenalan yang terlambat selesai, elf Yunmica-san berbalik ke arah manusia.
+
+"Sekarang kembali ke topik. Bisakah kita menghentikannya lelucon ini sekarang? Aku akan mengatakannya sekarang, tapi aku berpihak padanya. Bajo, Wang, itu sama dengan kalian berdua, kan?" (Yunmica)
+
+"Kamu Benar." (Bajo)
+
+"Yup." (Wangwan)
+
+Mendengar perkataan Yunmica-san , beberapa manusia mulai gemetar di kursi mereka.
+
+Di antara mereka, pendeta menjadi merah padam dan bersandar ke depan dari kursinya.
+
+"Dalam hal ini, bagaimana Kamu bisa menjelaskan apa yang terjadi di penjara perbatasan?" (Pendeta)
+
+"Oh , Aku memberi izin untuk itu, Kamu tahu?"
+
+Sebuah suara datang dari belakangku dan tatapan semua orang terfokus ke sana.
+
+Dia memiliki rambut putih yang sama dengan Ciel, kulit halus dan bersih, dan sosok yang ramping. Tingginya ... agak lebih pendek dari tinggi normal wanita di dunia ini.
+
+Meskipun matanya sedikit sipit, itu tidak memberinya kesan kasar dan matanya yang lebar bersinar dengan warna emas.
+
 Hidung kecil, telinga panjang dan runcing, bibir merah muda, dan penampilannya secara keseluruhan, apa pun yang Kamu fokuskan, semuanya berbentuk bagus.
+
 Dengan kecantikannya, hampir semua orang yang melewatinya di jalanan akan menoleh untuk melihat.
 
-Terakhir, kekuatan sihir yang baru saja berteriak bahwa dia berada di puncak Central.
+Terakhir, energi sihirnya baru saja berteriak bahwa dia berada di puncak Central.
 
-Sekali lagi, maafkan gangguan Aku.
+"Sekali lagi, maaf karena aku mengganggu." (Ain)
 
 Saat aku menundukkan kepalaku, dia tersenyum lembut.
 
-"Aku tidak keberatan. Jadi, bagaimana Kamu menyukai taman Aku ...... Apakah yang ingin Aku tanyakan, tetapi apakah Kamu memiliki pemandangan yang bagus?
-Aku akan melihat secara menyeluruh nanti.」
-Ya, ya. Jangan ragu untuk melakukannya. Tapi, karena kami mendapat kesempatan untuk bertemu satu sama lain, izinkan Aku memperkenalkan diri.
-Nama Aku Fiiyanamia. Aku adalah nyonya rumah ini. Senang bertemu denganmu.」 」
-Senang bertemu denganmu juga. Um …… 」
+"Aku tidak keberatan. Jadi, bagaimana Kamu menyukai tamanku ...... adalah yang ingin Aku tanyakan, tetapi apakah Kamu memiliki pemandangan yang bagus?"
 
-Aku akan memperkenalkan diri kembali, tapi aku merasa bingung untuk memperkenalkan diriku pada Fiiyanamia- sama sebagai Ciel. Tapi di sisi lain, Aku juga tidak ingin menyebut nama Ainsel di tempat ini.
-Tampaknya memahami kekhawatiran Aku, Fiiyanamia- sama mengatakan kepada Aku Tidak apa-apa. sebelum mengalihkan pandangannya ke orang-orang yang berkumpul di sini.
+"Aku akan melihat secara menyeluruh nanti." (Ain)
 
-Nah, apa situasi ini di sini? Apa yang ingin Kamu lakukan dengan tamu manor ini ?
+"Ya, ya. Jangan ragu untuk melakukannya. Tapi, karena kita mendapat kesempatan untuk bertemu satu sama lain, izinkan Aku memperkenalkan diri. Namaku Fiiyanamia. Aku adalah tuan rumah ini. Senang bertemu denganmu." (Fiiyanamia)
+
+"Senang bertemu denganmu juga. Um ......" (Ain)
+
+Aku akan memperkenalkan diri kembali, tapi aku merasa bingung untuk memperkenalkan diriku pada Fiiyanamia-sama sebagai Ciel. Tapi di sisi lain, Aku juga tidak ingin menyebut nama Ainsel di tempat ini.
+
+Tampaknya memahami kekhawatiranku, Fiiyanamia-sama mengatakan kepadaku "Tidak apa-apa". sebelum mengalihkan pandangannya ke orang-orang yang berkumpul di sini.
+
+"Nah, bagaimana situasinya kali ini? Apa yang ingin kalian lakukan dengan tamu rumah ini ?" (Fiiyanamia)
 
 Dan terlepas dari senyum di wajahnya, matanya sama sekali tidak ceria.
