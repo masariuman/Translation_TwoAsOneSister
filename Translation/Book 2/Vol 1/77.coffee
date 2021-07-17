@@ -45,15 +45,19 @@ Setelah itu, Fiiyanamia-sama menunjuk ke semua manusia, yang tidak terkait denga
 
 Aku sangat berharap mereka bukan kepala organisasi mereka. Tapi, mungkin ada beberapa orang lain di atas mereka.
 
-Dengan semua orang diperintahkan untuk meninggalkan ruangan, hanya Yunmica-san , Bajo-san , Wangwan-san , Mr. Skinhead dari Guild Hunter, dan orang seperti antek yang tersisa. Yang berarti mengatakan bahwa Tuan Henchman adalah personel Hunter Guild?
+Dengan semua orang diperintahkan untuk meninggalkan ruangan, hanya Yunmica-san, Bajo-san, Wangwan-san, Pak Botak dari Guild Hunter, dan orang seperti pengikut yang tersisa. Yang berarti mengatakan bahwa si pengikut adalah personel Guild Hunter?
 
-Sekarang, sekarang. Dengan ini, diskusi akan membuat kemajuan lagi.
-Terima kasih banyak.
-Ini demi tamu Aku. Aku akan mengatakan ini tetapi Aku hanya mengizinkan ini karena tampaknya bermasalah dari perspektif internasional sebaliknya. Awalnya Aku sudah mengundangnya ke rumah Aku pada saat ini, Kamu tahu?
+"baiklah, Dengan ini, diskusi akan membuat kemajuan lagi." (Fiiyanamia)
 
-Pak Skinhead berbicara dengan sopan kepada Fiiyanamia-sama yang tampak muda terlihat sangat tidak seimbang dan lucu.
+"Terima kasih banyak." (Pak Botak)
+
+"Ini demi tamuku. Aku akan mengatakan ini tetapi Aku hanya mengizinkan ini karena tampaknya ini bermasalah dari perspektif internasional. aslinya Aku akan mengundangnya ke rumahku sekarang lho..." (Fiiyanamia)
+
+Pak Botak yang berbicara dengan sopan kepada Fiiyanamia-sama yang tampak muda terlihat sangat tidak seimbang dan lucu.
+
 Atau lebih tepatnya, mengapa dia akan membawaku (atau menyuruhku pergi?) ke rumahnya?
-Paling tidak, ini pertama kalinya kami bertemu Fiiyanamia-sama dan kami tidak cukup akrab untuk tinggal di rumahnya. Secara alami, Ciel tidak terlalu dalam posisi dan status apa pun untuk disambut oleh kepala negara.
+
+Paling tidak, ini pertama kalinya kami bertemu Fiiyanamia-sama dan kami tidak cukup akrab untuk tinggal di rumahnya. Secara alami, Ciel tidak dalam posisi dan status apa pun untuk disambut oleh kepala negara.
 
 Melihat ke bawah saat Aku bertanya-tanya ini, Aku melihat bahwa roh hutan masih di pangkuan Aku. Melihat kecantikan senyum ramah benar-benar menghangatkan hati.
 
@@ -120,7 +124,7 @@ Lagi pula, semakin besar kerusakannya, semakin banyak masalah yang mungkin terja
 『Aku akan menyerahkannya padamu, Ain.
 
 Tidak ingin memutuskan sendiri, Aku meminta pendapat Ciel dan Aku dijawab dengan jawaban yang tidak terduga.
-Apa yang dikatakan Ciel memang benar dan, khususnya mengenai Fiiyanamia-sama , mungkin lebih baik dijelaskan untuk mendapatkan kepercayaannya.
+Apa yang dikatakan Ciel memang benar dan, khususnya mengenai Fiiyanamia-sama, mungkin lebih baik dijelaskan untuk mendapatkan kepercayaannya.
 
 Bukti mengapa itu bisa menjadi perbuatan Rispelgia ada di depan Kamu.」
 ...... Apakah Kamu sendiri, Cielmer-dono ?」
@@ -134,7 +138,7 @@ Meskipun ada kasus di mana keunggulan suatu Pekerjaan dapat dibalikkan dengan ke
 
 Selain itu, karena hanya mengatakan Aku adalah buktinya」 sulit dipercaya, Aku akan memberikan informasi tambahan.
 
-Aku akan menyampaikan bukti konklusif kepada Fiiyanamia-sama , jadi tolong buat penilaian Kamu setelah itu.
+Aku akan menyampaikan bukti konklusif kepada Fiiyanamia-sama, jadi tolong buat penilaian Kamu setelah itu.
 Tapi, diskusi mungkin tidak membuat kemajuan apa pun hanya dengan itu, jadi berikut adalah beberapa bahan untuk penilaian.
 Dari kelahiran Aku sampai Aku mencapai 10, Aku tinggal di mansion. Pada hari ulang tahunku yang kesepuluh, karena Jobku juga dianggap tidak berguna selain aku gagal, aku dijual ke bangsawan lain.
 Tapi, kereta yang kami tumpangi diserang oleh cyclop di jalan. Bangsawan dan pengawalnya meninggal, dan aku mengalahkan cyclop dan menjadi Hunter di sebuah kota.」
@@ -173,15 +177,15 @@ Segera jual anak itu ke kekaisaran di selatan dan minta dia menyelidiki dari dal
 -bagaimana kamu bisa mengatakan itu! Hal semacam itu, jelas tidak mungkin, bukan! 」
 
 Antek—Altro—menanggapi pernyataan Fiiyanamia-sama dengan bingung .
-Fiiyanamia-sama , apa adanya, saat ini tersenyum tetapi apakah itu kesenangan atau kemarahan?
+Fiiyanamia-sama, apa adanya, saat ini tersenyum tetapi apakah itu kesenangan atau kemarahan?
 
 Saat ini, Kamu mendecakkan lidah karena Cielmer-chan tidak memiliki banyak informasi, bukan?
 Dengan kata lain, menurutmu wajar bagi seorang gadis yang belum genap berusia 10 tahun untuk menyelidiki tujuan dari sebuah organisasi yang memenjarakannya, ya?
 Putri Kamu berusia 13 tahun. Dia jauh lebih tua dibandingkan dengan Cielmer-chan pada masanya. Kalau begitu, dia kemudian bisa menyelidiki dengan sempurna, bukankah kamu setuju?」 I
 -itu ……」
-「Kamu adalah freeloader , Cielmer-chan adalah tamunya . Kamu tidak akan memberi tahu Aku bahwa Kamu tidak menyadari perbedaannya, bukan? Nah jika tidak, maka Aku akan membiarkan Kamu pergi.
+「Kamu adalah freeloader, Cielmer-chan adalah tamunya . Kamu tidak akan memberi tahu Aku bahwa Kamu tidak menyadari perbedaannya, bukan? Nah jika tidak, maka Aku akan membiarkan Kamu pergi.
 
-Dengan kata-kata Fiiyanamia-sama , Altro terdiam.
+Dengan kata-kata Fiiyanamia-sama, Altro terdiam.
 Entah bagaimana, aku merasa tertinggal meski menjadi pihak yang berkepentingan di sini, tapi karena Fiiyanamia-sama mengatakan apa yang ingin kukatakan, sejujurnya aku merasa segar kembali.
 
 "Bisa Aku menanyakan sesuatu?"
@@ -205,7 +209,7 @@ Mendengar percakapan ini, kali ini Dourthe-san yang bereaksi.
 
 Menciptakan dewa, katamu?」
 Itulah sebabnya aku curiga bahwa Utusan Ilahi Buatan diciptakan oleh Duke Rispelgia.
-...... Kalau begitu, kita harus menunggu penilaian Fiiyanamia-sama , ya.
+...... Kalau begitu, kita harus menunggu penilaian Fiiyanamia-sama, ya.
 "Baiklah baiklah. Jadi ini adalah akhir dari diskusi ini, ya? Jika demikian, Aku akan membimbing Cielmer-chan ke rumah Aku kalau begitu.
 
 Dengan itu, kami diculik oleh Fiiyanamia-sama .
