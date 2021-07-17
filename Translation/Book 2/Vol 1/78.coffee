@@ -55,54 +55,59 @@ Aku melihat pilar di dalam rumah dan itu menyegarkan mungkin karena kepekaan yan
 Meskipun seharusnya ada bangunan di Jepang dengan pilar yang terlihat, Aku tidak melihat apapun dalam jangkauan aktivitasku sebelumnya.
 
 Karena ini adalah rumah besar, ada pembantu juga dan, saat Ciel dan Fiiyanamia-sama masuk, ada beberapa dari mereka yang siaga yang menyapa dengan Selamat datang kembali.
+
 Karena betapa mendadaknya ini, Ciel terkejut.
-Dia belum pernah disambut di rumah sebelumnya, jadi Aku kira itu tidak bisa dihindari.
 
-Iklan
-Izinkan Aku untuk membawa barang-barang Kamu.
+Dia belum pernah disambut di rumah sebelumnya, jadi kukira itu tidak bisa dihindari.
 
-"Haruskah Aku?"
+"Izinkan Aku untuk membawa barang-barangmu."
 
-Dalam hal bagasi, kami hanya memiliki tas ajaib. Tas ajaib itu sendiri cukup mahal, jadi butuh keberanian untuk menyerahkannya begitu saja.
+[Haruskah Aku melakukannya?] (Ciel)
+
+Dalam hal bawaan, kami hanya memiliki tas sihir. Tas sihir itu sendiri cukup mahal, jadi butuh keberanian untuk menyerahkannya begitu saja.
+
 Tapi, tidak memberikan apa pun di sini dapat menanam benih untuk masalah di masa depan.
 
-Mari kita berikan yang besar saja.
-Sangat penting untuk menghindari konflik di sini, jadi Aku percaya akan lebih baik menunjukkan keramahan.』
+[Mari kita berikan yang besar saja. Sangat penting untuk menghindari konflik di sini, jadi Aku percaya akan lebih baik menunjukkan keramahan.] (Ain)
 
-Mengindahkan saran Aku, Ciel memberikan tas ajaib (besar) kepada pelayan terdekat.
+mengikuti saranku, Ciel memberikan tas sihir (besar) kepada pelayan terdekat.
+
 Pada pemeriksaan lebih dekat, pelayan ini memiliki telinga yang panjang.
+
 Tampaknya mereka mempekerjakan tanpa memandang ras, karena pelayan di sebelahnya, yang memiliki telinga bulat, adalah manusia.
 
-Ketika kami diberitahu bahwa barang bawaan akan dibawa ke kamar kami, kami menyerahkannya kepada pelayan dan terus mengikuti saat kami diseret.
+Ketika kami diberitahu bahwa barang bawaan akan dibawa ke kamar kami, kami menyerahkannya kepada pelayan dan terus mengikuti kami walaupun kami dibawa masuk.
 
 Melewati koridor, kami kemudian naik ke lantai dua, akhirnya tiba di area balkon.
+
 Membentang tepat di bawah kami adalah taman bunga yang dipenuhi bunga-bunga bermekaran.
+
 Bunga-bunga tidak hanya tumbuh secara acak. Beberapa bunga yang serupa warnanya dikelompokkan bersama, beberapa dipisahkan berdasarkan ukuran, jadi pekerjaan intensif pasti dilakukan di taman ini.
-Iklan
 
 Dari balkon, bahkan terlihat seperti karpet berwarna cerah.
 Aku ingin tahu berapa banyak jenis bunga yang ada di sini.
 
-Ain, Ain! Entah bagaimana, itu sangat cantik!
-Dan ada banyak roh juga!』
+[Ain, Ain! Entah bagaimana, itu sangat cantik! Dan ada banyak roh juga!] (Ciel)
 
 Seperti yang dikatakan Ciel yang bersemangat, ada banyak roh di sekitar.
+
 Tampaknya merawat bunga, roh-roh itu terbang dari satu tempat ke tempat lain.
+
 Dan mereka yang melihat Ciel bahkan mendekati jepit rambutnya untuk beristirahat.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Fiiyanamia-sama memperhatikan Ciel dengan senyum di wajahnya, tapi setelah beberapa saat "kesini, kesini. Duduklah." dia mendesaknya untuk duduk.
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Memiliki tempat duduk di balkon dengan pemandangan yang indah, itu agak mengingatkanku pada hal bangsawan. Padahal, kalau dipikir-pikir, ini adalah rumah milik seseorang dengan status lebih tinggi dari bangsawan.
 
-Fiiyanamia-sama memperhatikan Ciel dengan senyum di wajahnya, tapi setelah beberapa saat Di sini, di sini. Duduklah. dia mendesaknya untuk duduk.
-Memiliki tempat duduk di balkon dengan pemandangan yang indah, itu agak mengingatkan Aku pada hal yang mulia. Padahal, kalau dipikir-pikir, ini adalah rumah milik seseorang dengan status lebih tinggi dari bangsawan.
 Setelah duduk, teh dan kue dibawa masuk.
 
 Tunggu? Apakah ini yang disebut pesta teh? Salah satu aktivitas wanita bangsawan itu?
 
-Katakan, Ain, ada etiket untuk hal semacam ini, kan? Apakah Kamu tahu tentang itu?』
-Maaf. Aku tidak berdaya kali ini……』
-Begitu. Maka itu tidak bisa dihindari.
+[hey Ain, ada etika untuk hal semacam ini, kan? Apakah Kamu tahu tentang itu?] (Ciel)
+
+[Maaf. Aku tidak berdaya kali ini...] (Ain)
+
+[Begitu. kalau begitu itu tidak bisa dihindari.] (Ciel)
 
 "Aku Aku? Apakah ini pesta teh pertama Kamu?」
 Ini pertama Aku, ya.
