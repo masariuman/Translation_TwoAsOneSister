@@ -72,88 +72,102 @@ banyak kemungkinan alasan muncul di benakku, tapi kami adalah orang-orang yang m
 
 Tapi, karena pak botak menghentikannya dengan tangannya, pria seperti pedagang itu hanya bisa mengerang dan dia kembali duduk di kursinya.
 
-Ini adalah masalah Guild Hunter. Merchant Guild, simpan keluhanmu untuk nanti.
-Ahh, tentu saja. Kami akan mendengar keluhan kami setelahnya.
+"Ini adalah masalah Guild Hunter. Guild Pedagang, simpan keluhanmu untuk nanti." (Pak Botak)
 
-Yah, aku tidak tahu mengapa seseorang dari Merchant Guild akan memiliki keluhan terhadap kita.
-Sebaliknya, ada Merchant Guild? Kami hampir tidak mengenal mereka, jadi Aku tidak tahu. Padahal, mungkin Aku hanya lupa bahwa mereka memang ada.
+"Ahh, tentu saja. Kami akan mengeluh setelah ini." (Pedagang)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Yah, aku tidak tahu mengapa seseorang dari Guild Pedagang memiliki keluhan terhadap kami.
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+tapi, Guild pedagang benar-benar ada? Kami hampir tidak mengenal mereka, jadi Aku tidak tahu. mungkin Aku hanya lupa bahwa mereka memang ada.
 
-Tetap saja, dalam hal ini, akankah mengatakan "guild" juga merujuk ke Merchant Guild?
-Mungkin lebih baik untuk membedakan dengan X Guild selama diskusi formal.
+Tetap saja, dalam hal ini, akankah mengatakan "guild" juga merujuk ke guild Pedagang?
 
-Jadi, mengapa Aku dibawa ke sini?」
+Mungkin lebih baik untuk membedakan dengan Guild X selama diskusi formal.
+
+"Jadi, mengapa Aku dibawa ke sini?" (Ain)
 
 Secara implisit mengatakan kepada mereka untuk bergegas dan memulai ini, Aku bertanya kepada 9 dari mereka.
+
 Hanya beberapa dari mereka yang menunjukkan reaksi yang jelas, tetapi orang yang seperti pendeta itu terlihat tidak senang.
 
-Mengabaikan penerimaan mereka, orang-orang yang berkumpul di sini mungkin adalah orang-orang dengan posisi seperti pemimpin di Central.
+Mengabaikan reaksi mereka, orang-orang yang berkumpul di sini mungkin adalah orang-orang dengan posisi seperti pemimpin di Central.
+
 Adapun kurangnya pengenalan, mereka mungkin tidak menganggap Aku layak untuk diperkenalkan.
+
 Sangat menyenangkan tidak harus mengingat apa pun.
 
-Bisakah Aku merujuk Kamu Cielmer?」
-Ya.
+"Bisakah Aku memanggilmu Cielmer?" (Pak Botak)
 
-Seperti yang dia katakan sebelumnya, perwakilan skinhead Hunter Guild sedang memajukan diskusi.
+"Iya." (Ain)
 
-Kamu dipanggil ke sini untuk pemeriksaan silang, serta untuk menjawab beberapa pertanyaan.
-Bergantung pada jawaban Kamu, kami mungkin meminta Kamu untuk langsung masuk penjara tapi ......」
-Aku tidak ingat melakukan apa pun yang menjamin itu.
-Apa yang bukan-.......」
-Tenang, Merchant Guild.
+perwakilan si Botak dari guild Hunter memulai diskusi.
 
-Tepat ketika segala sesuatunya bergerak maju, itu segera berhenti. Apakah mereka tertarik untuk berdiskusi?
-Iklan
+"Kamu dipanggil ke sini untuk pemeriksaan, serta untuk menjawab beberapa pertanyaan. Bergantung pada jawabanmu, kami mungkin memintamu untuk langsung masuk penjara tapi ......" (Pak Botak)
 
-Untuk mengkonfirmasi, Kerajaan Estoque saat ini sedang diserang, apakah benar Kamu datang ke sini mengabaikannya?」
-Aku tidak mengabaikannya. Aku mengirimkan persediaan ke ibukota kerajaan dan mengalahkan monster yang Aku temui di jalan.」
-Lalu, benarkah, selama waktu itu, Kamu melakukan tindakan kekerasan di Guild Hunter Royal Capital Estoque? 」
-「 No. Ketika Aku mengirimkan persediaan, master akting mengatakan kepada Aku bahwa dia tidak akan menerima persediaan kecuali Aku bekerja sama untuk menyelesaikan penyerbuan dan mengancam akan menolak pemenuhan permintaan Aku atau membuatnya sehingga tas ajaib dicuri oleh Hunter yang menerimanya. Selain itu, dia memerintahkan para Hunter yang hadir untuk menangkapku, jadi aku terdesak untuk membela diri.
-Apakah kamu tidak pergi terlalu jauh? Kamu menambah beban pada kota yang sedang dirusak oleh penyerbuan, kamu tahu itu?」
-「Untuk memulainya, bukankah aku seharusnya dijanjikan keselamatan pribadi di dalam gedung Guild Hunter Capital Estoque?
-Janji ini dilanggar, Tapi mengapa Aku yang harus menunjukkan pertimbangan di sini?
+"Aku tidak ingat melakukan apa pun untuk mendapatkan itu." (Ain)
 
-Sesekali, kami akan diinterupsi dan dicegah untuk bergerak maju, tetapi pertukaran biasanya berjalan seperti ini.
-Mr. Skinhead dari Guild Hunter masih tampak tegas, tapi Aku perhatikan bahwa dia secara bertahap kehilangan kekuatan.
-Atau lebih tepatnya, Aku merasa dia tidak terlalu energik untuk memulai. Dia mungkin dikirim ke tempat ini mengetahui bahwa Aku tidak bersalah di sini.
-Sepanjang ini, orang yang seperti pendeta dengan hidup terus menyeruduk.
+"Apa yang -......." (Pedagang)
 
-Dengan kata lain, Kamu tidak berniat melawan penyerbuan sejak awal.
-Sementara banyak yang dalam bahaya besar, Kamu hanya mengirimkan persediaan? Jika Aku tidak salah, itu harus menjadi kewajiban bagi Hunter untuk bekerja sama selama penyerbuan, bukan?」
-Pertama-tama, informasi mengatakan bahwa ketidakcukupan dalam persiapan adalah karena betapa tidak dapat diandalkannya informasi Kamu.」
-Jika Estoque jatuh, itu kemungkinan bahaya ini akan menimpa Central. Bagaimana Kamu berencana mengambil tanggung jawab untuk itu?
+"Tenang, Guild Pedagang." (Pak Botak)
 
-Dari berbagai komentar sok beterbangan dari sisi manusia.
+Tepat ketika segala sesuatunya bergerak maju, itu segera berhenti. Apakah mereka benar-benar mau berdiskusi?
+
+"Untuk mengkonfirmasi, Kerajaan Estoque saat ini sedang diserang, apakah benar Kamu datang ke sini mengabaikannya?" (Pak Botak)
+
+"Aku tidak mengabaikannya. Aku mengirimkan persediaan ke ibukota kerajaan dan mengalahkan monster yang Aku temui di jalan." (Ain)
+
+"Lalu, benarkah, selama waktu itu, Kamu melakukan tindakan kekerasan di Guild Hunter ibukota kerajaan Estoque?" (Pendeta)
+
+"Tidak. Ketika Aku mengirimkan persediaan, Ketua guild sementara mengatakan kepadaku bahwa dia tidak akan menerima persediaan kecuali Aku bekerja sama untuk menyelesaikan penyerbuan dan mengancam akan menolak pemenuhan permintaanku atau membuatnya sehingga tas sihir dicuri oleh Hunter yang menerimanya. Selain itu, dia memerintahkan para Hunter yang ada untuk menangkapku, jadi aku terdesak untuk membela diri." (Ain)
+
+"Apakah kamu tidak berlebihan? Kamu menambah beban pada kota yang sedang dirusak oleh penyerbuan, kamu tahu itu?" (Pendeta)
+
+"pada dasarnya, bukankah aku seharusnya dijanjikan keselamatan pribadi di dalam gedung Guild Hunter ibukota Estoque? Janji ini dilanggar, Tapi mengapa Aku yang harus menunjukkan pertimbangan di sini?" (Ain)
+
+untuk sekarang dan seterusnya, kami akan diinterupsi dan dicegah untuk melanjutkan pembicaraan, tetapi pembicaraan berjalan seperti ini.
+
+pak Botak dari Guild Hunter masih tampak tegas, tapi Aku menyadari dia secara bertahap kehilangan kekuatan.
+
+Atau lebih tepatnya, Aku merasa dia tidak terlalu energik. Dia mungkin dikirim ke tempat ini mengetahui bahwa Aku tidak bersalah di sini.
+
+sejauh ini, orang yang seperti pendeta dengan terus-menerus menjawabku.
+
+"Dengan kata lain, Kamu tidak berniat melawan penyerbuan sejak awal. Sementara banyak yang dalam bahaya besar, Kamu hanya mengirimkan persediaan? Jika Aku tidak salah, itu menjadi kewajiban bagi Hunter untuk bekerja sama selama penyerbuan, bukan?"
+
+"Pada dasarnya, informasi mengatakan bahwa ketidakcukupan dalam persiapan adalah karena betapa tidak dapat diandalkannya informasimu."
+
+"Jika Estoque jatuh, kemungkinan bahaya ini akan menimpa Central. Bagaimana Kamu berencana mengambil tanggung jawab untuk itu?"
+
+berbagai komentar berterbangan dari sisi manusia.
+
 Tapi, orang-orang dari ras lain hanya alisnya terangkat menatap orang-orang itu.
-Mereka, setidaknya, tampaknya tidak memiliki sentimen negatif terhadap Aku. Yah, bahkan orang-orang yang menentang Aku mungkin tidak melakukannya karena sentimen negatif, tetapi mungkin hanya karena alasan politik.
 
-Pertama, selama perselisihan Aku dengan Hunter Guild, Aku diizinkan untuk berpantang dari pertempuran jika penyerbuan menghantam Royal Capital Estoque, kan?」
-Ya, tidak diragukan lagi.
-Tapi demikian, tidak masuk akal untuk datang ke sini dengan mengabaikan orang-orang. 」
+Mereka, setidaknya, tampaknya tidak memiliki sentimen negatif terhadapku. Yah, bahkan orang-orang yang menentangku mungkin tidak melakukannya karena sentimen negatif, tetapi mungkin hanya karena alasan politik.
 
-Bertanya kepada Pak Skinhead, dia menjawab dengan setuju, tetapi seseorang kemudian mengangkat suaranya.
+"Pertama, selama perselisihanku dengan Hunter Guild, Aku diizinkan untuk tidak mengikuti pertempuran jika penyerbuan menghantam ibukota kerajaan Estoque, kan?" (Ain)
+
+"Ya, itu benar." (Pak Botak)
+
+"Tapi, tidak masuk akal untuk datang ke sini dengan mengabaikan yang lainnya."
+
+Bertanya kepada Pak Botak, dia menjawab dengan setuju, tetapi seseorang kemudian mengangkat suaranya.
+
 Mengapa mereka terus mengganggu? Apakah mereka memiliki penyakit di mana mereka akan mati kecuali mereka memberikan pendapat mereka?
 
-Untuk itu, mereka yang menunjukkan keberatan dengan tindakan Aku, silakan menuju ke Royal Capital Estoque dan berteriak keras “Saya adalah Raja Lagu/Putri Lagu”. Dalam kasus Aku, ini terungkap di luar kehendak Aku, tetapi Aku yakin Kamu harus dapat memahami apa yang Aku coba katakan setelah melakukannya.
+"Untuk itu, mereka yang menunjukkan keberatan dengan tindakanku, silakan menuju ke ibukota kerajaan Estoque dan berteriak keras 'Aku adalah King Princess/Song Princess'. Dalam kasusku, ini terungkap di luar kehendakku, tetapi Aku yakin kalian harus dapat memahami apa yang Aku coba katakan." (Ain)
 
-Tampaknya mereka tahu bahwa Estoque membenci Putri Song saat ruangan menjadi sunyi.
-Lebih dari itu, mereka sepertinya mengerti bahwa aku adalah Song Princess dari pernyataan itu karena pendeta (temp) menunjukkan ekspresi yang jelas tidak senang.
+Tampaknya mereka tahu bahwa Estoque membenci song princess karena ruangan menjadi sunyi.
 
-Selain itu, Aku juga menjadi sasaran bangsawan dari Royal Capital Estoque.
-Adapun mengapa, itu karena Aku mengisyaratkan penyerbuan.
-Selain itu, Guild Hunter menyuruhku bertarung di bawah bangsawan yang dicurigai sebagai orang yang menginginkan hidupku. wanting
+Lebih dari itu, mereka sepertinya mengerti bahwa aku adalah Song Princess dari pernyataan itu karena pendeta menunjukkan ekspresi yang jelas tidak senang.
 
-Apakah Kamu mengatakan kepada Aku untuk mati? Secara implisit menyampaikan itu, orang yang terus berdebat kemudian mengalihkan pandangannya.
+"Selain itu, Aku juga menjadi sasaran bangsawan dari ibukota kerajaan Estoque. Adapun mengapa, itu karena Aku memberitahu tentang penyerbuan. Selain itu, Guild Hunter menyuruhku bertarung di bawah bangsawan yang dicurigai sebagai orang yang menginginkan hidupku." (Ain)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Apakah Kamu mengatakan kepadaku untuk mati? Secara implisit menyampaikan itu, orang yang terus berdebat kemudian mengalihkan pandangannya.
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"Juga, Aku mengalahkan 10 wyvern, tetapi apakah ini tidak cukup untuk sebagai hasil Hunter Rank-B yang bertarung dalam penyerbuan?" (Ain)
 
-Juga, Aku menaklukkan 10 wyvern, tetapi apakah ini tidak cukup untuk menghasilkan Hunter Rank-B yang bertarung dalam penyerbuan?」
-Jika itu benar, maka itu lebih dari cukup.」
+"Jika itu benar, maka itu lebih dari cukup." (Pak Botak)
+
 Mereka ada di dalam tas ajaib, jadi Aku bisa menunjukkan bukti penaklukan.
 Setelah itu, informasi tentang penyerbuan, bukan? Jika orang-orang yang hadir di sini telah menaruh kepercayaan penuh pada informasi yang diteliti oleh seorang amatir yang melewatkan waktu luangnya, maka Aku harus meminta maaf. Tapi, jika bukan karena informasi ini tersedia untuk memulai, Aku tidak berpikir bahwa persiapan apa pun akan dilakukan.
 Nah, apakah masih ada tuduhan bagi Aku mengenai hal ini?
