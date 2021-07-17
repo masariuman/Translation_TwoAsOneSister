@@ -1,62 +1,76 @@
 CHAPTER 76: STAGNANT DISCUSSION, OTHER RACES, AND FIIYANAMIA
 
-Kami dipimpin oleh para prajurit ke lokasi seperti ruang konferensi di dalam sebuah gedung besar.
+Kami dibimbing oleh para tentara ke lokasi seperti ruang konferensi di dalam sebuah gedung besar.
+
 Di tengah ada meja besar dan di sekelilingnya ada beberapa kursi.
-Duduk di kursi itu totalnya ada 9 orang.
 
-Ada seorang pria tua botak berotot. Dia memiliki perasaan yang mirip dengan guildmaster Norvell, tetapi mereka tidak mirip. Orang ini di sini sepertinya dipenuhi dengan kepercayaan diri.
-Dia bukan hanya otot, dia juga memiliki kekuatan sihir yang cukup besar juga dan dari pemindaian kasar, kapasitasnya untuk pertarungan sihir seharusnya sekitar C-rank atau lebih tinggi.
+ada 9 orang yang duduk di kursi.
 
-Selain dia, ada juga dua orang bangsawan yang korup dan seorang pria seperti pedagang yang gagah. Orang yang mirip pendeta dan orang yang mirip antek.
+Ada seorang pria tua botak berotot. Dia memiliki perasaan yang mirip dengan Ketua Guild Norvell, tetapi mereka tidak mirip. Dia sepertinya dipenuhi dengan kepercayaan diri.
+
+Dia bukan hanya otot, dia juga memiliki energi sihir yang cukup besar juga dan dari yang kulihat sekilas, kapasitasnya untuk pertarungan sihir seharusnya sekitar rank-C atau lebih tinggi.
+
+Selain dia, ada juga dua orang yang terlihat seperti bangsawan yang tidak baik dan seorang pria seperti pedagang yang gagah. ada juga yang mirip pendeta dan orang yang mirip pengikutnya.
 
 Seorang pria kecil berjanggut. Seorang wanita kurus bertelinga panjang. Dan seekor singa.
 
-Mengenai tiga yang terakhir, Aku pikir mereka masing-masing adalah dwarf, elf, dan beastman.
-Beastman bukanlah tipe manusia dengan telinga binatang, tapi lebih condong ke sisi binatang. Humanoid dengan bulu pada karakteristik binatang, dengan struktur kerangka seperti manusia. Tidak seperti binatang yang berdiri dengan dua kaki.
+Mengenai tiga yang terakhir, mungkin mereka adalah dwarf, elf, dan beastman.
 
-Juga, dari bagaimana kekuatan sihirnya terasa, elf itu sepertinya bukan Fiiyanamia- sama .
+Beastman bukanlah tipe manusia dengan telinga binatang, tapi lebih condong ke sisi binatang. menyerupai manusia dengan bulu karakteristik binatang, dengan struktur kerangka seperti manusia. Tidak seperti binatang yang berdiri dengan dua kaki.
+
+Juga, dari bagaimana energi sihirnya terasa, elf itu sepertinya bukan Fiiyanamia-sama .
 
 9 orang ini memiliki tatapan ingin tahu pada kami, jadi ini pasti terlalu berlebihan untuk Ciel.
-Tetap saja, bagaimana aku harus menangani ini....... Untuk memulainya, bahkan tidak jelas mengapa kami dibawa ke sini.
 
-Untuk saat ini, duduklah.
+Tetap saja, bagaimana aku harus menangani ini....... pertama-tama, bahkan masih belum jelas mengapa kami dibawa ke sini.
 
-Dengan perintah Pak Skinhead, Ciel duduk di kursi terdekat.
-Para prajurit yang membawa kami ke sini kemudian keluar dari ruangan, hanya menyisakan satu untuk menjaga pintu.
+"Untuk saat ini, duduklah."
+
+Dengan perintah Pak botak, Ciel duduk di kursi terdekat.
+
+Para tentara yang membawa kami ke sini kemudian keluar dari ruangan, hanya menyisakan satu untuk menjaga pintu.
+
 Hanya dikelilingi oleh orang dewasa terasa sangat luar biasa. Mempertimbangkan bahwa ini bukan percakapan satu lawan satu, ini mungkin bukan saatnya untuk berpikir tentang memberi Ciel lebih banyak pengalaman.
 
-Iklan
+[Haruskah kita beralih?] (Ain)
 
-Haruskah kita beralih?』
-Bisakah kita?
-Kemudian Aku akan menyerahkan jawabannya kepada Kamu, Ain.
-Aku akan mencoba memasukkan komentar Kamu sebanyak mungkin.』
+[Boleh? kalau begitu Aku akan menyerahkannya kepadamu, Ain.] (Ciel)
+
+[Aku akan mencoba memasukkan apa yang ingin kamu bicarakan sebanyak mungkin.] (Ain)
 
 Dengan mengatakan itu, Aku beralih dengan Ciel.
-Dan dengan melakukan itu, roh-roh itu kemudian berkumpul kepada Aku. Padahal, ketika mereka datang terlalu dekat, mereka hanya melewatiku.
-Nah, mereka yang bereaksi saat aku masuk adalah dwarf, elf, dan beastman. Mereka yang menunjukkan reaksi terbesar adalah kurcaci dan elf.
+
+Dan dengan melakukan itu, roh-roh kemudian berkumpul kepadaku. tapi tetap saja, ketika mereka terlalu dekat, mereka hanya melewatiku.
+
+Nah, mereka yang bereaksi saat aku mengambil alih tubuh adalah dwarf, elf, dan beastman. yang menunjukkan reaksi terbesar adalah dwarf dan elf.
+
 Mereka sepertinya menatapku, jadi mereka mungkin bisa melihat roh hutan.
 
-Sementara roh hutan biasanya menjaga jarak tertentu bahkan ketika Aku beralih, dia di atas pangkuan Aku untuk beberapa alasan, menarik perhatian mereka.
+roh hutan biasanya menjaga jarak tertentu bahkan ketika Aku beralih, tapi kali ini dia di atas pangkuanku untuk beberapa alasan dan menarik perhatian mereka.
+
 Itu tidak terlihat aneh dari segi ukuran, tetapi karena roh hutan terlihat lebih tua dari Ciel, agak lucu melihatnya duduk di pangkuanku.
+
 Juga, tepatnya, karena aku tidak bisa menyentuhnya, dia melayang seperti sedang duduk.
 
 Dia tampaknya menikmati dirinya sendiri, jadi itu tidak terlalu penting.
 
-Katakan, Ain. Apakah dia benar-benar duduk?』
-Dia melayang.
-Benar? Tapi bukankah dia akan kelelahan?』
-Dia menikmati dirinya sendiri, jadi seharusnya tidak apa-apa?』
+[Ain, Apakah dia benar-benar duduk?] (Ciel)
 
-Saat berbicara dengan Ciel, aku mengalihkan perhatianku karena sepertinya ada sesuatu yang dimulai, ketika pria seperti pedagang itu tiba-tiba berbicara dengan nada kesal.
+[Dia melayang.] (Ain)
 
-Sepertinya Kamu tidak mengerti mengapa Kamu dibawa ke sini.
-Ya, tentu saja.
-Iklan
+[Benar? Tapi tidakkah dia akan kelelahan?] (Ciel)
 
+[Dia menikmati dirinya sendiri, jadi seharusnya tidak apa-apa?] (Ain)
 
-Sementara banyak kemungkinan alasan muncul di benak, kami adalah orang-orang yang menderita dalam setiap alasan itu, jadi Aku tidak melihat alasan untuk dikelilingi seperti ini. Karena itu, Aku menjawab tanpa ragu-ragu. Tapi, tampaknya pria seperti pedagang itu tidak senang dengan itu, 「Kamu ......」 saat dia melompat dari kursinya dengan wajah merah padam.
-Tapi, karena Mr. Skinhead menghentikan ini dengan tangannya, pria seperti pedagang itu hanya bisa mengerang saat dia kembali duduk di kursinya.
+Saat berbicara dengan Ciel, aku mengalihkan perhatianku karena sepertinya ada sesuatu yang dimulai karena pria seperti pedagang itu tiba-tiba berbicara dengan nada kesal.
+
+"Sepertinya Kamu tidak mengerti mengapa Kamu dibawa ke sini." (Pedagang)
+
+"Ya, tentu saja." (Ain)
+
+banyak kemungkinan alasan muncul di benakku, tapi kami adalah orang-orang yang menderita dalam setiap alasan itu, jadi Aku tidak melihat alasan untuk dikelilingi seperti ini. Karena itu, Aku menjawab tanpa ragu-ragu. Tapi, tampaknya pria seperti pedagang itu tidak senang dengan itu dan berkata "Kamu ......" dan dia melompat dari kursinya dengan wajah merah padam.
+
+Tapi, karena pak botak menghentikannya dengan tangannya, pria seperti pedagang itu hanya bisa mengerang dan dia kembali duduk di kursinya.
 
 Ini adalah masalah Guild Hunter. Merchant Guild, simpan keluhanmu untuk nanti.
 Ahh, tentu saja. Kami akan mendengar keluhan kami setelahnya.
