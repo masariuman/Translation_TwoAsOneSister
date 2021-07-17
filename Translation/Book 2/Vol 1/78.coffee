@@ -44,11 +44,15 @@ Dengan kata lain, para roh.......Tetap saja, selagi aku bisa memikirkan hal-hal,
 
 "Ya." (Ciel)
 
-Dikawal oleh Fiiyanamia-sama , kami melangkah ke mansion.
-Interiornya tidak terlalu mencolok, malah memiliki keanggunan yang rapi.
+dibawa oleh Fiiyanamia-sama, kami melangkah ke mansion.
+
+Interiornya tidak terlalu mencolok, tapi memiliki keanggunan yang rapi.
+
 Segera setelah pintu masuk adalah aula dengan langit-langit melengkung yang tinggi. Ada jalan menuju koridor dari sini, yang mungkin menghubungkan ke kamar.
-Aku menemukan pilar di dalam rumah yang menyegarkan mungkin karena kepekaan yang Aku miliki dari Jepang modern.
-Meskipun seharusnya ada bangunan di Jepang dengan pilar yang terlihat, Aku tidak melihat apapun dalam jangkauan aktivitas Aku sebelumnya.
+
+Aku melihat pilar di dalam rumah dan itu menyegarkan mungkin karena kepekaan yang Aku miliki dari Jepang modern.
+
+Meskipun seharusnya ada bangunan di Jepang dengan pilar yang terlihat, Aku tidak melihat apapun dalam jangkauan aktivitasku sebelumnya.
 
 Karena ini adalah rumah besar, ada pembantu juga dan, saat Ciel dan Fiiyanamia-sama masuk, ada beberapa dari mereka yang siaga yang menyapa dengan Selamat datang kembali.
 Karena betapa mendadaknya ini, Ciel terkejut.
@@ -149,7 +153,7 @@ Juga, Aku merasa sangat tidak nyaman dirujuk dengan – chan. Rasa dingin menjal
 Untuk saat ini, kurasa aku harus menyapa dulu agar aman.
 
 Senang bertemu denganmu lagi. Nama Aku Ainsel.」
-Jadi kamu Ainsel-chan. Uh-huh , Kamu benar-benar berbeda dari Cielmer-chan.」
+Jadi kamu Ainsel-chan. Uh-huh, Kamu benar-benar berbeda dari Cielmer-chan.」
 「Anda bisa tahu?」
 Perbedaan cara Kamu berbicara... disengaja, jadi itu tidak cukup.
 Pertama, kualitas kekuatan sihir berubah secara halus. Tidak, di antara dua kekuatan sihir yang ada, kekuatan sihir yang kamu miliki membengkak secara halus…… ya.
@@ -163,7 +167,7 @@ Selain itu, yang lebih mudah adalah dari reaksi para roh.
 
 Mengatakan demikian, Fiiyanamia-sama dengan geli mengalihkan pandangannya ke pangkuanku.
 Mengikuti tatapannya, seperti yang kuduga, roh hutan sedang duduk di pangkuanku.
-Roh hutan melambai ke Fiiyanamia-sama , dan Fiiyanamia-sama balas melambai.
+Roh hutan melambai ke Fiiyanamia-sama, dan Fiiyanamia-sama balas melambai.
 Apakah mereka saling mengenal?
 
 (Bab ini disediakan untuk Kamu oleh Re:Library)
@@ -177,7 +181,7 @@ Iklan
 
 Karena kami keluar dari topik, Fiiyanamia-sama dengan paksa mengalihkan pembicaraan.
 
-Tujuan pria itu adalah mengubah Ciel menjadi dewa. Tepatnya, ummm , darah dewa...... darah yang hanya bisa diambil sekali...... dia......」
+Tujuan pria itu adalah mengubah Ciel menjadi dewa. Tepatnya, ummm, darah dewa...... darah yang hanya bisa diambil sekali...... dia......」
 
 Itu bukan sesuatu yang bisa dikatakan begitu santai, jadi aku hanya bisa ragu. Bagaimanapun, ini adalah topik yang sangat sensitif bagi Ciel. Bahkan jika Ciel mengatakan kepada Aku 『Saya tidak keberatan jika Kamu mengatakannya, Kamu tahu? di dalam kepala Aku.
 Untungnya, Fiiyanamia-sama sepertinya sudah mengerti dan 「Kamu tidak perlu mengatakannya. mengatakannya padaku.
