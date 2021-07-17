@@ -223,22 +223,29 @@ Fiiyanamia-sama memiliki pandangan yang jauh. Cara dia berbicara dengan cara mem
 
 Fiiyanamia-sama mengangkat dua jari dan kemudian menunjuk ke arahku.
 
-Tidak ada bukti kuat yang bisa diceritakan kepada orang-orang, serta bukti bahwa itu benar-benar dilakukan oleh Duke Rispelgia, kan?」
-Tepat. Kalian berdua ingin merahasiakan keberadaan Ainsel, kan?」
-Itu benar.
-「Yah, kamu tidak memiliki kewajiban untuk memberi tahu anak-anak itu tentang dirimu sejak awal.
-Aku hanya perlu mengatakan bahwa apa yang Kamu berdua katakan kepada mereka adalah kebenaran. Mereka yang tidak percaya ini tidak pantas berada di kebun Aku.
+"Tidak ada bukti kuat yang bisa diceritakan kepada orang-orang, serta bukti bahwa itu benar-benar dilakukan oleh Duke Rispelgia, kan?" (Ain)
 
-Aku sedang mempertimbangkan untuk mengungkapkan fakta bahwa kami memiliki dua Pekerjaan, tetapi sepertinya kami tidak perlu melakukannya.
+"Tepat. Kalian berdua ingin merahasiakan keberadaan Ainsel, kan?" (Fiiyanamia)
 
-Juga, Aku hanya bertanya karena penasaran tetapi, memiliki dua jiwa, apakah Kamu berdua memiliki Pekerjaan yang berbeda masing-masing?」
-…… Itu benar. Yang diketahui, Putri Song, adalah Pekerjaanku.
-Ciel memiliki Pekerjaan yang berbeda.
+"Itu benar." (Ain)
+
+"Yah, kamu tidak memiliki kewajiban untuk memberi tahu bocah-bocah itu tentang dirimu. Aku hanya perlu mengatakan bahwa apa yang Kamu berdua katakan kepada mereka adalah kebenaran. Mereka yang tidak percaya ini tidak pantas berada di kebunku." (Fiiyanamia)
+
+Aku sedang mempertimbangkan untuk mengungkapkan fakta bahwa kami memiliki dua job, tetapi sepertinya kami tidak perlu melakukannya.
+
+"Juga, Aku hanya bertanya karena penasaran tetapi, memiliki dua jiwa, apakah kalian berdua memiliki job yang berbeda?" (Fiiyanamia)
+
+"benar. Yang diketahui, Song Princess, adalah Jobku. Ciel memiliki Job yang berbeda." (Ain)
 
 Fiiyanamia-sama mengangguk penasaran dan kemudian beralih ke topik Rispeliga.
+
 Setelah semua yang terjadi, kami tidak benar-benar mendapatkan pengenalan diri dari pria itu.
+
 Kami hanya menilai bahwa dia mungkin Rispelgia dari dokumen dan tulisan, jadi Aku tidak bisa membuang kemungkinan bahwa itu mungkin hanya pria biasa yang dibuat tampak seperti Rispelgia.
 
-Topik selanjutnya adalah apakah itu benar-benar Duke Rispelgia, tapi Aku bisa bertanya tentang ini, bukan?」
+"Topik selanjutnya adalah apakah itu benar-benar Duke Rispelgia, tapi Aku bisa bertanya tentang ini, bukan?" (Fiiyanamia)
 
-Fiiyanamia-sama berbicara di pangkuanku. Tidak, untuk roh hutan yang duduk di pangkuanku.
+Fiiyanamia-sama berbicara ke pangkuanku. Tidak, tapi kepada roh hutan yang duduk di pangkuanku.
+
+-----------------------------
+
