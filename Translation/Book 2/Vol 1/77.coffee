@@ -121,100 +121,115 @@ Aku kira alasan dia merujuk kami dengan –dono adalah karena kami adalah tamu F
 
 Aku tidak terbiasa dipanggil seperti itu, jadi rasanya aneh.
 
-Berapa banyak yang harus Aku katakan?』
-Bukankah tidak apa-apa membicarakan sebagian besar?
-Tempat ini di luar jangkauan Rispelgia, kan? Kalau begitu, bukankah lebih baik memberi tahu mereka terlebih dahulu?
-Lagi pula, semakin besar kerusakannya, semakin banyak masalah yang mungkin terjadi.
-『Cara menyampaikan dan keberadaanku?』
-『Aku akan menyerahkannya padamu, Ain.
+[Berapa banyak yang harus Aku katakan?] (Ain)
+
+[Bukankah tidak apa-apa membicarakan sebagian besarnya? Tempat ini di luar jangkauan Rispelgia, kan? Kalau begitu, bukankah lebih baik memberi tahu mereka terlebih dahulu? Lagi pula, semakin besar kerusakannya, semakin banyak masalah yang mungkin terjadi.] (Ciel)
+
+[Cara menyampaikan dan keberadaanku?] (Ain)
+
+[Aku akan menyerahkannya padamu, Ain.] (Ciel)
 
 Tidak ingin memutuskan sendiri, Aku meminta pendapat Ciel dan Aku dijawab dengan jawaban yang tidak terduga.
+
 Apa yang dikatakan Ciel memang benar dan, khususnya mengenai Fiiyanamia-sama, mungkin lebih baik dijelaskan untuk mendapatkan kepercayaannya.
 
-Bukti mengapa itu bisa menjadi perbuatan Rispelgia ada di depan Kamu.」
-...... Apakah Kamu sendiri, Cielmer-dono ?」
-Ya. Aku dibesarkan di mansion di dalam hutan itu, karya Rispelgia yang gagal. 」
-Bagaimana Kamu bisa memverifikasi itu?」 」
-Aku tidak bisa mengatakannya di sini. Sebagai seorang Hunter, bagaimanapun juga, Aku tidak bisa hanya mengekspos kemampuan Aku sendiri. Sementara Aku gagal, itu masih cukup untuk memberi Aku keuntungan.
+"Bukti mengapa itu bisa menjadi perbuatan Rispelgia ada di depanmu." (Ain)
 
-Penggunaan Song Princess dan Dance Princess secara bersamaan adalah keuntungan yang hanya bisa kita manfaatkan.
-Kekuatan gabungan dari dua putri pemilih Jobs sudah cukup untuk menjatuhkan monster Rank-A dengan hujan.
-Meskipun ada kasus di mana keunggulan suatu Pekerjaan dapat dibalikkan dengan kerja keras, hal ini membuat Aku menyadari betapa menakjubkannya kekuatan Pekerjaan sebenarnya.
+"...... Apakah Kamu sendiri, Cielmer-dono ?" (Dourthe)
 
-Selain itu, karena hanya mengatakan Aku adalah buktinya」 sulit dipercaya, Aku akan memberikan informasi tambahan.
+"Ya. Aku dibesarkan di mansion di dalam hutan itu, karya Rispelgia yang gagal." (Ain)
 
-Aku akan menyampaikan bukti konklusif kepada Fiiyanamia-sama, jadi tolong buat penilaian Kamu setelah itu.
-Tapi, diskusi mungkin tidak membuat kemajuan apa pun hanya dengan itu, jadi berikut adalah beberapa bahan untuk penilaian.
-Dari kelahiran Aku sampai Aku mencapai 10, Aku tinggal di mansion. Pada hari ulang tahunku yang kesepuluh, karena Jobku juga dianggap tidak berguna selain aku gagal, aku dijual ke bangsawan lain.
-Tapi, kereta yang kami tumpangi diserang oleh cyclop di jalan. Bangsawan dan pengawalnya meninggal, dan aku mengalahkan cyclop dan menjadi Hunter di sebuah kota.」
-「Itu buktimu?」
-Apakah kamu mengenal seseorang yang bisa mengalahkan cyclop pada usia 10 tahun?
-Jika bukan cyclops, lalu apakah ada orang dengan rentang usia Aku yang bisa menangani penyerbuan, tidak peduli seberapa kecil, sendirian?
-Bagaimana dengan 10 Wyvern?
-Jika tidak ada, maka Kamu harus dapat memahami bahwa ada sesuatu untuk Aku, kan?
+"Bagaimana Kamu bisa memverifikasi itu?" (Dourthe)
 
-Meskipun sama sekali tidak menjawab pertanyaan, rekam jejak kami, yang sejujurnya gila di belakang, seharusnya cukup untuk meyakinkan mereka bahwa ada sesuatu yang berbeda tentang kami.
+"Aku tidak bisa mengatakannya di sini. Sebagai seorang Hunter, bagaimanapun juga, Aku tidak bisa hanya mengekspos kemampuanku sendiri. walaupun Aku sebuah kegagalan, itu masih cukup untuk memberiku keuntungan." (Ain)
 
-"Baik.
-Bisakah kami menyerahkan penghakiman terakhir kepada Kamu, Fiiyanamia-sama ?」
-Ya, ya. Tidak apa-apa.」
-Kalau begitu, dengan asumsi bahwa kata-katamu benar, apa yang ingin dilakukan Duke Rispelgia?」
-Jujur, apa yang ingin dia lakukan?」
+Penggunaan Song Princess dan Dance Princess secara bersamaan adalah keuntungan yang hanya bisa kami manfaatkan.
 
-Mengenai hal ini, jujur ​​saya tidak tahu.
-Bagaimanapun, bahkan mengubah Ciel menjadi dewa hanyalah sebuah pos pemeriksaan untuk tujuannya.
+Kekuatan gabungan dari dua job putri sudah cukup untuk menjatuhkan monster Rank-A dengan hujan.
+
+Meskipun ada kasus di mana keunggulan suatu job dapat dikalahkan dengan kerja keras, hal ini membuatku menyadari betapa menakjubkannya kekuatan job sebenarnya.
+
+Selain itu, karena hanya mengatakan "Akulah buktinya" sulit dipercaya, Aku akan memberikan informasi tambahan.
+
+"Aku akan menyampaikan bukti konklusif kepada Fiiyanamia-sama, jadi tolong buat penilaianmu setelah itu. Tapi, diskusi mungkin tidak membuat kemajuan apa pun hanya dengan itu, jadi aku akan mengatakan beberapa bahan untuk penilaian. Dari kelahiranku sampai Aku mencapai 10 tahun, Aku tinggal di mansion. Pada hari ulang tahunku yang kesepuluh, karena Jobku juga dianggap tidak berguna selain aku adalah kegagalan, aku dijual ke bangsawan lain. Tapi, kereta yang kami tumpangi diserang oleh cyclop di jalan. Bangsawan dan pengawalnya mati, dan aku mengalahkan cyclop dan menjadi Hunter di kota setelahnya." (Ain)
+
+"Itu buktimu?" (Dourthe)
+
+"Apakah kamu mengenal seseorang yang bisa mengalahkan cyclop pada usia 10 tahun? Jika bukan cyclops, lalu apakah ada orang dengan rentang usiaku yang bisa menangani penyerbuan, tidak peduli seberapa kecil penyerbuannya, dan sendirian? Bagaimana dengan 10 Wyvern? Jika tidak ada, maka Kamu dapat memahami bahwa ada sesuatu padaku, kan?" (Ain)
+
+Meskipun sama sekali tidak menjawab pertanyaan, rekam jejak kami, yang sejujurnya dibilang gila dan tidak masuk akal, seharusnya cukup untuk meyakinkan mereka bahwa ada sesuatu yang berbeda tentang kami.
+
+"Baik. Bisakah kami menyerahkan penilaian terakhir kepadamu, Fiiyanamia-sama ?" (Dourthe)
+
+"Ya, ya. Tidak apa-apa." (Fiiyanamia)
+
+"Kalau begitu, dengan asumsi bahwa kata-katamu benar, apa yang ingin dilakukan Duke Rispelgia?" (Dourthe)
+
+"entahlah, apa yang ingin dia lakukan?" (Ain)
+
+Mengenai hal ini, jujur, aku tidak tahu.
+
+Bagaimanapun juga, bahkan mengubah Ciel menjadi dewa hanyalah sebuah titik awal pemeriksaan untuk tujuannya.
+
 Secara khusus, darah perawan dewa. Adapun untuk apa itu bisa digunakan, Aku kira untuk membuat obat atau semacam batu filsuf?
+
 Yah, aku tidak tahu.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+ketika Aku memberi jawaban jujurku, si pengikut sebelah Dourthe-san mendecakkan lidahnya.
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+Seolah mengatakan, Kamu bahkan tidak bisa mengetahui itu?
 
-Seperti yang Aku memberi jawaban jujur Aku, Mr. antek sebelah Dourthe-san diklik lidahnya.
-Seolah mengatakan, Kamu bahkan tidak bisa menemukan itu?
-Saat ini, dia adalah satu-satunya manusia lain di sini tetapi jika mereka yang pergi sebelumnya hadir sekarang, maka seseorang mungkin akan menyela pada saat ini.
-Iklan
+Saat ini, dia adalah satu-satunya manusia lain di sini tetapi jika mereka yang pergi sebelumnya ada sekarang, maka seseorang mungkin akan menyela pada saat ini.
 
-Bukannya Aku ada di sana untuk menyelidiki. Aku hanya di sana sebagai subjek tes yang dipenjara.」
-Untuk memulai, untuk memulai! Tidakkah Kamu berharap terlalu banyak dari seorang anak yang bahkan belum dewasa?
-Altro, bukan? Jika Aku tidak salah, Kamu memiliki anak perempuan berusia 13 tahun di keluarga Kamu, bukan?
-Segera jual anak itu ke kekaisaran di selatan dan minta dia menyelidiki dari dalam, oke?」 B
--bagaimana kamu bisa mengatakan itu! Hal semacam itu, jelas tidak mungkin, bukan! 」
+"Aku ada di sana bukan untuk menyelidiki. Aku hanya di sana sebagai subjek tes yang dipenjara." (Ain)
 
-Antek—Altro—menanggapi pernyataan Fiiyanamia-sama dengan bingung .
-Fiiyanamia-sama, apa adanya, saat ini tersenyum tetapi apakah itu kesenangan atau kemarahan?
+"Hei, pada dasarnya! Tidakkah kalian berharap terlalu banyak dari seorang anak yang bahkan belum dewasa? Altro, bukan? Jika Aku tidak salah, Kamu memiliki anak perempuan berusia 13 tahun di keluargamu, bukan? Segera jual anak itu ke kekaisaran di selatan dan minta dia menyelidiki dari dalam, oke?" (Fiiyanamia)
 
-Saat ini, Kamu mendecakkan lidah karena Cielmer-chan tidak memiliki banyak informasi, bukan?
-Dengan kata lain, menurutmu wajar bagi seorang gadis yang belum genap berusia 10 tahun untuk menyelidiki tujuan dari sebuah organisasi yang memenjarakannya, ya?
-Putri Kamu berusia 13 tahun. Dia jauh lebih tua dibandingkan dengan Cielmer-chan pada masanya. Kalau begitu, dia kemudian bisa menyelidiki dengan sempurna, bukankah kamu setuju?」 I
--itu ……」
-「Kamu adalah freeloader, Cielmer-chan adalah tamunya . Kamu tidak akan memberi tahu Aku bahwa Kamu tidak menyadari perbedaannya, bukan? Nah jika tidak, maka Aku akan membiarkan Kamu pergi.
+"B-bagaimana kamu bisa mengatakan itu! Hal semacam itu, jelas tidak mungkin, bukan!" (Altro)
+
+si pengikut, Altro, merespon pernyataan Fiiyanamia-sama dengan bingung.
+
+Fiiyanamia-sama, saat ini tersenyum tetapi entahlah apakah itu kesenangan atau kemarahan?
+
+"Saat ini, Kamu mendecakkan lidah karena Cielmer-chan tidak memiliki banyak informasi, bukan? Dengan kata lain, menurutmu wajar bagi seorang gadis yang belum genap berusia 10 tahun untuk menyelidiki tujuan dari sebuah organisasi yang memenjarakannya, ya? Putri Kamu berusia 13 tahun. Dia jauh lebih tua dibandingkan dengan Cielmer-chan pada masanya. Kalau begitu, dia bisa menyelidikinya dengan sempurna, bukankah kamu setuju?" (Fiiyanamia)
+
+"I-itu" (Altro)
+
+"Kamu adalah pengikut, Cielmer-chan adalah tamunya. Kamu tidak akan memberi tahuku bahwa Kamu tidak menyadari perbedaannya, bukan? Nah jika iya, maka Aku akan ingin Kamu pergi." (Fiiyanamia)
 
 Dengan kata-kata Fiiyanamia-sama, Altro terdiam.
+
 Entah bagaimana, aku merasa tertinggal meski menjadi pihak yang berkepentingan di sini, tapi karena Fiiyanamia-sama mengatakan apa yang ingin kukatakan, sejujurnya aku merasa segar kembali.
 
-"Bisa Aku menanyakan sesuatu?"
+"Bisa Aku menanyakan sesuatu?" (Yunmica)
 
 Yunmica-san yang hanya mendengarkan sampai sekarang angkat bicara.
 
-Tidak apa-apa jika Kamu hanya menjawab dengan apa yang bisa Kamu katakan dan ketahui, tetapi tujuan adipati ini bukan Roh, bukan?」
+"Tidak apa-apa jika Kamu hanya menjawab dengan apa yang bisa Kamu katakan dan ketahui, tetapi tujuan duke ini bukan Roh, bukan?" (Yunmica)
 
-Iklan
 Begitu ya, karena aku, seorang Song Princess manusia, anehnya dimanjakan oleh roh, dia khawatir tentang itu.
-Benar. Jika seseorang dapat meminta roh melakukan perintah mereka, maka mereka praktis dapat melakukan apa saja dengan dunia.
 
-Sementara Aku tidak tahu bahwa tujuan akhir Duke Rispelgia adalah, dia tampaknya terpaku pada dewa dan bukan roh.
-Aku awalnya adalah kegagalan yang dihasilkan dari upaya untuk menciptakan dewa, Kamu tahu. Tapi, aku tidak tahu apa yang dia rencanakan setelah menciptakan dewa.」
-...... Begitu, mengerti. Terima kasih."
+Benar. Jika seseorang dapat meminta roh melakukan perintah mereka, maka mereka dapat melakukan apa saja dengan dunia.
 
-Meskipun memberitahunya bahwa roh tidak terlibat, untuk beberapa alasan Yunmican-san menunjukkan reaksi negatif.
-Menurut pendapat Aku, dia harus gembira bahwa roh tidak terlibat di sini. Sebenarnya, tidak, menjadi gembira mungkin akan menjadi berlebihan.
+"Aku tidak tahu bahwa tujuan akhir Duke Rispelgia, tapi dia tampaknya terpaku pada dewa dan bukan roh. Aku adalah kegagalan yang dihasilkan dari upaya untuk menciptakan dewa. Tapi, aku tidak tahu apa yang dia rencanakan setelah menciptakan dewa." (Ain)
+
+"...... Begitu, baiklah. Terima kasih." (Yunmica)
+
+Meskipun memberitahunya bahwa roh tidak terlibat, untuk beberapa alasan Yunmica-san menunjukkan reaksi negatif.
+
+Menurut pendapatku, dia harusnya gembira bahwa roh tidak terlibat di sini. Sebenarnya, tidak, menjadi gembira mungkin akan menjadi berlebihan.
 
 Mendengar percakapan ini, kali ini Dourthe-san yang bereaksi.
 
-Menciptakan dewa, katamu?」
-Itulah sebabnya aku curiga bahwa Utusan Ilahi Buatan diciptakan oleh Duke Rispelgia.
-...... Kalau begitu, kita harus menunggu penilaian Fiiyanamia-sama, ya.
-"Baiklah baiklah. Jadi ini adalah akhir dari diskusi ini, ya? Jika demikian, Aku akan membimbing Cielmer-chan ke rumah Aku kalau begitu.
+"Menciptakan dewa?" (Dourthe)
 
-Dengan itu, kami diculik oleh Fiiyanamia-sama .
+"Itulah sebabnya aku curiga bahwa Utusan dewa Buatan diciptakan oleh Duke Rispelgia." (Ain)
+
+"...... Kalau begitu, kita harus menunggu penilaian Fiiyanamia-sama, ya." (Dourthe)
+
+"Baiklah baiklah. Jadi ini adalah akhir dari diskusi ini, ya? kalau begitu, Aku akan membimbing Cielmer-chan ke rumahku." (Fiiyanamia)
+
+Dengan itu, kami diculik oleh Fiiyanamia-sama.
+
+--------------------------
+
