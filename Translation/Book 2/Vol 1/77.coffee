@@ -8,33 +8,41 @@ Aku yakin dia akan tahu. Lagi pula, Fiiyanamia-sama bisa mendengar percakapan ap
 
 Jika ada yang mencoba mengadakan pertemuan yang sedikit mencurigakan, maka detailnya kemungkinan akan segera diketahui.
 
-Menurut pendapat Aku, jika miliknya sama dengan milik Aku, maka dengan seberapa banyak informasi yang ada, menangkap semua informasi yang dapat diperoleh tidak mungkin dilakukan kecuali Kamu seorang dewa.
+Menurut pendapatku, jika miliknya sama dengan milikku, dengan seberapa banyak informasi yang ada, menangkap semua informasi tidak mungkin dilakukan kecuali Kamu seorang dewa.
 
-Pendeta (temp) mengalihkan pandangannya dari Fiiyanamia-sama .
-Sementara Aku akan memuji dia karena mengatakan sesuatu seperti B-bagaimana Kamu-......」 dan menggali kuburnya sendiri, bukankah reaksi itu praktis dia memberikan penegasan?
+Pendeta mengalihkan pandangannya dari Fiiyanamia-sama.
+Aku kabum dengan pendeta itu karena mengatakan sesuatu seperti "B-bagaimana Kamu-......" dan menggali kuburannya sendiri, bukankah reaksi itu sama saja dengan dia mengatakan kalau itu benar ?
+
 Tapi, Fiiyanamia-sama tidak menekannya lebih dari itu, dan kembali ke tempatku sekarang.
 
-Jika Kamu bertanya kepada Aku, Aku tidak keberatan mengusir semua orang yang berkepentingan di sini karena menyebabkan ketidaknyamanan bagi tamu resmi Aku ......」 A
--apa yang Kamu katakan! Orang yang akan menderita karena itu adalah Central itu sendiri!」
-「Aku tidak akan menderita sama sekali. Sebaliknya, kepergian Ciemler-chan akan membawa kerugian yang lebih besar.
-Tapi, sehubungan dengan situasi ini, seseorang yang tidak hadir di sini adalah penyebabnya, kan? Penyebab yang jelas.
-Ya ya. Dan jadi Kamu harus tahu apa yang harus dilakukan, benar? Aku marah sekarang.」
-Dimengerti. Dia akan dipanggil dari Estoque dan menebusnya.」
-Ya, buatlah begitu. Tidak tertahankan bagi Aku untuk memiliki organisasi yang tidak tahu malu di dalam kebun Aku, Kamu tahu?
+"Aku bahkan tidak keberatan mengusir semua orang yang berkepentingan di sini karena menyebabkan ketidaknyamanan bagi tamu resmiku ......" (Fiiyanamia)
 
-Dengan senyum Fiiyanamia-sama , percakapan berakhir.
+"A-apa yang Kamu katakan! Orang yang akan menderita karena itu adalah Central itu sendiri!" 
+
+"Aku tidak akan menderita sama sekali. Sebaliknya, kepergian Ciemler-chan akan membawa kerugian yang lebih besar. Tapi, sehubungan dengan situasi ini, seseorang yang tidak hadir di sini adalah penyebabnya, kan? Penyebab yang jelas. Ya ya. jadi Kamu harus tahu apa yang harus dilakukan, kan? Aku sedang marah lho sekarang." (Fiiyanamia)
+
+"Dimengerti. Dia akan dipanggil dari Estoque dan menebus kesalahannya." (Si Botak)
+
+"Ya, buatlah begitu. Tidak tertahankan bagiku untuk memiliki organisasi yang tidak tahu malu di dalam kebunku, Kamu tahu?" (Fiiyanamia)
+
+Dengan senyum Fiiyanamia-sama, percakapan berakhir.
+
 Yup, ini adalah jenis senyum yang tidak boleh Kamu bantah.
 
 Dengan ini, tanggung jawab atas rangkaian masalah ini sekarang menjadi tanggung jawab ketua guild Estoque.
-Menurut pendapat Aku, ini sendiri hanya melayani dia dengan benar.
-Bagaimanapun, dialah yang memulai serangan dan dia meremehkan kami.
 
-Sekarang kita sudah selesai? Tidak ada keberatan, oke?
+Menurut pendapatku, ini sama dengan dia menuai apa yang dia tabur.
 
-Iklan
+Bagaimanapun juga, dialah yang memulai serangan dan dia meremehkan kami.
+
+"Sekarang kita sudah selesai? Tidak ada keberatan, oke?" (Fiiyanamia)
+
 Fiiyanamia-sama meminta konfirmasi terakhir dan semua orang mengangguk.
-Setelah itu, Fiiyanamia-sama menunjuk ke semua manusia, tidak termasuk yang terkait dengan Guild Hunter, dan Maukah kalian semua pergi?」 mendorong mereka untuk pergi.
-A-......」 Mereka yang diminta terkejut tetapi pada akhirnya, mereka pergi dengan ekspresi frustrasi.
+
+Setelah itu, Fiiyanamia-sama menunjuk ke semua manusia, yang tidak terkait dengan Guild Hunter, dan "Maukah kalian semua pergi", menyuruh mereka untuk pergi.
+
+"A-......" Mereka yang diminta terkejut tetapi pada akhirnya, mereka pergi dengan ekspresi frustrasi.
+
 Aku sangat berharap mereka bukan kepala organisasi mereka. Tapi, mungkin ada beberapa orang lain di atas mereka.
 
 Dengan semua orang diperintahkan untuk meninggalkan ruangan, hanya Yunmica-san , Bajo-san , Wangwan-san , Mr. Skinhead dari Guild Hunter, dan orang seperti antek yang tersisa. Yang berarti mengatakan bahwa Tuan Henchman adalah personel Hunter Guild?
