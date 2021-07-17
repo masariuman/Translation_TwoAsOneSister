@@ -249,3 +249,5 @@ Fiiyanamia-sama berbicara ke pangkuanku. Tidak, tapi kepada roh hutan yang duduk
 
 -----------------------------
 
+akhirnya bisa berduaan dengan Fiiyanamia... Fiiyanamia berbicara kepada ciel layaknya orang dewasa berbicara dengan anak-anak, dengan ciri khas ara-ara ~~ ( ͡° ͜ʖ ͡°)
+tapi ketika berbicara dengan ain, caranya berbicara agak berubah layaknya berbicara dengan orang biasa atau orang dewasa biasa.
