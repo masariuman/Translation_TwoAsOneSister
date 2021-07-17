@@ -117,7 +117,7 @@ Melihat itu, mereka tampaknya menganggap kasus ini sangat penting. Jika monster 
 
 "Pertama-tama, mengapa Kamu tahu tentang +BARRIER ini, Cielmer-dono ?" (Dourthe)
 
-Aku kira alasan dia merujuk kami dengan –dono adalah karena kami adalah tamu Fiiyanamia-sama.
+Aku kira alasan dia memanggil kami dengan –dono adalah karena kami adalah tamu Fiiyanamia-sama.
 
 Aku tidak terbiasa dipanggil seperti itu, jadi rasanya aneh.
 

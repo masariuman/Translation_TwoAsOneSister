@@ -175,15 +175,17 @@ Juga, Aku merasa sangat tidak nyaman dipanggil dengan –chan. Rasa dingin menja
 
 Untuk saat ini, kurasa aku harus menyapa dulu agar aman.
 
-Senang bertemu denganmu lagi. Nama Aku Ainsel.」
-Jadi kamu Ainsel-chan. Uh-huh, Kamu benar-benar berbeda dari Cielmer-chan.」
-「Anda bisa tahu?」
-Perbedaan cara Kamu berbicara... disengaja, jadi itu tidak cukup.
-Pertama, kualitas kekuatan sihir berubah secara halus. Tidak, di antara dua kekuatan sihir yang ada, kekuatan sihir yang kamu miliki membengkak secara halus…… ya.
-Pertama-tama, karena kamu menyembunyikannya, kekuatan sihir Cielmer-chan sulit untuk dirasakan, ya?」
-...... Jadi kamu bisa tahu.」
+"Senang bertemu denganmu lagi. Nama Aku Ainsel." (Ain)
 
-Aku melakukan yang terbaik untuk memastikan bahwa ketika seseorang yang mampu merasakan kekuatan sihir pada tingkat yang sama dengan Aku muncul, mereka akan salah membaca kekuatan Ciel.
+"Jadi kamu Ainsel-chan. Uh-huh, Kamu benar-benar berbeda dari Cielmer-chan." (Fiiyanamia)
+
+"kamu bisa mengetahuinya?" (Ain)
+
+"Perbedaan cara Kamu berbicara... disengaja, jadi itu tidak cukup. Pertama, kualitas energi sihir berubah secara halus. Tidak, di antara dua energi sihir yang ada, energi sihir yang kamu miliki membengkak secara halus...... ya. pada dasarnya, karena kamu menyembunyikannya, energi sihir Cielmer-chan sulit untuk dirasakan, kan?" (Fiiyanamia)
+
+"...... Jadi kamu bisa mengetahuinya." (Ain)
+
+Aku melakukan yang terbaik untuk memastikan bahwa ketika seseorang yang mampu merasakan energi sihir pada tingkat yang sama denganku muncul, mereka akan salah membaca energi Ciel.
 
 Aku hanya menyadarinya setelah pemeriksaan dekat. Seorang penyihir kelas atas hanya akan menyadari sesuatu yang tidak pada tempatnya, kau tahu?
 Selain itu, yang lebih mudah adalah dari reaksi para roh.
