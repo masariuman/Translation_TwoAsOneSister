@@ -195,7 +195,7 @@ Fiiyanamia-sama, saat ini tersenyum tetapi entahlah apakah itu kesenangan atau k
 
 "I-itu" (Altro)
 
-"Kamu adalah pengikut, Cielmer-chan adalah tamunya. Kamu tidak akan memberi tahuku bahwa Kamu tidak menyadari perbedaannya, bukan? Nah jika iya, maka Aku akan ingin Kamu pergi." (Fiiyanamia)
+"Kamu adalah menumpang saja, Cielmer-chan adalah tamunya. Kamu tidak akan memberi tahuku bahwa Kamu tidak menyadari perbedaannya, bukan? Nah jika iya, maka Aku akan ingin Kamu pergi." (Fiiyanamia)
 
 Dengan kata-kata Fiiyanamia-sama, Altro terdiam.
 
