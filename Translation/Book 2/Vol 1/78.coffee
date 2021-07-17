@@ -249,5 +249,7 @@ Fiiyanamia-sama berbicara ke pangkuanku. Tidak, tapi kepada roh hutan yang duduk
 
 -----------------------------
 
-akhirnya bisa berduaan dengan Fiiyanamia... Fiiyanamia berbicara kepada ciel layaknya orang dewasa berbicara dengan anak-anak, dengan ciri khas ara-ara ~~ ( ͡° ͜ʖ ͡°)
-tapi ketika berbicara dengan ain, caranya berbicara agak berubah layaknya berbicara dengan orang biasa atau orang dewasa biasa.
+akhirnya bisa berduaan dengan Fiiyanamia... Fiiyanamia berbicara kepada dedek ciel layaknya orang dewasa berbicara dengan anak-anak, dengan ciri khas ara-ara ~~ ( ͡° ͜ʖ ͡°)
+tapi ketika berbicara dengan ain, caranya berbicara agak berubah layaknya berbicara dengan orang biasa atau orang dewasa biasa. dan Fiiyanamia disini bisa menyadari ain dan dedek ciel berganti memakai tubuh... memang di level yang berbeda, dan juga bisa berinteraksi dengan roh... sampai sekarang masih belum jelas apakah hanya manusia saja yang tidak bisa melihat roh ? tapi setidaknya Fiiyanamia disini memperlakukan ainciel kita dengan baik. tidak seperti hal kasus sebelumnya dimana pasti ada masalah... tapi saya yakin pasti ain tetap waspada walaupun diperlakukan baik seperti itu, yaah mau gimana lagi, ain overprotektif kepada dedek ciel sih... disini dedek ciel kita sudah berusaha semampunya untuk berinteraksi dan menjelaskan apa yang dia ketahui.. tapi memang hanya ain saja yang bisa menjelaskan lebih detail daripada dedek ciel karena mungkin dedek ciel kita tidak mengingat apa yang terjadi ketika berumur 1 tahun atau masih bayi... jadi sepertinya ain saja yang mengingat semua kejadian waktu dedek ciel masih bayi...
+
+tapi saya senang akhirnya ainciel kita memiliki orang untuk dapat berbicara terbuka secara keseluruhan tentang masa lalu mereka.. untuk sekarang, Fiiyanamia mungkin dapat dipercaya, tapi saya sendiri tidak tahu bagaimana kedepannya ? apakah Fiiyanamia tetap berada di pihak ainciel kita, terutama kalau misalnya nanti akan terjadi perang...
