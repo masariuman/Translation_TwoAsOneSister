@@ -1,21 +1,29 @@
 CHAPTER 79: FIIYANAMIA AND PRIVATE DISCUSSION
 
 Ditanya oleh Fiiyanamia-sama, roh hutan melayang dari pangkuanku ke Fiiyanamia-sama.
-Kemudian, dia menggerakkan bibirnya dan sepertinya mulai berbicara dengannya.
-Aku sedikit iri karena dia bisa berkomunikasi dengan roh.
-Aku telah memperhatikan mereka berbicara untuk sementara waktu, tetapi interaksi mereka entah bagaimana memancarkan aura yang halus.
-Kurasa itu wajar karena Fiiyanamia-sama dan roh hutan itu indah.
 
-Apakah itu sesuatu yang akan diketahui oleh roh hutan?』
-Aku tidak tahu. Lagipula aku tidak memiliki pengetahuan tentang roh.
-Tapi, roh hutan tampaknya lebih kuat di antara roh-roh itu, jadi tidak mengherankan jika dia memiliki semacam kemampuan khusus.』
-Begitukah? Aku kira itu mungkin.
+Kemudian, dia menggerakkan bibirnya dan sepertinya mulai berbicara dengannya.
+
+Aku sedikit iri karena dia bisa berkomunikasi dengan roh.
+
+Aku telah memperhatikan mereka berbicara untuk sementara waktu, tetapi interaksi mereka entah bagaimana memancarkan aura yang halus.
+
+Kurasa itu wajar karena Fiiyanamia-sama dan roh hutan begitu cantik.
+
+[Apakah itu sesuatu yang akan diketahui oleh roh hutan?] (Ciel)
+
+[Aku tidak tahu. Lagipula aku tidak memiliki pengetahuan tentang roh. Tapi, roh hutan tampaknya lebih kuat di antara roh-roh itu, jadi tidak mengherankan jika dia memiliki semacam kemampuan khusus.] (Ain)
+
+[Begitukah? itu mungkin juga.] (Ciel)
 
 Ciel menanggapi dengan reaksi yang saling bertentangan Tapi masih agak tidak yakin, tapi sayangnya, aku hanya bisa menjawabnya dengan tebakanku sendiri.
+
 Saat Ciel memiringkan kepalanya dan memikirkannya, tampaknya Fiiyanamia-sama baru saja selesai berbicara dengan roh hutan.
 
-"Ya ya. Tampaknya Rumah Tangga Rispelgia adalah orang yang memenjarakanmu, tidak diragukan lagi.
-Umm, dia tahu?」
+"Ya ya. Tampaknya duke Rispelgia adalah orang yang memenjarakanmu, tidak diragukan lagi." (Fiiyanamia)
+
+"Umm, dia tahu?" (Ain)
+
 Tentu saja, tentu saja. Anak ini memiliki kelas yang lebih tinggi bahkan di antara roh. Kekuatan yang bisa dia gunakan juga signifikan.
 Dalam kasusnya, dia bisa merasakan segala sesuatu yang terjadi di dalam hutan. Dia tidak ingat semuanya meskipun dan itu tidak seolah-olah dia dapat mengingat apa yang terjadi secara instan, tetapi selama ada pemicu baginya untuk mengingat sesuatu, kita dapat mengaturnya.」
 Roh benar-benar luar biasa.
