@@ -1,7 +1,8 @@
 CHAPTER 80: TEMPLE, BARRIER, AND SLUMBER
 
-Kebetulan, apakah kalian berdua pernah ke kuil sebelumnya?」
-Sebuah kuil? Kami belum pernah ke salah satunya. Lagipula tidak ada alasan untuk melakukannya.
+"Kebetulan, apakah kalian pernah ke kuil sebelumnya?" (Fiiyanamia)
+
+"kuil? Kami belum pernah ke kuil. Lagipula tidak ada alasan untuk melakukannya." (Ain)
 
 Topik yang awalnya tidak menyenangkan tiba-tiba bergeser ke topik kuil yang mengejutkan Aku.
 Padahal, Aku bahkan tidak pernah pergi ke gereja, apalagi ke kuil.
