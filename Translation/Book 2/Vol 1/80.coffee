@@ -4,49 +4,61 @@ CHAPTER 80: TEMPLE, BARRIER, AND SLUMBER
 
 "kuil? Kami belum pernah ke kuil. Lagipula tidak ada alasan untuk melakukannya." (Ain)
 
-Topik yang awalnya tidak menyenangkan tiba-tiba bergeser ke topik kuil yang mengejutkan Aku.
-Padahal, Aku bahkan tidak pernah pergi ke gereja, apalagi ke kuil.
+Topik yang awalnya tidak menyenangkan tiba-tiba bergeser ke topik kuil dan itu mengejutkanku.
 
-Kalau begitu, kamu tidak tahu kuil dengan baik, kan?」
-Benar. Jika Aku harus mengatakan, itu adalah semacam tempat yang Aku tidak pernah ingin mendekati.」 Ya
-ampun, Aku? Apakah Kamu mungkin melakukan sesuatu yang buruk, Ainsel- chan ?」
-Aku tidak begitu tahu. Di depan Ciel, Aku mencoba yang terbaik untuk tidak melakukan sesuatu yang buruk tetapi Aku tidak tahu apa yang sebenarnya buruk.
-Tapi alasan Aku tidak apa untuk berada di dekat satu adalah karena Aku Song Princess.
-Benar, begitu. Selain itu, Song Princess tidak perlu pergi ke gereja.
+Aku bahkan tidak pernah pergi ke gereja, apalagi ke kuil.
 
-Mengatakan demikian, Fiiyanamia- sama tersenyum, tapi bagaimana aku harus menafsirkan reaksi ini?
-Apakah asumsi Aku benar? Apakah Aku salah?
-Apakah ini salah satu dari mereka yang menyelidiki satu sama lain ? Sejujurnya ini tampaknya mustahil bagi Aku.
+"Kalau begitu, kamu tidak tahu kuil, kan?" (Fiiyanamia)
 
-Lagi pula, kami hampir tidak pernah terluka.」
-Lawan yang dapat melewati penghalang Ainsel- chan tidak sering keluar.」
-Tetapi beberapa terkadang lolos. Selain itu, Fiiyanamia- sama, kamu juga bisa menerobosnya, kan?」
-Aku percaya begitu, tapi jika kamu tidak keberatan, bisakah kamu mencoba membela diri dengan semua yang kamu miliki sekali ini saja? 」
+"Benar. itu adalah semacam tempat yang tidak pernah ingin aku dekati." (Ain)
 
-Ketika berbicara tentang semua yang Aku miliki, maka itu akan menjadi penghalang yang memanfaatkan hal seperti kekuatan sihir tingkat tinggi itu tetapi itu adalah kartu truf Aku yang paling berharga.
+"ara ? Apakah Kamu mungkin melakukan sesuatu yang buruk, Ainsel-chan ?" (Fiiyanamia)
+
+"Entahlah. Di depan Ciel, Aku mencoba yang terbaik untuk tidak melakukan sesuatu yang buruk tetapi Aku tidak tahu apa yang sebenarnya buruk. Tapi alasan Aku bahkan tidak ingin berada di dekat kuil adalah karena Aku seorang Song Princess." (Ain)
+
+"begitu... Song Princess juga tidak perlu pergi ke gereja." (Fiiyanamia)
+
+Fiiyanamia-sama tersenyum, tapi bagaimana aku harus menafsirkan reaksi ini?
+
+Apakah asumsiku benar? Apakah Aku salah?
+
+Apakah ini seperti saling menyelediki satu sama lain? Sejujurnya ini tampaknya mustahil bagiku.
+
+"Lagi pula, kami hampir tidak pernah terluka." (Ain)
+
+"Lawan yang dapat melewati +BARRIER Ainsel-chan tidak sering muncul juga." (Fiiyanamia)
+
+"Tetapi tetap ada juga. Selain itu, Fiiyanamia-sama, kamu juga bisa menembus +BARRIERku, kan?" (Ain)
+
+"mungkin, tapi jika kamu tidak keberatan, bisakah kamu mencoba menggunakan dengan semua yang kamu miliki sekali ini saja?" (Fiiyanamia)
+
+Ketika berbicara tentang semua yang Aku miliki, itu +BARRIER yang memanfaatkan hal seperti energi sihir tingkat tinggi itu tetapi itu adalah kartu andalanku yang paling berharga.
+
 Ini bukan sesuatu untuk dipamerkan dengan mudah. Sampai sekarang, Aku tidak dapat menggunakannya terus menerus, jadi Aku tidak akan senang sama sekali jika ini sampai ketahuan.
-Namun, dalam arti mengetahui tentang kekuatan Aku sendiri, Aku pikir akan lebih baik untuk menunjukkan ini kepada Fiiyanamia- sama.
 
-Bagaimanapun, jika kita pernah bermusuhan dengan Fiiyanamia- sama, yang harus kita lakukan adalah melarikan diri dengan kekuatan penuh, jadi kurasa tidak masalah jika dia mengetahuinya.
+Tapi, dalam arti mengetahui tentang kekuatanku sendiri, Aku pikir akan lebih baik untuk menunjukkan ini kepada Fiiyanamia-sama.
 
-"Dipahami. Tolong beri Aku waktu sebentar.
-Tentu, tidak masalah.
+Bagaimanapun juga, jika kami bermusuhan dengan Fiiyanamia-sama, yang harus kami lakukan adalah melarikan diri dengan kekuatan penuh, jadi kurasa tidak masalah jika dia mengetahuinya.
 
-Yang benar adalah bahwa Aku dapat membuatnya secara instan tetapi Aku mati-matian, atau lebih tepatnya secara licik membuatnya tampak membutuhkan waktu untuk melemparkannya.
-Itu harus bisa bekerja sebagai kejutan satu kali.
+"Baiklah. Tolong beri Aku waktu sebentar." (Ain)
 
-Iklan
-Aku kemudian benar-benar mengedarkan kekuatan sihir itu ke seluruh tubuh Aku.
-Selengkap mungkin yang Aku bisa.
-Melakukan ini sebagai semacam latihan, entah bagaimana Aku merasa seperti sekarang Aku dapat menggunakannya lebih efisien daripada sebelumnya.
+"Tentu, tidak masalah." (Fiiyanamia)
 
-「Selesai.」
-「He-eh. Seperti yang Aku pikirkan. Menjadi terampil ini adalah bukti seberapa banyak Kamu telah belajar dan bereksperimen dengan sihir penghalang.
-Pada level ini, bahkan aku akan kesulitan untuk menembusnya.
-Meskipun mungkin, tanah ini akan menyerah sebelum Kamu melakukannya.
-Bukankah itu terlalu berlebihan?」
+jujur Aku dapat membuatnya secara instan tetapi Aku mencoba mati-matian, atau lebih tepatnya secara licik membuatnya tampak membutuhkan waktu untuk melakukannya.
 
-Fiiyanamia- sama yang mampu menggunakan sihir yang dapat berdampak pada tanah ini sudah cukup ekstrim, tetapi penghalang ini memiliki potensi pertahanan yang lebih besar daripada tanah di bawah kita benar-benar terlalu banyak.
+ini bisa bekerja sebagai kejutan.
+
+Aku kemudian benar-benar mengedarkan energi sihir ke seluruh tubuhku. sebanyak dan kesemua arah yang Aku bisa.
+
+karena aku sering Melakukan ini sebagai latihan, entah bagaimana Aku merasa seperti sekarang Aku dapat menggunakannya lebih efisien daripada sebelumnya.
+
+"Selesai." (Ain)
+
+"He-eh. Seperti yang Aku pikirkan. Menjadi sehebat ini adalah bukti seberapa banyak Kamu telah belajar dan bereksperimen dengan sihir +BARRIER. Pada level ini, bahkan aku akan kesulitan untuk menembusnya. Meskipun aku mungkin bisa menembusnya, tempat ini akan menyerah duluan." (Fiiyanamia)
+
+"Bukankah itu terlalu berlebihan?" (Ain)
+
+Fiiyanamia-sama yang mampu menggunakan sihir yang dapat berdampak pada tanah ini sudah cukup ekstrim, tetapi penghalang ini memiliki potensi pertahanan yang lebih besar daripada tanah di bawah kita benar-benar terlalu banyak.
 Atau mungkin ini tentang bagaimana skala dampaknya berbeda?
 
 Bagaimanapun juga, monster kelas wyvern bisa menghancurkan batu-batu besar, jadi jika kekuatan ini diarahkan ke tanah, maka setidaknya itu akan membuat parit.
@@ -57,7 +69,7 @@ Aku tidak bercanda, Kamu tahu? Penghalang itu akan mampu menahan serangan setida
 
 Sepertinya dia tidak bercanda.
 Tetap saja, Aku tidak bisa membayangkan serangan yang cukup kuat untuk menghapus sebuah pulau kecil. Aku juga tidak bisa membayangkan penghalang Aku bisa melindungi kita dari itu.
-Akhirnya, Fiiyanamia- sama bisa melakukan serangan dengan level itu? Aku bahkan tidak bisa melihat batasannya.
+Akhirnya, Fiiyanamia-sama bisa melakukan serangan dengan level itu? Aku bahkan tidak bisa melihat batasannya.
 
 Melawan monster, berapa banyak yang bisa bertahan?」
 Itu pada tingkat di mana akan lebih mudah untuk menghitung berapa banyak makhluk, termasuk Aku, yang benar-benar dapat menghancurkan penghalang itu daripada kebalikannya.
@@ -72,7 +84,7 @@ Kapan Aku mencapai alam manusia super?
 
 Seperti yang diharapkan pada saat ini, kita dapat mempersempitnya menjadi satu kemungkinan.
 Kamu secara tidak sengaja menggunakan sihir, membuang pertempuran dan sihir penyembuhan Kamu untuk menghaluskan penghalang, penyembunyian, dan deteksi Kamu ke tingkat yang jauh lebih besar. Sepertinya baik sihir tempur maupun sihir penyembuhan yang kamu buang saat itu berpotensi membuat kamu menonjol di kedua bidang tersebut.
-Mungkin bahkan lebih menonjol daripada Cielmer- chan adalah.
+Mungkin bahkan lebih menonjol daripada Cielmer-chan adalah.
 Transmutasi melalui sihir tidak selalu merupakan pertukaran yang setara. Meski begitu, menawarkan sesuatu yang lebih baik memiliki peluang lebih besar untuk memberikan hasil yang lebih baik.
 
 Selain itu, sehubungan dengan penghalang Kamu, selain memiliki bakat yang sama untuk memulai, Kamu telah menggunakannya terus-menerus dan telah membuat peningkatan berulang di atasnya.
@@ -92,7 +104,7 @@ Bukannya aku bisa melakukan segalanya bahkan jika aku mau dan justru karena aku 
 Jika semua ini benar, maka jika Aku dapat memasukkan kekuatan Song Princess ke dalam penghalang Aku, itu akan menyelesaikan masalah pertahanan apa pun dalam pertempuran, yang agak membuat frustrasi sekarang karena Aku tahu ini.
 
 Jika aku bisa memperkuat penghalangku dengan Song Princess sebelumnya, maka bertahan dengan benar melawan pertemuan pertama kami dengan tombak es dan cakar serigala emas bisa jadi mungkin.
-Bahkan mungkin untuk sepenuhnya memblokir serangan Fiiyanamia- sama dengan penghalang kekuatan penuhku.
+Bahkan mungkin untuk sepenuhnya memblokir serangan Fiiyanamia-sama dengan penghalang kekuatan penuhku.
 Jika Aku bisa mencapai level itu, Aku bisa meninggalkan Ciel dengan tenang.
 
 Sekarang, kembali ke kuil. Kalian berdua tidak pernah pergi ke salah satu, benar? 」
@@ -116,7 +128,7 @@ Sayangnya, Aku tidak dapat memenuhi harapan gereja.」
 Jika itu tidak perlu, maka itu yang terbaik.」
 
 Tidak ada yang lebih baik daripada tidak terluka dan sakit sama sekali.
-Namun, selain cedera, fakta bahwa kami tidak pernah sakit selama 12 tahun terakhir praktis merupakan keajaiban.
+Tapi, selain cedera, fakta bahwa kami tidak pernah sakit selama 12 tahun terakhir praktis merupakan keajaiban.
 Tubuh Ciel halus tapi kurasa mungkin kuat dalam hal ini?
 
 Iklan
@@ -125,7 +137,7 @@ Sebaliknya, sementara tidak semua orang tidak hadir karena sakit, ada beberapa y
 
 Adapun mengapa Aku mengangkat topik kuil, itu hanya karena tempat ini adalah salah satu kuil tersebut.」
 Tempat ini... rumah ini?」
-Itu benar, itu benar sekali. Untuk alasan itu, ada kemungkinan bahwa Kamu mungkin menerima oracle juga, Ainsel- chan. 」
+Itu benar, itu benar sekali. Untuk alasan itu, ada kemungkinan bahwa Kamu mungkin menerima oracle juga, Ainsel-chan. 」
 「Karena aku Song Putri, bukankah itu mungkin?」
 「Fufufu, itu benar, bahwa adalah sebuah fakta.」
 
@@ -140,7 +152,7 @@ Kami akhirnya sampai ke subjek utama tetapi otak Aku sejujurnya belum siap untuk
 Ada terlalu banyak informasi yang masih belum bisa Aku proses. Padahal, aku juga tidak bisa hanya meminta waktu untuk menyelesaikan semuanya terlebih dahulu, jadi aku memutuskan untuk membuang ini ke belakang pikiranku untuk saat ini.
 
 Kamu akan memberi tahu Aku mengapa Kamu mengakomodasi kami?」
-Ya, tentu saja. Namun, itu bukan sesuatu yang sangat rumit.
+Ya, tentu saja. Tapi, itu bukan sesuatu yang sangat rumit.
 Tapi mari kita bereskan. Pertama-tama, alasan mengapa Aku menyambut Kamu berdua sebagai tamu Aku.
 Kalian berdua menyapaku dengan baik ketika kamu datang ke sini, bukan?」
 Apakah... itu saja?」
@@ -148,8 +160,8 @@ Tanpa berlebihan, tanah yang umumnya disebut Central ini adalah istanaku.
 Selain menyapa Aku, Aku juga menyambut Kamu, jadi tentu saja Aku akan mengakomodasi Kamu berdua.
 Padahal, para freeloader melakukan sesuatu yang tidak pantas kali ini.
 
-Fiiyanamia- sama tersenyum, tapi jujur ​​itu menakutkan.
-Namun aura menakutkannya dengan cepat menghilang.
+Fiiyanamia-sama tersenyum, tapi jujur ​​itu menakutkan.
+Tapi aura menakutkannya dengan cepat menghilang.
 
 Lalu apakah itu berarti istilah “freeloader” juga tidak berlebihan?」
 Ya, benar. Itu dimulai ketika orang-orang yang mencari kedamaian dan keamanan secara sewenang-wenang menetap di tanah yang sudah Aku awasi dan tinggali sejak awal.
@@ -159,7 +171,7 @@ Kamu tidak menerima apapun?」
 Benar, kan. Mungkin Aku tidak sekarang akan lebih benar?
 Di masa lalu Aku menerima beberapa karena mereka memberikannya kepada Aku tetapi setelah itu, mereka kemudian mulai menuntut untuk memiliki suara dalam pengelolaan tanah ini. Aku mengusir orang-orang itu.
 
-Fiiyanamia- sama menyebutnya pajak tapi mungkin lebih dari sewa untuknya.
+Fiiyanamia-sama menyebutnya pajak tapi mungkin lebih dari sewa untuknya.
 Atau lebih tepatnya, dia menyewakan tanah secara gratis? Apa yang dimulai sebagai topik rumahnya tiba-tiba menjadi sangat besar, itu benar-benar lucu.
 Dengan kata lain, menuliskannya di peta, itu bukan negara sialan tapi hanya Fiiyanamia Manor saja.
 
@@ -167,29 +179,29 @@ Aku telah diberitahu bahwa hanya orang B-rank ke atas yang bisa masuk tetapi apa
 Aku membuat aturan untuk membatasi jumlah orang yang dipanggil dari luar masuk ke sini, jadi mereka mungkin berhasil alasan itu.
 Mungkin juga karena Guild Hunter akan ditendang keluar jika Hunter akhirnya menyebabkan masalah di negeri ini.
 Jadi, apakah kamu mengerti tempat ini sekarang?」
-Sepertinya itu akan baik-baik saja selama aku tidak melawan Fiiyanamia- sama.
+Sepertinya itu akan baik-baik saja selama aku tidak melawan Fiiyanamia-sama.
 
 (Bab ini disediakan untuk Kamu oleh Re:Library)
 
 (Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
 
 Iklan
-Menjawab agak bercanda, Fiiyanamia- sama tertegun sejenak sebelum menjawab Itu benar. dengan cekikikan.
+Menjawab agak bercanda, Fiiyanamia-sama tertegun sejenak sebelum menjawab Itu benar. dengan cekikikan.
 
 Kecuali ada keadaan ekstrim, Kamu tidak akan terikat oleh aturan yang dibuat secara sewenang-wenang di sini di Central.
 Lagipula, tamu lebih penting daripada freeloader bagi Aku.」
 Terima kasih banyak.
 Sekarang, mari kembali ke topik sebelumnya. Alasan Aku menyambut Kamu sebagai tamu adalah seperti yang Aku katakan sebelumnya.
-Namun, alasan itu saja tidak cukup untuk menjawab tingkat akomodasi ini. Benar?」
+Tapi, alasan itu saja tidak cukup untuk menjawab tingkat akomodasi ini. Benar?」
 Ya.
 
 Ada juga kemungkinan dia hanya menyukai kita.
-Namun, jika itu masalahnya, ini berarti situasi kita bisa berubah tergantung pada keinginan Fiiyanamia- sama.
+Tapi, jika itu masalahnya, ini berarti situasi kita bisa berubah tergantung pada keinginan Fiiyanamia-sama.
 Karena itu, jika dia memiliki alasan yang jelas, Aku ingin mengetahuinya. Jika dia tidak melakukannya maka Aku mungkin harus mempertimbangkan untuk meninggalkan tempat ini.
 
 Ada tiga alasan utama, Aku kira? Tapi salah satunya tidak pasti. Jadi hanya dua.
 Pertama adalah, seperti yang Aku katakan sebelumnya, bahwa kalian berdua sangat mampu.」
-Tapi dalam kasus Kamu, Kamu akan menang melawan kami, kan Fiiyanamia- sama ?」
+Tapi dalam kasus Kamu, Kamu akan menang melawan kami, kan Fiiyanamia-sama ?」
 Bahkan jika Aku mau, ini akan mengakibatkan kerusakan besar pada tanah ini, kamu tahu?
 Itu bukan sesuatu yang Aku inginkan. Dibandingkan dengan melawanmu, menjatuhkan sebuah negara akan lebih mudah, tahu?」
 Bukankah itu terlalu berlebihan?」
@@ -208,14 +220,14 @@ Dengan kata lain, tidak ada gunanya melawan seseorang yang bisa menjatuhkan nega
 
 Sementara Aku lebih suka menyangkal ini sebagai fakta, mendasarkan secara objektif pada apa yang dia katakan, itu tidak salah.
 Melawan seseorang yang tidak salah untuk dilawan, entah itu membangun hubungan yang ramah atau menghindari interaksi dengan mereka.
-Aku kira ini berarti bahwa Fiiyanamia- sama memilih yang pertama.
+Aku kira ini berarti bahwa Fiiyanamia-sama memilih yang pertama.
 
 Kedua adalah bahwa roh-roh itu melekat pada Kamu.
 Mereka pasti datang berkumpul dengan Aku.
 
 Iklan
 Bahkan ketika kami sedang berdiskusi, roh-roh terus-menerus melompat-lompat di sekitarku.
-Beberapa juga mendekati Fiiyanamia- sama, tetapi ada lebih banyak roh di dekatku.
+Beberapa juga mendekati Fiiyanamia-sama, tetapi ada lebih banyak roh di dekatku.
 
 Apakah Kamu tahu bahwa tempat-tempat dengan banyak roh menjadi berlimpah?」
 Roh hutan menjelaskannya kepada kami.
@@ -228,7 +240,7 @@ Ketika itu terjadi, itu akan merusak tanah. Menjadi penjaga dunia, roh tidak aka
 Itulah mengapa kami diakomodasi seperti ini?」
 Hanya dengan Kamu tinggal, kami bisa makan sayuran yang enak, kau tahu? Bukankah normal untuk mengakomodasi kalian berdua sehingga kamu akan tinggal di sini lebih lama?
 
-Fiiyanamia- sama memiliki senyum lebar di wajahnya. Aku mengerti dia dalam hal itu.
+Fiiyanamia-sama memiliki senyum lebar di wajahnya. Aku mengerti dia dalam hal itu.
 Makanan enak itu penting. Bagaimanapun, itu membuat Ciel senang.
 Meskipun aku tidak tahu mengapa para roh sangat menyukaiku, fakta itu tidak benar-benar berubah, jadi itu lebih merupakan alasan untuk tidak bertarung dengan kami.
 
@@ -236,8 +248,8 @@ Tampaknya Kamu agak yakin sekarang.
 Ya. Maafkan Aku karena begitu skeptis.」
 Kamu tidak perlu meminta maaf untuk itu.
 
-Mengatakan demikian, Fiiyanamia- sama datang ke sampingku.
-Saat tubuhku secara refleks menegang, Fiiyanamia- sama dengan lembut memelukku.
+Mengatakan demikian, Fiiyanamia-sama datang ke sampingku.
+Saat tubuhku secara refleks menegang, Fiiyanamia-sama dengan lembut memelukku.
 
 Tidak ada seorang pun di rumah ini yang akan menyakitimu.
 Itu sebabnya, rilekskan diri Kamu sedikit saja.
