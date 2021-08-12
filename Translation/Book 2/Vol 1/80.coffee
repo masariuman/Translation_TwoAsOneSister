@@ -58,21 +58,22 @@ karena aku sering Melakukan ini sebagai latihan, entah bagaimana Aku merasa sepe
 
 "Bukankah itu terlalu berlebihan?" (Ain)
 
-Fiiyanamia-sama yang mampu menggunakan sihir yang dapat berdampak pada tanah ini sudah cukup ekstrim, tetapi penghalang ini memiliki potensi pertahanan yang lebih besar daripada tanah di bawah kita benar-benar terlalu banyak.
+Fiiyanamia-sama yang mampu menggunakan sihir yang dapat berdampak pada tempat ini sudah cukup ekstrim, tetapi +BARRIER ini memiliki potensi pertahanan yang lebih besar daripada tanah di bawah kami itu benar-benar berlebihan.
+
 Atau mungkin ini tentang bagaimana skala dampaknya berbeda?
 
 Bagaimanapun juga, monster kelas wyvern bisa menghancurkan batu-batu besar, jadi jika kekuatan ini diarahkan ke tanah, maka setidaknya itu akan membuat parit.
 Serangan yang lebih kuat dari itu mungkin akan membentuk kawah kecil.
 Jika kita berbicara tentang hal semacam ini, maka kemungkinan besar akan mampu menahannya.
 
-Aku tidak bercanda, Kamu tahu? Penghalang itu akan mampu menahan serangan setidaknya cukup kuat untuk menghapus sebuah pulau kecil.
+Aku tidak bercanda, Kamu tahu? +BARRIER itu akan mampu menahan serangan setidaknya cukup kuat untuk menghapus sebuah pulau kecil.
 
 Sepertinya dia tidak bercanda.
-Tetap saja, Aku tidak bisa membayangkan serangan yang cukup kuat untuk menghapus sebuah pulau kecil. Aku juga tidak bisa membayangkan penghalang Aku bisa melindungi kita dari itu.
+Tetap saja, Aku tidak bisa membayangkan serangan yang cukup kuat untuk menghapus sebuah pulau kecil. Aku juga tidak bisa membayangkan +BARRIER Aku bisa melindungi kita dari itu.
 Akhirnya, Fiiyanamia-sama bisa melakukan serangan dengan level itu? Aku bahkan tidak bisa melihat batasannya.
 
 Melawan monster, berapa banyak yang bisa bertahan?」
-Itu pada tingkat di mana akan lebih mudah untuk menghitung berapa banyak makhluk, termasuk Aku, yang benar-benar dapat menghancurkan penghalang itu daripada kebalikannya.
+Itu pada tingkat di mana akan lebih mudah untuk menghitung berapa banyak makhluk, termasuk Aku, yang benar-benar dapat menghancurkan +BARRIER itu daripada kebalikannya.
 Bahkan yang kamu gunakan secara teratur tidak dapat dilawan oleh monster Rank-A.」
 ...... Sebanyak itu?」
 Aku tidak tahu mengapa kamu begitu terkejut, tapi inilah kenyataannya.
@@ -83,13 +84,13 @@ Aku mengerti bahwa ini luar biasa tetapi, bahkan setelah diberitahu secara khusu
 Kapan Aku mencapai alam manusia super?
 
 Seperti yang diharapkan pada saat ini, kita dapat mempersempitnya menjadi satu kemungkinan.
-Kamu secara tidak sengaja menggunakan sihir, membuang pertempuran dan sihir penyembuhan Kamu untuk menghaluskan penghalang, penyembunyian, dan deteksi Kamu ke tingkat yang jauh lebih besar. Sepertinya baik sihir tempur maupun sihir penyembuhan yang kamu buang saat itu berpotensi membuat kamu menonjol di kedua bidang tersebut.
+Kamu secara tidak sengaja menggunakan sihir, membuang pertempuran dan sihir penyembuhan Kamu untuk menghaluskan +BARRIER, penyembunyian, dan deteksi Kamu ke tingkat yang jauh lebih besar. Sepertinya baik sihir tempur maupun sihir penyembuhan yang kamu buang saat itu berpotensi membuat kamu menonjol di kedua bidang tersebut.
 Mungkin bahkan lebih menonjol daripada Cielmer-chan adalah.
 Transmutasi melalui sihir tidak selalu merupakan pertukaran yang setara. Meski begitu, menawarkan sesuatu yang lebih baik memiliki peluang lebih besar untuk memberikan hasil yang lebih baik.
 
-Selain itu, sehubungan dengan penghalang Kamu, selain memiliki bakat yang sama untuk memulai, Kamu telah menggunakannya terus-menerus dan telah membuat peningkatan berulang di atasnya.
+Selain itu, sehubungan dengan +BARRIER Kamu, selain memiliki bakat yang sama untuk memulai, Kamu telah menggunakannya terus-menerus dan telah membuat peningkatan berulang di atasnya.
 Terlebih lagi, rambutmu telah menjadi sirkuit dan kamu telah meningkatkan kekuatan sihirmu melalui kecerobohan seperti itu dalam rentang waktu 5 tahun, jadi masuk akal jika kalian berdua berada di level ini pada usia itu. Sebaliknya, ini tidak mungkin tanpa melakukan sebanyak itu.
-Jika hanya Pekerjaan Kamu yang dapat melengkapi penghalang Kamu, maka mungkin bahkan yang Kamu gunakan secara teratur mungkin menjadi cukup kuat untuk menangkis monster Rank-S?」
+Jika hanya Pekerjaan Kamu yang dapat melengkapi +BARRIER Kamu, maka mungkin bahkan yang Kamu gunakan secara teratur mungkin menjadi cukup kuat untuk menangkis monster Rank-S?」
 
 (Bab ini disediakan untuk Kamu oleh Re:Library)
 
@@ -100,11 +101,11 @@ Woah...... itu mengejutkan.
 Jadi jika Aku tidak menyerah pada sihir tempur, maka itu bisa menjadi tambahan langsung untuk daya tembak kami.
 Itu... praktis kue di langit, jadi Aku tidak menyesal dengan pilihan Aku saat ini.
 
-Bukannya aku bisa melakukan segalanya bahkan jika aku mau dan justru karena aku kehilangan sihir tempurku, aku terus-menerus menjaga penghalang itu tanpa nyanyian.
-Jika semua ini benar, maka jika Aku dapat memasukkan kekuatan Song Princess ke dalam penghalang Aku, itu akan menyelesaikan masalah pertahanan apa pun dalam pertempuran, yang agak membuat frustrasi sekarang karena Aku tahu ini.
+Bukannya aku bisa melakukan segalanya bahkan jika aku mau dan justru karena aku kehilangan sihir tempurku, aku terus-menerus menjaga +BARRIER itu tanpa nyanyian.
+Jika semua ini benar, maka jika Aku dapat memasukkan kekuatan Song Princess ke dalam +BARRIER Aku, itu akan menyelesaikan masalah pertahanan apa pun dalam pertempuran, yang agak membuat frustrasi sekarang karena Aku tahu ini.
 
-Jika aku bisa memperkuat penghalangku dengan Song Princess sebelumnya, maka bertahan dengan benar melawan pertemuan pertama kami dengan tombak es dan cakar serigala emas bisa jadi mungkin.
-Bahkan mungkin untuk sepenuhnya memblokir serangan Fiiyanamia-sama dengan penghalang kekuatan penuhku.
+Jika aku bisa memperkuat +BARRIERku dengan Song Princess sebelumnya, maka bertahan dengan benar melawan pertemuan pertama kami dengan tombak es dan cakar serigala emas bisa jadi mungkin.
+Bahkan mungkin untuk sepenuhnya memblokir serangan Fiiyanamia-sama dengan +BARRIER kekuatan penuhku.
 Jika Aku bisa mencapai level itu, Aku bisa meninggalkan Ciel dengan tenang.
 
 Sekarang, kembali ke kuil. Kalian berdua tidak pernah pergi ke salah satu, benar? 」
@@ -206,8 +207,8 @@ Bahkan jika Aku mau, ini akan mengakibatkan kerusakan besar pada tanah ini, kamu
 Itu bukan sesuatu yang Aku inginkan. Dibandingkan dengan melawanmu, menjatuhkan sebuah negara akan lebih mudah, tahu?」
 Bukankah itu terlalu berlebihan?」
 Tidak, tidak. Bahkan kau bisa dengan mudah menjatuhkan sebuah negara. Yang Kamu butuhkan adalah, Aku kira persediaan makanan yang cukup?
-Tidak peduli berapa ratus atau ribuan yang Kamu hadapi, yang harus Kamu lakukan hanyalah melemparkan penghalang dan berjalan langsung ke kastil.
-Pada umumnya tidak ada orang yang bisa melakukan apa pun terhadap penghalang Kamu. Hanya dengan angka, Aku membayangkan itu akan menjadi perang yang berlarut-larut, tetapi yang pertama menyerah di sini adalah negara, bukan?
+Tidak peduli berapa ratus atau ribuan yang Kamu hadapi, yang harus Kamu lakukan hanyalah melemparkan +BARRIER dan berjalan langsung ke kastil.
+Pada umumnya tidak ada orang yang bisa melakukan apa pun terhadap +BARRIER Kamu. Hanya dengan angka, Aku membayangkan itu akan menjadi perang yang berlarut-larut, tetapi yang pertama menyerah di sini adalah negara, bukan?
 
 Tentu saja jika kekuatan pertahananku benar-benar seperti yang dia katakan, maka aku mungkin bisa menjatuhkan sebuah negara.
 Itu tidak mungkin bagi Aku sendiri, tetapi itu seharusnya bisa dilakukan dengan Ciel.
