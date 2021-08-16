@@ -82,11 +82,12 @@ apakah Fiiyanamia-sama bisa melakukan serangan dengan level itu? Aku bahkan tida
 
 "...... Sekuat itu?" (Ain)
 
-Aku tidak tahu mengapa kamu begitu terkejut, tapi inilah kenyataannya. Apakah Kamu sekarang mengerti betapa miringnya Kamu dari hal biasa?
+"Aku tidak tahu mengapa kamu begitu terkejut, tapi inilah kenyataannya. Apakah Kamu sekarang mengerti betapa menyimpangnya Kamu?" (Fiiyanamia)
 
-Ya. Agak......"
+"Ya. aku mengerti......" (Ain)
 
-Aku mengerti bahwa ini luar biasa tetapi, bahkan setelah diberitahu secara khusus bagaimana itu, masih terasa sangat tidak nyata.
+Aku mengerti ini luar biasa tetapi, bahkan setelah diberitahu secara secara khusus, masih terasa sangat tidak nyata.
+
 Kapan Aku mencapai alam manusia super?
 
 Seperti yang diharapkan pada saat ini, kita dapat mempersempitnya menjadi satu kemungkinan.
