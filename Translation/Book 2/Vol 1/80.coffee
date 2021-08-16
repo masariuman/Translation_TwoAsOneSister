@@ -58,26 +58,32 @@ karena aku sering Melakukan ini sebagai latihan, entah bagaimana Aku merasa sepe
 
 "Bukankah itu terlalu berlebihan?" (Ain)
 
-Fiiyanamia-sama yang mampu menggunakan sihir yang dapat berdampak pada tempat ini sudah cukup ekstrim, tetapi +BARRIER ini memiliki potensi pertahanan yang lebih besar daripada tanah di bawah kami itu benar-benar berlebihan.
+Fiiyanamia-sama yang mampu menggunakan sihir yang dapat berdampak pada tempat ini sudah cukup ekstrim, tetapi +BARRIER ini memiliki potensi pertahanan yang lebih besar daripada tanah yang ada di bawah kami itu benar-benar berlebihan.
 
-Atau mungkin ini tentang bagaimana skala dampaknya berbeda?
+Atau mungkin ini tentang skala dampaknya?
 
-Bagaimanapun juga, monster kelas wyvern bisa menghancurkan batu-batu besar, jadi jika kekuatan ini diarahkan ke tanah, maka setidaknya itu akan membuat parit.
+monster kelas wyvern bisa menghancurkan batu-batu besar, jadi jika kekuatan ini diarahkan ke tanah, maka setidaknya itu akan membuat galian kecil.
+
 Serangan yang lebih kuat dari itu mungkin akan membentuk kawah kecil.
-Jika kita berbicara tentang hal semacam ini, maka kemungkinan besar akan mampu menahannya.
 
-Aku tidak bercanda, Kamu tahu? +BARRIER itu akan mampu menahan serangan setidaknya cukup kuat untuk menghapus sebuah pulau kecil.
+Jika kita berbicara tentang hal semacam ini, maka kemungkinan besar aku akan mampu menahannya.
+
+"Aku tidak bercanda lho.. +BARRIER itu mampu menahan serangan setidaknya cukup kuat untuk menghapus sebuah pulau kecil." (Fiiyanamia)
 
 Sepertinya dia tidak bercanda.
-Tetap saja, Aku tidak bisa membayangkan serangan yang cukup kuat untuk menghapus sebuah pulau kecil. Aku juga tidak bisa membayangkan +BARRIER Aku bisa melindungi kita dari itu.
-Akhirnya, Fiiyanamia-sama bisa melakukan serangan dengan level itu? Aku bahkan tidak bisa melihat batasannya.
 
-Melawan monster, berapa banyak yang bisa bertahan?」
-Itu pada tingkat di mana akan lebih mudah untuk menghitung berapa banyak makhluk, termasuk Aku, yang benar-benar dapat menghancurkan +BARRIER itu daripada kebalikannya.
-Bahkan yang kamu gunakan secara teratur tidak dapat dilawan oleh monster Rank-A.」
-...... Sebanyak itu?」
-Aku tidak tahu mengapa kamu begitu terkejut, tapi inilah kenyataannya.
-Apakah Kamu sekarang mengerti betapa miringnya Kamu dari norma?
+Tetap saja, Aku tidak bisa membayangkan serangan yang cukup kuat untuk menghapus sebuah pulau kecil. Aku juga tidak bisa membayangkan +BARRIERku bisa melindungi kami dari itu.
+
+apakah Fiiyanamia-sama bisa melakukan serangan dengan level itu? Aku bahkan tidak bisa melihat batasannya.
+
+"untuk Melawan monster, seberapa kuat +BARRIER ini dapat bertahan?" (Ain)
+
+"ada pada level di mana akan lebih mudah untuk berapa saja yang dapat melakukannya, termasuk Aku, yang benar-benar dapat menghancurkan +BARRIER itu. Bahkan +BARRIER yang biasanya kamu gunakan tidak dapat dilawan oleh monster Rank-A." (Fiiyanamia)
+
+"...... Sekuat itu?" (Ain)
+
+Aku tidak tahu mengapa kamu begitu terkejut, tapi inilah kenyataannya. Apakah Kamu sekarang mengerti betapa miringnya Kamu dari hal biasa?
+
 Ya. Agak......"
 
 Aku mengerti bahwa ini luar biasa tetapi, bahkan setelah diberitahu secara khusus bagaimana itu, masih terasa sangat tidak nyata.
