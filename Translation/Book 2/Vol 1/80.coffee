@@ -144,124 +144,138 @@ walaupun tidak semua orang tidak hadir karena sakit, ada beberapa yang menghadir
 
 "Tempat ini... rumah ini?" (Ain)
 
-Itu benar, itu benar sekali. Untuk alasan itu, ada kemungkinan bahwa Kamu mungkin menerima oracle juga, Ainsel-chan. 」
-「Karena aku Song Putri, bukankah itu mungkin?」
-「Fufufu, itu benar, bahwa adalah sebuah fakta.」
+"benar, benar sekali. Untuk alasan itu, ada kemungkinan bahwa Kamu mungkin menerima perkataan dewa juga, Ainsel-chan." (Fiiyanamia)
 
-Aku mengerti mengapa dia terpaku pada pelipis tapi kali ini Aku tidak mengerti senyumnya.
-Sepertinya dia tidak menggodaku atau apa pun. Sebaliknya, senyumnya ramah.
+"Karena aku Song Princess, bukankah itu tidak mungkin?" (Ain)
 
-Kamu tampaknya bingung tetapi masalah ini adalah sesuatu yang Aku tidak dapat membuat keputusan apa pun, Kamu tahu?」
-Aku mengerti, hanya dewa yang dapat memutuskan apakah Aku menerima oracle atau tidak.
-Untuk alasan itu, percakapan ini berakhir di sini. Sekarang, izinkan Aku menjawab keraguan Kamu.
+"Fufufu, benar, itulah faktanya." (Fiiyanamia)
 
-Kami akhirnya sampai ke subjek utama tetapi otak Aku sejujurnya belum siap untuk ini.
-Ada terlalu banyak informasi yang masih belum bisa Aku proses. Padahal, aku juga tidak bisa hanya meminta waktu untuk menyelesaikan semuanya terlebih dahulu, jadi aku memutuskan untuk membuang ini ke belakang pikiranku untuk saat ini.
+Aku mengerti mengapa dia terpaku pada kuil tapi kali ini Aku tidak mengerti senyumnya.
 
-Kamu akan memberi tahu Aku mengapa Kamu mengakomodasi kami?」
-Ya, tentu saja. Tapi, itu bukan sesuatu yang sangat rumit.
-Tapi mari kita bereskan. Pertama-tama, alasan mengapa Aku menyambut Kamu berdua sebagai tamu Aku.
-Kalian berdua menyapaku dengan baik ketika kamu datang ke sini, bukan?」
-Apakah... itu saja?」
-Tanpa berlebihan, tanah yang umumnya disebut Central ini adalah istanaku.
-Selain menyapa Aku, Aku juga menyambut Kamu, jadi tentu saja Aku akan mengakomodasi Kamu berdua.
-Padahal, para freeloader melakukan sesuatu yang tidak pantas kali ini.
+Sepertinya dia tidak menggodaku atau sejenisnya. Sebaliknya, senyumnya ramah.
+
+"Kamu tampaknya bingung tetapi masalah ini adalah sesuatu yang tidak dapat kuputuskan, Kamu tahu?" (Fiiyanamia)
+
+"Aku mengerti, hanya dewa yang dapat memutuskan apakah Aku menerima itu atau tidak." (Ain)
+
+"Untuk alasan itu, percakapan ini berakhir di sini. Sekarang, izinkan Aku menjawab keraguanmu." (Fiiyanamia)
+
+Kami akhirnya sampai ke subjek utama kami tetapi otakku sejujurnya belum siap untuk ini.
+
+Ada terlalu banyak informasi yang masih belum bisa Aku proses. aku juga tidak bisa meminta waktu untuk menyelesaikan semuanya terlebih dahulu, jadi aku memutuskan untuk membuangnya ke belakang pikiranku untuk saat ini.
+
+"Kamu akan memberi tahuku mengapa Kamu bersikap seperti ini kepada kami?" (Fiiyanamia)
+
+"Ya, tentu saja. Tapi, itu bukan sesuatu yang sangat rumit. Tapi mari kita selesaikan. Pertama-tama, alasan mengapa Aku menyambutmu berdua sebagai tamuku. Kalian berdua menyapaku dengan baik ketika kalian datang ke sini, bukan?" (Ain)
+
+"i... itu saja?" (Fiiyanamia)
+
+"tanah yang umumnya disebut Central ini adalah istanaku. Selain menyapaku, Aku juga menyambutmu, jadi tentu saja Aku akan mengakomodasi kalian berdua. yaah, para penumpang melakukan sesuatu yang tidak pantas kali ini." (Ain)
 
 Fiiyanamia-sama tersenyum, tapi jujur ​​itu menakutkan.
+
 Tapi aura menakutkannya dengan cepat menghilang.
 
-Lalu apakah itu berarti istilah “freeloader” juga tidak berlebihan?」
-Ya, benar. Itu dimulai ketika orang-orang yang mencari kedamaian dan keamanan secara sewenang-wenang menetap di tanah yang sudah Aku awasi dan tinggali sejak awal.
-Mereka terus datang kembali bahkan setelah mengusir mereka lagi dan lagi, jadi Aku memutuskan aturan dan mengizinkan freeloading mereka.
-Dan kemudian setelah itu, sebuah organisasi yang tidak berafiliasi dengan negara manapun datang...... dan seterusnya. Ini tidak seperti aku raja mereka atau apa. Aku tidak menerima pajak apapun dari mereka.」
-Kamu tidak menerima apapun?」
-Benar, kan. Mungkin Aku tidak sekarang akan lebih benar?
-Di masa lalu Aku menerima beberapa karena mereka memberikannya kepada Aku tetapi setelah itu, mereka kemudian mulai menuntut untuk memiliki suara dalam pengelolaan tanah ini. Aku mengusir orang-orang itu.
+"Lalu apakah itu berarti istilah "penumpang" juga tidak berlebihan?" (Ain)
 
-Fiiyanamia-sama menyebutnya pajak tapi mungkin lebih dari sewa untuknya.
-Atau lebih tepatnya, dia menyewakan tanah secara gratis? Apa yang dimulai sebagai topik rumahnya tiba-tiba menjadi sangat besar, itu benar-benar lucu.
-Dengan kata lain, menuliskannya di peta, itu bukan negara sialan tapi hanya Fiiyanamia Manor saja.
+"Ya, benar. Itu dimulai ketika orang-orang yang mencari kedamaian dan keamanan secara sewenang-wenang menetap di tanah yang sudah Aku awasi dan tinggali sejak awal. Mereka terus datang kembali bahkan setelah aku mengusir mereka lagi dan lagi, jadi Aku memutuskan aturan dan mengizinkan mereka menumpang. Dan kemudian setelah itu, sebuah organisasi yang tidak berafiliasi dengan negara manapun muncul...... dan seterusnya. Ini tidak seperti aku raja mereka atau apa. Aku tidak menerima pajak apapun dari mereka." (Fiiyanamia)
 
-Aku telah diberitahu bahwa hanya orang B-rank ke atas yang bisa masuk tetapi apa alasannya?」
-Aku membuat aturan untuk membatasi jumlah orang yang dipanggil dari luar masuk ke sini, jadi mereka mungkin berhasil alasan itu.
-Mungkin juga karena Guild Hunter akan ditendang keluar jika Hunter akhirnya menyebabkan masalah di negeri ini.
-Jadi, apakah kamu mengerti tempat ini sekarang?」
-Sepertinya itu akan baik-baik saja selama aku tidak melawan Fiiyanamia-sama.
+"Kamu tidak menerima apapun?" (Ain)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Benar, benar. Mungkin Aku tidak tahu sekarang? Di masa lalu Aku menerima beberapa karena mereka memberikannya kepadaku tetapi setelah itu, mereka kemudian mulai menuntut dalam pengelolaan tanah ini. Aku mengusir orang-orang itu." (Fiiyanamia)
 
-(Jika Kamu membaca ini, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+Fiiyanamia-sama menyebutnya pajak tapi mungkin itu hanya biaya sewa untuknya.
 
-Iklan
-Menjawab agak bercanda, Fiiyanamia-sama tertegun sejenak sebelum menjawab Itu benar. dengan cekikikan.
+Atau lebih tepatnya, dia menyewakan tanah secara gratis? topik yang bermulai dari rumahnya tiba-tiba menjadi sangat besar, itu benar-benar lucu.
 
-Kecuali ada keadaan ekstrim, Kamu tidak akan terikat oleh aturan yang dibuat secara sewenang-wenang di sini di Central.
-Lagipula, tamu lebih penting daripada freeloader bagi Aku.」
-Terima kasih banyak.
-Sekarang, mari kembali ke topik sebelumnya. Alasan Aku menyambut Kamu sebagai tamu adalah seperti yang Aku katakan sebelumnya.
-Tapi, alasan itu saja tidak cukup untuk menjawab tingkat akomodasi ini. Benar?」
-Ya.
+Dengan kata lain, jika digambarkan di peta, itu bukan negara tapi hanya rumah Fiiyanamia saja.
 
-Ada juga kemungkinan dia hanya menyukai kita.
-Tapi, jika itu masalahnya, ini berarti situasi kita bisa berubah tergantung pada keinginan Fiiyanamia-sama.
-Karena itu, jika dia memiliki alasan yang jelas, Aku ingin mengetahuinya. Jika dia tidak melakukannya maka Aku mungkin harus mempertimbangkan untuk meninggalkan tempat ini.
+"Aku telah diberitahu bahwa hanya orang rank-B ke atas yang bisa masuk tetapi apa alasannya?" (Ain)
 
-Ada tiga alasan utama, Aku kira? Tapi salah satunya tidak pasti. Jadi hanya dua.
-Pertama adalah, seperti yang Aku katakan sebelumnya, bahwa kalian berdua sangat mampu.」
-Tapi dalam kasus Kamu, Kamu akan menang melawan kami, kan Fiiyanamia-sama ?」
-Bahkan jika Aku mau, ini akan mengakibatkan kerusakan besar pada tanah ini, kamu tahu?
-Itu bukan sesuatu yang Aku inginkan. Dibandingkan dengan melawanmu, menjatuhkan sebuah negara akan lebih mudah, tahu?」
-Bukankah itu terlalu berlebihan?」
-Tidak, tidak. Bahkan kau bisa dengan mudah menjatuhkan sebuah negara. Yang Kamu butuhkan adalah, Aku kira persediaan makanan yang cukup?
-Tidak peduli berapa ratus atau ribuan yang Kamu hadapi, yang harus Kamu lakukan hanyalah melemparkan +BARRIER dan berjalan langsung ke kastil.
-Pada umumnya tidak ada orang yang bisa melakukan apa pun terhadap +BARRIER Kamu. Hanya dengan angka, Aku membayangkan itu akan menjadi perang yang berlarut-larut, tetapi yang pertama menyerah di sini adalah negara, bukan?
+"Aku membuat aturan untuk membatasi jumlah orang yang dipanggil dari luar masuk ke sini, jadi mereka mungkin membuat alasan itu. Mungkin juga karena Guild Hunter akan ditendang keluar jika Hunter akhirnya menyebabkan masalah disini. Jadi, apakah kamu mengerti tempat ini sekarang?" (Fiiyanamia)
 
-Tentu saja jika kekuatan pertahananku benar-benar seperti yang dia katakan, maka aku mungkin bisa menjatuhkan sebuah negara.
-Itu tidak mungkin bagi Aku sendiri, tetapi itu seharusnya bisa dilakukan dengan Ciel.
-Berjalanlah ke pedesaan, masuki kastil mereka, dan ambil kepala raja, ujungnya.
+"Sepertinya itu akan baik-baik saja selama aku tidak melawan Fiiyanamia-sama." (Ain)
 
-Tapi ada perangkat yang mencegah penggunaan sihir, kan?」
-Tidak masalah bagimu karena kamu terus-menerus menggunakan sihir, bukan? Selain itu, kamu bahkan menggunakan sihir di penjara bawah tanah itu, bukan?
-Maka Kamu seharusnya tidak memiliki masalah.
-Dengan kata lain, tidak ada gunanya melawan seseorang yang bisa menjatuhkan negara. Sebaliknya, akan lebih baik untuk bergaul dengan mereka, bukan begitu? 」
+Menjawab dengan agak bercanda, Fiiyanamia-sama tertegun sejenak sebelum menjawab "Itu benar". dengan cekikikan.
 
-Sementara Aku lebih suka menyangkal ini sebagai fakta, mendasarkan secara objektif pada apa yang dia katakan, itu tidak salah.
+"Kecuali dalam keadaan ekstrim, Kamu tidak akan terikat oleh aturan yang dibuat secara sewenang-wenang di sini di Central.Lagipula, tamu lebih penting daripada penumpang bagiku." (Fiiyanamia)
+
+"Terima kasih banyak." (Ain)
+
+"Sekarang, mari kembali ke topik sebelumnya. Alasan Aku menyambutmu sebagai tamu adalah seperti yang Aku katakan sebelumnya. Tapi, alasan itu saja tidak cukup untuk menjawab tingkat akomodasi ini, kan?" (Fiiyanamia)
+
+"Ya." (Ain)
+
+Ada juga kemungkinan dia hanya menyukai kami.
+
+Tapi, jika itu masalahnya, ini berarti situasi kami bisa berubah tergantung pada keinginan Fiiyanamia-sama.
+
+Karena itu, jika dia memiliki alasan yang jelas, Aku ingin mengetahuinya. Jika dia tidak memilikinya maka Aku mungkin harus mempertimbangkan untuk meninggalkan tempat ini.
+
+"Ada tiga alasan utama, mungkin? Tapi salah satunya tidak pasti. Jadi hanya dua. Pertama adalah, seperti yang Aku katakan sebelumnya, bahwa kalian berdua mampu melawanku." (Fiiyanamia)
+
+"Tapi dalam kasusmu, Kamu akan menang melawan kami, kan Fiiyanamia-sama ?" (Ain)
+
+"Bahkan jika Aku mau, ini akan mengakibatkan kerusakan besar pada tanah ini, kamu tahu? Itu bukan sesuatu yang Aku inginkan. Dibandingkan dengan melawanmu, menjatuhkan sebuah negara akan lebih mudah, tahu?" (Fiiyanamia)
+
+"Bukankah itu terlalu berlebihan?" (Ain)
+
+"Tidak, tidak. Bahkan kamu bisa dengan mudah menjatuhkan sebuah negara. Yang Kamu butuhkan adalah, Aku kira persediaan makanan yang cukup? Tidak peduli berapa ratus atau ribuan yang Kamu hadapi, yang harus Kamu lakukan hanyalah memakai +BARRIER dan berjalan langsung ke istana. Pada umumnya tidak ada orang yang bisa melakukan apa pun terhadap +BARRIERmu. hanya sedikit dan bisa dihitung saja yang bisa melakukannya dan Aku membayangkan itu akan menjadi perang yang berlarut-larut, tetapi yang pertama kali akan menyerah di sini adalah negara, bukan?" (Fiiyanamia)
+
+Tentu saja jika kekuatan pertahananku benar-benar seperti yang dia katakan, aku mungkin bisa menjatuhkan sebuah negara.
+
+Itu tidak mungkin bagiku sendiri, tetapi itu seharusnya bisa dilakukan dengan Ciel.
+
+Berjalanlah ke negera, masuki istana mereka, dan ambil kepala raja, selesai.
+
+"Tapi ada perangkat yang mencegah penggunaan sihir, kan?" (Ain)
+
+"Tidak masalah untukmu karena kamu terus-menerus menggunakan sihir, bukan? Selain itu, kamu bahkan menggunakan sihir di penjara bawah tanah itu, bukan? jadi Kamu seharusnya tidak memiliki masalah. Dengan kata lain, tidak ada gunanya melawan seseorang yang bisa menjatuhkan negara. Sebaliknya, akan lebih baik untuk bergaul dengan mereka, bukan begitu?" (Fiiyanamia)
+
+sebenarnya Aku lebih suka menyangkal ini sebagai fakta yang mendasarkan secara objektif pada apa yang dia katakan, tapi itu tidak salah.
+
 Melawan seseorang yang tidak salah untuk dilawan, entah itu membangun hubungan yang ramah atau menghindari interaksi dengan mereka.
+
 Aku kira ini berarti bahwa Fiiyanamia-sama memilih yang pertama.
 
-Kedua adalah bahwa roh-roh itu melekat pada Kamu.
-Mereka pasti datang berkumpul dengan Aku.
+"Kedua adalah bahwa roh-roh itu melekat padamu." (Fiiyanamia)
 
-Iklan
+"Mereka datang berkumpul kepadaku." (Ain)
+
 Bahkan ketika kami sedang berdiskusi, roh-roh terus-menerus melompat-lompat di sekitarku.
+
 Beberapa juga mendekati Fiiyanamia-sama, tetapi ada lebih banyak roh di dekatku.
 
-Apakah Kamu tahu bahwa tempat-tempat dengan banyak roh menjadi berlimpah?」
-Roh hutan menjelaskannya kepada kami.
-Aku mengerti, Aku mengerti. Karena Kamu tahu itu, maka itu membuat segalanya lebih mudah.
-Karena roh berkumpul di sekitar orang-orang yang dicintai oleh roh dan ini membuat tanah menjadi berlimpah.
-Singkatnya, hanya dengan berjalan-jalan, Kamu membawa manfaat ke tempat-tempat yang pernah Kamu kunjungi.
+"Apakah Kamu tahu bahwa tempat-tempat dengan banyak roh akan menjadi berlimpah?" (Fiiyanamia)
 
-Sebaliknya, jika Kamu tidak senang, itu juga akan menyebabkan roh-roh yang mencintai Kamu menjadi tidak senang.
-Ketika itu terjadi, itu akan merusak tanah. Menjadi penjaga dunia, roh tidak akan pernah membuat tanah menjadi tandus, tetapi kemungkinan besar akan menyebabkan penurunan panen dan degradasi rasa tanaman. Itu masih di sisi yang lebih baik, jika Kamu kehilangan hidup Kamu di suatu tempat, roh-roh itu mungkin marah dan menyebabkan bencana alam di semua tempat.」
-Itulah mengapa kami diakomodasi seperti ini?」
-Hanya dengan Kamu tinggal, kami bisa makan sayuran yang enak, kau tahu? Bukankah normal untuk mengakomodasi kalian berdua sehingga kamu akan tinggal di sini lebih lama?
+"entah mengapa Roh hutan menjelaskannya kepada kami." (Ain)
+
+"Begitu, Begitu. Karena Kamu tahu itu, itu membuat segalanya lebih mudah. Karena roh berkumpul di sekitar orang-orang yang dicintai oleh roh dan ini membuat tanah menjadi berlimpah, Singkatnya, hanya dengan berjalan-jalan, Kamu membawa manfaat ke tempat-tempat yang pernah Kamu kunjungi. Sebaliknya, jika Kamu tidak senang, itu juga akan menyebabkan roh-roh yang mencintaimu menjadi tidak senang. Ketika itu terjadi, itu akan merusak tanah. Menjadi penjaga dunia, roh tidak akan pernah membuat tanah menjadi tandus, tetapi kemungkinan besar akan menyebabkan penurunan panen dan penurunan rasa tanaman. Itu masih di sisi yang lebih baik, jika Kamu kehilangan hidupmu di suatu tempat, roh-roh itu mungkin marah dan menyebabkan bencana alam di semua tempat." (Fiiyanamia)
+
+"Itulah mengapa kami diakomodasi seperti ini?" (Ain)
+
+"Hanya dengan Kamu tinggal, kami bisa makan sayuran yang enak, kau tahu? Bukankah normal untuk mengakomodasi kalian berdua sehingga kamu akan tinggal di sini lebih lama?" (Fiiyanamia)
 
 Fiiyanamia-sama memiliki senyum lebar di wajahnya. Aku mengerti dia dalam hal itu.
-Makanan enak itu penting. Bagaimanapun, itu membuat Ciel senang.
+
+Makanan enak itu penting. Bagaimanapun juga, itu membuat Ciel senang.
+
 Meskipun aku tidak tahu mengapa para roh sangat menyukaiku, fakta itu tidak benar-benar berubah, jadi itu lebih merupakan alasan untuk tidak bertarung dengan kami.
 
-Tampaknya Kamu agak yakin sekarang.
-Ya. Maafkan Aku karena begitu skeptis.」
-Kamu tidak perlu meminta maaf untuk itu.
+"Tampaknya Kamu agak yakin sekarang." (Fiiyanamia)
 
-Mengatakan demikian, Fiiyanamia-sama datang ke sampingku.
+"Ya. Maafkan Aku karena begitu skeptis." (Ain)
+
+"Kamu tidak perlu meminta maaf untuk itu." (Fiiyanamia)
+
+Mengatakan demikian, Fiiyanamia-sama bergerak ke sampingku.
+
 Saat tubuhku secara refleks menegang, Fiiyanamia-sama dengan lembut memelukku.
 
-Tidak ada seorang pun di rumah ini yang akan menyakitimu.
-Itu sebabnya, rilekskan diri Kamu sedikit saja.
-Aku tidak akan menyakiti kalian berdua. Aku sudah memberi tahu Kamu alasan Aku, bukan?
+"Tidak ada seorang pun di rumah ini yang akan menyakitimu. karena itulah, rilekskan dirimu sedikit saja. Aku tidak akan menyakiti kalian berdua. Aku sudah memberi tahumu alasanku, bukan?" (Fiiyanamia)
 
-Mendengar tegurannya yang lembut dan hampir keibuan, membuatku ingin bersandar padanya.
-Lagi pula, Aku baru saja diajari bahwa tidak ada musuh di sini, bahwa tempat ini aman.
+Mendengar omongannya yang lembut dan hampir keibuan, membuatku ingin bersandar padanya.
+
+Aku baru saja diberitahu bahwa tidak ada musuh di sini, bahwa tempat ini aman.
+
 Mungkin, mungkin saja, Aku bisa dibiarkan sedikit lebih santai. Saat pikiran itu melintas di benakku, kesadaranku telah melebur ke dalam tidur nyenyak.
