@@ -279,3 +279,9 @@ Mendengar omongannya yang lembut dan hampir keibuan, membuatku ingin bersandar p
 Aku baru saja diberitahu bahwa tidak ada musuh di sini, bahwa tempat ini aman.
 
 Mungkin, mungkin saja, Aku bisa dibiarkan sedikit lebih santai. Saat pikiran itu melintas di benakku, kesadaranku telah melebur ke dalam tidur nyenyak.
+
+---------------------------------------
+
+uuuuu, akhirnya ain kita memiliki tempat bersandar... akhirnya ada orang yang bisa memeluk dan membuat ain kita merasa tenang... baguslah, setelah dari awal sampai saat ini, bisa dihitung ain kita selalu tegang, selalu waspada, tidak memiliki waktu dan orang untuk bersantai selain dedek ciel kita... akhirnya ada orang yang bisa memasuki hati ain kita selain dedek ciel kita, atau ? entahlah...
+
+pada chapter kali ini kita mengetahui bahwa kekuatan ain benar benar terlalu kuat. dengan barrier saja bisa menjatuhkan negara...  betapa kuatnya ain kita... harusnya dengan ini ain kita bisa sedikit tenang selama lawannya bukan yang berhubungan dengan utusan dewa atau sekuat Fiiyanamia...
