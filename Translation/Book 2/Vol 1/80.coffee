@@ -90,52 +90,48 @@ Aku mengerti ini luar biasa tetapi, bahkan setelah diberitahu secara secara khus
 
 Kapan Aku mencapai alam manusia super?
 
-Seperti yang diharapkan pada saat ini, kita dapat mempersempitnya menjadi satu kemungkinan.
-Kamu secara tidak sengaja menggunakan sihir, membuang pertempuran dan sihir penyembuhan Kamu untuk menghaluskan +BARRIER, penyembunyian, dan deteksi Kamu ke tingkat yang jauh lebih besar. Sepertinya baik sihir tempur maupun sihir penyembuhan yang kamu buang saat itu berpotensi membuat kamu menonjol di kedua bidang tersebut.
-Mungkin bahkan lebih menonjol daripada Cielmer-chan adalah.
-Transmutasi melalui sihir tidak selalu merupakan pertukaran yang setara. Meski begitu, menawarkan sesuatu yang lebih baik memiliki peluang lebih besar untuk memberikan hasil yang lebih baik.
+"pada saat ini, kita dapat mempersempitnya menjadi satu kemungkinan. Kamu secara tidak sengaja menggunakan sihir (Magic), membuang kemampuan pertempuran dan penyembuhanmu untuk memperkuat +BARRIER, +CONCEALMENT, dan +DETECTIONmu ke tingkat yang jauh lebih besar. Sepertinya baik sihir tempur maupun sihir penyembuhan yang kamu buang yang dapat berpotensi membuatmu menonjol di kedua bidang tersebut. Mungkin bahkan lebih menonjol daripada Cielmer-chan. Transmutasi melalui sihir(magic) tidak selalu merupakan pertukaran yang setara. Meski begitu, menawarkan sesuatu yang lebih baik memiliki peluang lebih besar untuk mendapatkan hasil yang lebih baik. Selain itu, untuk +BARRIERmu, selain memiliki bakat, Kamu telah menggunakannya terus-menerus dan telah membuat peningkatan terus menerus juga. Terlebih lagi, rambutmu telah menjadi sirkuit dan kamu telah meningkatkan energi sihirmu melalui kecerobohan seperti itu dalam rentang waktu 5 tahun, jadi masuk akal jika kalian berdua berada di level ini pada usia itu. ini tidak mungkin terjadi tanpa melakukan itu semua. andai jobmu yang dapat melengkapi +BARRIERmu, maka mungkin bahkan yang Kamu biasanya gunakan mungkin menjadi cukup kuat untuk menahan monster Rank-S?" (Fiiyanamia)
 
-Selain itu, sehubungan dengan +BARRIER Kamu, selain memiliki bakat yang sama untuk memulai, Kamu telah menggunakannya terus-menerus dan telah membuat peningkatan berulang di atasnya.
-Terlebih lagi, rambutmu telah menjadi sirkuit dan kamu telah meningkatkan kekuatan sihirmu melalui kecerobohan seperti itu dalam rentang waktu 5 tahun, jadi masuk akal jika kalian berdua berada di level ini pada usia itu. Sebaliknya, ini tidak mungkin tanpa melakukan sebanyak itu.
-Jika hanya Pekerjaan Kamu yang dapat melengkapi +BARRIER Kamu, maka mungkin bahkan yang Kamu gunakan secara teratur mungkin menjadi cukup kuat untuk menangkis monster Rank-S?」
-
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
-
-Iklan
 Woah...... itu mengejutkan.
-Jadi jika Aku tidak menyerah pada sihir tempur, maka itu bisa menjadi tambahan langsung untuk daya tembak kami.
-Itu... praktis kue di langit, jadi Aku tidak menyesal dengan pilihan Aku saat ini.
 
-Bukannya aku bisa melakukan segalanya bahkan jika aku mau dan justru karena aku kehilangan sihir tempurku, aku terus-menerus menjaga +BARRIER itu tanpa nyanyian.
-Jika semua ini benar, maka jika Aku dapat memasukkan kekuatan Song Princess ke dalam +BARRIER Aku, itu akan menyelesaikan masalah pertahanan apa pun dalam pertempuran, yang agak membuat frustrasi sekarang karena Aku tahu ini.
+Jadi jika Aku tidak menyerah pada sihir tempur, itu bisa menjadi tambahan langsung untuk kekuatan serangan kami.
 
-Jika aku bisa memperkuat +BARRIERku dengan Song Princess sebelumnya, maka bertahan dengan benar melawan pertemuan pertama kami dengan tombak es dan cakar serigala emas bisa jadi mungkin.
+Itu... seperti kue di langit, jadi Aku tidak menyesal dengan pilihanku saat ini.
+
+aku tidak bisa melakukan segalanya bahkan jika aku mau dan justru karena aku kehilangan sihir tempurku, aku terus-menerus menjaga +BARRIER itu tanpa nyanyian.
+
+Jika semua ini benar, maka jika Aku dapat memasukkan kekuatan Song Princess ke dalam +BARRIERku, itu akan menyelesaikan masalah pertahanan apa pun dalam pertempuran, yang mana agak membuat frustrasi karena Aku tahu ini.
+
+Jika aku bisa memperkuat +BARRIERku dengan Song Princess sebelumnya, maka bertahan dengan sempurna melawan pertemuan pertama kami dengan tombak es dan cakar serigala emas bisa jadi mungkin.
+
 Bahkan mungkin untuk sepenuhnya memblokir serangan Fiiyanamia-sama dengan +BARRIER kekuatan penuhku.
+
 Jika Aku bisa mencapai level itu, Aku bisa meninggalkan Ciel dengan tenang.
 
-Sekarang, kembali ke kuil. Kalian berdua tidak pernah pergi ke salah satu, benar? 」
-「Ya.」
-「Dalam hal ini, Kamu tahu perbedaan antara sebuah kuil dan gereja?」
-「Umm, kuil adalah tempat dewa dipanggil sementara gereja adalah di mana orang percaya berdoa...... kan?」
-Itu kira-kira benar. Satu hal yang akan Aku koreksi Kamu adalah bahwa kuil adalah tempat oracle turun ke orang-orang.
-Kuil adalah tempat suci di mana, ketika individu dari Pekerjaan dan ras tertentu menawarkan doa mereka, ada peluang untuk mendapatkan ramalan.
-Karena itu, rata-rata orang biasanya tidak pergi ke sana. Kamu dapat masuk dengan biaya, tetapi yang paling Kamu bisa lihat adalah bagian pintu masuknya.」
-Oracle...... kan?
-Itu benar, ini cukup umum di masa lalu, Kamu tahu? Misalnya, tentang di mana akan terjadi penyerbuan atau di mana monster yang kuat akan muncul.
+"Sekarang, kembali ke topik kuil. Kalian berdua tidak pernah pergi ke kuil, kan?" (Fiiyanamia)
 
-Gereja adalah tempat untuk berdoa. Meskipun ada batasan di mana kuil dapat dibuat, itu tidak berlaku untuk gereja.
-Itu sebabnya banyak kota dan desa mungkin memiliki gereja tetapi tidak memiliki kuil.
-Selain itu, gereja juga merupakan tempat penyembuhan penyakit dan luka. Karena itu, biasanya seorang Hunter akan memiliki hubungan yang tak terpisahkan dengan gereja, mengerti?
+"Ya." (Ain)
+
+"Dalam hal ini, Kamu tahu perbedaan antara sebuah kuil dan gereja?" (Fiiyanamia)
+
+"Umm, kuil adalah tempat dewa dipanggil sementara gereja adalah di mana para penganut berdoa...... kan?" (Ain)
+
+"kira-kira seperti itu. Satu hal yang akan Aku koreksi adalah bahwa kuil adalah tempat perkataan dewa turun ke orang-orang. Kuil adalah tempat suci di mana, ketika individu dari Job dan ras tertentu menawarkan doa mereka, ada memiliki peluang untuk mendapatkan perkataan dewa kepadanya. Karena itu, rata-rata orang biasanya tidak pergi ke sana. Kamu dapat masuk dengan uang, tetapi yang bisa kamu lihat adalah bagian pintu masuknya saja." (Fiiyanamia)
+
+"perkataan dewa...... huh?" (Ain)
+
+"benar, ini cukup umum di masa lalu, Kamu tahu? Misalnya, tentang di mana akan terjadi penyerbuan atau di mana monster yang kuat akan muncul. Gereja adalah tempat untuk berdoa. Meskipun ada batasan di mana kuil dapat dibuat, itu tidak berlaku untuk gereja. Itu sebabnya banyak kota dan desa mungkin memiliki gereja tetapi tidak memiliki kuil. Selain itu, gereja juga merupakan tempat penyembuhan penyakit dan luka. Karena itu, biasanya seorang Hunter akan memiliki hubungan yang tak terpisahkan dengan gereja, paham?" (Fiiyanamia)
 
 Alasan kenapa Fiiyanamia tertawa sambil menatapku mungkin karena, terutama karena aku, Ciel menjadi Hunter yang sama sekali tidak berinteraksi dengan gereja.
-Meskipun mereka menyembuhkan orang, itu tidak gratis, jadi Aku bertanya-tanya berapa banyak uang yang dihabiskan Hunter dengan gereja?
 
-Sayangnya, Aku tidak dapat memenuhi harapan gereja.」
-Jika itu tidak perlu, maka itu yang terbaik.」
+Meskipun mereka menyembuhkan orang, itu tidak gratis, jadi Aku bertanya-tanya berapa banyak uang yang dihabiskan Hunter ke gereja?
+
+"Sayangnya, Aku tidak dapat memenuhi harapan gereja." (Ain)
+
+"Jika itu tidak perlu, maka itu yang terbaik." (Fiiyanamia)
 
 Tidak ada yang lebih baik daripada tidak terluka dan sakit sama sekali.
+
 Tapi, selain cedera, fakta bahwa kami tidak pernah sakit selama 12 tahun terakhir praktis merupakan keajaiban.
 Tubuh Ciel halus tapi kurasa mungkin kuat dalam hal ini?
 
