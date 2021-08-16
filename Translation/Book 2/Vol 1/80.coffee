@@ -132,15 +132,18 @@ Meskipun mereka menyembuhkan orang, itu tidak gratis, jadi Aku bertanya-tanya be
 
 Tidak ada yang lebih baik daripada tidak terluka dan sakit sama sekali.
 
-Tapi, selain cedera, fakta bahwa kami tidak pernah sakit selama 12 tahun terakhir praktis merupakan keajaiban.
+Tapi, selain cedera, fakta bahwa kami tidak pernah sakit selama 12 tahun terakhir merupakan keajaiban.
+
 Tubuh Ciel halus tapi kurasa mungkin kuat dalam hal ini?
 
-Iklan
-Bagaimanapun, berbicara tentang 12 tahun, itu akan menjadi tahun terakhir sekolah dasar. Seperti, berapa banyak teman sekelas sekolah dasar yang Aku miliki yang tidak pernah sakit sepanjang hidup mereka di sekolah dasar?
-Sebaliknya, sementara tidak semua orang tidak hadir karena sakit, ada beberapa yang menghadiri kelas dengan pilek, jadi sejauh yang Aku tahu.
+berbicara tentang 12 tahun, itu akan menjadi tahun terakhir sekolah dasar. berapa banyak teman sekelas sekolah dasar yang Aku miliki yang tidak pernah sakit sepanjang hidup mereka di sekolah dasar?
 
-Adapun mengapa Aku mengangkat topik kuil, itu hanya karena tempat ini adalah salah satu kuil tersebut.」
-Tempat ini... rumah ini?」
+walaupun tidak semua orang tidak hadir karena sakit, ada beberapa yang menghadiri kelas dengan pilek.
+
+"Adapun mengapa Aku mengangkat topik kuil, itu karena tempat ini adalah salah satu dari kuil tersebut." (Fiiyanamia)
+
+"Tempat ini... rumah ini?" (Ain)
+
 Itu benar, itu benar sekali. Untuk alasan itu, ada kemungkinan bahwa Kamu mungkin menerima oracle juga, Ainsel-chan. 」
 「Karena aku Song Putri, bukankah itu mungkin?」
 「Fufufu, itu benar, bahwa adalah sebuah fakta.」
