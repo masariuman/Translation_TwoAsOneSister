@@ -63,7 +63,7 @@ Tetap saja, tidak ada tas sihir yang dijual seperti yang diharapkan. Tepat saat 
 "sayang sekali." (ciel)
 
 "Hanya ada beberapa tas sihir dan bahkan di sini, di ibukota, hanya muncul di pasar kira-kira setahun sekali.
-Dengan demikian, metode yang paling dapat diandalkan untuk memperolehnya adalah bernegosiasi dengan individu yang sudah memilikinya."
+Dengan begitu, metode yang paling dapat diandalkan untuk memperolehnya adalah bernegosiasi dengan individu yang sudah memilikinya."
 
 "Begitu. Aku akan datang lagi." (ciel)
 
