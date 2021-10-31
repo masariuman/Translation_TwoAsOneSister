@@ -1,35 +1,46 @@
 CHAPTER 81: AIN, GOD, AND THE TRUTH FIRST HALF
 
-Saat membuka mata,  berada di taman duduk di kursi.
-Di taman yang belum pernah Aku lihat sebelumnya, bunga-bunga yang Aku kenal dan yang tidak Aku kenal diatur dalam harmoni yang membuat Aku tercengang.
-Namun, sinar matahari yang lembut menyinari taman ini memberi Aku ketenangan yang belum pernah Aku alami sampai sekarang.
+ketika aku membuka mata, aku berada di taman dan duduk di kursi.
 
-Jika Aku harus menggambarkan tempat ini, itu seperti tempat untuk pesta teh bangsawan.
-Pada pengamatan lebih dekat, suasana di sini mirip dengan halaman Fiiyanamia- sama .
-Tetap saja, tampaknya memiliki suasana yang berbeda dibandingkan dengan tempat itu ...... Untuk membuatnya menjadi kata-kata, itu seperti—
+Di taman yang belum pernah Aku lihat sebelumnya, bunga-bunga yang kukenal dan yang tidak kukenal diatur dalam harmoni yang membuatku tercengang.
 
-Surga, kurasa?」
+Tapi, sinar matahari yang lembut menyinari taman ini memberiku ketenangan yang belum pernah Aku alami sampai sekarang.
 
-Karena Aku melihat sekeliling dengan linglung, Aku terlambat menyadari bahwa ada seseorang di sisi lain meja di depan Aku.
-Mungkin geli melihat rahang Aku jatuh, atau bahwa Aku bereaksi persis seperti yang dia harapkan, wanita di sisi lain tertawa kecil.
+Jika Aku harus menggambarkan tempat ini, tempat ini seperti tempat untuk pesta teh para bangsawan.
+
+Setelah kuamati lagi, suasana di sini mirip dengan halaman Fiiyanamia-sama.
+
+Tetap saja, tempat ini tampaknya memiliki suasana yang berbeda dibandingkan dengan tempat Fiiyanamia-sama...... tempat ini seperti—
+
+"Surga?" (Ain)
+
+Karena Aku melihat sekeliling dengan linglung, Aku terlambat menyadari bahwa ada seseorang di sisi lain meja di depanku.
+
+Mungkin geli melihat rahangku jatuh, atau bahwa Aku bereaksi persis seperti yang dia harapkan, wanita di sisi lain tertawa kecil.
 
 Dia wanita yang menarik perhatian.
+
 Rambut hitam panjangnya mengalir lurus ke pinggulnya seperti air terjun dan matanya yang hitam legam terasa seperti akan menarik apa pun yang melihatnya.
+
 Dia memiliki mata yang sedikit terkulai, bibir berkilau yang montok, hidung yang indah, dan kulit yang putih bersih.
-Aku tidak bisa mengalihkan pandanganku darinya tapi itu mungkin bukan karena aku dulunya laki-laki. Setiap makhluk yang bisa mengenali kecantikan kemungkinan akan terpesona olehnya. Menyebutnya sebagai karya seni kelas atas tidaklah berlebihan.
 
-Namun, penampilannya tidak cocok dengan tempat ini.
+Aku tidak bisa mengalihkan pandanganku darinya tapi itu  bukan karena aku dulunya laki-laki. Setiap makhluk yang bisa mengenali kecantikan kemungkinan akan terpesona olehnya. Menyebutnya sebagai karya seni kelas atas tidaklah berlebihan.
+
+Tapi, penampilannya tidak cocok dengan tempat ini.
+
 Di tempat minum teh dengan suasana aristokrat barat, dia mengenakan satu set pakaian bergaya barat yang sesuai dengan preferensi Jepang.
-Meskipun itu bergaya dan terlihat bagus untuknya, itu sangat tidak cocok sehingga otak Aku hanya bertanya 'Mengapa?' .
+Meskipun itu bergaya dan terlihat bagus untuknya, itu sangat tidak cocok sehingga otakku hanya bertanya 'Mengapa?'.
 
-Aku berasumsi bahwa ini akan lebih akrab bagi Kamu, Kamu tahu?」
+"Aku berasumsi penampilan ini akan lebih akrab denganmu, Kamu tahu?"
 
-Aku mengerti, Aku mengerti sekarang. Tentu terasa nostalgia melihatnya. Sekarang aku memikirkannya, wajahnya juga terlihat seperti orang Jepang. Padahal aku belum pernah melihat orang secantik ini sebelumnya.
+Aku mengerti, Aku mengerti sekarang. Tentu terasa nostalgia melihatnya. sekarang setelah aku memikirkannya lagi, wajahnya juga terlihat seperti orang Jepang. Padahal aku belum pernah melihat orang secantik ini sebelumnya.
 
-Meskipun penampilan Aku, Aku adalah dewa dan tampaknya datang dengan penampilan yang luar biasa. Juga, Aku tidak memiliki jenis kelamin, jadi tidak seperti Kamu, Aku juga bisa menjadi seorang pria.」
-A...... tuhan?」
+"Meskipun penampilanku seperti ini, Aku adalah dewa dan sebenarnya memiliki penampilan yang luar biasa. Juga, Aku tidak memiliki jenis kelamin, jadi tidak sepertimu, Aku juga bisa menjadi seorang pria." (Dewa)
 
-Whooh , aku mulai bingung,
+"Seorang...... Dewa?" (Ain)
+
+Whooh, aku mulai bingung,
+
 Jika apa yang dia katakan itu benar, maka kecantikan di depanku ini adalah dewa, dan bisa menjadi pria dan wanita.
 Sulit untuk mempercayai situasi ini tetapi mengingat tempat ini dan kecantikannya, itu mungkin benar.
 
@@ -51,7 +62,7 @@ Meskipun itu hanya memproklamirkan diri, Aku lupa bahwa dia adalah dewa dan mend
 Matanya terbuka lebar karena terkejut tetapi dia segera tersenyum.
 
 Kamu benar-benar menghargai gadis itu, bukan?
-Hmm , dia tidur nyenyak sekarang. Dia baik-baik saja, jangan khawatir tentang itu. Fii ada di dekat sini, jadi tidak akan ada bahaya. Uh-huh .
+Hmm , dia tidur nyenyak sekarang. Dia baik-baik saja, jangan khawatir tentang itu. Fii ada di dekat sini, jadi tidak akan ada bahaya. Uh-huh.
 
 Untuk beberapa alasan, itu terdengar sangat tidak dapat dipercaya.
 
@@ -84,7 +95,7 @@ Saat aku mengangkat tangan kananku, gadis di cermin mengangkat tangan kirinya.
 Aku mengangkat tangan kiriku dan dia mengangkat tangan kanannya.
 Aku meringis dan dia juga.
 
-Aku mengerti, itu cermin. Dengan kata lain, ini akan menjadi penampilan Aku jika Aku pernah memiliki tubuh. Namun, berdasarkan pengalaman hidup Aku sendiri, Aku seharusnya berusia di atas 30 tahun.
+Aku mengerti, itu cermin. Dengan kata lain, ini akan menjadi penampilan Aku jika Aku pernah memiliki tubuh. Tapi, berdasarkan pengalaman hidup Aku sendiri, Aku seharusnya berusia di atas 30 tahun.
 Pertama-tama, mengapa Aku terlihat mirip dengan Ciel?
 
 Mengapa Aku terlihat seperti ini?」
@@ -100,17 +111,17 @@ Sebaliknya, bagaimana Aku berbicara di masa lalu?
 
 Jika Kamu ingin tetap menjadi pria bagaimanapun caranya, maka segalanya akan berbeda; tetapi karena Kamu tidak menunjukkan perlawanan apa pun, jiwa Kamu secara bertahap beradaptasi dengan tubuhnya.
 Karena Kamu sedang menghantui dirinya dalam arti, tidak boleh ada kejutan untuk tubuh Kamu harus didasarkan pada tubuh inang. 」
-「Itu ...... tidak masuk akal.」
+「Itu...... tidak masuk akal.」
 「 Selain itu, penampilan bukanlah hal yang paling penting, don setuju gak?
-Ada orang yang dewasa meski terlihat muda, ada juga yang berbicara kekanak-kanakan meski terlihat galak. Yang penting kamu jadi dirimu sendiri,」(Yumemura Reon- kun .)
+Ada orang yang dewasa meski terlihat muda, ada juga yang berbicara kekanak-kanakan meski terlihat galak. Yang penting kamu jadi dirimu sendiri,」(Yumemura Reon-kun.)
 
 Tiba-tiba, nama seseorang bergema di kepalaku, mengejutkanku.
-Untuk sesaat, aku bertanya-tanya siapa yang dia bicarakan tetapi aku yang dia maksud, ya . Juga, sepertinya dia mempertimbangkan hal itu hanya untuk memastikan.
+Untuk sesaat, aku bertanya-tanya siapa yang dia bicarakan tetapi aku yang dia maksud, ya. Juga, sepertinya dia mempertimbangkan hal itu hanya untuk memastikan.
 Yumemura Reon. Tentu saja, Aku pikir Aku memiliki nama itu. Hampir tidak ada gunanya sejak aku datang ke dunia ini, jadi aku benar-benar melupakannya.
 
 ...... Bahkan Aku tidak berpikir bahwa Kamu akan melupakan nama Kamu sendiri, Kamu tahu?」
 Yumemura Reon sudah mati. Yang di depanmu adalah Ainsel.」
-Ainsel…… kan? Aku tahu persis mengapa Kamu memilih untuk menamai diri Kamu seperti itu, tetapi ... apakah Kamu yakin tentang itu?」
+Ainsel…… kan? Aku tahu persis mengapa Kamu memilih untuk menamai diri Kamu seperti itu, tetapi... apakah Kamu yakin tentang itu?」
 Aku sendiri bertanya-tanya tentang itu. Sejauh ini, Aku tidak menyesal. Kupikir. kan
 
 Ainsel adalah nama peri tertentu. Tepatnya, Aku pikir itu sedikit berbeda tetapi dalam situasi ini, detailnya tidak penting.
@@ -121,7 +132,7 @@ Meskipun tidak ada alasan bagiku untuk menjawab pertanyaan manusia, aku akan men
 Aku adalah dewa yang mengatur penciptaan dan kehancuran. Dewa Pencipta, begitulah. Dewa tertinggi. Pencipta dan pengawas dari beberapa dunia, atau perpecahan ilahi mereka tepatnya.」
 Tubuh asli berada di tempat yang berbeda?」
 Benar, persis seperti itu. Tubuh asliku tidak bisa begitu saja datang ke hadapan siapa pun mau tak mau, dan bahkan dalam bentuk ini, aku terbatas untuk tinggal di alam dewa setiap dunia. Jika Aku sembarangan menunjukkan diri Aku di hadapan manusia, orang itu akan dihancurkan oleh kekuatan Aku saat melihat Aku.
-Aku hanya memiliki lebih banyak pertanyaan sekarang, tetapi, tentang itu ... Apakah Aku akan baik-baik saja?」
+Aku hanya memiliki lebih banyak pertanyaan sekarang, tetapi, tentang itu... Apakah Aku akan baik-baik saja?」
 Alasan kami di sini justru untuk mengajari Kamu tentang itu. Meskipun kata pengantar untuk ini menjadi sangat panjang karena suatu alasan.
 
 Memang, tidak bisa dipungkiri butuh waktu untuk mencapai titik ini.
@@ -132,14 +143,14 @@ Sekarang, izinkan Aku menjelaskan situasi saat ini. Ini adalah lokasi di alam de
 Karena kamu kehilangan kesadaran di tempat Fii, aku terhubung dengan mimpimu. Dengan kata lain, Kamu sedang tidur.
 
 Ada banyak hal yang sulit Aku pahami.
-Karena tempat Fiiyanamia- sama adalah sebuah kuil, terhubung ke alam dewa masih bisa dimengerti, kurasa.
-Namun, semua yang Aku diberitahu adalah bahwa oracle bisa turun. Aku tidak pernah diberitahu bahwa Aku bisa dibawa ke alam dewa.
+Karena tempat Fiiyanamia-sama adalah sebuah kuil, terhubung ke alam dewa masih bisa dimengerti, kurasa.
+Tapi, semua yang Aku diberitahu adalah bahwa oracle bisa turun. Aku tidak pernah diberitahu bahwa Aku bisa dibawa ke alam dewa.
 
 (Bab ini disediakan untuk Kamu oleh Re:Library)
 
 (Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
 
-Oracle, kan ...... Itu hanya bisa menyampaikan hal-hal secara sepihak dari sisi ini, Kamu tahu?
+Oracle, kan...... Itu hanya bisa menyampaikan hal-hal secara sepihak dari sisi ini, Kamu tahu?
 'Seekor monster muncul ini dan itu. Pada tingkat ini, negara akan berada dalam bahaya, jadi mengapa Kamu tidak membentuk tim penakluk?'
 Sesuatu seperti itu. Detail yang dapat dikomunikasikan juga terbatas panjangnya. Biasanya, ini sudah cukup, tetapi, dalam kasus Kamu, situasi Kamu agak rumit, jadi jika terjadi sesuatu, Aku berencana untuk berkomunikasi dengan Kamu dengan cara ini.
 Dengan kata lain, Aku sudah mempersiapkan ini sejak lama. Ini baru terjadi sekarang karena Kamu akhirnya memenuhi persyaratan.
@@ -150,7 +161,7 @@ Jadi karena Aku dengan keras kepala menjaga jarak dari satu, tidak ada kesempata
 Sesuatu seperti itu.」
 Apa yang akan Kamu katakan kepada Aku?」
 Pada dasarnya segala sesuatu tentang keberadaan Kamu, Aku kira? Meskipun Aku hanya dapat memberi tahu Kamu tentang apa yang telah Aku rusak, jadi jangan berharap bahwa Aku akan mengatakan segalanya tentang Kamu.」
-Lalu ... Kamu melakukan sesuatu kepada Aku, Dewa Pencipta?」
+Lalu... Kamu melakukan sesuatu kepada Aku, Dewa Pencipta?」
 Kamu mengatakannya seperti itu tapi Kamu sudah menebak bahwa dewa setidaknya terlibat dengan Kamu, bukan?」
 Seperti yang Kamu katakan.
 
@@ -173,7 +184,7 @@ Aku kira Aku harus puas hanya dengan mengetahui mengapa Aku belum pernah mendeng
 Di antara ini adalah sesuatu yang hanya bisa Aku lakukan, pengelolaan jiwa antar dunia.
 Siklus kematian dan kelahiran kembali dan reinkarnasi orang mati ke dunia yang berbeda adalah pertukaran yang terjadi di antara dunia, jadi Aku satu-satunya yang bisa melakukannya, Kamu tahu?」
 Kedengarannya sulit.
-Tepat, memang begitu. . Itu sebabnya moto Aku adalah untuk setidaknya menemukan kenikmatan di mana pun Aku bisa. 」
+Tepat, memang begitu.. Itu sebabnya moto Aku adalah untuk setidaknya menemukan kenikmatan di mana pun Aku bisa. 」
 「Jadi itu Aku dipilih sebagai korban untuk itu kemudian?」
 「Hahaha , tepatnya begitu.」
 
@@ -186,7 +197,7 @@ Tidak juga.
 Jadi tidak ada.
 Itu adalah kebetulan yang lengkap bahwa Aku memilih Kamu setelah semua. Hmm , tapi kurasa 'Kamu tidak seharusnya memiliki' akan lebih tepat dari sebuah pernyataan.
 Kekuatan Kamu saat ini agak terlalu kuat untuk permukaan, Kamu mengerti? Untungnya, Kamu berspesialisasi dalam pertahanan.」
-Apakah mungkin ...... perlu disegel?」
+Apakah mungkin...... perlu disegel?」
 Itu tidak akan terjadi. Bagaimanapun, itu adalah sesuatu yang Kamu peroleh, kekuatan yang Kamu peroleh dalam aturan dunia.
 Aku adalah orang yang mengizinkan ini, jadi Aku tidak keberatan dengan itu.
 
