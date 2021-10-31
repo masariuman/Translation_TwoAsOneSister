@@ -41,110 +41,131 @@ Aku mengerti, Aku mengerti sekarang. Tentu terasa nostalgia melihatnya. sekarang
 
 Whooh, aku mulai bingung,
 
-Jika apa yang dia katakan itu benar, maka kecantikan di depanku ini adalah dewa, dan bisa menjadi pria dan wanita.
+Jika apa yang dia katakan itu benar, maka sicantik di depanku ini adalah dewa, dan bisa menjadi pria dan wanita.
+
 Sulit untuk mempercayai situasi ini tetapi mengingat tempat ini dan kecantikannya, itu mungkin benar.
 
-Bagaimanapun, tidak seperti di bumi, para dewa di dunia ini pasti ada.
+Bagaimanapun juga, tidak seperti di bumi, para dewa di dunia ini pasti ada.
 
-Meskipun ini tidak akan menjadi bukti apa pun, jika Kamu melihat penampilan Kamu sekarang, Kamu harus memahami bahwa situasi ini tidak normal.
+"Meskipun ini tidak akan menjadi bukti apa pun, jika Kamu melihat penampilanmu sekarang, Kamu harusnya memahami bahwa situasi ini tidak normal." (Dewa)
 
-Seperti yang dikatakan dewa, sebuah cermin besar muncul di hadapanku.
-Tercermin di cermin adalah seorang gadis berambut hitam yang terlihat mirip dengan Ciel.
+ketika dewa mengatakan itu, sebuah cermin besar muncul di hadapanku.
+
+yang muncul dicermin adalah gadis berambut hitam yang terlihat mirip dengan Ciel.
+
 Dengan kata lain, tubuh ini bukan milik Ciel.
 
-Ciel. Ciel, apakah kamu di sini?
+"Ciel. Ciel, apakah kamu di sini?" (Ain)
 
 Tidak ada jawaban dari panggilanku. Aku tidak merasakan kehadiran Ciel. Aku tidak bisa merasakan keberadaan Ciel.
 
-Apakah Ciel baik-baik saja !?
+"Apakah Ciel baik-baik saja !?" (Ain)
 
-Meskipun itu hanya memproklamirkan diri, Aku lupa bahwa dia adalah dewa dan mendesaknya untuk sebuah jawaban.
+Aku lupa bahwa dia adalah dewa dan mendesaknya untuk sebuah jawaban.
+
 Matanya terbuka lebar karena terkejut tetapi dia segera tersenyum.
 
-Kamu benar-benar menghargai gadis itu, bukan?
-Hmm , dia tidur nyenyak sekarang. Dia baik-baik saja, jangan khawatir tentang itu. Fii ada di dekat sini, jadi tidak akan ada bahaya. Uh-huh.
+"Kamu benar-benar menghargai gadis itu, bukan? Hmm , dia tidur nyenyak sekarang. Dia baik-baik saja, jangan khawatir tentang itu. Fii ada di dekatnya, jadi tidak akan ada bahaya. Uh-huh." (Dewa)
 
 Untuk beberapa alasan, itu terdengar sangat tidak dapat dipercaya.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Jika kamu bohong, bahkan jika Kamu seorang dewa, Aku tidak akan pernah memaafkanmu, oke?" (Ain)
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Aku tidak mungkin bisa mengalahkannya. Lagipula, aku bisa merasakan jumlah tak terbatas dari benda seperti energi sihir tingkat tinggi itu.
 
-Jika ini bohong maka bahkan jika Kamu seorang dewa, Aku tidak akan pernah memaafkan Kamu, oke?」
+dengan membiasakan diri dengan indraku saat ini, Aku dapat dengan jelas mengatakannya sekarang.
 
-Aku tidak memiliki harapan untuk bisa mengalahkannya. Lagipula, aku bisa merasakan jumlah tak terbatas dari benda seperti kekuatan sihir tingkat tinggi itu.
-Secara bertahap membiasakan diri dengan indra Aku saat ini, Aku dapat dengan jelas mengatakannya sekarang.
 Dia tidak bercanda, dia tidak diragukan lagi adalah dewa.
 
-Jika aku melawannya, tidak diragukan lagi aku akan mati. Aku bahkan mungkin menghadapi akhir yang buruk seperti jiwaku dihancurkan atau lebih.
-Meski begitu, tanpa Ciel, aku tidak peduli. Tanpa Ciel, tidak ada gunanya hidup.
+Jika aku melawannya, tidak diragukan lagi aku akan mati. Aku bahkan mungkin menghadapi akhir yang buruk seperti jiwaku dihancurkan atau mungkin diatas itu.
 
-Tidak perlu khawatir. Dengan mengesampingkan keadaan ekstrim, sampai kalian berdua mencapai usia 15 tahun, aku tidak akan membiarkan kalian berdua mati.
-Janji?
-Tentu, tentu. Selama kalian berdua tidak mati seketika, kalian berdua akan baik-baik saja.
-Untuk memulainya, penghalang Kamu masih aktif. Sungguh, mengapa semuanya berakhir seperti ini?
+Meski begitu, tanpa Ciel, aku tidak peduli. Tanpa Ciel, tidak ada gunanya hidup ini.
 
-Jika penghalang Aku masih aktif, maka itu agak melegakan.
+"Tidak perlu khawatir. Dengan mengesampingkan keadaan ekstrim, sampai kalian berdua mencapai usia 15 tahun, aku tidak akan membiarkan kalian berdua mati." (Dewa)
+
+"Janji?" (Ain)
+
+"Tentu, tentu. Selama kalian berdua tidak mati seketika, kalian berdua akan baik-baik saja. +BARRIERmu masih aktif. Sungguh, mengapa semuanya berakhir seperti ini?" (Dewa)
+
+Jika +BARRIER Aku masih aktif, itu agak melegakan.
+
 Dewa menjawab dengan nada tidak percaya tetapi menatapku dengan rasa ingin tahu karena suatu alasan.
+
 Mengesampingkan kebenaran kata-katanya untuk saat ini, aku sekali lagi mengalihkan perhatianku ke cermin tepat di depanku.
 
-Seperti yang kupikirkan sebelumnya, gadis di cermin itu terlihat seperti Ciel. Skema warna adalah Jepang dengan Ciel sebagai dasarnya.
+Seperti yang kupikirkan sebelumnya, gadis di cermin itu terlihat seperti Ciel. Skema warnanya adalah Jepang dengan tampilan Ciel sebagai dasarnya.
+
 Dengan kata lain, dia cukup cantik.
 
 Saat aku mengangkat tangan kananku, gadis di cermin mengangkat tangan kirinya.
-Aku mengangkat tangan kiriku dan dia mengangkat tangan kanannya.
-Aku meringis dan dia juga.
 
-Aku mengerti, itu cermin. Dengan kata lain, ini akan menjadi penampilan Aku jika Aku pernah memiliki tubuh. Tapi, berdasarkan pengalaman hidup Aku sendiri, Aku seharusnya berusia di atas 30 tahun.
+Aku mengangkat tangan kiriku dan dia mengangkat tangan kanannya.
+
+Aku meringis dan dia juga meringis.
+
+Aku mengerti, itu adalah cermin. Dengan kata lain, ini penampilanku jika Aku memiliki tubuh. Tapi, berdasarkan pengalaman hidupku sendiri, Aku seharusnya berusia di atas 30 tahun.
+
 Pertama-tama, mengapa Aku terlihat mirip dengan Ciel?
 
-Mengapa Aku terlihat seperti ini?」
-Kami akhirnya kembali ke topik. Itu karena jiwamu telah berubah agar sesuai dengan tubuh Ciel.」
-Aku tidak benar-benar berpikir bahwa ada sesuatu yang berubah dari sebelum aku mati dan sekarang.
-Lagipula, ingatanku terus berlanjut dari sebelumnya.」
-Kamu tidak memiliki fiksasi pada penampilanmu sebelumnya, kan?」
-Yah, itu benar.
+"Mengapa Aku terlihat seperti ini?" (Ain)
 
-Aku bahkan tidak terpaku pada jenis kelamin Aku.
-Jika Aku, maka Aku tidak akan mengubah cara Aku berbicara.
-Sebaliknya, bagaimana Aku berbicara di masa lalu?
+"Kita akhirnya kembali ke topik. Itu karena jiwamu telah berubah agar sesuai dengan tubuh Ciel." (Dewa)
 
-Jika Kamu ingin tetap menjadi pria bagaimanapun caranya, maka segalanya akan berbeda; tetapi karena Kamu tidak menunjukkan perlawanan apa pun, jiwa Kamu secara bertahap beradaptasi dengan tubuhnya.
-Karena Kamu sedang menghantui dirinya dalam arti, tidak boleh ada kejutan untuk tubuh Kamu harus didasarkan pada tubuh inang. 」
-「Itu...... tidak masuk akal.」
-「 Selain itu, penampilan bukanlah hal yang paling penting, don setuju gak?
-Ada orang yang dewasa meski terlihat muda, ada juga yang berbicara kekanak-kanakan meski terlihat galak. Yang penting kamu jadi dirimu sendiri,」(Yumemura Reon-kun.)
+"Aku tidak benar-benar berpikir bahwa ada sesuatu yang berubah dari sebelum aku mati dan sekarang. Lagipula, ingatanku terus berlanjut dari sebelumnya." (Ain)
+
+"Kamu tidak memiliki fiksasi pada penampilanmu sebelumnya, kan?" (Dewa)
+
+"Yah, itu benar." (Ain)
+
+Aku bahkan tidak terpaku pada jenis kelaminku.
+
+Jika iya, maka Aku tidak akan mengubah caraku berbicara. Sebaliknya, bagaimana Aku berbicara di masa lalu?
+
+"Jika Kamu ingin tetap menjadi pria bagaimanapun caranya, maka segalanya akan berbeda. tetapi karena Kamu tidak menunjukkan perlawanan apa pun, jiwamu secara bertahap beradaptasi dengan tubuhnya. Karena Kamu sedang menghantui dirinya, itu tidak mengejutkan tubuhmu harus mengikuti tubuhnya." (Dewa)
+
+"Itu...... tidak masuk akal." (Ain)
+
+"Selain itu, penampilan bukanlah hal yang paling penting, bukankah kamu setuju? Ada orang yang dewasa meski terlihat muda, ada juga yang berbicara kekanak-kanakan meski terlihat galak. Yang penting kamu jadi dirimu sendiri, (Yumemura Reon-kun.)" (Dewa)
 
 Tiba-tiba, nama seseorang bergema di kepalaku, mengejutkanku.
-Untuk sesaat, aku bertanya-tanya siapa yang dia bicarakan tetapi aku yang dia maksud, ya. Juga, sepertinya dia mempertimbangkan hal itu hanya untuk memastikan.
+
+Untuk sesaat, aku bertanya-tanya siapa yang dia bicarakan tetapi itu adalah aku. Juga, sepertinya dia mempertimbangkan hal itu hanya untuk memastikan.
+
 Yumemura Reon. Tentu saja, Aku pikir Aku memiliki nama itu. Hampir tidak ada gunanya sejak aku datang ke dunia ini, jadi aku benar-benar melupakannya.
 
-...... Bahkan Aku tidak berpikir bahwa Kamu akan melupakan nama Kamu sendiri, Kamu tahu?」
-Yumemura Reon sudah mati. Yang di depanmu adalah Ainsel.」
-Ainsel…… kan? Aku tahu persis mengapa Kamu memilih untuk menamai diri Kamu seperti itu, tetapi... apakah Kamu yakin tentang itu?」
-Aku sendiri bertanya-tanya tentang itu. Sejauh ini, Aku tidak menyesal. Kupikir. kan
+"...... Bahkan Aku tidak berpikir bahwa Kamu akan melupakan namamu sendiri." (Dewa)
+
+"Yumemura Reon sudah mati. Yang di depanmu adalah Ainsel." (Ain)
+
+"Ainsel...... ya? Aku tahu mengapa Kamu memilih untuk menamai dirimu seperti itu, tetapi... apakah Kamu yakin tentang itu?" (Dewa)
+
+"Aku sendiri bertanya-tanya tentang itu. Sejauh ini, kupikir Aku tidak menyesal." (Ain)
 
 Ainsel adalah nama peri tertentu. Tepatnya, Aku pikir itu sedikit berbeda tetapi dalam situasi ini, detailnya tidak penting.
 
-「Maafkan aku karena kurangnya pengetahuan Aku, tetapi mungkin Aku bertanya apa yang Kamu memerintah sebagai dewa?」
-「Oh , seperti cara yang tidak wajar mengubah topik, bukan?
-Meskipun tidak ada alasan bagiku untuk menjawab pertanyaan manusia, aku akan menjawabnya.
-Aku adalah dewa yang mengatur penciptaan dan kehancuran. Dewa Pencipta, begitulah. Dewa tertinggi. Pencipta dan pengawas dari beberapa dunia, atau perpecahan ilahi mereka tepatnya.」
-Tubuh asli berada di tempat yang berbeda?」
-Benar, persis seperti itu. Tubuh asliku tidak bisa begitu saja datang ke hadapan siapa pun mau tak mau, dan bahkan dalam bentuk ini, aku terbatas untuk tinggal di alam dewa setiap dunia. Jika Aku sembarangan menunjukkan diri Aku di hadapan manusia, orang itu akan dihancurkan oleh kekuatan Aku saat melihat Aku.
-Aku hanya memiliki lebih banyak pertanyaan sekarang, tetapi, tentang itu... Apakah Aku akan baik-baik saja?」
-Alasan kami di sini justru untuk mengajari Kamu tentang itu. Meskipun kata pengantar untuk ini menjadi sangat panjang karena suatu alasan.
+"Maafkan aku karena kurangnya pengetahuanku, tetapi mungkin Aku bertanya kamu adalah dewa apa?" (Ain)
+
+"Oh , cara yang tidak wajar mengubah topik, bukan? Meskipun tidak ada alasan bagiku untuk menjawab pertanyaan manusia, aku akan menjawabnya. Aku adalah dewa yang mengatur penciptaan dan kehancuran. Dewa Pencipta, begitulah. Dewa tertinggi. Pencipta dan pengawas dari beberapa dunia, atau lebih tepatnya perpecahan dunia." (Dewa)
+
+"Tubuh aslimu berada di tempat yang berbeda?" (Ain)
+
+"Benar, persis seperti itu. Tubuh asliku tidak bisa begitu saja datang ke hadapan siapa pun, dan bahkan dalam bentuk ini, aku terbatas untuk berada di alam dewa setiap dunia. Jika Aku sembarangan menunjukkan diriku di hadapan manusia, orang itu akan dihancurkan oleh kekuatanku saat melihatku." (Dewa)
+
+"Aku jadi memiliki lebih banyak pertanyaan sekarang, tetapi, tentang itu... Apakah Aku akan baik-baik saja?" (Ain)
+
+"Alasan kita di sini justru untuk memberitahumu tentang itu. Meskipun pembukaan ini menjadi sangat panjang karena suatu alasan." (Dewa)
 
 Memang, tidak bisa dipungkiri butuh waktu untuk mencapai titik ini.
-Tetap saja, Aku tiba-tiba dibawa ke tempat yang tidak dikenal ini dan bahkan terpisah dari Ciel, jadi mengingat ini kami benar-benar masuk ke subjek utama dengan cepat.
 
-「Haha , cukup benar. Kamu lebih keras kepala dari yang Aku bayangkan.
-Sekarang, izinkan Aku menjelaskan situasi saat ini. Ini adalah lokasi di alam dewa yang paling dekat dengan permukaan. Kamu dapat menganggap ini sebagai area kerja Aku.
-Karena kamu kehilangan kesadaran di tempat Fii, aku terhubung dengan mimpimu. Dengan kata lain, Kamu sedang tidur.
+Tetap saja, Aku tiba-tiba dibawa ke tempat yang tidak dikenal ini dan bahkan terpisah dari Ciel, jadi mengingat hal ini kami benar-benar masuk ke subjek utama dengan cepat.
+
+"Haha , cukup benar. Kamu lebih keras kepala dari yang Aku bayangkan. Sekarang, izinkan Aku menjelaskan situasi saat ini. Ini adalah lokasi di alam dewa yang paling dekat dengan permukaan. Kamu dapat menganggap ini sebagai area kerjaku. Karena kamu kehilangan kesadaran di tempat Fii, aku terhubung dengan mimpimu. Dengan kata lain, Kamu sedang tidur." (Dewa)
 
 Ada banyak hal yang sulit Aku pahami.
+
 Karena tempat Fiiyanamia-sama adalah sebuah kuil, terhubung ke alam dewa masih bisa dimengerti, kurasa.
-Tapi, semua yang Aku diberitahu adalah bahwa oracle bisa turun. Aku tidak pernah diberitahu bahwa Aku bisa dibawa ke alam dewa.
+
+Tapi, semua yang diberitahu kepadaku adalah bahwa wahyu dewa bisa muncul. Aku tidak pernah diberitahu bahwa Aku bisa dibawa ke alam dewa.
 
 (Bab ini disediakan untuk Kamu oleh Re:Library)
 
@@ -155,7 +176,7 @@ Oracle, kan...... Itu hanya bisa menyampaikan hal-hal secara sepihak dari sisi i
 Sesuatu seperti itu. Detail yang dapat dikomunikasikan juga terbatas panjangnya. Biasanya, ini sudah cukup, tetapi, dalam kasus Kamu, situasi Kamu agak rumit, jadi jika terjadi sesuatu, Aku berencana untuk berkomunikasi dengan Kamu dengan cara ini.
 Dengan kata lain, Aku sudah mempersiapkan ini sejak lama. Ini baru terjadi sekarang karena Kamu akhirnya memenuhi persyaratan.
 
-Syaratnya… mungkin datang ke kuil.
+Syaratnya... mungkin datang ke kuil.
 Jadi karena Aku dengan keras kepala menjaga jarak dari satu, tidak ada kesempatan untuk ini sampai sekarang.
 
 Sesuatu seperti itu.」
