@@ -4,26 +4,31 @@ CHAPTER 82: AIN, GOD, AND THE TRUTH SECOND HALF
 
 "Aku tidak ragu tentang masalah itu." (Ain)
 
-Apakah Kamu yakin tentang itu? Bisakah Kamu benar-benar membuktikan bahwa Kamu bukan hanya kepribadian ganda yang lahir dengan ingatan individu yang benar-benar acak?」
-Yah, Aku tentu tidak bisa tapi ……」
+"Apakah Kamu yakin tentang itu? Bisakah Kamu benar-benar membuktikan bahwa Kamu bukan hanya kepribadian ganda yang lahir dengan ingatan individu yang benar-benar acak?" (Dewa)
 
-Jika Kamu membicarakannya, bahkan jika Kamu mengatakan bahwa dunia baru saja dibuat semenit yang lalu, tidak akan ada cara untuk membuktikannya juga.
+"Yah, Aku tentu tidak bisa tapi......" (Ain)
+
+Jika Kamu berbicara seperti itu, bahkan jika Kamu mengatakan bahwa dunia baru saja dibuat semenit yang lalu, tidak akan ada cara untuk membuktikannya juga.
+
 Saat aku memikirkan itu, aku hanya bisa mengerutkan alisku.
-Melihatku merajuk, Dewa Pencipta terkekeh lagi.
 
-Kamu benar-benar tidak baik tanpa Cielmer, bukan?
-Kembali ke topik, bukankah fakta bahwa persepsi diri Kamu benar menjadi tolok ukur penting?」
-Ya, itu benar. Itu jauh lebih baik daripada diberitahu bahwa semua yang Aku tahu setidaknya adalah kesalahpahaman.
+Melihatku seperti ini, Dewa Pencipta terkekeh lagi.
 
-Dengan kata lain, Aku bukan psikopat di bawah khayalan bahwa Aku memiliki ingatan tentang Yumemura Reon.
+"Kamu benar-benar kacau tanpa Cielmer, huh? Kembali ke topik, bukankah fakta bahwa persepsi dirimu benar menjadi tolok ukur penting?" (Dewa)
+
+"Ya, itu benar. Itu jauh lebih baik daripada diberitahu bahwa semua yang Aku tahu setidaknya adalah kesalahpahaman." (Ain)
+
+Dengan kata lain, Aku bukan psikopat di bawah khayalan yang mana Aku memiliki ingatan tentang Yumemura Reon.
+
 Atau lebih tepatnya, Aku kira Aku harus senang bahwa Yumemura Reon benar-benar ada sejak awal.
 
-Kamu mati sekali dan bereinkarnasi di dunia ini.
-Awalnya, jiwa orang mati seharusnya diformat ulang dan disesuaikan kembali sebelum dikirim ke dunia sebagai orang yang sama sekali berbeda.
-Itu sebabnya ini sebenarnya kedua kalinya Kamu datang ke sini, bukan yang pertama. Jiwa tepat setelah kematian memasuki keadaan tidak aktif sehingga untuk berbicara dan tidak akan bangun sampai reinkarnasi mereka, sehingga Kamu mungkin tidak mengingatnya.」
-Apakah reinkarnasi antar-dunia tidak biasa?」
-Tidak sama sekali. Reinkarnasi di dunia yang sama adalah hal biasa, tetapi Aku sering melakukannya dengan dunia di bawah yurisdiksi Aku untuk pengaturan keseimbangan karena jiwa akan diformat ulang.」
-Jadi reinkarnasi Aku sendiri bukanlah sesuatu yang istimewa saat itu.」
+"Kamu mati sekali dan bereinkarnasi di dunia ini. Awalnya, jiwa orang mati seharusnya diformat ulang dan disesuaikan kembali sebelum dikirim ke dunia sebagai orang yang sama sekali berbeda. Itu sebabnya ini sebenarnya kedua kalinya Kamu datang ke sini, bukan yang pertama kalinya. Jiwa ketika setelah kematian memasuki keadaan tidak aktif tidak dapat berbicara dan tidak akan bangun sampai reinkarnasi mereka, sehingga Kamu mungkin tidak mengingatnya." (Dewa)
+
+"Apakah reinkarnasi antar-dunia tidak biasa?" (Ain)
+
+"Tidak sama sekali. Reinkarnasi di dunia yang sama adalah hal biasa, tetapi Aku sering melakukannya dengan dunia di bawah yurisdiksiku untuk pengaturan keseimbangan karena jiwa akan diformat ulang." (Dewa)
+
+"Jadi reinkarnasi Aku sendiri bukanlah sesuatu yang istimewa saat itu." (Ain)
 
 Seperti yang dikatakan Dewa Pencipta, karena jiwa akan diformat ulang dan disesuaikan lagi, tidak masalah dunia mana mereka dikirim.
 Aku kira itu berarti bahwa jenis reinkarnasi yang Aku baca dalam cerita sebenarnya hanyalah fiksi.
@@ -129,7 +134,7 @@ Jadi jika kita secara hipotetis menghukum Respeliga, bukan berarti Tuhan Pencipt
 Jadi, ketika kamu mengalahkan monster yang dia ciptakan, kalian berdua bersentuhan dengan apa yang bisa kamu sebut atmosfer alam dewa.
 Pada saat itu, kekuatan ilahi Aku berasimilasi dengan Kamu. Kelebihan yang tersisa, semuanya.」
 ...... Tunggu, bukankah itu akan mengubahku menjadi dewa?」
-Meskipun aku sering menyebutnya, itu masih hanya sebagian kecil dari diriku, jadi kamu hanya setengah-…… atau lebih tepatnya 1/10 dewa?
+Meskipun aku sering menyebutnya, itu masih hanya sebagian kecil dari diriku, jadi kamu hanya setengah-...... atau lebih tepatnya 1/10 dewa?
 Meskipun itu hanya jumlah yang sangat kecil bagi kita, itu akan berubah menjadi kekuatan yang sangat kuat di permukaan. Karena itu, hanya ada beberapa yang bisa menembus penghalang yang diresapi kekuatan suci milikmu.
 
 Sebuah penghalang diresapi dengan kekuatan dewa. Yah tidak heran Fiiyanamia-sama lebih suka tidak bertarung melawanku.
