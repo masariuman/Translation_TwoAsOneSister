@@ -1,7 +1,9 @@
 CHAPTER 82: AIN, GOD, AND THE TRUTH SECOND HALF
 
-Pertama-tama, Kamu bukan kepribadian yang tiba-tiba muncul dari Cielmer. Kamu tidak diragukan lagi adalah jiwa dari seseorang yang telah meninggal di dunia lain.」
+"Pertama-tama, Kamu bukanlah kepribadian yang tiba-tiba muncul dari Cielmer. Kamu tidak diragukan lagi adalah jiwa dari seseorang yang telah meninggal di dunia lain." (Ain)
+
 Aku tidak benar-benar ragu tentang masalah itu.
+
 Apakah Kamu yakin tentang itu? Bisakah Kamu benar-benar membuktikan bahwa Kamu bukan hanya kepribadian ganda yang lahir dengan ingatan individu yang benar-benar acak?」
 Yah, Aku tentu tidak bisa tapi ……」
 
