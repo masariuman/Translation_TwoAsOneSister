@@ -28,77 +28,88 @@ Atau lebih tepatnya, Aku kira Aku harus senang bahwa Yumemura Reon benar-benar a
 
 "Tidak sama sekali. Reinkarnasi di dunia yang sama adalah hal biasa, tetapi Aku sering melakukannya dengan dunia di bawah yurisdiksiku untuk pengaturan keseimbangan karena jiwa akan diformat ulang." (Dewa)
 
-"Jadi reinkarnasi Aku sendiri bukanlah sesuatu yang istimewa saat itu." (Ain)
+"Jadi reinkarnasiku sendiri bukanlah sesuatu yang istimewa saat itu." (Ain)
 
 Seperti yang dikatakan Dewa Pencipta, karena jiwa akan diformat ulang dan disesuaikan lagi, tidak masalah dunia mana mereka dikirim.
-Aku kira itu berarti bahwa jenis reinkarnasi yang Aku baca dalam cerita sebenarnya hanyalah fiksi.
 
-Game baru plus sortir, kan? Aku tidak bisa mengatakan bahwa itu tidak pernah terjadi.
-Bagaimanapun, Aku telah membiarkan beberapa orang bereinkarnasi dengan ingatan mereka secara utuh dan ada saat-saat jiwa orang mati terbangun sebelum bereinkarnasi dan bernegosiasi dengan Aku.
-Secara umum, itu semua tergantung pada suasana hati Aku saat itu. Namun, dalam kasus Kamu, sejujurnya Aku tidak berniat melakukan semua ini. Tidak sama sekali."
+itu berarti bahwa jenis reinkarnasi yang Aku baca dalam cerita sebenarnya hanyalah fiksi.
 
-Dari apa yang Aku dengar sejauh ini, Aku pikir itu juga masalahnya.
-Sebaliknya, tidak ada alasan bagi Aku, yang belum melakukan sesuatu yang luar biasa dalam hidup Aku, untuk diberikan perlakuan khusus.
+"seperti new game plus, kan? Aku tidak bisa mengatakan bahwa itu tidak pernah terjadi. Bagaimanapun juga, Aku telah membiarkan beberapa orang bereinkarnasi dengan ingatan mereka secara utuh dan ada saat-saat jiwa orang mati terbangun sebelum bereinkarnasi dan bernegosiasi denganku. Secara umum, itu semua tergantung pada suasana hati Aku saat itu. Tapi, dalam kasusmu, sejujurnya Aku tidak berniat melakukan semua ini. Tidak sama sekali." (Dewa)
 
-Namun, Aku memang berencana memberi Kamu bakat khusus sihir.
-Aku sementara menempatkan parameter sihir Kamu ke maksimum dan merenungkan bagaimana Aku harus menguranginya, Kamu mengerti?
-Istilah "parameter" dan seterusnya hanyalah analogi. Lebih mudah untuk memahami seperti ini, kan?」
-Ya, terima kasih banyak.
+Dari apa yang Aku dengar sejauh ini, Aku juga berpikir itu masalahnya.
+
+Sebaliknya, tidak ada alasan bagiku, yang belum melakukan sesuatu yang luar biasa dalam hidupku, untuk diberikan perlakuan khusus.
+
+"Tapi, Aku memang berencana memberimu bakat khusus sihir. Aku sementara menempatkan parameter sihirmu ke maksimum dan merenungkan bagaimana Aku harus menguranginya, Kamu mengerti? Istilah "parameter" dan seterusnya hanyalah analogi. Lebih mudah untuk memahami seperti ini, kan?" (Dewa)
+
+"Ya, terima kasih banyak." (Ain)
 
 Bukankah berurusan dengan jiwa yang bereinkarnasi satu per satu akan memakan waktu?
-Mungkin tidak perlu berspekulasi tetapi dia kemungkinan berurusan dengan banyak jiwa secara paralel menggunakan semacam kekuatan dewa atau lebih.
 
-"Sesuatu seperti itu. Aku am a Agung Dewa setelah semua. 」
-「Bahkan ketika kita berbicara santai sekarang, Aku yakin bahwa Kamu terus-menerus bekerja di belakang layar.」
-「Hahaha , menghormati Aku.」
-「 Bahkan tanpa itu, Aku dewa sudah memuja.」
+Mungkin tidak perlu berspekulasi tetapi dia kemungkinan berurusan dengan banyak jiwa secara paralel menggunakan semacam kekuatan dewa atau semacamnya.
 
-Selama hidup Aku, Aku tidak ingat secara khusus memikirkan tentang dewa.
-Namun, Aku menundukkan kepala Aku di depan gapura kuil setiap kali Aku pergi ke kuil dan Aku setidaknya mengatupkan kedua tangan Aku di depan patung jizou.
+"Yaah seperti itulah. Pada dasarnya aku adalah dewa terhebat." (Dewa)
+
+"Bahkan ketika kita berbicara santai sekarang, Aku yakin bahwa Kamu terus-menerus bekerja di belakang layar." (Ain)
+
+"Hahaha , Pujalah Aku." (Dewa)
+
+"Bahkan tanpa itu, Aku sudah memuja dewa." (Ain)
+
+Selama hidupku, Aku tidak ingat memikirkan tentang dewa.
+
+Tapi, Aku menundukkan kepalaku di depan gapura kuil setiap kali Aku pergi ke kuil dan Aku setidaknya mengatupkan kedua tanganku di depan patung jizou.
+
 Itu sebabnya dengan dewa di hadapanku sekarang, aku menunjukkan rasa hormat.
 
-「Menimbang bahwa, Kamu sangat siap untuk menghilangkan Aku sebelumnya.」
-「Ciel lebih penting setelah semua.」
-「Fufufu. Sekarang, ke topik utama. Saat aku menyesuaikan jiwamu, sesuatu yang tidak terduga terjadi.」
-...... Ada gangguan dari permukaan?」
-Tepat. Si bodoh yang kurang ajar itu mencoba untuk menangkapku, seorang dewa, jadi aku membiarkan dia mengambil jiwa yang ada di tanganku dengan seenaknya.
-Aku bisa menelusuri kembali gangguan dan memotongnya pada sumbernya tetapi mengingat upayanya untuk mencapai alam dewa sementara hanya fana, Aku memilih itu sebagai gantinya.
+"Menimbang itu, Kamu sangat siap untuk melenyapkanku sebelumnya." (Dewa)
+
+"Ciel lebih penting bagiku." (Ain)
+
+"Fufufu. Sekarang, ke topik utama. Saat aku menyesuaikan jiwamu, sesuatu yang tidak terduga terjadi." (Dewa)
+
+"...... Ada gangguan dari permukaan?" (Ain)
+
+"Tepat. Si bodoh yang kurang ajar itu mencoba untuk menangkapku, seorang dewa, jadi aku membiarkan dia mengambil jiwa yang ada di tanganku dengan seenaknya. Aku bisa menelusuri kembali gangguan dan memotong pada sumbernya tetapi mengingat upayanya untuk mencapai alam dewa sementara dia hanya manusia biasa, Aku memilih itu sebagai gantinya." (Dewa)
 
 Apakah Aku semacam penghargaan sekarang?
-Atau lebih tepatnya, karena dia berhasil mencapai alam dewa, apakah para dewa akan baik-baik saja?
-Paling buruk, eksperimen pria itu bahkan mungkin berhasil.
 
-Mengenai itu, tidak ada yang perlu dikhawatirkan. Meskipun dia mungkin telah melangkah ke alam dewa, sepertinya dia tidak bisa berbuat banyak di sini.
-Semut mungkin berjalan di permukaan, tetapi seekor semut tidak memiliki peluang untuk melawan seseorang. Ini mirip dengan itu. Padahal, pada kenyataannya, rintangannya sangat berbeda jika dibandingkan.」
-Bagaimanapun, karena Dewa Pencipta membiarkanku ditangkap, aku tiba di sisi Ciel, apakah itu benar?」
-Selain itu, karena aku belum memformat ulangmu, kamu masih memiliki kenangan Kamu; dan kau begitu mahir dalam sihir karena aku sudah mengutak-atik parameter berbasis sihirmu. Jika waktunya sedikit miring, Kamu mungkin tidak akan mahir seperti saat ini dengan sihir dan Kamu mungkin bahkan tidak memiliki ingatan Kamu.
-Jika Aku tidak memiliki ingatan Aku, Aku mungkin akan panik di dalam Ciel.
+Atau lebih tepatnya, karena dia berhasil mencapai alam dewa, apakah para dewa akan baik-baik saja?
+
+eksperimen pria itu bahkan mungkin berhasil.
+
+"Mengenai itu, tidak ada yang perlu dikhawatirkan. Meskipun dia mungkin telah melangkah ke alam dewa, sepertinya dia tidak bisa berbuat banyak di sini. Semut mungkin berjalan di permukaan, tetapi seekor semut tidak memiliki peluang untuk melawan seseorang. Ini mirip dengan itu. yaah pada kenyataannya, rintangannya sangat berbeda jika dibandingkan dengan itu." (Dewa)
+
+"Bagaimanapun juga, karena Dewa Pencipta membiarkanku ditangkap, aku tiba di sisi Ciel, apakah itu benar?" (Ain)
+
+"Selain itu, karena aku belum memformat ulangmu, kamu masih memiliki ingatan lamamu. dan kamu begitu mahir dalam sihir karena aku sudah mengutak-atik parameter sihirmu. Jika masih ada waktu, Kamu mungkin tidak akan mahir seperti saat ini dengan sihir dan Kamu mungkin bahkan tidak memiliki ingatanmu." (Dewa)
+
+"Jika Aku tidak memiliki ingatan Aku, Aku mungkin akan panik di dalam Ciel." (Ain)
 
 Jika itu terjadi, aku mungkin akan menangis setiap kali Ciel mulai menangis.
 
-「Oh ? Aku mengharapkan Kamu untuk setidaknya memiliki beberapa keluhan terhadap Aku, tapi tampaknya Kamu tidak. 」
-「 Menimbang bahwa berkat itu untuk ini bahwa Ciel diselamatkan, baik...... Selain itu, dari bagaimana itu akan, Kamu tidak melakukan sesuatu untuk kita , kan?」
-Benar, kan. Karena Aku agak mengerti apa yang bisa terjadi di tujuan yang Kamu tuju, Aku menemukan nasib Kamu yang akan datang agak disayangkan, jadi Aku memutuskan untuk melindungi Kamu setidaknya sampai Kamu mencapai usia 15 tahun, usia dewasa yang diterima di dunia ini. 」
-「Jadi itu sebabnya Kamu mengatakan kita akan baik-baik sampai kita mencapai 15 tahun.」
-「 Biasanya, kekuatan mental anak tidak akan mampu menanggung mutilasi perut sehari-hari, Kamu tahu? Mereka hanya akan mati.
-Bahkan jika mereka tidak benar-benar dipotong, orang mati jika mereka benar-benar percaya bahwa mereka telah dipotong atau ditikam, Kamu tahu?
+"Oh ? Aku mengharapkan Kamu untuk setidaknya memiliki beberapa keluhan kepadaku, tapi sepertinya tidak." (Dewa)
 
-Sekarang dia menyebutkannya, Ciel bertahan melalui lima tahun pertama kami bukanlah keajaiban.
+"Menimbang bahwa berkat itu Ciel diselamatkan, yaaaah...... Selain itu, apapun yang terjadi, Kamu tidak melakukan sesuatu keapda kami, kan?" (Ain)
+
+"Benar, Benar. Karena Aku agak mengerti apa yang terjadi di tujuan yang Kamu tuju, Aku menemukan nasibmu yang akan datang agak disayangkan, jadi Aku memutuskan untuk melindungimu setidaknya sampai Kamu mencapai usia 15 tahun, usia dewasa yang diterima di dunia ini." (Dewa)
+
+"Jadi itu sebabnya Kamu mengatakan kami akan baik-baik sampai kami mencapai 15 tahun." (Ain)
+
+"Biasanya, kekuatan mental anak-anak tidak akan mampu menanggung mutilasi perut sehari-hari, Kamu tahu? Mereka hanya akan mati. Bahkan jika mereka tidak benar-benar dipotong, orang mati jika mereka benar-benar percaya bahwa mereka telah dipotong atau ditikam, Kamu tahu?" (Dewa)
+
+Sekarang setelah dia mengatakannya, Ciel bertahan selama lima tahun pertama kami bukanlah keajaiban.
+
 Sementara Aku melakukan sebanyak yang Aku bisa untuk melindungi Ciel, Aku tidak bisa menghentikan satu kebrutalan yang dia sebut waktu makan.
 
-Tepatnya, sebelum kamu diambil, aku menyematkan sebagian diriku di dalam dirimu.
-Dengan melakukan itu, Aku dapat menemukan lokasi Kamu dan melindungi Kamu berdua.
-
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"Tepatnya, sebelum kamu diambil, aku menyematkan sebagian diriku di dalam dirimu. Dengan melakukan itu, Aku dapat menemukan lokasimu dan melindungi kalian berdua." (Dewa)
 
 Kalau begitu, apakah itu berarti semua usaha yang kulakukan pada akhirnya sia-sia?
-Itu sedikit membuat depresi. Namun, ketika Aku sedang sengsara, Dewa Pencipta melanjutkan penjelasannya.
+Itu sedikit membuat depresi. Tapi, ketika Aku sedang sengsara, Dewa Pencipta melanjutkan penjelasannya.
 
-Namun, Aku memiliki dua kesalahan perhitungan.
+Tapi, Aku memiliki dua kesalahan perhitungan.
 Yang pertama adalah bahwa seseorang bekerja terlalu keras. Sebelum Aku memasukkan sebagian dari diri Aku ke dalam diri Kamu, Aku menghitungnya sehingga semua kekuatan Aku akan hilang pada saat Kamu berdua mencapai usia 15 tahun.
-Namun, Kamu bekerja sendiri lebih keras dari yang Aku bayangkan. Sebagai hasil dari usaha Kamu, ada lebih banyak kekuatan Aku yang tersisa daripada yang Aku perkirakan sebelumnya.
+Tapi, Kamu bekerja sendiri lebih keras dari yang Aku bayangkan. Sebagai hasil dari usaha Kamu, ada lebih banyak kekuatan Aku yang tersisa daripada yang Aku perkirakan sebelumnya.
 
 Usaha Kamu tidak sia-sia. Meskipun Kamu mencapai tingkat kemahiran Kamu saat ini dengan bantuan dari Aku, Kamu hanya mencapainya karena usaha Kamu sendiri.
 Beberapa tahun terakhir ini, Kamu telah meneliti sihir dan sihir selama 24 jam sehari. Orang akan menganggap itu kegilaan. Selain itu, Kamu selalu waspada. Kamu praktis dalam mode siap tempur yang konstan.
@@ -119,7 +130,7 @@ Aku akan mengatakan ini hanya untuk memastikan tetapi bagian dari diri Aku ini �
 Karena itu ada di dalam dirimu, tidak peduli apa yang dilakukan Cielmer, dia tidak akan bisa merasakan jejak atau kehadiran kekuatan suci ini.」
 Aku mengerti.
 Bagus. Sekarang, terlepas dari kenyataan bahwa ada banyak yang tersisa, itu tidak akan menjadi masalah selama kamu secara bertahap menghabiskan semua divine power setelah mencapai usia 15 tahun ke atas.
-Namun, di sinilah kesalahan perhitungan kedua terjadi.」
+Tapi, di sinilah kesalahan perhitungan kedua terjadi.」
 Utusan Ilahi Buatan.
 Benar, itu. Benda itu dibuat oleh individu yang membawamu, kan? Tapi kali ini dia memanfaatkan kekuatan suci yang hanyut di dunia. Serius, umat manusia cukup kreatif.
 
