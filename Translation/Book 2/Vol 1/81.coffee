@@ -167,63 +167,86 @@ Karena tempat Fiiyanamia-sama adalah sebuah kuil, terhubung ke alam dewa masih b
 
 Tapi, semua yang diberitahu kepadaku adalah bahwa wahyu dewa bisa muncul. Aku tidak pernah diberitahu bahwa Aku bisa dibawa ke alam dewa.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Wahyu, ya...... Itu hanya bisa menyampaikan hal-hal secara sepihak dari satu sisi, Kamu tahu? sesuatu seperti 'Seekor monster telah muncul ini dan itu. Pada tingkat ini, negara akan berada dalam bahaya, jadi mengapa Kamu tidak membentuk tim penakluk?'. Detail yang dapat dikomunikasikan juga terbatas panjangnya. Biasanya, ini sudah cukup, tetapi, dalam kasusmu, situasimu agak rumit, jadi jika terjadi sesuatu, Aku berencana untuk berkomunikasi denganmu dengan cara ini. Dengan kata lain, Aku sudah mempersiapkan ini sejak lama. Ini baru terjadi sekarang karena Kamu akhirnya memenuhi persyaratan." (Dewa)
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+Syarat... mungkin datang ke kuil.
 
-Oracle, kan...... Itu hanya bisa menyampaikan hal-hal secara sepihak dari sisi ini, Kamu tahu?
-'Seekor monster muncul ini dan itu. Pada tingkat ini, negara akan berada dalam bahaya, jadi mengapa Kamu tidak membentuk tim penakluk?'
-Sesuatu seperti itu. Detail yang dapat dikomunikasikan juga terbatas panjangnya. Biasanya, ini sudah cukup, tetapi, dalam kasus Kamu, situasi Kamu agak rumit, jadi jika terjadi sesuatu, Aku berencana untuk berkomunikasi dengan Kamu dengan cara ini.
-Dengan kata lain, Aku sudah mempersiapkan ini sejak lama. Ini baru terjadi sekarang karena Kamu akhirnya memenuhi persyaratan.
+Jadi karena Aku dengan keras kepala menjaga jarak dari kuil, tidak ada kesempatan untuk ini sampai sekarang.
 
-Syaratnya... mungkin datang ke kuil.
-Jadi karena Aku dengan keras kepala menjaga jarak dari satu, tidak ada kesempatan untuk ini sampai sekarang.
+"Sesuatu seperti itu." (Dewa)
 
-Sesuatu seperti itu.」
-Apa yang akan Kamu katakan kepada Aku?」
-Pada dasarnya segala sesuatu tentang keberadaan Kamu, Aku kira? Meskipun Aku hanya dapat memberi tahu Kamu tentang apa yang telah Aku rusak, jadi jangan berharap bahwa Aku akan mengatakan segalanya tentang Kamu.」
-Lalu... Kamu melakukan sesuatu kepada Aku, Dewa Pencipta?」
-Kamu mengatakannya seperti itu tapi Kamu sudah menebak bahwa dewa setidaknya terlibat dengan Kamu, bukan?」
-Seperti yang Kamu katakan.
+"Apa yang akan Kamu katakan kepadaku?" (Ain)
 
-Sejak beberapa waktu lalu, aku tidak bisa menyembunyikan apapun darinya.
-Lagipula dia hanya dengan santai menanggapi pikiranku, dewa ini bukan lelucon.
+"Pada dasarnya segala sesuatu tentang keberadaanmu, mungkin? Meskipun Aku hanya dapat memberi tahumu tentang apa yang telah Aku rusak, jadi jangan berharap bahwa Aku akan mengatakan segalanya tentangmu." (Dewa)
 
-Mengesampingkan itu, karena sesuatu berubah karena Utusan Ilahi Buatan, tidak sulit untuk menyimpulkan bahwa semacam entitas ilahi telah melakukan sesuatu dengan kami.
+"Jadi... Kamu melakukan sesuatu kepadaku, Dewa Pencipta?" (Ain)
 
-Simpan pertanyaan untuk nanti. Sebagai prasyarat, Aku ingin Kamu mengetahui tugas Aku di sini sebelumnya, tetapi bisakah Kamu memberi tahu?
+"Kamu berkata seperti itu tapi Kamu sudah menebak bahwa dewa setidaknya terlibat denganmu, kan?" (Dewa)
+
+"Begitulah." (Ain)
+
+Aku tidak bisa menyembunyikan apapun darinya.
+
+dia dengan santai menanggapi pikiranku, dewa ini bukan lelucon.
+
+Mengesampingkan itu, karena sesuatu berubah karena Utusan Dewa Buatan, tidak sulit untuk menyimpulkan bahwa semacam dewa telah melakukan sesuatu dengan kami.
+
+"Simpan pertanyaan untuk nanti. Aku ingin Kamu mengetahui tugasku di sini sebelumnya, tetapi apakah kamu tahu?" (Dewa)
 
 ...... Apa yang dilakukan dewa pencipta? Setelah menciptakan dunia, Aku membayangkan bahwa menjaga dunia akan menjadi tugas dewa pencipta.
+
 Dan menjadi dewa kehancuran pada saat yang sama, kurasa menghancurkan dunia juga? Aku tidak benar-benar melihat tanda-tanda itu, pada kenyataannya, dunia tampaknya tidak mendekati kehancuran.
 
-Aku tidak tahu.
-Jawabannya adalah, tugas lain-lain pada umumnya. Pada dasarnya bekerja di belakang layar. Yang mungkin mengapa keberadaan Aku tidak diketahui ke permukaan, Aku kira? Aku membuat fondasi untuk Sistem Pekerjaan.
+"Aku tidak tahu." (Ain)
+
+"Jawabannya adalah, tugas lain-lain pada umumnya. Pada dasarnya bekerja di belakang layar. Yang mungkin mengapa keberadaanku tidak diketahui ke permukaan, Mungkin? Aku membuat fondasi untuk Sistem Job." (Dewa)
 
 Dia hanya dengan santai mengatakan sesuatu yang luar biasa tetapi menjadi Dewa Pencipta, kurasa itu tidak istimewa baginya.
-Aku kira Aku harus puas hanya dengan mengetahui mengapa Aku belum pernah mendengar tentang Tuhan Pencipta sampai sekarang.
 
-Di antara ini adalah sesuatu yang hanya bisa Aku lakukan, pengelolaan jiwa antar dunia.
-Siklus kematian dan kelahiran kembali dan reinkarnasi orang mati ke dunia yang berbeda adalah pertukaran yang terjadi di antara dunia, jadi Aku satu-satunya yang bisa melakukannya, Kamu tahu?」
-Kedengarannya sulit.
-Tepat, memang begitu.. Itu sebabnya moto Aku adalah untuk setidaknya menemukan kenikmatan di mana pun Aku bisa. 」
-「Jadi itu Aku dipilih sebagai korban untuk itu kemudian?」
-「Hahaha , tepatnya begitu.」
+Aku kira Aku harus puas hanya dengan mengetahui mengapa Aku belum pernah mendengar tentang Dewa Pencipta sampai sekarang.
+
+"Di antara tugas-tugas itu adala, pengelolaan jiwa antar dunia. Siklus kematian dan kelahiran kembali dan reinkarnasi orang mati ke dunia yang berbeda adalah pertukaran yang terjadi di antara dunia, jadi Aku satu-satunya yang bisa melakukannya, Kamu tahu?" (Dewa)
+
+"Kedengarannya sulit." (Ain)
+
+"Tepat.. Itu sebabnya mottoku adalah untuk setidaknya menemukan kenikmatan di mana pun Aku bisa." (Dewa)
+
+"Jadi karena itu Aku dipilih sebagai korbannya?" (Ain)
+
+"Hahaha , tepatnya begitu." (Dewa)
 
 Dewa Pencipta mulai tertawa, tetapi Aku tidak mengerti apa yang lucu dari itu.
-Meskipun dari alur percakapan kami, tampaknya entah bagaimana terhubung dengan penggunaan kata pengorbanan Aku.
-Selain itu, apakah Dewa Pencipta adalah alasan reinkarnasi Aku?
-Kalau begitu, apakah aku memperoleh beberapa kemampuan khusus seperti yang ada di cerita?
 
-Tidak juga.
-Jadi tidak ada.
-Itu adalah kebetulan yang lengkap bahwa Aku memilih Kamu setelah semua. Hmm , tapi kurasa 'Kamu tidak seharusnya memiliki' akan lebih tepat dari sebuah pernyataan.
-Kekuatan Kamu saat ini agak terlalu kuat untuk permukaan, Kamu mengerti? Untungnya, Kamu berspesialisasi dalam pertahanan.」
-Apakah mungkin...... perlu disegel?」
-Itu tidak akan terjadi. Bagaimanapun, itu adalah sesuatu yang Kamu peroleh, kekuatan yang Kamu peroleh dalam aturan dunia.
-Aku adalah orang yang mengizinkan ini, jadi Aku tidak keberatan dengan itu.
+Meskipun dari alur percakapan kami, tampaknya entah bagaimana terhubung dengan penggunaan kata pengorbananku.
+
+Selain itu, apakah Dewa Pencipta adalah alasan reinkarnasiku?
+
+Kalau begitu, apakah aku memperoleh beberapa kemampuan khusus seperti yang ada di cerita-cerita karangan?
+
+"Tidak juga." (Dewa)
+
+"Jadi tidak ada." (Ain)
+
+"Semua Itu adalah kebetulan dimana Aku memilihmu. Hmm , tapi kurasa 'seharusnya bukan kamu' lebih tepatnya. Kekuatanmu saat ini agak terlalu kuat untuk permukaan, Kamu mengerti? Untungnya, Kamu berspesialisasi dalam pertahanan." (Dewa)
+
+"Apakah mungkin...... perlu disegel?" (Ain)
+
+"Itu tidak akan terjadi. Bagaimanapun juga, itu adalah sesuatu yang Kamu peroleh sendiri, kekuatan yang Kamu peroleh dalam aturan dunia. Aku adalah orang yang mengizinkan ini, jadi Aku tidak keberatan dengan itu." (Dewa)
 
 Itu melegakan. Jika kekuatan sihirku disegel, aku tidak akan tahu bagaimana cara melindungi Ciel.
 
-Kalau begitu, mari kita bahas topik secara berurutan; tentang seperti apa dirimu dan akan menjadi apa kamu mulai sekarang.
+"Kalau begitu, mari kita bahas topik secara berurutan, tentang seperti apa dirimu dan akan menjadi apa kamu dari sekarang." (Dewa)
 
-Mengawali dengan itu, Dewa Pencipta mulai berbicara.
+Diawali dengan itu, Dewa Pencipta mulai berbicara.
+
+----------------------------------------------------------------------
+
+Ayyoo ain ketemu dewa. Wew ain agresif banget kalau udah soal dedek ciel... bahkan dewa pun ditantangnya... mantap...
+
+Jadi dewa didunia ini tidak memiliki konsep kelamin seperti dewa pada novel lain ya... biasanya kan pasti sang dewi, bahkan ada beberapa novel yg dewinya malah masuk harem MC...
+
+yaah, ain mau ga mau jadi hode dong bahahaha... kalau ain bersikeras merasa dirinya lakik ga bakal ngikut bentuk dedek ciel jiwanya... jangankan kelamin, nama aja dilupakan sama ain sendiri... memang ain kita hanya fokus dan yang utama dedek ciel aja.... memang ciel guardian !!
+
+jadi dewa yang ditemui kali ini dewa paling tinggi ? yang mengatur job, jiwa, dll ?? terus mengapa reinkarnasi ain kebetulan ??? hanya untuk bersenang senang saja ???? terus mengapa ain mendapatkan job song princess ? apakah job memang otomatis atau dewa nya sendiri ngasi khusus ke ain job itu untuk membuktikan ke dunia tersebut job ampas bisa jadi jago ???? yaa jangankan ain, saya saja juga banyak pertanyaan... mungkin kita akan tahu beberapa jawaban di chapter berikutnya...
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
