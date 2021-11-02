@@ -105,34 +105,32 @@ Sementara Aku melakukan sebanyak yang Aku bisa untuk melindungi Ciel, Aku tidak 
 "Tepatnya, sebelum kamu diambil, aku menyematkan sebagian diriku di dalam dirimu. Dengan melakukan itu, Aku dapat menemukan lokasimu dan melindungi kalian berdua." (Dewa)
 
 Kalau begitu, apakah itu berarti semua usaha yang kulakukan pada akhirnya sia-sia?
-Itu sedikit membuat depresi. Tapi, ketika Aku sedang sengsara, Dewa Pencipta melanjutkan penjelasannya.
 
-Tapi, Aku memiliki dua kesalahan perhitungan.
-Yang pertama adalah bahwa seseorang bekerja terlalu keras. Sebelum Aku memasukkan sebagian dari diri Aku ke dalam diri Kamu, Aku menghitungnya sehingga semua kekuatan Aku akan hilang pada saat Kamu berdua mencapai usia 15 tahun.
-Tapi, Kamu bekerja sendiri lebih keras dari yang Aku bayangkan. Sebagai hasil dari usaha Kamu, ada lebih banyak kekuatan Aku yang tersisa daripada yang Aku perkirakan sebelumnya.
+Itu sedikit membuatku depresi. Tapi, ketika Aku sedang depresi, Dewa Pencipta melanjutkan penjelasannya.
 
-Usaha Kamu tidak sia-sia. Meskipun Kamu mencapai tingkat kemahiran Kamu saat ini dengan bantuan dari Aku, Kamu hanya mencapainya karena usaha Kamu sendiri.
-Beberapa tahun terakhir ini, Kamu telah meneliti sihir dan sihir selama 24 jam sehari. Orang akan menganggap itu kegilaan. Selain itu, Kamu selalu waspada. Kamu praktis dalam mode siap tempur yang konstan.
-Dengan lebih dari 12 tahun pengalaman tempur, kemampuan Kamu tidak normal dibandingkan dengan orang lain.
+"Tapi, Aku memiliki dua kesalahan perhitungan. Yang pertama adalah bahwa seseorang berusaha terlalu keras. Sebelum Aku memasukkan sebagian dari diriku ke dalam dirimu, Aku menghitungnya sehingga semua kekuatanku akan hilang pada saat Kamu berdua mencapai usia 15 tahun. Tapi, Kamu berusaha sendiri lebih keras dari yang Aku bayangkan. Sebagai hasil dari usahamu, ada lebih banyak kekuatanku yang tersisa daripada yang Aku perkirakan sebelumnya. Usahamu tidak sia-sia. Meskipun Kamu mencapai tingkatmu saat ini dengan bantuan dariku, Kamu hanya mencapainya karena usahamu sendiri. Beberapa tahun terakhir ini, Kamu telah meneliti sihir(Magic) dan sihir(Sorcery) selama 24 jam penuh. Orang akan menganggap itu sesuatu yang gila. Selain itu, Kamu selalu waspada. Kamu selalu dalam mode siap tempur yang konstan. Dengan lebih dari 12 tahun pengalaman tempur, kemampuanmu tidak normal dibandingkan dengan orang lain. Dan, yah, tentang kekuatanku, sebenarnya ada beberapa situasi ketika itu digunakan. Seperti pertama kali Kamu menggunakan sihir atau saat jobmu sedang ditentukan. Meski begitu, masih ada banyak yang tersisa padamu." (Dewa)
 
-Dan, yah, tentang kekuatanku, sebenarnya ada beberapa situasi ketika itu digunakan. Seperti pertama kali Kamu menggunakan sihir atau saat Pekerjaan Kamu sedang ditentukan. Meski begitu, masih ada satu ton yang tersisa.
+Diberitahu bahwa usahaku tidak sia-sia jujur ​​membuatku bahagia. Terlepas dari situasi kita saat ini, bagaimanapun juga, aku masih perlu mengerahkan banyak upaya untuk melindungi Ciel begitu kita mencapai usia 15 tahun.
 
-Diberitahu bahwa usaha Aku tidak sia-sia jujur ​​membuat Aku bahagia. Sekarang aku memikirkannya, terlepas dari situasi kita saat ini, bagaimanapun juga, aku masih perlu mengerahkan banyak upaya untuk melindungi Ciel begitu kita mencapai usia 15 tahun.
 Juga, ternyata sihir yang kukira hanya diaktifkan secara tidak sengaja sebenarnya bisa terjadi dengan bantuan kekuatan Dewa Pencipta.
-Dengan itu, tentu saja aku bisa menggunakan sihir. Jika Pekerjaan kami diselesaikan dengan bantuannya juga, maka Aku benar-benar tidak bisa cukup berterima kasih padanya.
 
-Tetap saja, Aku tidak merasakan kekuatan sihir apa pun...... kekuatan ilahi? Kekuatan semacam itu.」
-Itu karena itu disembunyikan. Lagi pula, seseorang yang akan menyebabkan kalian berdua bermasalah jika, kebetulan, fakta bahwa kalian memiliki kekuatan suci terungkap terus-menerus di dekatnya.
+Dengan itu, tentu saja aku bisa menggunakan sihir. Jika Job kami karena dengan bantuannya juga, maka Aku benar-benar tidak bisa cukup berterima kasih padanya.
 
-Ya, dia pasti begitu. Jika dia menemukannya, maka saat kita mencapai usia 15 tahun dan kehilangan kekuatan ini, kita akan terkunci dalam skakmat instan.
+"Tetap saja, Aku tidak merasakan kekuatan sihir apa pun...... kekuatan dewa? Kekuatan semacam itu." (Ain)
 
-Aku akan mengatakan ini hanya untuk memastikan tetapi bagian dari diri Aku ini — mari kita pergi dengan kekuatan suci. Kekuatan ilahi Aku tertanam pada Kamu sendiri. Cielmer telah dilindungi bersama denganmu hanya karena dia adalah tuan rumahmu.
-Karena itu ada di dalam dirimu, tidak peduli apa yang dilakukan Cielmer, dia tidak akan bisa merasakan jejak atau kehadiran kekuatan suci ini.」
-Aku mengerti.
-Bagus. Sekarang, terlepas dari kenyataan bahwa ada banyak yang tersisa, itu tidak akan menjadi masalah selama kamu secara bertahap menghabiskan semua divine power setelah mencapai usia 15 tahun ke atas.
-Tapi, di sinilah kesalahan perhitungan kedua terjadi.」
-Utusan Ilahi Buatan.
-Benar, itu. Benda itu dibuat oleh individu yang membawamu, kan? Tapi kali ini dia memanfaatkan kekuatan suci yang hanyut di dunia. Serius, umat manusia cukup kreatif.
+"Itu karena disembunyikan. Lagi pula, seseorang yang akan menyebabkan kalian berdua bermasalah jika, kebetulan, fakta bahwa kalian memiliki kekuatan suci." (Dewa)
+
+Ya, dia(Rispelgia) pasti begitu. Jika dia menemukannya, maka saat kami mencapai usia 15 tahun dan kehilangan kekuatan ini, kami akan terkunci dalam skakmat instan.
+
+"Aku akan mengatakan ini hanya untuk memperjelasnya tetapi bagian dari diriku ini — mari kitasebut dengan kekuatan suci. Kekuatan suciku tertanam padamu sendiri. Cielmer telah dilindungi bersama denganmu hanya karena dia adalah tuan rumahmu. Karena itu ada di dalam dirimu, tidak peduli apa yang dilakukan Cielmer, dia tidak akan bisa merasakan jejak atau kehadiran kekuatan suci ini." (Dewa)
+
+"Aku mengerti." (Ain)
+
+"Bagus. Sekarang, terlepas dari kenyataan bahwa ada banyak sisanya, itu tidak akan menjadi masalah selama kamu secara bertahap menghabiskan semua kekuatan dewa setelah mencapai usia 15 tahun ke atas. Tapi, di sinilah kesalahan perhitungan kedua terjadi." (Dewa)
+
+"Utusan dewa Buatan." (Ain)
+
+Benar. Benda itu dibuat oleh individu yang mengambilmu, kan? Tapi kali ini dia memanfaatkan kekuatan suci yang hanyut di dunia. Serius, umat manusia cukup kreatif.
 
 Mempertimbangkan reaksinya, tampaknya aktivitas Duke Respelgia tidak terlalu keluar dari sudut pandang Dewa Pencipta.
 Saat aku melihat ke arah Dewa Pencipta, dia mengerjap kaget sebelum tertawa kecil.
