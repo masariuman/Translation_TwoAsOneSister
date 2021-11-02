@@ -130,28 +130,28 @@ Ya, dia(Rispelgia) pasti begitu. Jika dia menemukannya, maka saat kami mencapai 
 
 "Utusan dewa Buatan." (Ain)
 
-Benar. Benda itu dibuat oleh individu yang mengambilmu, kan? Tapi kali ini dia memanfaatkan kekuatan suci yang hanyut di dunia. Serius, umat manusia cukup kreatif.
+"Benar. Benda itu dibuat oleh individu yang mengambilmu, kan? Tapi kali ini dia memanfaatkan kekuatan suci yang ada di dunia. sungguh, umat manusia cukup kreatif." (Dewa)
 
 Mempertimbangkan reaksinya, tampaknya aktivitas Duke Respelgia tidak terlalu keluar dari sudut pandang Dewa Pencipta.
+
 Saat aku melihat ke arah Dewa Pencipta, dia mengerjap kaget sebelum tertawa kecil.
 
-Lagipula dia tidak melakukan kerusakan yang signifikan. Jika Aku harus mengatakan, Aku membiarkan dia berkeliaran bebas hanya karena dia mungkin memberikan beberapa hiburan.
-Di sisi lain, Aku tidak terlalu terikat pada individu, jadi Aku menyerahkan penanganannya kepada orang-orang di permukaan.
+"Lagipula dia tidak melakukan kerusakan yang signifikan. yaaah Aku membiarkan dia berkeliaran bebas hanya karena dia mungkin memberikan beberapa hiburan. Di sisi lain, Aku tidak terlalu terikat pada individu, jadi Aku menyerahkan penanganannya kepada orang-orang di permukaan." (Dewa)
 
 Jadi jika kita secara hipotetis menghukum Respeliga, bukan berarti Tuhan Pencipta akan marah karenanya.
 
-Jadi, ketika kamu mengalahkan monster yang dia ciptakan, kalian berdua bersentuhan dengan apa yang bisa kamu sebut atmosfer alam dewa.
-Pada saat itu, kekuatan ilahi Aku berasimilasi dengan Kamu. Kelebihan yang tersisa, semuanya.」
-...... Tunggu, bukankah itu akan mengubahku menjadi dewa?」
-Meskipun aku sering menyebutnya, itu masih hanya sebagian kecil dari diriku, jadi kamu hanya setengah-...... atau lebih tepatnya 1/10 dewa?
-Meskipun itu hanya jumlah yang sangat kecil bagi kita, itu akan berubah menjadi kekuatan yang sangat kuat di permukaan. Karena itu, hanya ada beberapa yang bisa menembus penghalang yang diresapi kekuatan suci milikmu.
+"Jadi, ketika kamu mengalahkan monster yang dia ciptakan, kalian berdua bersentuhan dengan apa yang bisa kamu sebut atmosfer alam dewa. Pada saat itu, kekuatan dewaku bersatu denganmu. semuanya." (Dewa)
 
-Sebuah penghalang diresapi dengan kekuatan dewa. Yah tidak heran Fiiyanamia-sama lebih suka tidak bertarung melawanku.
-Tetap saja, Fiiyanamia-sama yang sama itu mengatakan bahwa dia bisa menghancurkan penghalangku dan Dewa Pencipta mengenal Fiiyanamia-sama dengan cukup baik untuk menyebut dia dengan nama panggilan, jadi......
+"...... Tunggu, bukankah itu akan mengubahku menjadi dewa?" (Ain)
 
-Lagipula akulah yang mengirim Fii. Dan roh juga.
-Fii dikirim ke dunia itu untuk memenuhi tugas tertentu, sementara roh dikirim untuk menjaga keseimbangan alam dunia.
-Fii adalah pengawas, sedangkan roh adalah pekerja. Ada banyak cara untuk menggambarkan peran mereka, tetapi Aku mengirim mereka agar dunia dan umat manusia tidak berantakan. Padahal, karena roh berkembang biak dengan sendirinya, satu-satunya roh yang benar-benar kukirim adalah yang disebut Raja Roh.」
+"Meskipun begitu, itu masih hanya sebagian kecil dari diriku, jadi kamu hanya setengah-...... atau lebih tepatnya 1/10 dewa? Meskipun itu hanya jumlah yang sangat kecil bagiku, itu akan berubah menjadi kekuatan yang sangat kuat di permukaan. Karena itu, hanya ada beberapa yang bisa menembus +BARRIER yang diresapi kekuatan dewa milikmu." (Dewa)
+
+Sebuah +BARRIER diresapi dengan kekuatan dewa. Yah tidak heran Fiiyanamia-sama lebih suka tidak bertarung melawanku.
+
+Tetap saja, Fiiyanamia-sama juga mengatakan bahwa dia bisa menghancurkan +BARRIERku dan Dewa Pencipta mengenal Fiiyanamia-sama dengan cukup baik untuk menyebut dia dengan nama panggilan, jadi......
+
+"Akulah yang mengirim Fii. Dan roh juga. Fii dikirim ke dunia itu untuk memenuhi tugas tertentu, sementara roh dikirim untuk menjaga keseimbangan alam dunia. Fii adalah pengawas, sedangkan roh adalah pekerja. Ada banyak cara untuk menggambarkan peran mereka, tetapi Aku mengirim mereka agar dunia dan umat manusia tidak berantakan. yaaah, roh berkembang biak dengan sendirinya, satu-satunya roh yang benar-benar kukirim adalah yang disebut Raja Roh." (Ain)
+
 Apakah itu alasan mengapa roh-roh itu tertarik padaku?」
 Kekuatan ilahi yang kamu miliki pada awalnya adalah milikku Lagipula.
 Paling tidak, mereka mengenali Kamu sebagai seseorang yang berhubungan dengan Aku dan mereka bahkan mungkin mengira Kamu sebagai keluarga atau orang tua, jadi itu wajar. Untuk menjawab banyak pertanyaanmu tentang roh, ini juga alasan mengapa roh tinggi mengkhawatirkanmu, dan alasan kamu mulai melihat roh adalah karena asimilasi kekuatan suci juga.
