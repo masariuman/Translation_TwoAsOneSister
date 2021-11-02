@@ -150,43 +150,60 @@ Sebuah +BARRIER diresapi dengan kekuatan dewa. Yah tidak heran Fiiyanamia-sama l
 
 Tetap saja, Fiiyanamia-sama juga mengatakan bahwa dia bisa menghancurkan +BARRIERku dan Dewa Pencipta mengenal Fiiyanamia-sama dengan cukup baik untuk menyebut dia dengan nama panggilan, jadi......
 
-"Akulah yang mengirim Fii. Dan roh juga. Fii dikirim ke dunia itu untuk memenuhi tugas tertentu, sementara roh dikirim untuk menjaga keseimbangan alam dunia. Fii adalah pengawas, sedangkan roh adalah pekerja. Ada banyak cara untuk menggambarkan peran mereka, tetapi Aku mengirim mereka agar dunia dan umat manusia tidak berantakan. yaaah, roh berkembang biak dengan sendirinya, satu-satunya roh yang benar-benar kukirim adalah yang disebut Raja Roh." (Ain)
+"Akulah yang mengirim Fii. Dan roh juga. Fii dikirim ke dunia itu untuk memenuhi tugas tertentu, sementara roh dikirim untuk menjaga keseimbangan alam dunia. Fii adalah pengawas, sedangkan roh adalah pekerja. Ada banyak cara untuk menggambarkan peran mereka, tetapi Aku mengirim mereka agar dunia dan umat manusia tidak berantakan. yaaah, roh berkembang biak dengan sendirinya, satu-satunya roh yang benar-benar kukirim adalah yang disebut Raja Roh." (Dewa)
 
-Apakah itu alasan mengapa roh-roh itu tertarik padaku?」
-Kekuatan ilahi yang kamu miliki pada awalnya adalah milikku Lagipula.
-Paling tidak, mereka mengenali Kamu sebagai seseorang yang berhubungan dengan Aku dan mereka bahkan mungkin mengira Kamu sebagai keluarga atau orang tua, jadi itu wajar. Untuk menjawab banyak pertanyaanmu tentang roh, ini juga alasan mengapa roh tinggi mengkhawatirkanmu, dan alasan kamu mulai melihat roh adalah karena asimilasi kekuatan suci juga.
+"Apakah itu alasan mengapa roh-roh itu tertarik padaku?" (Ain)
 
-Sementara itu tertanam pada Kamu sebelum asimilasi, Kamu mungkin tidak dapat melihatnya karena kekuatannya masih di bawah kendali Aku; setelah asimilasi, itu kemudian di bawah kendali Kamu. Karena kekuatan suci berubah menjadi kekuatanmu sendiri, kamu sekarang bisa melihatnya.
-Adapun mengapa Cielmer bisa terlihat seperti mereka juga, itu karena tubuh Cielmer berubah setelah bersentuhan dengan kekuatan sucimu.
+"Kekuatan Dewa yang kamu miliki pada awalnya adalah milikku. Paling tidak, mereka mengenalimu sebagai seseorang yang berhubungan denganku dan mereka bahkan mungkin mengira Kamu sebagai keluarga atau orang tua, jadi itu wajar. Untuk menjawab banyak pertanyaanmu tentang roh, ini juga alasan mengapa roh tinggi mengkhawatirkanmu, dan alasan kamu mulai melihat roh adalah karena asimilasi kekuatan dewa juga. ketika itu tertanam padamu sebelum asimilasi, Kamu mungkin tidak dapat melihatnya karena kekuatannya masih di bawah kendaliku; setelah asimilasi, itu kemudian di bawah kendalimu. Karena kekuatan dewa berubah menjadi kekuatanmu sendiri, kamu sekarang bisa melihatnya. Adapun mengapa Cielmer bisa melihat mereka juga, itu karena tubuh Cielmer berubah setelah bersentuhan dengan kekuatan dewamu. Dan kenapa kalian berdua hanya bisa melihat roh, kurasa itu karena kalian bahkan tidak bisa dianggap sebagai dewa setengah matang saat ini, mungkin?" (Dewa)
 
-Dan kenapa kalian berdua hanya bisa melihat roh, kurasa itu karena kalian bahkan tidak bisa dianggap sebagai dewa setengah matang saat ini? kan
+Semua pertanyaanku sampai sekarang dijawab seperti mereka bukan apa-apa.
 
-Semua pertanyaan Aku sampai sekarang dijawab seperti mereka bukan apa-apa.
 Ya, tidak mungkin aku mengetahuinya sendiri. Ini terlalu tidak masuk akal.
-Tunggu, sekarang aku memikirkannya, semuanya dimulai dengan Respelgia yang mencoba membuat dewa, jadi semuanya kembali ke lingkaran penuh.
 
-Apa yang akan menjadi hubungan Aku dengan Fiiyanamia-sama dan Raja Roh?」
-Keluarga, semacam...... Aku kira? Fii cukup baik padamu, bukan?
-Ya. Aku meragukannya sepanjang waktu.」
-Fii bukan tipe orang yang marah untuk sesuatu yang kecil, kau tahu. Dan Aku membayangkan dia memiliki pemahaman tentang kekhawatiran dan kekhawatiran Kamu juga.
+Tunggu, sekarang aku memikirkannya, semuanya dimulai dengan Respelgia yang mencoba membuat dewa, jadi semuanya kembali ke lingkaran dewa juga.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Apa hubunganku dengan Fiiyanamia-sama dan Raja Roh?" (Ain)
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"semacan Keluarga...... mungkin? Fii cukup baik padamu, bukan?" (Dewa)
 
-Itu pasti kasusnya. Jika tidak, dia tidak akan berusaha mendekatiku karena mengetahui bahwa aku waspada terhadapnya.
+"Ya. tapi Aku meragukannya sepanjang waktu." (Ain)
 
-Singkatnya, sebagian besar hal misterius yang terjadi padamu pada umumnya adalah hasil dari kekuatan suciku.
-Sebenarnya, hal-hal yang lebih absurd seharusnya terjadi, Kamu tahu? Seperti tetap hidup meski tertusuk jantung dan semacamnya.」
-Ini adalah perlindungan yang kuat?」
-Kamu tinggal di tempat di mana itu benar-benar bisa terjadi kapan saja. Tetap saja, sesuatu seperti pemenggalan kepala tidak akan mungkin bertahan meskipun ada perlindungan.」
-Akan sangat mengerikan jika kita bangkit dari itu.
+"Fii bukan tipe orang yang marah untuk sesuatu yang kecil. Dan Aku yakin dia paham dengan kekhawatiran dan kewaspadaanmu juga." (Dewa)
 
-Itu pasti akan membuat trauma setiap saksi.
-Dan jika itu terjadi, kita mungkin akan menjadi zombie atau monster semacam itu.
-Dengan diskusi yang mencapai jeda alami, Dewa Pencipta menyeruput cangkir teh yang tiba-tiba muncul entah dari mana.
-Ada juga satu di depanku bahkan sebelum aku menyadarinya, jadi aku memutuskan untuk menyesapnya juga.
+Itu pasti. Jika tidak, dia tidak akan berusaha mendekatiku karena mengetahui bahwa aku waspada terhadapnya.
+
+"Singkatnya, sebagian besar hal misterius yang terjadi padamu pada umumnya adalah hasil dari kekuatan dewaku. Sebenarnya, hal-hal yang lebih absurd bisa terjadi, Kamu tahu? Seperti tetap hidup meski tertusuk dijantung dan semacamnya." (Dewa)
+
+"bukankah itu adalah perlindungan yang kuat?" (Ain)
+
+"Kamu tinggal di tempat di mana itu benar-benar bisa terjadi kapan saja. Tetap saja, sesuatu seperti pemenggalan kepala tidak akan mungkin bertahan meskipun ada perlindungan." (Dewa)
+
+Akan sangat mengerikan jika kami bangkit dari itu.
+
+Itu pasti akan membuat trauma setiap yang melihatnya.
+
+Dan jika itu terjadi, kami mungkin akan menjadi zombie atau monster semacam itu.
+
+Dengan diskusi yang mencapai jeda sebentar, Dewa Pencipta menyeruput cangkir teh yang tiba-tiba muncul entah dari mana.
+
+dan Ada juga satu di depanku bahkan tanpa kusadari, jadi aku memutuskan untuk menyesapnya juga.
 
 Itu hanya seteguk kecil, tetapi aroma lembut teh memenuhi mulutku.
-Ini tidak pahit, itu jelas manis.
-Dan saat Aku sedang menikmati minuman Aku, Mari kita lanjutkan ke topik berikutnya. Dewa Pencipta melanjutkan percakapan kami.
+
+Ini tidak pahit, jelas ini manis.
+
+Dan saat Aku sedang menikmati minumanku, "Mari kita lanjutkan ke topik berikutnya.", Dewa Pencipta melanjutkan percakapan kami.
+
+-----------------------------------------
+
+entah kenapa menerjemahkan chapter ini berasa tidak hanya 1 chapter, rasanya melewati beberapa chapter... banyak jawaban yang sudah terjawab disini...
+
+pertama, disini kita tahu kalau ternyata ain awalnya tidak direncanakan akan direinkarnasi dengan ingatan penuh, alias hanya direinkarnasi umum biasa dengan ingatan baru dan kehidupan baru. tapi ketika proses si duke ngeganggu dan akhirnya dapatlah ain disisi dedek ciel.
+
+kedua kita akhirnya mengetahui kalau ain diberikan kekuatan dewa sebagai pelindung sementara, yang mana menyatu menjadi kekuatan ain setelah melawan utusan dewa buatan. dan disini akhirnya kita bisa terjawab mengapa ain dan dedek ciel bisa tiba tiba melihat roh. dan ini juga menjawab mengapa barrier ain bisa begitu kuat... menarik... jadi ketika setelah melawan utusan dewa buatan yang mana ain merasakan ada yg memasuki tubuh ain berarti itu menyatunya kekuatan dewa menjadi kekuatan ain... walaupun hanya 1/10 saja, sudah lumayan lah sudah dapat kekuatan dewa. 1/10 saja sudah bisa membuat mereka hampir tidak bisa mati selama tidak instant mati atau langsung musnah. yaah mau gimana jantung tertusuk saja masih ga mati... dan disini yg diberi perlindungan hanya ain, dedek ciel kita hanya kena tempiasnya karena sebagai wadah ain saja.. untung saja...
+
+ketiga, Fii dan roh dikirim dewa ke dunia tersebu ? yah kalau dewa mungkin iya, tapi Fiiyanamia juga ? jadi siapa Fiiyanamia sebenarnya ? utusan dewa ? bagian dari dewa ? malaikat yang diutus dewa ? anak buahnya dewa ? anak dewa ?????? hmmm menarik jadi semakin penasaran.. berarti ada kemungkinan kedepannya bakal ketemu raja roh juga dan kalau ketemu nanti bagaimana ya... apa bakal dikasi bantuan  ? diajari sihir ? atau dikasi kekuatan ? hmmmmm...
+
+kekuatan ain juga di set ke maximum dari awal, pantas aja jago nge-barrier nya... tapi mungkin bakal max terus seterusnya karena kekuatan dewa udah nyatu sama ain kan ? hmmm sepertinya kedepannya fix ni  bakal lawan pasukan utusan dewa buatannya rispelgia... jadi ga sabaran mau tau kedepannya bagaimana... dan apakah ini akan dipendam ain atau akan diceritakan ke dedek ciel juga... hmmmmm...
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
