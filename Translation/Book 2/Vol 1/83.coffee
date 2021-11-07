@@ -192,21 +192,34 @@ Jika kami terlibat, Aku lebih suka kami terlibat sebelum berusia 15 tahun. Bagai
 
 Tapi, dari sudut pandang dewa, "hanya sebentar" mungkin sekitar beberapa dekade dan itu menakutkan.
 
-Itu cukup sering terjadi. Sekali lagi, hati-hati ya? Bahkan ada beberapa dewa yang hanya linglung menatap apa-apa tanpa menyadari bahwa beberapa abad telah berlalu.」
-Apakah Kamu memiliki pengalaman pribadi dengan itu?」
-Tubuh asli Aku masih melamun saat ini. Tak terhitung jumlah divine split yang bekerja secara aktif.
-Jika Kamu bertanya tentang Aku di sini, maka tidak juga.
+"Itu cukup sering terjadi. Sekali lagi, hati-hati ya? Bahkan ada beberapa dewa yang hanya linglung tanpa menyadari bahwa beberapa abad telah berlalu." (Dewa)
 
-Seperti yang dikatakan oleh Dewa Pencipta, Baiklah kalau begitu. dia mengakhiri topik itu.
+"Apakah Kamu memiliki pengalaman pribadi dengan itu?" (Ain)
 
-Ini mengakhiri diskusi kita, ada pertanyaan lagi?」
-Bukan itu yang bisa kupikirkan.」
-Mengenai permintaan Cielmer, jika kamu menghubungiku di tempat Fii, aku akan memberikan oracle.」
-Oracle datang ke sana dengan mudah setelah semua.」
-Kamu harus lebih sadar akan status Kamu sendiri. Atau mungkin Aku harus mengatakan menjadi terlalu rendah hati juga bisa dianggap merendahkan, oke?」
-Aku akan memastikan untuk mengingatnya.」
-Sekarang, sekitar tiga hari telah berlalu di permukaan, semoga berhasil.
+"Tubuh asliku masih melamun saat ini. Tak terhitung banyaknya jumlah potongan diriku yang bekerja secara aktif. Jika Kamu bertanya tentang aku yang di sini, maka tidak juga." (Dewa)
 
-Melambai selamat tinggal, Tuhan Pencipta mengucapkan selamat tinggal padaku, tapi tolong tunggu sebentar.
-Tiga hari? Aku meninggalkan Ciel sendirian selama tiga hari?
-Saat itu ketika Aku kehilangan kesadaran sepanjang hari, Ciel sudah compang-camping. Dengan tiga hari berlalu, apakah Ciel akan baik-baik saja?
+Kertika dewa pencipta mengatakan itu, "Baiklah kalau begitu.", dia mengakhiri topik itu.
+
+"Ini mengakhiri diskusi kita, ada pertanyaan lagi?" (Dewa)
+
+"Tidak ada yang bisa kupikirkan" (Ain)
+
+"Mengenai permintaan Cielmer, jika kamu menghubungiku di tempat Fii, aku akan memberikan wahyu." (Dewa)
+
+"wahyu datang disana juga." (Ain)
+
+"Kamu harus lebih sadar akan statusmu sendiri. Atau mungkin Aku harus mengatakan menjadi terlalu rendah hati juga bisa dianggap merendahkan, oke?" (Dewa)
+
+"Aku akan memastikan untuk mengingatnya." (Ain)
+
+"Sekarang, sekitar tiga hari telah berlalu di permukaan, semoga berhasil." (Dewa)
+
+Melambai selamat tinggal, Tuhan Pencipta mengucapkan selamat tinggal padaku, tapi, tunggu sebentar. Tiga hari? Aku meninggalkan Ciel sendirian selama tiga hari?
+
+Saat ketika Aku kehilangan kesadaran sepanjang hari, Ciel sudah compang-camping. Dengan tiga hari berlalu, apakah Ciel akan baik-baik saja?
+
+---------------------------------------------------------------------
+
+akhirnya kita mengetahui apa yang sellau membuat kita penasaran....
+
+tapi, tunggu dulu, jadi ain dan dedek ciel akan menjadi dewa ??? Secepat itu ?? dan juga ada dewa lain yang tidak senang ????? hmmmm saya curiga nanti ujungnya jadi perkelahian antar dewa, dengan dewa yang 
