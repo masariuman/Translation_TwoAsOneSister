@@ -118,11 +118,11 @@ Dengan itu, tentu saja aku bisa menggunakan sihir. Jika Job kami karena dengan b
 
 "Tetap saja, Aku tidak merasakan kekuatan sihir apa pun...... kekuatan dewa? Kekuatan semacam itu." (Ain)
 
-"Itu karena disembunyikan. Lagi pula, seseorang yang akan menyebabkan kalian berdua bermasalah jika, kebetulan, fakta bahwa kalian memiliki kekuatan suci." (Dewa)
+"Itu karena disembunyikan. Lagi pula, seseorang yang akan menyebabkan kalian berdua bermasalah jika, kebetulan, fakta bahwa kalian memiliki kekuatan dewa." (Dewa)
 
 Ya, dia(Rispelgia) pasti begitu. Jika dia menemukannya, maka saat kami mencapai usia 15 tahun dan kehilangan kekuatan ini, kami akan terkunci dalam skakmat instan.
 
-"Aku akan mengatakan ini hanya untuk memperjelasnya tetapi bagian dari diriku ini — mari kitasebut dengan kekuatan suci. Kekuatan suciku tertanam padamu sendiri. Cielmer telah dilindungi bersama denganmu hanya karena dia adalah tuan rumahmu. Karena itu ada di dalam dirimu, tidak peduli apa yang dilakukan Cielmer, dia tidak akan bisa merasakan jejak atau kehadiran kekuatan suci ini." (Dewa)
+"Aku akan mengatakan ini hanya untuk memperjelasnya tetapi bagian dari diriku ini — mari kitasebut dengan kekuatan dewa. Kekuatan suciku tertanam padamu sendiri. Cielmer telah dilindungi bersama denganmu hanya karena dia adalah tuan rumahmu. Karena itu ada di dalam dirimu, tidak peduli apa yang dilakukan Cielmer, dia tidak akan bisa merasakan jejak atau kehadiran kekuatan dewa ini." (Dewa)
 
 "Aku mengerti." (Ain)
 
@@ -130,7 +130,7 @@ Ya, dia(Rispelgia) pasti begitu. Jika dia menemukannya, maka saat kami mencapai 
 
 "Utusan dewa Buatan." (Ain)
 
-"Benar. Benda itu dibuat oleh individu yang mengambilmu, kan? Tapi kali ini dia memanfaatkan kekuatan suci yang ada di dunia. sungguh, umat manusia cukup kreatif." (Dewa)
+"Benar. Benda itu dibuat oleh individu yang mengambilmu, kan? Tapi kali ini dia memanfaatkan kekuatan dewa yang ada di dunia. sungguh, umat manusia cukup kreatif." (Dewa)
 
 Mempertimbangkan reaksinya, tampaknya aktivitas Duke Respelgia tidak terlalu keluar dari sudut pandang Dewa Pencipta.
 
