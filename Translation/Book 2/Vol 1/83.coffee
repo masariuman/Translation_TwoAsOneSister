@@ -102,74 +102,94 @@ Aku tahu persis mengapa tetapi ini lebih penting daripada situasiku, jadi Aku ti
 
 "Kamu bersatu dengan bagian dari Dewa Tertinggi, kamu tahu? Jika Aku memberi tahu Kamu bahwa Kamu adalah kasus pertama dari ini yang pernah terjadi, dapatkah Kamu mengatakan bahwa itu terlalu mudah?" (Dewa)
 
-Sekarang dia mengatakannya seperti itu, mungkin tidak semudah yang kupikirkan.
+Setelah dia mengatakan itu, mungkin tidak semudah yang kupikirkan.
+
 Tampaknya pada tingkat ini, baik Ciel dan aku akan berubah menjadi dewa.
+
 Aku mungkin harus meminta keputusan Ciel tentang masalah ini.
 
+"Kebetulan, apakah sihir yang telah kusiapkan berfungsi dengan baik?" (Ain)
 
-Kebetulan, apakah sihir yang telah kusiapkan berfungsi dengan baik?」
-Hal konyol itu, benar? Karena kondisinya terpenuhi, itu akan berhasil. Paling tidak, itu akan menunjukkan efek minimal yang Kamu butuhkan.
-Tetap saja, itu tidak akan dapat digunakan jika kondisinya tidak lagi dapat dicapai, oke?
-Selama itu bisa digunakan. Itu adalah sesuatu yang Aku mulai dari pemikiran yang tiba-tiba, jadi Aku tidak yakin apakah itu benar-benar dapat digunakan, Kamu tahu?」
-Mempertimbangkan itu, Aku tidak percaya Kamu masih melakukannya.
-Aku melakukannya hanya untuk memastikan.」
+"Hal tidak masuk akal itu, kan? Karena kondisinya terpenuhi, itu akan berhasil. Paling tidak, itu akan menunjukkan efek minimal yang Kamu butuhkan. Tetap saja, itu tidak akan dapat digunakan jika kondisinya tidak lagi dapat dicapai, oke?" (Dewa)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Selama itu bisa digunakan. Itu adalah sesuatu yang tiba-tiba juga, jadi Aku tidak yakin apakah itu benar-benar dapat digunakan, Kamu tahu?" (Ain)
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"Mempertimbangkan itu, Aku tidak percaya Kamu masih melakukannya." (Dewa)
+
+"Aku melakukannya hanya untuk memastikan." (Ain)
 
 Jika tidak berhasil, maka Aku hanya perlu mencari metode lain.
-Kalau dipikir-pikir, bahkan jika pendewaan Aku tidak bisa dihentikan, apakah pendewaan Ciel bisa?
 
-「Hal ini dapat, tetapi hanya jika Kamu menghilang.」
-「Saya pikir begitu.」
-「Selain itu, itu tidak dapat diubah, jadi hati-hati.」
-「Jadi bahkan jika aku hipotetis menghilang sekarang, Ciel masih akan dapat melihat roh?」
-「 Betul sekali. Karena itu, jika kamu ingin menjadikan Ciel sebagai manusia, maka kamu harus menghilang sebelum mencapai 50%.」
+Kalau dipikir-pikir, bahkan jika pendewaanku tidak bisa dihentikan, apakah pendewaan Ciel bisa?
+
+"itu dapat terjadi, jika kamu menghilang dari dunia." (Dewa)
+
+"Aku juga berpikir seperti itu." (Ain)
+
+"Selain itu, hal yang sudah dia dapatkan tidak dapat diubah, jadi hati-hatilah dalam mengambil keputusan." (Dewa)
+
+"Jadi bahkan jika aku menghilang sekarang, Ciel masih akan dapat melihat roh?" (Ain)
+
+"benar sekali. Karena itu, jika kamu ingin menjadikan Ciel sebagai manusia, maka kamu harus menghilang sebelum mencapai 50%." (Ciel)
 
 Lenyap, ya. Jika Ciel ingin tetap menjadi manusia, maka aku tidak akan ragu tapi... seperti yang diharapkan, ini sedikit menakutkan.
+
 Jika itu terjadi segera setelah aku dikirim ke dunia ini, maka aku mungkin akan melakukannya tanpa ragu-ragu, tapi sepertinya aku sudah terlalu lama bersama Ciel.
+
 Tetap saja, aku tidak terlalu ingin menjadi dewa dan aku tidak berencana menyeret Ciel ke hal-hal yang tidak dia inginkan.
 
-Berapa banyak yang Aku butuhkan sebelum dapat berbicara dengan roh?」
-Sekitar 30% untuk berbicara, 50% untuk kontak fisik, Aku pikir? Aku tidak tahu angka pastinya.」
-Jika aku benar-benar menghilang, mungkin akan lebih baik jika setelah kita mampu berbicara dengan roh.
-Lagi pula, hanya bisa melihat mereka adalah... sulit untuk ditanggung.」
-Meskipun Aku tidak berencana mengatakan apa pun tentang keputusan Kamu, mintalah pendapat orang lain, oke?
-Aku pikir Kamu tidak terlalu menyukai orang, tapi apakah Aku salah memikirkan itu?
+"Berapa banyak yang Aku butuhkan sebelum dapat berbicara dengan roh?" (Ain)
+
+"Sekitar 30% untuk berbicara, 50% untuk kontak fisik, mungkin? Aku tidak tahu angka pastinya." (Dewa)
+
+"Jika aku benar-benar menghilang, mungkin akan lebih baik jika setelah kami mampu berbicara dengan roh. Lagi pula, hanya bisa melihat mereka adalah... rasanya tidak mengenakkan." (Dewa)
+
+"Meskipun Aku tidak berencana mengatakan apa pun tentang keputusanmu, mintalah pendapat orang lain, oke?" (Dewa)
+
+"Aku pikir Kamu tidak terlalu menyukai orang, tapi apakah Aku salah memikirkan itu?" (Ain)
 
 Untuk beberapa alasan, sepertinya dia mengkhawatirkanku.
+
 Seolah-olah dia sedang berbicara dengan anak yang merepotkan, Dewa Pencipta menghela nafas.
 
-Bagaimanapun, kamu adalah, dalam arti tertentu, anakku. Itu normal untuk memberikan beberapa perlakuan khusus.
-Terima kasih banyak. Jika memungkinkan, tolong beri Ciel beberapa perlakuan khusus juga. 」
-「Fufufu, tidak ada.」
-「 Aku tahu bahwa aku orang utama yang terlibat dalam bisnis dewa ini. Tetap saja, Ciel juga terlibat dalam masalah ini, jadi tidak bisakah kamu melakukan sesuatu untuknya juga?」
-Cukup dekat tapi Cielmer selamat hanya karena aku mengirimmu padanya, jadi aku tidak bisa menyetujuinya.
-Tolong, mama. kan
+"Bagaimanapun juga, kamu adalah, dalam arti tertentu, anakku. Itu normal untuk memberikan beberapa perlakuan khusus." (Dewa)
 
-Lagipula itu terlihat kekanak-kanakan, jadi aku mengerahkan segenap hatiku untuk memohon.
+"Terima kasih banyak. Jika memungkinkan, tolong beri Ciel beberapa perlakuan khusus juga." (Ain)
+
+"Fufufu, tidak." (Dewa)
+
+"Aku tahu bahwa aku orang utama yang terlibat dalam kasus dewa ini. Tetap saja, Ciel juga terlibat dalam masalah ini, jadi tidak bisakah kamu melakukan sesuatu untuknya juga?" (Ain)
+
+"tapi Cielmer selamat hanya karena aku mengirimmu padanya, jadi aku tidak bisa menyetujuinya." (Dewa)
+
+"Tolongla, mama." (Ain)
+
+itu terlihat kekanak-kanakan, tapi aku mengerahkan segenap hatiku untuk memohon.
+
 Terlepas dari Aku menjadi mantan pria, Aku saat ini terlihat mirip dengan Ciel. Aku akan melakukan apa saja untuk ini, mata anak anjing dan sebagainya.
+
 Bahkan ada ungkapan yang mengatakan: mintalah mereka yang sudah turun dari kursi mereka, meskipun itu orang tuamu sendiri.
 
-Bukan begitu cara Kamu menggunakan ekspresi itu, Kamu tahu?
-…… Haa. Nah, baiklah kalau begitu. Aku hanya akan mendengar satu permintaan Ciel.
-Tetap saja, ada batas untuk apa yang bisa Aku lakukan. Jika aku, Dewa Tertinggi, menggunakan kekuatanku dengan sembarangan, ada risiko dampaknya besar di permukaan. Meskipun Aku sudah bisa membayangkan apa yang dia inginkan.
-Tentu saja, terima kasih banyak.
+"Bukan begitu cara Kamu menggunakan ekspresi itu, Kamu tahu? ... Haaaa..., baiklah kalau begitu. Aku hanya akan mengabulkan satu permintaan Ciel. Tetap saja, ada batas untuk apa yang bisa Aku lakukan. Jika aku, Dewa Tertinggi, menggunakan kekuatanku dengan sembarangan, ada risiko dampaknya besar di permukaan. Meskipun Aku sudah bisa membayangkan apa yang dia inginkan." (Dewa)
 
-Keistimewaan untuk bisa membuat satu keinginan kepada Tuhan Pencipta. Tidak ada salahnya untuk memilikinya.
+"Tentu saja, terima kasih banyak." (Ain)
 
-Selain itu, izinkan Aku mengoreksi satu hal, Aku memang menyukai umat manusia...... atau lebih tepatnya makhluk hidup yang cerdas pada umumnya.
-Bagaimanapun juga, orang-orang di dunia ini diberi Pekerjaan.」
-Kalau dipikir-pikir, itu benar. Apakah ada alasan khusus?」
-Bentuk kehidupan yang cerdas adalah salah satu tolok ukur dalam penciptaan dunia, Kamu tahu.
-Sebagian dari itu adalah, karena mereka dapat memahami kehendak kita dan bertindak sesuai dengan itu, para dewa akan memiliki keinginan untuk mengacaukan mereka...... meskipun pada saat yang sama, mereka yang mengabaikan kehendak kita, meskipun memahaminya, selalu muncul juga..」
-Jadi ada tipe orang seperti itu di sini juga...... Yah, ada satu yang cukup jelas.
-Aku tidak terlalu terganggu olehnya, tetapi salah satu dewa telah merajuk tentang ini, Kamu tahu?
-Aku sudah lupa sudah berapa lama sejak dewa itu mulai merajuk tetapi Kamu berhati-hati, oke?
+Keistimewaan untuk bisa membuat satu permintaan kepada Tuhan Pencipta. Tidak ada salahnya untuk memilikinya.
 
-Apakah itu situasi yang perlu kita waspadai akan terjadi di masa depan? Itu mungkin hanya sebuah kemungkinan, tapi aku lebih suka kita tidak terlibat dengan itu.
-Jika kita melakukannya, Aku lebih suka kita terlibat sebelum berusia 15 tahun. Bagaimanapun juga, Tuhan Pencipta mungkin akan membantu kita.
+"Selain itu, izinkan Aku mengoreksi satu hal, Aku memang menyukai umat manusia...... atau lebih tepatnya makhluk hidup yang cerdas pada umumnya. Bagaimanapun juga, orang-orang di dunia ini diberi job." (Dewa)
+
+"Kalau dipikir-pikir, itu benar. Apakah ada alasan khusus?" (Ain)
+
+"Bentuk kehidupan yang cerdas adalah salah satu tolok ukur dalam penciptaan dunia. Sebagian dari itu adalah, karena mereka dapat memahami kehendak kami dan bertindak sesuai dengan itu, para dewa akan memiliki keinginan untuk mengacaukan mereka...... meskipun pada saat yang sama, mereka yang mengabaikan kehendak kami, meskipun memahaminya, selalu muncul juga..." (Dewa)
+
+"Jadi ada tipe orang seperti itu juga...... Yah, ada satu yang cukup jelas." (Ain)
+
+"Aku tidak terlalu terganggu olehnya, tetapi salah satu dewa telah merajuk tentang ini, Kamu tahu?mAku sudah lupa sudah berapa lama sejak dewa itu mulai merajuk tetapi Kamu harus berhati-hati, oke?" (Dewa)
+
+Apakah itu situasi yang perlu kami waspadai akan terjadi di masa depan? Itu mungkin hanya sebuah kemungkinan, tapi aku lebih suka kami tidak terlibat dengan itu.
+
+Jika kami terlibat, Aku lebih suka kami terlibat sebelum berusia 15 tahun. Bagaimanapun juga, Tuhan Pencipta mungkin akan membantu kami.
+
 Tapi, dari sudut pandang dewa, "hanya sebentar" mungkin sekitar beberapa dekade dan itu menakutkan.
 
 Itu cukup sering terjadi. Sekali lagi, hati-hati ya? Bahkan ada beberapa dewa yang hanya linglung menatap apa-apa tanpa menyadari bahwa beberapa abad telah berlalu.」
