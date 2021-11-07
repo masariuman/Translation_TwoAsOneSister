@@ -4,29 +4,39 @@ CHAPTER 83: THE FUTURE, RETURN, AND 3 DAYS
 
 "Yup, persis seperti itu. Menarik, kan?" (Dewa)
 
-Kamu memang mengatakan bahwa aku adalah sepersepuluh dewa sekarang. Apakah akan ada tugas atau kewajiban dalam bentuk apa pun?
+"Kamu memang mengatakan bahwa aku adalah sepersepuluh dewa sekarang. Apakah akan ada tugas atau kewajiban dalam bentuk apa pun?" (Ain)
 
-Sebelum apa pun, Aku harus bertanya tentang ini terlebih dahulu.
-Akan merepotkan jika kita tiba-tiba diberitahu bahwa kita perlu melakukan ini dan itu sebagai dewa.
-Selain itu, jika memungkinkan, Aku lebih suka menolak tugas ilahi jika itu akan berakhir dengan melibatkan Ciel mengingat hanya hidup selama 12 tahun sejauh ini.
+Aku harus bertanya tentang ini terlebih dahulu.
 
-Tidak ada yang khusus, sebenarnya. Lagipula, kamu tidak secara resmi menjadi dewa. Aku juga belum memerintahkan Kamu untuk melakukan apa pun.
-Ini lebih merupakan hadiah untukmu kali ini. Kamu mendapatkan kekuatan ini, gunakan sesuka Kamu. Padahal, jika Kamu berencana untuk menghancurkan dunia, Aku harus meminta Fii untuk menghentikan Kamu. 」
-「Hancurkan dunia ... Apakah itu mungkin bagi Aku?」
-「Hmm , bisa Kamu menggali jauh di tanah dengan sekop?」
-「 Bisakah sekop menghancurkan dunia? Bahkan jika Aku meminjam tubuh Ciel, menyekop terus menerus tidak mungkin bagi Aku, bukan begitu?
+Akan merepotkan jika kami tiba-tiba diberitahu bahwa kami perlu melakukan ini dan itu sebagai dewa.
 
-Meskipun bukannya aku tidak bisa menggunakan penguatan fisik, itu tetap tidak akan menambah kemampuan seranganku saat aku menggunakannya.
-Aku bisa berlari lebih cepat, bergerak lebih lama, dan melompat lebih tinggi, tetapi hanya kemampuan menyerang Aku yang tidak akan melihat perubahan.
-Dengan menjadi selengkap ini, Aku terus terang menyerah pada segala sesuatu yang berhubungan dengan pelanggaran.
+Selain itu, jika memungkinkan, Aku lebih suka menolak tugas dewa jika itu akan berakhir dengan melibatkan Ciel mengingat hanya hidup selama 12 tahun sejauh ini.
+
+"Tidak ada yang khusus. Lagipula, kamu tidak secara resmi menjadi dewa. Aku juga belum memerintahkanmu untuk melakukan apa pun. Ini lebih merupakan hadiah untukmu kali ini. Kamu mendapatkan kekuatan ini, gunakan sesukamu. Tapi, jika Kamu berencana untuk menghancurkan dunia, Aku harus meminta Fii untuk menghentikanmu." (Dewa)
+
+"Menghancurkan dunia... Apakah itu mungkin bagiku?" (Ain)
+
+"Hmm, bisa Kamu menggali di tanah dengan sekop?" (Dewa)
+
+"Bisakah sekop menghancurkan dunia? Bahkan jika Aku meminjam tubuh Ciel, menyekop terus menerus tidak mungkin bagiku, bukan begitu?" (Ain)
+
+bukannya aku tidak bisa menggunakan penguatan fisik, itu tetap tidak akan menambah kemampuan seranganku saat aku menggunakannya.
+
+Aku bisa berlari lebih cepat, bergerak lebih lama, dan melompat lebih tinggi, tetapi hanya kemampuan menyerangku yang tidak akan ada perubahan.
+
+menjadi seperti ini, Aku terus terang menyerah pada segala sesuatu yang berhubungan dengan penyerangan.
+
 Bahkan kekuatan Song Princess tidak bisa berbuat apa-apa.
 
-Tentu saja. Seperti Kamu sekarang, bahkan jika Kamu menghabiskan seluruh hidup Kamu menggali, itu akan menjadi akhir segera setelah Kamu mencapai lapisan yang tidak dapat Kamu hancurkan.」
-Benar. Kemampuan ofensif Aku lemah setelah semua. 」
-「Jika Kamu memiliki pergi penuh ofensif bukan, Fii akan sudah harus mengambil tindakan segera setelah Kamu menjadi berusia 5 tahun.」
-「 Sehingga ini apa Fiiyanamia- sama ‘s tugas yang.」
-「 Sebagian, tepatnya. Tetap saja, kalian berdua tidak memiliki hal semacam itu.
-Sekarang, mari kita diskusi serius.
+"Tentu saja. untuk Kamu sekarang, bahkan jika Kamu menghabiskan seluruh hidupmu menggali, itu akan berakhir segera setelah Kamu mencapai lapisan yang tidak dapat Kamu hancurkan." (Dewa)
+
+"Benar. Kemampuan seranganku lemah." (Ain)
+
+"Jika Kamu fokus kepada kemampuan serangan dari awal, Fii sudah mengambil tindakan segera setelah Kamu menjadi berusia 5 tahun." (Dewa)
+
+"Jadi, itu tugas Fiiyanamia-sama." (Ain)
+
+"Tepatnya hanya sebagian. Tetap saja, kalian berdua tidak memiliki hal semacam itu. Sekarang, mari kita diskusi serius." (Dewa)
 
 Dewa Pencipta, yang bercanda sampai sekarang, dengan cepat berubah menjadi ekspresi serius.
 
@@ -94,7 +104,7 @@ Hal konyol itu, benar? Karena kondisinya terpenuhi, itu akan berhasil. Paling ti
 Tetap saja, itu tidak akan dapat digunakan jika kondisinya tidak lagi dapat dicapai, oke?
 Selama itu bisa digunakan. Itu adalah sesuatu yang Aku mulai dari pemikiran yang tiba-tiba, jadi Aku tidak yakin apakah itu benar-benar dapat digunakan, Kamu tahu?」
 Mempertimbangkan itu, Aku tidak percaya Kamu masih melakukannya.
-Aku melakukannya hanya untuk memastikan .」
+Aku melakukannya hanya untuk memastikan.」
 
 (Bab ini disediakan untuk Kamu oleh Re:Library)
 
@@ -109,14 +119,14 @@ Kalau dipikir-pikir, bahkan jika pendewaan Aku tidak bisa dihentikan, apakah pen
 「Jadi bahkan jika aku hipotetis menghilang sekarang, Ciel masih akan dapat melihat roh?」
 「 Betul sekali. Karena itu, jika kamu ingin menjadikan Ciel sebagai manusia, maka kamu harus menghilang sebelum mencapai 50%.」
 
-Lenyap, ya . Jika Ciel ingin tetap menjadi manusia, maka aku tidak akan ragu tapi... seperti yang diharapkan, ini sedikit menakutkan.
+Lenyap, ya. Jika Ciel ingin tetap menjadi manusia, maka aku tidak akan ragu tapi... seperti yang diharapkan, ini sedikit menakutkan.
 Jika itu terjadi segera setelah aku dikirim ke dunia ini, maka aku mungkin akan melakukannya tanpa ragu-ragu, tapi sepertinya aku sudah terlalu lama bersama Ciel.
 Tetap saja, aku tidak terlalu ingin menjadi dewa dan aku tidak berencana menyeret Ciel ke hal-hal yang tidak dia inginkan.
 
 Berapa banyak yang Aku butuhkan sebelum dapat berbicara dengan roh?」
 Sekitar 30% untuk berbicara, 50% untuk kontak fisik, Aku pikir? Aku tidak tahu angka pastinya.」
 Jika aku benar-benar menghilang, mungkin akan lebih baik jika setelah kita mampu berbicara dengan roh.
-Lagi pula, hanya bisa melihat mereka adalah ... sulit untuk ditanggung.」
+Lagi pula, hanya bisa melihat mereka adalah... sulit untuk ditanggung.」
 Meskipun Aku tidak berencana mengatakan apa pun tentang keputusan Kamu, mintalah pendapat orang lain, oke?
 Aku pikir Kamu tidak terlalu menyukai orang, tapi apakah Aku salah memikirkan itu?
 
@@ -125,7 +135,7 @@ Seolah-olah dia sedang berbicara dengan anak yang merepotkan, Dewa Pencipta meng
 
 Bagaimanapun, kamu adalah, dalam arti tertentu, anakku. Itu normal untuk memberikan beberapa perlakuan khusus.
 Terima kasih banyak. Jika memungkinkan, tolong beri Ciel beberapa perlakuan khusus juga. 」
-「Fufufu , tidak ada.」
+「Fufufu, tidak ada.」
 「 Aku tahu bahwa aku orang utama yang terlibat dalam bisnis dewa ini. Tetap saja, Ciel juga terlibat dalam masalah ini, jadi tidak bisakah kamu melakukan sesuatu untuknya juga?」
 Cukup dekat tapi Cielmer selamat hanya karena aku mengirimmu padanya, jadi aku tidak bisa menyetujuinya.
 Tolong, mama. kan
@@ -135,18 +145,18 @@ Terlepas dari Aku menjadi mantan pria, Aku saat ini terlihat mirip dengan Ciel. 
 Bahkan ada ungkapan yang mengatakan: mintalah mereka yang sudah turun dari kursi mereka, meskipun itu orang tuamu sendiri.
 
 Bukan begitu cara Kamu menggunakan ekspresi itu, Kamu tahu?
-…… Haa . Nah, baiklah kalau begitu. Aku hanya akan mendengar satu permintaan Ciel.
+…… Haa. Nah, baiklah kalau begitu. Aku hanya akan mendengar satu permintaan Ciel.
 Tetap saja, ada batas untuk apa yang bisa Aku lakukan. Jika aku, Dewa Tertinggi, menggunakan kekuatanku dengan sembarangan, ada risiko dampaknya besar di permukaan. Meskipun Aku sudah bisa membayangkan apa yang dia inginkan.
 Tentu saja, terima kasih banyak.
 
 Keistimewaan untuk bisa membuat satu keinginan kepada Tuhan Pencipta. Tidak ada salahnya untuk memilikinya.
 
-Selain itu, izinkan Aku mengoreksi satu hal, Aku memang menyukai umat manusia ...... atau lebih tepatnya makhluk hidup yang cerdas pada umumnya.
+Selain itu, izinkan Aku mengoreksi satu hal, Aku memang menyukai umat manusia...... atau lebih tepatnya makhluk hidup yang cerdas pada umumnya.
 Bagaimanapun juga, orang-orang di dunia ini diberi Pekerjaan.」
 Kalau dipikir-pikir, itu benar. Apakah ada alasan khusus?」
 Bentuk kehidupan yang cerdas adalah salah satu tolok ukur dalam penciptaan dunia, Kamu tahu.
-Sebagian dari itu adalah, karena mereka dapat memahami kehendak kita dan bertindak sesuai dengan itu, para dewa akan memiliki keinginan untuk mengacaukan mereka ...... meskipun pada saat yang sama, mereka yang mengabaikan kehendak kita, meskipun memahaminya, selalu muncul juga. .」
-Jadi ada tipe orang seperti itu di sini juga ...... Yah, ada satu yang cukup jelas.
+Sebagian dari itu adalah, karena mereka dapat memahami kehendak kita dan bertindak sesuai dengan itu, para dewa akan memiliki keinginan untuk mengacaukan mereka...... meskipun pada saat yang sama, mereka yang mengabaikan kehendak kita, meskipun memahaminya, selalu muncul juga..」
+Jadi ada tipe orang seperti itu di sini juga...... Yah, ada satu yang cukup jelas.
 Aku tidak terlalu terganggu olehnya, tetapi salah satu dewa telah merajuk tentang ini, Kamu tahu?
 Aku sudah lupa sudah berapa lama sejak dewa itu mulai merajuk tetapi Kamu berhati-hati, oke?
 
@@ -164,7 +174,7 @@ Seperti yang dikatakan oleh Dewa Pencipta, Baiklah kalau begitu. dia mengakhiri 
 Ini mengakhiri diskusi kita, ada pertanyaan lagi?」
 Bukan itu yang bisa kupikirkan.」
 Mengenai permintaan Cielmer, jika kamu menghubungiku di tempat Fii, aku akan memberikan oracle.」
-Oracle datang ke sana dengan mudah setelah semua .」
+Oracle datang ke sana dengan mudah setelah semua.」
 Kamu harus lebih sadar akan status Kamu sendiri. Atau mungkin Aku harus mengatakan menjadi terlalu rendah hati juga bisa dianggap merendahkan, oke?」
 Aku akan memastikan untuk mengingatnya.」
 Sekarang, sekitar tiga hari telah berlalu di permukaan, semoga berhasil.
