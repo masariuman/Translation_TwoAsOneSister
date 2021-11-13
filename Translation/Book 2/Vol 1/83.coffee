@@ -222,4 +222,12 @@ Saat ketika Aku kehilangan kesadaran sepanjang hari, Ciel sudah compang-camping.
 
 akhirnya kita mengetahui apa yang sellau membuat kita penasaran....
 
-tapi, tunggu dulu, jadi ain dan dedek ciel akan menjadi dewa ??? Secepat itu ?? dan juga ada dewa lain yang tidak senang ????? hmmmm saya curiga nanti ujungnya jadi perkelahian antar dewa, dengan dewa yang 
+tapi, tunggu dulu, jadi ain dan dedek ciel akan menjadi dewa ??? Secepat itu ?? dan juga ada dewa lain yang tidak senang ????? hmmmm saya curiga nanti ujungnya jadi perkelahian antar dewa, dengan dewa yang tidak menyukai ainciel ? atau akan ada beberapa dewa yang akan membantu rispelgia dan setelah rispelgia dikalahkan, ainciel melawan dewa yang membantu rispelgia ??? hmmm menarik... 
+
+jadi ain berencana menghilang sebelum 50% ya, tapi kayaknya ga bakal deh, pasti ciel ga mau, ciel mau nya ain tetap bersamanya, malah mungkin akan mencari cara agar bagaimana supaya ain punya tubuh sendiri juga mungkin ? agar mereka berdua bisa berbucin bersama hahahaha...
+
+jadi dewa juga ada tingkatan juga ya, yah bisa dibilang ainciel termasuk yang beruntung ? walau dengan kemalangan karena rispelgia, juga beruntung dibantu langsung dengan dewa tingkat tertinggi. dan mendapat 1/10 kekuatan dewa tertinggi... dan karena energi dewa sudah menyatu dengan ain, otomatis setiap ain menggunakan barrier, energi dewa terpakai, dan itu mempercepat proses mereka berubah menjadi dewa penuh kan ? mungkin tidak akan 10 tahun... mungkin saja ya prediksi saya, ketika 15 tahun mereka akan langsung mencapat 50% dan dedek ciel kita tidak akan menua, soo... L0L1 FOREVER !!! UWOOOOORRRGGG !!! IMOETZ FOREVER !!!! UWOOOOOORRRRRGGHHHH !!!!! HU HA HU HA HU HA !!!
+
+dan, perasaan mereka hanya berbicara sebentari tapi sudah 3 hari dipermukaan ?? wadooo apa gak khawatir si dedek ciel ketika bangun tidak ada suara ain, sampai 3 hari ? apakah dedek ciel akan mengamuk dan ditenangkan oleh fii, atau bahkan si fii akan menidurkan dedek ciel kita selama 3 hari atau sampai ain bangun ???? aaaaa penasaran apa yang terjadi selanjutnya, tapi ya selama mereka di tempat fii, sepertinya aman...
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
