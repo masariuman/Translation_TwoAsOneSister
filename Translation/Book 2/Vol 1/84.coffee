@@ -40,15 +40,18 @@ Melihat kegembiraannya, roh-roh mendekatinya dan terbang mengelilinginya.
 
 Mungkin karena berada di tempat dewa Pencipta, Aku tidak merasa banyak waktu telah berlalu tetapi Aku sebenarnya disana selama tiga hari.
 
-Selama hari-hari itu, Aku tidak bisa menyapa Ciel dan, tentu saja, Aku tidak bisa menyapanya kembali.
+Selama hari-hari itu, Aku tidak bisa menyapa Ciel dan, tentu saja, Aku tidak bisa menjawab panggilannya kembali.
+
 Kemarin, Fiiyanamia-sama mengatakan bahwa Ciel hampir menutup hatinya hanya dalam satu hari. Itu mungkin tidak berlebihan.
 
-Itu membuatku merasa sangat bersalah dan, pada saat yang sama, takut berdiskusi dengan Ciel tentang apa yang akan terjadi pada kami mulai sekarang. Bagaimanapun, Ciel mungkin harus membuat pilihan yang sulit.
+Itu membuatku merasa sangat bersalah dan, pada saat yang sama, takut memberitahu Ciel tentang apa yang akan terjadi pada kami mulai sekarang. Bagaimanapun juga, Ciel mungkin harus membuat pilihan yang sulit.
 
-Tapi Kamu tahu, tidak apa-apa. Lagipula, sepertinya kamu merasa lebih baik sekarang, Ain.
+[Tapi, tidak apa-apa. Lagipula, sepertinya kamu merasa lebih baik sekarang, Ain.] (Ciel)
 
 Kalau dipikir-pikir, Fiiyanamia-sama juga mengatakan bahwa Ciel meminta bantuan padanya.
-Sejujurnya, Aku tidak tahu seberapa besar tekanan yang Aku berikan pada diri Aku, tetapi mengingat fakta bahwa rasanya seperti beban berat terangkat dari dada Aku setelah apa yang terjadi kemarin, itu mungkin benar-benar berbahaya.
+
+Sejujurnya, Aku tidak tahu seberapa besar tekanan yang Aku berikan pada diriku, tetapi mengingat fakta bahwa rasanya seperti beban berat terangkat dari dadaku setelah apa yang terjadi kemarin, itu mungkin benar-benar berbahaya.
+
 Dan memahami itu, kurasa Ciel meminta bantuan Fiiyanamia-sama.
 
 Jika itu Ciel di masa lalu, tidak mungkin baginya untuk melakukannya. Aku sudah tahu bahwa Ciel ingin melakukan sesuatu untuk Aku, jadi Aku kira ini adalah kesempatan yang sempurna untuk itu.
