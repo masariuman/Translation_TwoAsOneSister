@@ -23,18 +23,23 @@ Aku selalu menjawab ketika Aku mendengar suaranya, tapi terkadang ketika Aku ter
 kupikir Aku yang selalu pertama kali menyapa Ciel di pagi hari.
 
 Tapi kali ini, mungkin karena aku tertidur, Ciel yang menyapaku duluan.
------------------
-Bagaimanapun, itu tidak lebih dari pertukaran biasa.
+
+yaah, itu tidak lebih dari percakapan biasa.
 
 Tapi Ciel hari ini tampaknya sangat senang untuk beberapa alasan,
-Itu benar, fufu, selamat pagi. dan menjawab demikian.
+
+dan menjawab dengan [benar, fufu, selamat pagi.].
+
 Melihat kegembiraannya, roh-roh mendekatinya dan terbang mengelilinginya.
 
-Kamu tampaknya cukup bahagia.
-Maksudku, bagaimanapun juga, Ain ada di sini. Sampai kemarin, tidak akan ada balasan tidak peduli berapa banyak Aku memberi salam, kau tahu? 」
-『Uhh, itu-.....』
+[Kamu tampaknya cukup bahagia.] (Ain)
 
-Mungkin karena berada di tempat Tuhan Pencipta, Aku tidak merasa banyak waktu telah berlalu tetapi Aku sebenarnya sudah keluar selama tiga hari.
+[bagaimanapun juga, Ain ada di sini. kemarin, tidak ada balasan darimu tidak peduli berapa banyak Aku memanggilmu, kau tahu?] (Ciel)
+
+[Uhh, itu-.....] (Ain)
+
+Mungkin karena berada di tempat dewa Pencipta, Aku tidak merasa banyak waktu telah berlalu tetapi Aku sebenarnya disana selama tiga hari.
+
 Selama hari-hari itu, Aku tidak bisa menyapa Ciel dan, tentu saja, Aku tidak bisa menyapanya kembali.
 Kemarin, Fiiyanamia-sama mengatakan bahwa Ciel hampir menutup hatinya hanya dalam satu hari. Itu mungkin tidak berlebihan.
 
