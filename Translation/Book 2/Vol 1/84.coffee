@@ -120,34 +120,42 @@ Tolong hentikan. Tolong hentikan dengan topik ini.
 
 Aku yakin dia tidak akan membicarakan detailnya.
 
-"Apa ini, ada apa ini? ada sesuatu terjadi antara kamu dan Ain?" (Fiiyanamia)
+"Ada apa, ada apa? ada sesuatu terjadi antara kamu dan Ain?" (Ciel)
 
-"ara~ ara~, ufufu. Itu rahasia." (Ciel)
+"ara~ ara~, ufufu. Itu rahasia." (Fiiyanamia)
 
-"Itu tidak adil, sangat tidak adil!" (Fiiyanamia)
+"Itu tidak adil, sangat tidak adil!" (Ciel)
 
-Melihat bagaimana Ciel tampaknya menikmati pertukaran itu, sepertinya dia tidak benar-benar ingin mengeluarkannya dari Fiiyanamia-sama.
+Melihat bagaimana Ciel tampaknya menikmati percakapan itu, sepertinya dia tidak benar-benar ingin memaksa Fiiyanamia-sama.
+
 Mereka berdua mungkin mengerti bahwa aku tidak ingin Ciel mendengar apa pun tentang apa yang aku katakan kemarin.
-Itu sebabnya ini hanya olok-olok. Sementara aku baik-baik saja dengan Ciel menikmati dirinya sendiri, mendengar mereka berbicara tentang hal itu hanya......memalukan.
 
-『U-um, mengapa kita tidak makan sarapan dulu? Lihat, sepertinya sangat enak.
+karena itulah percakapan ini hanya gurauan saja. walaupun aku suka karena Ciel menikmati dirinya sendiri, mendengar mereka berbicara tentang hal itu rasanya......memalukan.
 
-Itu sebabnya Aku mengalihkan topik ke sarapan.
-Aku yakin Ciel harus memperhatikannya. Lagi pula, ketika semua dikatakan dan dilakukan, dia suka makan.
+[U-um, mengapa kita tidak makan sarapan dulu? Lihat, sepertinya sangat enak.] (Ain)
 
-Seperti yang Aku harapkan, Baiklah. Ciel setuju tetapi setelah ini, dia tertawa kecil.
+Aku mengalihkan topik ke sarapan.
 
-Aku mungkin tidak tahu apa yang terjadi antara Fii dan Ain kemarin, tetapi Kamu tidak tahu bagaimana Ain sekarang. Jadi itu tidak mengganggu Aku. Ya ampun
-. Kalau begitu, saatnya makan.
+Aku yakin Ciel memahaminya. Lagi pula, dia suka makan.
 
-Setelah pertukaran tak terduga itu, sarapan dimulai.
+Seperti yang Aku harapkan, "Baiklah.", Ciel setuju tetapi setelah ini, dia tertawa kecil.
+
+"Aku mungkin tidak tahu apa yang terjadi antara Fii dan Ain kemarin, tetapi Kamu tidak tahu bagaimana Ain sekarang. Jadi itu tidak menggangguku." (Ciel) 
+
+"ara~ ara~. Kalau begitu, saatnya makan." (Fiiyanamia)
+
+Setelah percakapan tak terduga itu, sarapan dimulai.
+
 Ada roti, sup, dan salad. Mereka adalah hidangan sederhana, tetapi semuanya tampaknya disiapkan dengan bahan-bahan berkualitas tinggi dan sangat lezat.
 
-Sudah lama aku tidak makan seperti ini, jadi aku benar-benar terpikat oleh rasanya tapi karena ini terjadi Ngomong-ngomong, ngomong-ngomong」 Fiiyanamia-sama berbicara dengan Ciel.
+Sudah lama aku tidak makan seperti ini, jadi aku benar-benar terpikat oleh rasanya tapi, "Ngomong-ngomong, ngomong-ngomong", Fiiyanamia-sama berbicara dengan Ciel.
 
-Apakah Kamu punya rencana untuk hari ini? Karena Ainsel-chan sudah kembali sekarang, apakah kamu ingin pergi keluar?」
-Ain, apakah kamu memiliki sesuatu yang ingin kamu lakukan?」
-Umm, ada sesuatu yang harus aku diskusikan denganmu, jadi bisakah kamu meluangkan waktu luang? 』
+"Apakah Kamu punya rencana untuk hari ini? Karena Ainsel-chan sudah kembali sekarang, apakah kamu ingin pergi keluar?" (Fiiyanamia)
+
+"Ain, apakah kamu memiliki sesuatu yang ingin kamu lakukan?" (Ciel)
+
+[Umm, ada sesuatu yang harus aku diskusikan denganmu, jadi bisakah kamu meluangkan waktu?] (Ain)
+
 「Ain tampaknya memiliki sesuatu untuk bicara dengan Aku tentang.」
 「 Mengetahui apa yang Tuhan Agung dibahas dengan Ainsel-chan penting setelah semua.
 Aku mengerti. Sampai kalian berdua selesai berdiskusi, aku akan mencoba untuk menghindari memanggil kalian berdua sebanyak mungkin.」
