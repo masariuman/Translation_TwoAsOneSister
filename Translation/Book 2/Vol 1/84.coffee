@@ -52,25 +52,29 @@ Kalau dipikir-pikir, Fiiyanamia-sama juga mengatakan bahwa Ciel meminta bantuan 
 
 Sejujurnya, Aku tidak tahu seberapa besar tekanan yang Aku berikan pada diriku, tetapi mengingat fakta bahwa rasanya seperti beban berat terangkat dari dadaku setelah apa yang terjadi kemarin, itu mungkin benar-benar berbahaya.
 
-Dan memahami itu, kurasa Ciel meminta bantuan Fiiyanamia-sama.
+Dan dengan memahami itu, kurasa Ciel meminta bantuan Fiiyanamia-sama.
 
-Jika itu Ciel di masa lalu, tidak mungkin baginya untuk melakukannya. Aku sudah tahu bahwa Ciel ingin melakukan sesuatu untuk Aku, jadi Aku kira ini adalah kesempatan yang sempurna untuk itu.
-Tapi, Aku pikir Aku tidak pernah mengeluh tentang apa pun di depan Ciel. Dan demi argumen, bahkan jika Aku dibius dan dibuat berbicara, Aku mungkin tidak akan terbangun dengan perasaan segar ini sekarang jika itu adalah Ciel.
+Jika itu Ciel di masa lalu, tidak mungkin baginya untuk melakukannya. Aku sudah tahu bahwa Ciel ingin melakukan sesuatu untukku, jadi Aku kira ini adalah kesempatan yang sempurna untuk itu.
+
+Tapi, kupikir Aku tidak pernah mengeluh tentang apa pun di depan Ciel. Bahkan jika Aku dibius dan dibuat berbicara, Aku mungkin tidak akan terbangun dengan perasaan segar ini sekarang jika itu adalah Ciel.
 
 Aku yakin jika Ciel yang mendengar ucapanku kemarin, dia pasti bingung bagaimana menjawabnya.
+
 Paling tidak, jika Aku berada di posisi Fiiyanamia-sama, Aku tidak tahu apakah Aku bisa mengakhiri semuanya semulus dia.
+
 Ciel mungkin menyadari itu sendiri, yang membuatnya meminta ini.
 
 Fakta ini membuat Aku merasa agak kesepian tetapi juga tersentuh melihat pertumbuhan Ciel.
-Pada titik ini, Aku tidak akan pernah meragukan fakta bahwa Ciel benar-benar menghargai Aku.
+
+Pada titik ini, Aku tidak akan pernah meragukan fakta bahwa Ciel benar-benar menghargaiku.
 
 Lagipula, dia dengan santai menerimaku sebagai pria yang dulu dan berasal dari dunia yang berbeda.
 
-"Terima kasih."
+[Terima kasih.] (Ain)
 
 Mendengar ucapan terima kasihku yang secara tidak sengaja dipenuhi dengan berbagai emosi yang berbeda, Ciel menunjukkan ekspresi yang agak kesepian.
 
-"Maafkan Aku. Tidak, terima kasih, Ain.
+[Maafkan Aku. Tidak, terima kasih, Ain.] (Ciel)
 
 Dari emosi yang memenuhi jawabannya, seberapa banyak yang Aku mengerti?
 Aku tidak punya ide. Tetapi karena tidak sopan untuk menanyakannya, Aku menyimpan pertanyaan ini untuk diri Aku sendiri.
