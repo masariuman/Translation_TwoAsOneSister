@@ -156,19 +156,17 @@ Sudah lama aku tidak makan seperti ini, jadi aku benar-benar terpikat oleh rasan
 
 [Umm, ada sesuatu yang harus aku diskusikan denganmu, jadi bisakah kamu meluangkan waktu?] (Ain)
 
-「Ain tampaknya memiliki sesuatu untuk bicara dengan Aku tentang.」
-「 Mengetahui apa yang Tuhan Agung dibahas dengan Ainsel-chan penting setelah semua.
-Aku mengerti. Sampai kalian berdua selesai berdiskusi, aku akan mencoba untuk menghindari memanggil kalian berdua sebanyak mungkin.」
-Terima kasih Fii.
+"Ain sepertinya ingin berbicara denganku." (Ciel)
 
-Haruskah Aku senang bahwa semuanya telah diputuskan dengan lancar atau haruskah Aku mengulur waktu lagi?
-Bahkan jika aku memilih yang terakhir, itu hanya akan mengurangi waktu Ciel untuk memikirkannya, jadi itu hanya omong kosong.
+"Mengetahui apa yang dewa bahas dengan Ainsel-chan tentu saja penting. Aku mengerti. Sampai kalian berdua selesai berdiskusi, aku akan mencoba untuk menghindari memanggil kalian berdua sebanyak mungkin." (Fiiyanamia)
 
-◇
+"Terima kasih Fii." (Ciel)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Haruskah Aku senang karena semuanya telah diputuskan dengan lancar atau haruskah Aku mengulur waktu lagi?
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+Bahkan jika aku memilih mengulur waktu, itu hanya akan mengurangi waktu Ciel untuk memikirkannya, jadi itu hanya omong kosong.
+
+🎵🎵🎵
 
 Setelah sarapan selesai, kami kembali ke kamar.
 Para pelayan juga diberitahu tentang ini, jadi seharusnya tidak ada yang mengganggu kita.
