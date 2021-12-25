@@ -169,17 +169,25 @@ Bahkan jika aku memilih mengulur waktu, itu hanya akan mengurangi waktu Ciel unt
 🎵🎵🎵
 
 Setelah sarapan selesai, kami kembali ke kamar.
-Para pelayan juga diberitahu tentang ini, jadi seharusnya tidak ada yang mengganggu kita.
+
+Para pelayan juga sudah diberitahu, jadi seharusnya tidak ada yang mengganggu kami.
+
 Duduk di tempat tidur, Ciel menungguku untuk memulai percakapan.
 
 Aku secara impulsif berbicara tentang fakta bahwa Aku adalah seorang pria, meskipun itu benar-benar sesuatu yang seharusnya jauh lebih sulit untuk dibicarakan.
-Apa yang akan Aku bicarakan kali ini sama sulitnya untuk dikatakan, tetapi berapa lama Aku merenungkannya tidak akan mengubah apa pun. Untuk saat ini, Aku akan mencari peluang bagus sambil membicarakan banyak hal.
 
-Ciel, Kamu tahu di mana Aku selama tiga hari terakhir, kan?』
-Fii mengatakan bahwa Ain mungkin berada di alam dewa.」
-Itu benar. Aku dipanggil oleh Dewa Pencipta ke alam ilahi.』
-Alam ilahi, tempat seperti apa itu?」
-Itu adalah tempat yang indah. Aku kira Aku akan mengatakan bahwa itu mirip dengan taman di sini.
+Apa yang akan Aku bicarakan kali ini sama sulitnya untuk dikatakan, tetapi seberapa lamapun Aku merenungkannya, itu tidak akan mengubah apa pun. Untuk saat ini, Aku akan mencari peluang bagus sambil membicarakan banyak hal.
+
+[Ciel, Kamu tahu di mana Aku selama tiga hari terakhir, kan?] (Ain)
+
+[Fii bilang Ain mungkin berada di alam dewa.] (Ciel)
+
+[Itu benar. Aku dipanggil oleh Dewa Pencipta ke alam Dewa.] (Ain)
+
+[Alam Dewa, tempat seperti apa itu?] (Ciel)
+
+Itu adalah tempat yang indah. mungkin bisa dikatanak itu mirip dengan taman di sini.
+
 Tetapi ada banyak bunga yang belum pernah Aku lihat sebelumnya dan sinar matahari di sana sangat lembut.
 Di sana, Aku duduk dengan Dewa Pencipta dan kami berbicara tentang banyak hal. Dia adalah orang yang sangat cantik...... Atau kurasa tuhan?
 
