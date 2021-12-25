@@ -162,7 +162,7 @@ Sudah lama aku tidak makan seperti ini, jadi aku benar-benar terpikat oleh rasan
 
 "Terima kasih Fii." (Ciel)
 
-Haruskah Aku senang karena semuanya telah diputuskan dengan lancar atau haruskah Aku mengulur waktu lagi?
+Haruskah Aku senang karena semuanya berjalan dengan lancar atau haruskah Aku mengulur waktu lagi?
 
 Bahkan jika aku memilih mengulur waktu, itu hanya akan mengurangi waktu Ciel untuk memikirkannya, jadi itu hanya omong kosong.
 
