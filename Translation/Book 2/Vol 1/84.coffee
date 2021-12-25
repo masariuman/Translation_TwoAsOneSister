@@ -186,26 +186,29 @@ Apa yang akan Aku bicarakan kali ini sama sulitnya untuk dikatakan, tetapi seber
 
 [Alam Dewa, tempat seperti apa itu?] (Ciel)
 
-Itu adalah tempat yang indah. mungkin bisa dikatanak itu mirip dengan taman di sini.
+[Itu adalah tempat yang indah. mungkin bisa dikatanak itu mirip dengan taman di sini. Tetapi ada banyak bunga yang belum pernah Aku lihat sebelumnya dan sinar matahari di sana sangat lembut. Di sana, Aku duduk dengan Dewa Pencipta dan kami berbicara tentang banyak hal. Dia adalah orang yang sangat cantik...... Atau kurasa dewa yang cantik?] (Ain)
 
-Tetapi ada banyak bunga yang belum pernah Aku lihat sebelumnya dan sinar matahari di sana sangat lembut.
-Di sana, Aku duduk dengan Dewa Pencipta dan kami berbicara tentang banyak hal. Dia adalah orang yang sangat cantik...... Atau kurasa tuhan?
+Aku agak bingung dengan ekspresiku.
 
-Selama waktu seperti ini, Aku agak bingung dengan ekspresi.
+Dengan arus percakapan saat ini, Aku sedang berpikir untuk berbicara tentang apa yang dewa Pencipta katakan kepadaku ketika tiba-tiba [Apa yang kamu katakan barusan?], Ciel mengajukan pertanyaan kepadaku, jadi Aku menghentikan topik di sana.
 
-Dengan arus percakapan saat ini, Aku sedang berpikir untuk berbicara tentang apa yang Tuhan Pencipta katakan kepada Aku ketika tiba-tiba Apa yang kamu katakan barusan?」 Ciel mengajukan pertanyaan kepada Aku, jadi Aku menghentikan topik di sana.
+[Apa maksudmu?] (Ain)
 
-Apa maksudmu dengan itu?』
-Kamu bilang kamu duduk bersama Dewa Pencipta, kan?」
-Benar. Aku duduk di kursi yang indah saat kami berbicara.
+[Kamu bilang kamu duduk bersama Dewa Pencipta, kan?] (Ciel)
 
-Melihat ketertarikannya yang aneh pada bagian itu, aku bertanya-tanya apakah Ciel adalah tipe orang yang memperhatikan furnitur. Meskipun dia mungkin ingin tahu tentang hal-hal lain juga, sepertinya dia mulai dari topik ini.
+[Benar. Aku duduk di kursi yang indah saat kami berbicara.] (Ain)
+
+Melihat dengan aneh tertarik pada bagian itu, aku bertanya-tanya apakah Ciel adalah tipe orang yang tertarik dengan furnitur. Meskipun dia mungkin ingin tahu tentang hal-hal lain juga, tapi sepertinya dia mulai dari topik ini.
+
 Tapi, respon Ciel berbeda dari yang aku harapkan.
 
-Kamu bilang duduk, kan? Dengan kata lain, Ain memiliki tubuh di alam dewa? Apakah itu masalahnya?」
-Umm, daripada memiliki tubuh, Aku pikir itu hanya jiwa Aku yang mengambil bentuk manusia.
-Lalu itu berarti bentuk ini akan menjadi seperti apa Ain jika Kamu memiliki tubuh manusia?」
-Itu akan terjadi.
+[Kamu bilang duduk, kan? Dengan kata lain, Ain memiliki tubuh di alam dewa? iya kan?] (Ciel)
+
+[Umm, bukannya tubu, itu hanya jiwaku dalam bentuk manusia.] (Ain)
+
+[itu berarti bentuk ini akan menjadi seperti apa Ain jika Kamu memiliki tubuh manusia?] (Ciel)
+
+[Iya.] (Ain)
 
 Kukira Ciel akan tertarik, tapi aku heran dia menyadarinya hanya dengan aku duduk.
 Aku bahkan tidak menyadarinya. Padahal aku yang duduk.
