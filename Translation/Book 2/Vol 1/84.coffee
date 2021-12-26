@@ -240,7 +240,7 @@ Ah, bagian ini mungkin sesuatu yang seharusnya aku jelaskan pada Fiiyanamia-sama
 
 Tidak ada gunanya mengkhawatirkannya sekarang, jadi kurasa aku akan memberi tahu Fiiyanamia-sama saat dia menanyakannya nanti.
 
-◇
+🎵🎵🎵
 
 Untuk saat ini, Aku menjelaskan kepada Ciel detail tentang bagaimana Aku sampai di sisinya dan bagaimana Aku memperoleh kekuatan dewa.
 
