@@ -250,3 +250,17 @@ Selain itu, Aku tidak merasakan sesuatu yang tidak menyenangkan dari Fii.
 Segera setelah kami mencapai sebuah ruangan yang memiliki meja panjang dan banyak kursi, Aku dibawa ke salah satu kursi jauh di dalam ruangan. Fii duduk tepat di depanku dan aku berada di sisi yang lebih dekat ke pintu keluar.
 
 Sejujurnya, Aku cukup yakin bahwa Aku dapat bertahan sepanjang hari bahkan tanpa makan apa pun, tetapi setelah diberitahu bahwa ini demi Ain, Aku tidak punya pilihan lain selain makan.
+
+-------------------------------------------------
+
+Hewrooooo ~~
+
+untuk kali ini kita mengetahui apa yang dialami dedek ciel kita ketika ain sedang berada di alam dewa.... jujur, pengen bangan saya peluk terus elus kepalanya berusaha biar dia ga nangis :(... pengen protecc dedek ciel sekalii aaaaaaaa... pengen sekali ajakin ngomong, elus kepala, beliin eskrim, seblak dll intinya dedek ciel senang deh tapi yaah yang bisa bikin dia senang hanya ain semata :( 
+
+baiklah, Fiiyanamia disini sangat bagus caranya agar dapat berbicara dengan dedek ciel kita, yaitu dengan menyinggung ain, langsung dedek ciel kita mau membuka mulut untuk berbicara. dan saya juga baru tahu kalau dedek ciel kita tidak dapat merasakan barrier ain? kirain selama ini bisa merasakannya. dan akhirnya dedek ciel kita juga agak sedikit tertarik siapa Fiiyanamia sebenarnya...
+
+perasaan dedek ciel disini agak kuat ya, dia bisa merasakan kalau ain tidak ada, dia bisa merasakan kalau Fiiyanamia bukanlah orang normal... insting nya kuat juga...
+
+mari kita lihat apa yang akan dilakukan dedek ciel kita sambilan menunggu ain pulang ke sisinya...
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
