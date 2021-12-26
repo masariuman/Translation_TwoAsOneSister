@@ -210,12 +210,13 @@ Tapi, respon Ciel berbeda dari yang aku harapkan.
 
 [Iya.] (Ain)
 
-Kukira Ciel akan tertarik, tapi aku heran dia menyadarinya hanya dengan aku duduk.
+tidak kusangka ciel tertarik masalah itu, tapi aku heran dia menyadarinya hanya dengan aku duduk.
+
 Aku bahkan tidak menyadarinya. Padahal aku yang duduk.
 
-Jadi seperti apa rupamu Ain? Apa yang kamu!
-Aku memiliki penampilan yang mirip denganmu, Ciel. Karena aku menggunakan tubuhmu, sepertinya jiwaku terpengaruh olehnya.
-Tapi palet warna yang Aku miliki sama dengan saat Aku masih hidup. Rambut dan mata Aku hitam, kulit Aku...... oranye terang, Aku pikir?
+[Jadi seperti apa rupamu Ain? Seperti apa!] (Ciel)
+
+[Aku memiliki penampilan yang mirip denganmu, Ciel. Karena aku menggunakan tubuhmu, sepertinya jiwaku terpengaruh olehnya. Tapi warna dasar warna yang Aku miliki sama dengan saat Aku masih hidup. Rambut dan mataku hitam, kulitku...... oranye terang, Mungkin ?] (Ain)
 
 Warna kulit orang Asia, bagaimana sebenarnya Aku menggambarkannya?
 Jika Aku hanya mengatakan berwarna daging, maka itu akan merujuk pada warna kulit khas orang-orang di dunia ini, tetapi Aku sebenarnya tidak tahu apa warna kulit khas itu. Atau lebih tepatnya, Aku telah melihat cukup banyak warna kulit yang berbeda sejauh ini.
