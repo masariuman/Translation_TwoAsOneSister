@@ -268,3 +268,8 @@ Sekarang saatnya untuk ke topik utama yang sebenarnya: Apa yang akan terjadi pad
 
 -----------------------------------------
 
+Hewwrroooo ~~ Kali ini sepertinya ain akan membicarakan semuanya dengan dedek ciel kita. tentu tidak masa lalunya. Saya sendiri mungkin memperkirakan dedek ciel tetap ingin bersama ain bahkan ketika menjadi dewa pun tetap ingin bersama. Setelah ain dari alam dewa, dedek ciel juga agak lebih dekat dengan Fiiyanamia yang artinya dedek ciel kita mulai bisa terbuka kepada selain ain. dan seperti biasa, dedek ciel hanya tertarik dengan ain, yang mana yang pertama kali terlintas dipikirannya adalah ain yang duduk, yang berarti punya penampilan fisik / tubuh yang bisa duduk, dan langsung bisa menyimpulkan seperti itu. bahkan ain sendiri tidak langsung berfikir seperti itu...
+
+dan ya, eksperimen duke rispelgia berhasil, tapi tidak berhasil sempurna karena yang ditangkapnya adalah ain yang diberikan oleh dewa pencipta, bukan dewanya sendiri. dan untungnya si duke tidak dapat mengetahui kalau sebenarnya percobannya berhasil dan bisa mengulangnya sampai sempurna... dan benar juga berkat itu ada ain di sisi dedek ciel, mereka bisa melihat para roh, dan hal lainnya... yah semoga saja perasaan ini tidak akan menjadi gangguan dimasa mendatang, sudah cukup rasanya urusan dengan duke rispelgia ini, tapi yang namanya masalah utama atau sumber akarnya tentu tidak akan terlepas begitu saja dari sebuah cerita. karena itu saya jadi penasaran bagaimana nantinya ketika berurusan dengan si duke nanti...
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
