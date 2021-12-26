@@ -242,18 +242,29 @@ Tidak ada gunanya mengkhawatirkannya sekarang, jadi kurasa aku akan memberi tahu
 
 ◇
 
-Untuk saat ini, Aku menjelaskan kepada Ciel detail tentang bagaimana Aku sampai di sisinya dan bagaimana Aku memperoleh kekuatan suci.
-Kali ini Aku tidak menyentuh apa pun tentang kehidupan masa lalu Aku.
+Untuk saat ini, Aku menjelaskan kepada Ciel detail tentang bagaimana Aku sampai di sisinya dan bagaimana Aku memperoleh kekuatan dewa.
+
+Kali ini Aku tidak menyentuh apa pun tentang kehidupan masa laluku.
+
 Sementara Aku berbicara, Ciel mendengarkan dengan ekspresi serius di wajahnya.
 
-Jadi dengan kata lain, eksperimen pria itu sebagian berhasil?」
-Itulah masalahnya. Tapi, membuatnya benar-benar berhasil seharusnya tidak mungkin.』
-Itu benar. Lagi pula, pria itu sepertinya tidak tahu seberapa baik eksperimennya juga.
-Meskipun demikian, kita bisa melihat roh mungkin semua berkat pria itu, kan? Ini memberi Aku perasaan yang sangat rumit.」
-Aku merasakan hal yang sama.』
-Lebih penting lagi, Ain benar-benar luar biasa! Lagipula kamu menggunakan sihir!」
-Meskipun karena itu, aku tidak akan pernah memiliki kemampuan untuk menggunakan sihir tempur sama sekali tapi….. Aku akan menyerahkan ini padamu, Ciel.』
-Ya! Tentu saja, tentu saja!
+[Jadi dengan kata lain, eksperimen pria itu sebagian berhasil?] (Ciel)
 
-Itu mengakhiri kata pengantar.
-Sekarang saatnya untuk pergi ke topik utama yang sebenarnya: Apa yang akan terjadi pada kita mulai sekarang.
+[Itulah masalahnya. Tapi, tidak mungkin itu sempurna.] (ain)
+
+[Itu benar. Lagi pula, pria itu sepertinya tidak tahu seberapa baik eksperimennya bekerja dengan baik juga. Meskipun demikian, kita bisa melihat roh mungkin semua berkat pria itu, kan? Ini memberi Aku perasaan yang sangat rumit.] (Ciel)
+
+[Aku merasakan hal yang sama.] (Ain)
+
+[tapi hal yang terpenting, Ain benar-benar luar biasa! Lagipula kamu menggunakan sihir(magic)!] (Ciel)
+
+[Tapi, aku tidak akan pernah memiliki kemampuan untuk menggunakan sihir(sorcery) tempur sama sekali Tapi... Aku akan menyerahkannya padamu, Ciel.] (Ain)
+
+[Ya! Tentu saja, tentu saja!] (Ciel)
+
+Itu mengakhiri pembicaraan pembuka kami.
+
+Sekarang saatnya untuk ke topik utama yang sebenarnya: Apa yang akan terjadi pada kami mulai sekarang.
+
+-----------------------------------------
+
