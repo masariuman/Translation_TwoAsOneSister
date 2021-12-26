@@ -90,78 +90,87 @@ Saat Aku terus membaca tanpa henti, Aku mendengar ketukan dari pintu.
 ... Itu benar. Ada orang selain aku di sini.
 
 Begitu Aku ingat itu, untuk beberapa alasan, Aku tiba-tiba merasa takut.
+
 Bagaimana Aku berinteraksi dengan manusia selain Ain?
+
 Sampai sekarang, Ain bersamaku. Ain melindungiku. Selain melindungiku dengan sihir, dia juga selalu melindungi hatiku.
 
 Itu sebabnya Aku bisa berinteraksi dengan orang-orang.
 
 Tapi sekarang, Ain tidak ada di sini.
-Lebih dari itu, ini adalah rumah seseorang. Itu bukan wilayah Aku. Itu sebabnya, meski aku diam saja, pintu itu pada akhirnya akan terbuka.
 
-S-menjauh. Sama sekali tidak memasuki ruangan.
+dan juga, ini adalah rumah seseorang. ini bukan wilayahku. Itu sebabnya, meski aku diam saja, pintu itu pada akhirnya akan terbuka.
 
-Aku mencoba yang terbaik sehingga Aku akan terdengar dari balik pintu, tetapi suara Aku bergetar menyedihkan.
+"Ja-Jangan Mendekat. JANGAN MASUK KESINI !" (Ciel)
 
-Aku akan meninggalkan makanan Kamu di depan pintu, jadi silakan makan sesegera mungkin.
+Aku mencoba yang terbaik sehingga Aku akan terdengar dari balik pintu, tetapi suaraku bergetar menyedihkan.
+
+"Aku akan meninggalkan makananmu di depan pintu, jadi silakan makan sesegera mungkin."
 
 Setelah mendengar itu, kehadiran orang itu semakin jauh tanpa pintu yang pernah dibuka.
 
 Bagus. Sekarang Aku bisa menenggelamkan diri dalam dunia buku.
 
-◇
+🎵🎵🎵
 
 Saat ruangan menjadi gelap, aku menyalakan lampu dari item sihir dan kembali ke dunia buku sekali lagi.
-Berusaha sekeras yang Aku bisa untuk berhenti berpikir, sebanyak yang Aku bisa untuk melupakan masa kini.
-Saat aku terus mengejar huruf dan kata, di luar mulai terang.
 
-Sebelum aku menyadarinya, ini sudah pagi.
-Namun terlepas dari itu, aku tidak bisa merasakan kehadiran Ain di dekatku.
+Berusaha sekeras yang Aku bisa untuk berhenti berpikir, sebanyak yang Aku bisa untuk melupakan apa yang terjadi. Saat aku terus membaca huruf dan kata, di luar mulai terang.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+tanpa kusadari, ini sudah pagi.
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+Tapi, aku tidak bisa merasakan kehadiran Ain di dekatku.
 
-Ain ...? Ain, ayolah.
+[Ain ...? Ain, Tolong jawablah.] (Ciel)
 
 Bahkan setelah memanggil Ain, tidak ada jawaban.
 
-Aku tidak bisa, itu tidak ada harapan. Aku tidak tahan lagi.
+Aku tidak bisa apa-apa, tidak ada harapan. Aku tidak tahan lagi.
 
-Aku tidak ingin dunia tanpa Ain. Aku tidak bisa hidup tanpamu, Ain.
-Jadi tolong, Ain. Ain. Kembalilah dan panggil namaku lagi. Tolong, Ain ...
+"Aku tidak ingin dunia tanpa Ain. Aku tidak bisa hidup tanpamu, Ain. Jadi tolong, Ain. Ain. Kembalilah dan panggil namaku lagi. Tolong, Ain ..." (Ciel)
 
-Sesuatu tumpah dan mengotori buku Aku.
-Bahkan tidak menyadari bahwa itu adalah air mataku sendiri, aku terus memanggil nama Ain tanpa henti.
-Pertama kali Aku memanggil Ain, Aku masih memiliki harapan. Setelah memahami bahwa Aku tidak akan mendapat balasan, emosi secara bertahap menghilang dari Aku.
+Sesuatu tumpah dan mengotori bukuku.
 
-Setiap kali Aku memanggil nama Ain, setiap kali suara Aku bergema dengan sia-sia, Aku merasa semakin dingin. Bukan tubuhku, tapi hatiku.
+tidak menyadari bahwa itu adalah air mataku sendiri, aku terus memanggil nama Ain tanpa henti.
 
-Aku tidak membutuhkan dunia tanpa Ain. Aku tidak membutuhkannya. Ya ampun
-, itu cukup ekstrim dari Kamu. Maukah Kamu menunggu sebentar sebelum berpikir untuk menyingkirkan dunia atau diri Kamu sendiri?
+Pertama kali Aku memanggil Ain, Aku masih memiliki harapan. Setelah memahami bahwa Aku tidak akan mendapat balasan, emosi secara bertahap menghilang dariku.
+
+Setiap kali Aku memanggil nama Ain, setiap kali suaraku bergema dengan sia-sia, Aku merasa semakin dingin. Bukan tubuhku, tapi hatiku.
+
+"Aku tidak membutuhkan dunia tanpa Ain. Aku tidak membutuhkannya." (Ciel)
+
+"Ara-Ara~, itu cukup ekstrim. Maukah Kamu menunggu sebentar sebelum berpikir untuk menyingkirkan dunia atau dirimu sendiri?" (Fiiyanamia)
 
 Aku mendengar suara. Sebuah suara selain Ain.
-Suara yang tidak penting bagiku. Karena itu, Aku tidak menjawab. Hal-hal selain Ain tidak masalah.
 
-Bukankah kamu cukup keras kepala sekarang? Sepertinya Kamu belum makan dan yang terpenting, wajah Kamu terlihat mengerikan.
-Dengan penampilanmu sekarang, kamu akan mengkhawatirkan Ainsel- chan begitu dia kembali.
-Ain tidak ada di sini! Aku bahkan tidak tahu apakah dia akan kembali!
+Suara yang tidak penting bagiku. Karena itu, Aku tidak menjawab. Hal-hal selain Ain bukanlah urusanku.
+
+"Bukankah kamu cukup keras kepala sekarang? Sepertinya Kamu belum makan dan yang terpenting, wajahmu terlihat mengerikan. Dengan penampilanmu sekarang, kamu akan mengkhawatirkan Ainsel-chan begitu dia kembali." (Fiiyanamia)
+
+"Ain tidak ada di sini! Aku bahkan tidak tahu apakah dia akan kembali!" (Ciel)
 
 Karena Aku mendengar nama Ain dipanggil, Aku secara refleks menjawab suara itu.
-Aku mengangkat mataku dan memelototi pemilik suara itu tetapi Fiiyanamia hanya berbicara tanpa memedulikan tatapanku secara khusus.
 
-Pertama-tama, mari kita lihat. Ainsel- chan masih di sini. Lagipula, penghalang yang melindungimu masih ada.」
-Penghalang Ain?」
+Aku mengangkat mataku dan memelototi pemilik suara itu tetapi Fiiyanamia hanya berbicara tanpa memedulikan tatapanku.
 
-Hambatannya masih ada? Dengan kata lain, Ain masih mempertahankan penghalang?
-Tidak peduli seberapa keras aku mencoba merasakan kekuatan sihir Ain, aku tidak bisa merasakan ada atau tidaknya penghalang Ain.
-Kesenjangan keterampilan antara Ain dan aku dalam hal semacam ini sangat besar.
+"Pertama-tama, coba pikirkan. Ainsel-chan masih di sini. Lagipula, barrier yang melindungimu masih ada." (Fiiyanamia)
 
-Penghalang Ain bukanlah sesuatu yang bisa dirasakan oleh seseorang dengan levelku.
+"Barrier Ain?" (Ciel)
+
+Barriernya masih ada? Dengan kata lain, Ain masih mempertahankan barrier?
+
+Tidak peduli seberapa keras aku mencoba merasakan energi sihir Ain, aku tidak bisa merasakan ada atau tidaknya barrier Ain.
+
+Kesenjangan skill antara Ain dan aku dalam hal semacam ini sangat besar.
+
+barrier Ain bukanlah sesuatu yang bisa dirasakan oleh seseorang dengan levelku.
+
 Tetap saja, itu benar. Ada cara untuk memastikannya.
 
-Tapi aku tidak bisa diganggu untuk bernyanyi sekarang.
+Tapi aku tidak bisa bernyanyi sekarang.
 
 Itu sebabnya aku mengayunkan lenganku dengan ringan, seperti yang kulakukan melawan monster.
+
 Dan dengan itu, hari ini Aku mengarahkan sihir yang dihasilkan ke arah diri Aku sendiri.
 Api merah terang mengalir ke arahku, dan bahkan tanpa merasakan panasnya api yang menabrakku, mereka terhalang oleh sesuatu tepat di depan mataku dan menghilang.
 
@@ -180,11 +189,11 @@ Dan ketika Aku menyadarinya, kali ini Aku berada di udara. Sepertinya Fiiyanamia
 
 (Katakan tidak pada pencuri konten!)
 
-"Ya ya. Seharusnya begitu. Aku ingin berbicara tentang Ainsel- chan , tetapi pertama-tama setidaknya makan sup. Sementara Kamu melakukannya, Aku akan memberi tahu Kamu apa yang terjadi pada Ainsel- chan , itu jika Kamu tidak keberatan menerima dugaan Aku.」
+"Ya ya. Seharusnya begitu. Aku ingin berbicara tentang Ainsel-chan , tetapi pertama-tama setidaknya makan sup. Sementara Kamu melakukannya, Aku akan memberi tahu Kamu apa yang terjadi pada Ainsel-chan , itu jika Kamu tidak keberatan menerima dugaan Aku.」
 .... Terima kasih.」
 Tidak apa-apa, tidak apa-apa. Bagaimanapun, Aku yakin bahwa Kamu dan dia adalah bagian dari keluarga bagi Aku.」
 Keluarga?」
-Itu, sekali lagi, adalah topik untuk nanti. Kamu lebih tertarik tentang bagaimana Ainsel- chan , kan?」
+Itu, sekali lagi, adalah topik untuk nanti. Kamu lebih tertarik tentang bagaimana Ainsel-chan , kan?」
 Aku tidak membutuhkan topik apa pun yang tidak terkait dengan Ain.」
 
 As we were talking, I suddenly felt something out of place.
@@ -222,7 +231,7 @@ Aku tidak tahu apakah aku harus mempercayai ini tapi karena roh hutan itu mengan
 Selain itu, Aku tidak merasakan sesuatu yang tidak menyenangkan dari Fii.
 
 Baiklah, mengapa kita tidak mengakhiri percakapan di sini dan makan sesuatu?
-Kamu perlu makan dengan baik. Lagipula, Ainsel- chan juga menggunakan tubuh itu, bukan?」
+Kamu perlu makan dengan baik. Lagipula, Ainsel-chan juga menggunakan tubuh itu, bukan?」
 
 Segera setelah kami mencapai sebuah ruangan yang memiliki meja panjang dan banyak kursi, Aku dibawa ke salah satu kursi jauh di dalam ruangan. Fii duduk tepat di depanku dan aku berada di sisi yang lebih dekat ke pintu keluar.
 Sejujurnya, Aku cukup yakin bahwa Aku dapat bertahan sepanjang hari bahkan tanpa makan apa pun, tetapi setelah diberitahu bahwa ini demi Ain, Aku tidak punya pilihan lain selain makan.
