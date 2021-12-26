@@ -63,7 +63,7 @@ Wajahku terasa panas dan semakin sulit untuk bernafas.
 
 Ain tidak ada di sini. Dia pergi.
 
-Ahhh , ini pernah terjadi sebelumnya.
+Ahhh, ini pernah terjadi sebelumnya.
 
 itu ketika bahkan aku belum tahu nama ain, saat kami bahkan tidak bisa berkomunikasi satu sama lain.
 
@@ -171,29 +171,33 @@ Tapi aku tidak bisa bernyanyi sekarang.
 
 Itu sebabnya aku mengayunkan lenganku dengan ringan, seperti yang kulakukan melawan monster.
 
-Dan dengan itu, hari ini Aku mengarahkan sihir yang dihasilkan ke arah diri Aku sendiri.
+Dan dengan itu, Aku mengarahkan sihir yang kuhasilkan ke arah diriku sendiri.
+
 Api merah terang mengalir ke arahku, dan bahkan tanpa merasakan panasnya api yang menabrakku, mereka terhalang oleh sesuatu tepat di depan mataku dan menghilang.
 
-Aku tidak membuat penghalang. Dan tidak ada tanda-tanda Fiiyanamia menciptakan penghalang juga.
+Aku tidak membuat barrier. Dan tidak ada tanda-tanda Fiiyanamia menciptakan barrier juga.
+
 Dengan kata lain, orang yang melindungiku dari api adalah Ain.
+
 Ain benar-benar ada di sini.
 
 Jika itu masalahnya, lalu mengapa Ain tidak mau berbicara denganku?
+
 Apa yang Ain lakukan sekarang?
 
-Aku masih memiliki banyak pertanyaan, tetapi ini lebih dari cukup untuk membuktikan bahwa Ain ada di sini dan Aku tiba-tiba merasakan ketegangan meninggalkan tubuh Aku.
-Aku hanya sedikit berdiri di atas lutut Aku dari posisi duduk sebelum ini tetapi Aku hampir tidak dapat menopang tubuh Aku sendiri, dan jatuh ke lantai.
+Aku masih memiliki banyak pertanyaan, tetapi ini lebih dari cukup untuk membuktikan bahwa Ain ada di sini dan Aku tiba-tiba merasakan ketegangan meninggalkan tubuhku.
+
+Aku hanya sedikit berdiri dari posisi duduk tetapi Aku hampir tidak dapat menopang tubuhku sendiri, dan jatuh ke lantai.
+
 Dan ketika Aku menyadarinya, kali ini Aku berada di udara. Sepertinya Fiiyanamia menggendongku.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Ya ya. seperti itulah. Aku ingin berbicara tentang Ainsel-chan, tetapi pertama-tama setidaknya makan sup dulu. Sementara Kamu melakukannya, Aku akan memberi tahu Kamu apa yang terjadi pada Ainsel-chan, itu jika Kamu tidak keberatan mendengarkanku." (Fiiyanamia)
 
-(Katakan tidak pada pencuri konten!)
+".... Terima kasih." (Ciel)
 
-"Ya ya. Seharusnya begitu. Aku ingin berbicara tentang Ainsel-chan , tetapi pertama-tama setidaknya makan sup. Sementara Kamu melakukannya, Aku akan memberi tahu Kamu apa yang terjadi pada Ainsel-chan , itu jika Kamu tidak keberatan menerima dugaan Aku.」
-.... Terima kasih.」
 Tidak apa-apa, tidak apa-apa. Bagaimanapun, Aku yakin bahwa Kamu dan dia adalah bagian dari keluarga bagi Aku.」
 Keluarga?」
-Itu, sekali lagi, adalah topik untuk nanti. Kamu lebih tertarik tentang bagaimana Ainsel-chan , kan?」
+Itu, sekali lagi, adalah topik untuk nanti. Kamu lebih tertarik tentang bagaimana Ainsel-chan, kan?」
 Aku tidak membutuhkan topik apa pun yang tidak terkait dengan Ain.」
 
 As we were talking, I suddenly felt something out of place.
