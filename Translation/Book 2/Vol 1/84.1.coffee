@@ -195,47 +195,58 @@ Dan ketika Aku menyadarinya, kali ini Aku berada di udara. Sepertinya Fiiyanamia
 
 ".... Terima kasih." (Ciel)
 
-Tidak apa-apa, tidak apa-apa. Bagaimanapun, Aku yakin bahwa Kamu dan dia adalah bagian dari keluarga bagi Aku.」
-Keluarga?」
-Itu, sekali lagi, adalah topik untuk nanti. Kamu lebih tertarik tentang bagaimana Ainsel-chan, kan?」
-Aku tidak membutuhkan topik apa pun yang tidak terkait dengan Ain.」
+"Tidak apa-apa, tidak apa-apa. Bagaimanapun juga, Aku yakin bahwa Kamu dan dia adalah bagian dari keluarga bagiku." (Fiiyanamia)
 
-As we were talking, I suddenly felt something out of place.
-I don’t feel magic power from her and while I think that it’s because she’s just as skilled or even more skilled than Ain in terms of magic power manipulation, I have a hunch that it’s because of something different from that.
-And I don’t feel afraid of Fiiyanamia. Just like that time when I first saw the spirits.
+"Keluarga?" (Ciel)
 
-Fiiyanamia seemed to be close with the spirits, so maybe it’s related to that?
+"Itu, adalah topik untuk nanti. Kamu lebih tertarik tentang bagaimana Ainsel-chan, kan?" (Fiiyanamia)
 
-「Fiiyanamia-sama… are you-…」
-「You can call me Fii. In exchange, would you mind if I call you Ciel?」
-「That’s……」
+"Aku tidak membutuhkan topik apa pun yang tidak terkait dengan Ain." (Ciel)
+
+Ketika kami berbicara, aku merasa sesuatu yang tidak seharusnya.
+
+aku tidak merasakan energi sihir darinya dan ketika aku berpikir itu karena dia lebih hebat atau lebih kuat dari ain dari pada manipulasi energi sihir, aku merasakan kalau ini adalah hal yang berbeda.
+
+dan aku tidak merasa takut kepada Fiiyanamia, sama seperti ketika aku melihat roh.
+
+Fiiyanamia terlihat lebih dekat dengan roh, apa ini ada hubungannya dengan itu ?
+
+"Fiiyanamia-sama... kamu-..." (Ciel)
+
+"Kamu dapat memanggilku Fii. sebagai gantinya, bolehkan aku memanggilmu Ciel ?" (Fiiyanamia)
+
+"itu..." (Ciel)
 
 Entah kenapa, tapi aku tidak mau dipanggil Ciel oleh orang lain selain Ain.
-Sementara Aku pikir Aku tidak menentang Fiiyanamia memanggil Aku begitu, tetap saja, untuk beberapa alasan, Aku tidak menyukainya.
-Namun, Ain mengatakan bahwa kita seharusnya tidak melawan Fiiyanamia, dan mungkin ini akan dianggap melawannya.
 
-Namun, sepertinya kekhawatiranku tidak perlu, karena Fiiyanamia terkekeh pada dirinya sendiri sebelum berkata Begitu. dengan nada pengertian.
+walaupun Aku tidak menentang Fiiyanamia memanggilku begitu, tetap saja, untuk beberapa alasan, Aku tidak menyukainya.
 
-Tetap saja, nama Aku cukup panjang, tidakkah Kamu setuju? Itu sebabnya panggil saja aku Fii.
-Tidak ada gelar kehormatan juga. Dan jangan ragu untuk berbicara dengan cara yang paling nyaman untukmu.」
-Fii, apakah kamu bukan orang normal?」
+tapi, Ain mengatakan bahwa kita seharusnya tidak melawan Fiiyanamia, dan mungkin ini akan dianggap melawannya.
+
+tapi, sepertinya kekhawatiranku tidak diperlukan, karena Fiiyanamia terkekeh pada dirinya sendiri sebelum berkata Begitu. dengan nada pengertian.
+
+"Tetap saja, namaku cukup panjang, tidakkah Kamu setuju? Itu sebabnya panggil saja aku Fii. Tidak ada gelar kehormatan juga. Dan jangan ragu untuk berbicara dengan cara yang paling nyaman untukmu." (Fiiyanamia)
+
+"Fii, apakah kamu bukan orang biasa?" (Ciel)
 
 Karena Fii menyuruhku untuk merasa bebas, dan karena rencana awalnya adalah untuk tidak melawannya, aku memutuskan untuk berbicara seperti biasanya.
+
 Fii tampak sedikit terkejut mendengar pertanyaanku tapi dia segera mengangguk, sepertinya yakin.
 
-Benar, itu benar. Aku kira Kamu bisa mengatakan bahwa Aku ...... mirip dengan roh.
-Aku akan membicarakannya nanti jadi Aku akan mengatakan ini sebelumnya tetapi secara teknis Aku dapat diklasifikasikan sebagai dewa.
-Bersama dengan Raja Roh, Aku dikirim ke sini di permukaan oleh Dewa Tertinggi. 」
-「Dewa?」
-「 Dewa berbeda dari mereka yang tinggal di ranah ilahi tapi ... sulit untuk menjelaskan.
-Kamu dapat menganggap Aku sebagai utusan ilahi.
+"Benar, itu benar. mungkin bisakubilang kalau aku ...... mirip dengan roh. Aku akan membicarakannya nanti jadi Aku akan mengatakan ini sebelumnya tetapi secara teknis Aku dapat diklasifikasikan sebagai dewa. Bersama dengan Raja Roh, Aku dikirim ke dunia ini oleh Dewa Tertinggi." (Fiiyanamia)
+
+"Dewa?" (Ciel)
+
+"Dewa yang berbeda dari mereka yang tinggal di ranah dewa tapi ... sulit untuk menjelaskan. Kamu dapat menganggap Aku sebagai utusan dewa." (Fiiyanamia)
 
 Tidak seperti serigala emas itu, kurasa dia benar-benar utusan dewa.
+
 Aku tidak tahu apakah aku harus mempercayai ini tapi karena roh hutan itu mengangguk kepadaku saat aku meliriknya sekilas, kupikir aku akan mempercayai kata-kata Fii.
+
 Selain itu, Aku tidak merasakan sesuatu yang tidak menyenangkan dari Fii.
 
-Baiklah, mengapa kita tidak mengakhiri percakapan di sini dan makan sesuatu?
-Kamu perlu makan dengan baik. Lagipula, Ainsel-chan juga menggunakan tubuh itu, bukan?」
+"Baiklah, mengapa kita tidak mengakhiri percakapan di sini dan makan sesuatu? Kamu perlu makan dengan baik. Lagipula, Ainsel-chan juga menggunakan tubuh itu, bukan?" (Fiiyanamia)
 
 Segera setelah kami mencapai sebuah ruangan yang memiliki meja panjang dan banyak kursi, Aku dibawa ke salah satu kursi jauh di dalam ruangan. Fii duduk tepat di depanku dan aku berada di sisi yang lebih dekat ke pintu keluar.
+
 Sejujurnya, Aku cukup yakin bahwa Aku dapat bertahan sepanjang hari bahkan tanpa makan apa pun, tetapi setelah diberitahu bahwa ini demi Ain, Aku tidak punya pilihan lain selain makan.
