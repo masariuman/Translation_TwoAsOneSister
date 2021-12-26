@@ -219,18 +219,25 @@ Aku bahkan tidak menyadarinya. Padahal aku yang duduk.
 [Aku memiliki penampilan yang mirip denganmu, Ciel. Karena aku menggunakan tubuhmu, sepertinya jiwaku terpengaruh olehnya. Tapi warna dasar warna yang Aku miliki sama dengan saat Aku masih hidup. Rambut dan mataku hitam, kulitku...... oranye terang, Mungkin ?] (Ain)
 
 Warna kulit orang Asia, bagaimana sebenarnya Aku menggambarkannya?
-Jika Aku hanya mengatakan berwarna daging, maka itu akan merujuk pada warna kulit khas orang-orang di dunia ini, tetapi Aku sebenarnya tidak tahu apa warna kulit khas itu. Atau lebih tepatnya, Aku telah melihat cukup banyak warna kulit yang berbeda sejauh ini.
+
+Jika Aku hanya mengatakan berwarna daging, itu akan merujuk pada warna kulit khas orang-orang di dunia ini, tetapi Aku sebenarnya tidak tahu apa warna kulit khas itu. Atau lebih tepatnya, Aku telah melihat cukup banyak warna kulit yang berbeda sejauh ini.
+
 Warna kulit yang khas mungkin juga bervariasi tergantung pada ras, jadi sebagai mantan orang Jepang yang memiliki kulit berwarna daging, Aku benar-benar bingung di sini.
 
-Itu sangat bagus, sangat bagus, aku ingin melihatnya juga!」
-Aku mengerti….. Yang ingin aku bicarakan agak terkait dengan itu juga, jadi mengapa kita tidak pergi ke topik utama.
+[Itu sangat bagus, sangat bagus, aku ingin melihatnya juga!] (Ciel)
 
-Jika Aku menjadi dewa, Ciel mungkin akan memiliki kesempatan untuk melihat tubuh Aku.
+[Begitu ya... Yang ingin aku bicarakan agak terkait dengan itu juga, jadi ayo kita berbicara topik utamanya.] (Ain)
+
+Jika Aku menjadi dewa, Ciel mungkin akan memiliki kesempatan untuk melihat tubuhku.
+
 Tapi di luar itu, Aku rasa tidak akan ada peluang lain.
+
 Itu sebabnya aku harus memberitahunya.
 
-Tapi sebelum itu, Aku akan membahas situasi Aku sampai sekarang.
+Tapi sebelum itu, Aku akan membahas situasiku sampai sekarang.
+
 Ah, bagian ini mungkin sesuatu yang seharusnya aku jelaskan pada Fiiyanamia-sama juga.
+
 Tidak ada gunanya mengkhawatirkannya sekarang, jadi kurasa aku akan memberi tahu Fiiyanamia-sama saat dia menanyakannya nanti.
 
 ◇
