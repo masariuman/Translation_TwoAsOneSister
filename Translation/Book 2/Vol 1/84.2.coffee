@@ -6,41 +6,51 @@ hidangannya sederhana tapi tampak mahal dan terlihat sulit untuk dimakan.
 
 Aku yakin ada beberapa tata cara yang tepat untuk ini. Ain mungkin akan memberitahuku tentang itu jika dia ada di sini, atau begitulah menurutku. Ain sebenarnya sudah mengajariku minimal tentang aturan tatan cara sopan santun.
 
-Ain mengatakan bahwa sopan santun berbeda pada tiap negara sehingga tidak ada kepastian, tapi itu masih lebih baik daripada makan tanpa berpikir. Menurut Ain, yang terpenting tidak mengecewakan pihak lain.
+Ain mengatakan bahwa sopan santun berbeda pada tiap negara sehingga tidak ada kepastian, tapi itu masih lebih baik daripada makan tanpa berpikir. Menurut Ain, yang terpenting adalah tidak mengecewakan pihak lain.
 
-Jadi, jangan makan sembarangan dan jangan terlalu berisik. Ingatlah keduanya, apa yang dia, meskipun agak lemah lembut, katakan.
+Jadi, jangan makan sembarangan dan jangan terlalu berisik. ingatlah kedua itu, adalah yang dia katakan dengan lemah lembut.
 
-Itu sebabnya aku bisa melakukannya bahkan saat aku sendiri. Sebaliknya, Aku melakukannya secara teratur.
+Itu sebabnya aku bisa melakukannya bahkan saat aku sendiri. Aku melakukannya secara teratur.
 
-Menyadari bahwa Aku secara alami dapat melakukan hal-hal yang Ain ajarkan bahkan dalam situasi yang tidak terduga, Aku merasa agak senang. Bagaimanapun, itu meyakinkanku tentang keberadaan Ain.
+Menyadari bahwa Aku secara alami dapat melakukan hal-hal yang Ain ajarkan bahkan dalam situasi yang tidak terduga, Aku merasa agak senang. Bagaimanapun juga, itu meyakinkanku tentang keberadaan Ain.
 
 Dan saat aku sedang makan sup, aku menyadari bahwa Fii sedang menatapku dan dengan cekikikan. Dia kemudian mulai berbicara.
 
-Sekarang, sekarang, kamu dapat melanjutkan makan tetapi maukah kamu mendengarkan spekulasi Aku?」
-Tentang Ain?」
-Ya, ya. Tepat.」
-Katakan padaku, cepat.
+"maa~ maaa~ kamu dapat melanjutkan makan tetapi maukah kamu mendengarkan spekulasiku?" (Fiiyanamia)
 
-Jika Aku mengetahui hal-hal tentang Ain, maka Aku tidak akan keberatan jika Aku tidak punya sup.
+"Tentang Ain?" (Ciel)
+
+"Ya, ya. Benar." (Fiiyanamia)
+
+"Katakan padaku, cepat." (Ciel)
+
+Jika Aku bisa mengetahui hal-hal tentang Ain, maka Aku tidak akan keberatan walaupun tidak makan sup.
+
 Ini lebih enak dari yang Aku harapkan, jadi Aku merasa agak enggan untuk berhenti tapi itu sepele dibandingkan dengan Ain.
 
+"Ainsel-chan sepertinya sekarang berada ditempat Dewa Tertinggi. mungkin lebih mudah untuk memahaminya jika Aku mengatakan bahwa dia di alam dewa, alam di mana para dewa berada?" (Fiiyanamia)
 
-Ainsel-chan sepertinya berada di sisi Dewa Tertinggi. Aku kira mungkin lebih mudah untuk memahami jika Aku mengatakan bahwa dia di alam dewa, alam di mana para dewa mendiami?」
-Mengapa kamu berpikir begitu?」
-Tempat di mana rumah besar ini berdiri juga berfungsi sebagai kuil di mana oracle dari para dewa turun, kamu lihat?
-Dengan kata lain, itu adalah tempat yang dapat dengan mudah dipengaruhi oleh kekuatan para dewa.」
-Apakah oracle datang ke Ain?」
+"Mengapa kamu berpikir begitu?" (Ciel)
 
-Aku hanya samar-samar mengerti apa itu oracle, tapi kurasa itu kata-kata para dewa?
+"Tempat di mana rumah besar ini berdiri juga berfungsi sebagai kuil di mana wahyu dari para dewa turun lho... Dengan kata lain, itu adalah tempat yang dapat dengan mudah dipengaruhi oleh kekuatan para dewa." (Fiiyanamia)
+
+"Apakah Ain mendapatkan wahyu?" (Ciel)
+
+Aku hanya samar-samar mengerti apa itu Wahyu, tapi kurasa itu kata-kata para dewa?
+
 Tetapi jika Ain hanya harus mendengarkan, maka Aku tidak berpikir itu akan memakan waktu sehari.
+
 Atau, apakah Ain sendiri pergi ke tempat alam dewa itu?
 
-"Tidak. Karena ini adalah tempat yang dapat dipengaruhi oleh kekuatan para dewa, Ain sebenarnya dipanggil ke alam dewa?」
-Benar, aku yakin itu masalahnya. Meskipun kamu mungkin bertanya-tanya mengapa Aku percaya begitu, itu karena, seperti yang telah Aku katakan sebelumnya, Aku adalah makhluk yang diciptakan dan dikirim oleh Dewa Tertinggi...... tapi itu tidak benar-benar membuat alasan yang meyakinkan, bukan?
-Ainsel-chan, kau tahu, memiliki kekuatan yang mirip dengan kekuatan Dewa Tertinggi. Jadi dia juga, pada dasarnya, seseorang yang dikirim ke sini oleh Dewa Tertinggi.」
-Ain bukan dewa.
+
+"Tidak. Karena ini adalah tempat yang dapat dipengaruhi oleh kekuatan para dewa, Ain sebenarnya dipanggil ke alam dewa?" (Ciel)
+
+"Benar, aku percaya itu sebabnya dia tidak ada. Meskipun kamu mungkin bertanya-tanya mengapa Aku percaya begitu, itu karena, seperti yang telah Aku katakan sebelumnya, Aku adalah makhluk yang diciptakan dan dikirim oleh Dewa Tertinggi...... tapi itu tidak benar-benar membuat alasan yang meyakinkan, bukan? Ainsel-chan, kau tahu, memiliki kekuatan yang mirip dengan kekuatan Dewa Tertinggi. Jadi dia juga, pada dasarnya, seseorang yang dikirim ke sini oleh Dewa Tertinggi." (Fiiyanamia)
+
+"Ain bukan dewa." (Ciel)
 
 Aku sudah bertanya kepada Ain beberapa kali sebelumnya tetapi dia tidak pernah menjawab ya.
+
 Itu sebabnya Ain tidak seharusnya seperti Fii.
 
 Ainsel-chan juga berbeda dari kita.
