@@ -53,48 +53,50 @@ Aku sudah bertanya kepada Ain beberapa kali sebelumnya tetapi dia tidak pernah m
 
 Itu sebabnya Ain tidak seharusnya seperti Fii.
 
-Ainsel-chan juga berbeda dari kita.
-Kami memiliki peran untuk memulai dan, agar sesuai dengan peran itu, kami dibuat dengan cara yang berbeda dari umat manusia.
-tapi, Ainsel-chan, kemungkinan besar, hanyalah jiwa fana. Dan padanya, Dewa Tertinggi hanya memberikan sebagian dari kekuatan suci......Tidak, dia meminjamkan sebagian dari kekuatan tapi Ainsel-chan malah mengasimilasi kekuatan itu. Padahal, sepertinya itu tidak disengaja di pihaknya.」
-Jadi Ain adalah manusia?」
-Secara kasar, dia adalah makhluk fana yang dapat memanipulasi bagian dari kekuatan suci, kurasa? tapi, karena kami sama-sama memegang kekuasaan yang berasal dari Dewa Yang Maha Esa, kami praktis adalah keluarga.
-Baiklah, akankah kita kembali ke topik utama kita? Mengapa Aku percaya bahwa Ainsel-chan pergi ke alam dewa, ingat?」
+"Ainsel-chan juga berbeda dari kami. Kami memiliki peran didunia ini, agar sesuai dengan peran itu, kami dibuat dengan cara yang berbeda dari umat manusia. tapi, Ainsel-chan, kemungkinan besar, hanyalah jiwa Manusia. Dan Dewa Tertinggi hanya memberikan sebagian dari kekuatan dewanya......Tidak, dia meminjamkan sebagian dari kekuatan tapi Ainsel-chan malah mengasimilasi kekuatan itu. sepertinya itu tidak disengaja juga." (Fiiyanamia)
+
+"Jadi Ain adalah manusia?" (Ciel)
+
+"Secara kasarnya, dia adalah manusia yang dapat memanipulasi bagian dari kekuatan dewa, kurasa? tapi, karena kami sama-sama memegang kekuasaan yang berasal dari Dewa Tertinggi, kami bisa disebut keluarga. Baiklah, ayo kita kembali ke topik utama. Mengapa Aku percaya bahwa Ainsel-chan pergi ke alam dewa?" (Fiiyanamia)
 
 Itu benar. Yang penting adalah di mana Ain sekarang dan apakah dia akan kembali.
+
 Aku ingin mendengar hal lain tentang Ain juga, tapi sekarang bukan waktunya untuk itu.
-Aku harus mengatur prioritas Aku.
 
-Memiliki kekuatan Dewa Tertinggi, Ainsel-chan mudah sekali menarik perhatian Dewa Tertinggi.
-Selain itu, dia kemungkinan adalah seseorang yang dikirim oleh Dewa Tertinggi. tapi, Ainsel-chan tidak menyadari bahwa dia memiliki divine power sejak awal.
-Dewa Tertinggi sepertinya tidak memberikan penjelasan apa pun saat dia dikirim ke sini.」
-Jadi sedang dijelaskan sekarang?」
-Ya, ya. Setidaknya, itulah yang Aku berspekulasi. Bagaimanapun, sebagai jalur komunikasi satu arah, nubuat tidak cocok untuk penjelasan.
-Ainsel-chan seharusnya terbiasa dengan kekuatan dewa itu sendiri, jadi memanggilnya ke alam dewa mungkin lebih nyaman.
+Aku harus mengatur prioritasku.
 
-Jadi Dewa hanya mengambilnya. Muu......Aku punya keluhan tapi, jika aku mengatakannya, itu bisa menyebabkan masalah bagi Ain.
+"Memiliki kekuatan Dewa Tertinggi, tentu saja Ainsel-chan menarik perhatian Dewa Tertinggi. Selain itu, dia kemungkinan adalah seseorang yang dikirim oleh Dewa Tertinggi. tapi, Ainsel-chan tidak menyadari bahwa dia memiliki kekuatan dewa sejak awal. Dewa Tertinggi sepertinya tidak memberikan penjelasan apa pun saat dia dikirim ke sini." (Fiiyanamia)
+
+"Jadi dia sedang dijelaskan sekarang?" (Ciel)
+
+"Ya, ya. Setidaknya, itulah menurutku. Bagaimanapun juga, sebagai jalur komunikasi satu arah, wahyu tidak cocok untuk penjelasan. Ainsel-chan seharusnya terbiasa dengan kekuatan dewa itu sendiri, jadi memanggilnya ke alam dewa mungkin lebih nyaman." (Fiiyanamia)
+
+Jadi Dewa hanya mengambilnya sebentar. Muu...... Aku ingin mengeluh tapi, jika aku mengatakannya, itu bisa menyebabkan masalah bagi Ain.
+
 Tetap saja, meski begitu, tidak ada salahnya untuk diberitahu sebelumnya.
 
-kamu tampaknya tidak puas, apakah itu mungkin sulit untuk dipahami?」
-Tidak, tidak apa-apa. Lebih penting lagi, akankah Ain benar-benar kembali?」
-Benar, kan. Paling-paling, dia bahkan mungkin kembali paling cepat besok.
-Itu akan tergantung pada isi percakapannya dengan Dewa Pencipta jadi Aku tidak bisa mengatakan dengan pasti, tetapi itu tidak akan memakan waktu terlalu lama.」
+"kamu tampaknya tidak puas, apakah itu mungkin sulit untuk dipahami?" (Fiiyanamia)
+
+"Tidak, tidak apa-apa. yang paling penting, apakah Ain akan benar-benar kembali?" (Ciel)
+
+"Benar, benar. mungkin dia kembali paling cepat besok. Itu akan tergantung pada isi percakapannya dengan Dewa Pencipta jadi Aku tidak bisa mengatakan dengan pasti, tetapi itu tidak akan memakan waktu terlalu lama." (Fiiyanamia)
 
 Jika Aku percaya kata-kata Fii, maka yang bisa Aku lakukan hanyalah menunggu.
-Masih… benar. Terakhir kali Aku berpikir bahwa Ain sudah pergi, Aku dalam keadaan compang-camping.
-Aku memiliki luka di sekujur tubuh dan Aku pikir rambut Aku berubah warna saat itu juga.
+
+Tapi... Terakhir kali Aku berpikir bahwa Ain sudah pergi, Aku dalam keadaan compang-camping.
+
+Aku memiliki luka di sekujur tubuh dan Aku pikir rambutku berubah warna saat itu juga.
 
 
-Suaranya yang bergetar tidak bisa membentuk sebuah lagu. Itu karena Ain kesakitan melihatku dipukuli.
+Suaranya yang bergetar tidak bisa membuatnya bernyanyi. Itu karena Ain kesakitan melihatku dipukuli.
+
 Ain mungkin mengira aku terluka karena dia tidak ada di sana.
-
-(Bab ini disediakan untuk kamu oleh Re:Library)
-
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
 
 Dan aku tidak sombong, aku hanya mengerti bahwa Ain sangat menyayangiku.
 
-Jadi Aku harus menunjukkan kepada Ain bahwa Aku baik-baik saja?」
-Ya, itu benar. Jadi habiskan supmu, oke?
+"Jadi Aku harus menunjukkan kepada Ain bahwa Aku baik-baik saja?" (Ciel)
+
+"Ya, itu benar. Jadi habiskan supmu, oke?" (Fiiyanamia)
 
 Tatapan lembut Fii entah bagaimana terasa sangat geli.
 Tapi dia benar, aku tidak bisa membiarkan Ain melihatku seperti kemarin.
