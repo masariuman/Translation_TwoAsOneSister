@@ -99,147 +99,183 @@ Dan aku tidak sombong, aku hanya mengerti bahwa Ain sangat menyayangiku.
 "Ya, itu benar. Jadi habiskan supmu, oke?" (Fiiyanamia)
 
 Tatapan lembut Fii entah bagaimana terasa sangat geli.
+
 Tapi dia benar, aku tidak bisa membiarkan Ain melihatku seperti kemarin.
+
 Jika itu terjadi, aku yakin Ain akan menyalahkan dirinya sendiri.
 
 Tetap saja, aku juga yakin jika Ain tiba-tiba menghilang lagi, kemungkinan besar aku akan jatuh ke kondisi yang sama.
-Seperti yang Aku pikirkan, Aku tidak baik tanpa Ain.
-Memiliki keyakinan dan hanya menunggu… itu sulit.
+
+Seperti yang Aku pikirkan, Aku tidak bisa tanpa Ain.
+
+hanya percaya dan menunggu... itu sulit.
 
 Kali ini aku hanya beruntung karena Fii bersamaku, jadi aku bisa mengaturnya.
+
 Aku kemudian tiba-tiba teringat sesuatu.
 
-Kalau dipikir-pikir, penghalang itu masih ada di sini. Bukankah Ain berada di alam dewa?」
-Aku mengatakannya seperti itu untuk membuatnya lebih mudah dijelaskan, tetapi, tepatnya, Ainsel-chan dalam keadaan seperti tidur. Dia berada di alam dewa saat dia bermimpi.」
-Bisakah menggunakan sihir saat tidur?」
-Sepertinya memang begitu. Aku rasa tidak ada orang lain yang bisa mempertahankan tingkat presisi ini dengan menggunakan sihir saat sedang tidur.
-Itu hanya menunjukkan betapa dia ingin melindungimu.
+"Kalau dipikir-pikir, barrier itu masih ada di sini. Bukankah Ain berada di alam dewa?" (Ciel)
+
+"Aku mengatakannya seperti itu agar lebih mudah dijelaskan, tetapi, tepatnya, Ainsel-chan dalam keadaan seperti tidur. Dia berada di alam dewa ketika dia bermimpi." (Fiiyanamia)
+
+"Bisakah menggunakan sihir saat tidur?" (Ciel)
+
+"Sepertinya memang begitu. Aku rasa tidak ada orang lain yang bisa mempertahankan tingkat presisi ini dengan menggunakan sihir saat sedang tidur. Itu hanya menunjukkan betapa dia ingin melindungimu." (Fiiyanamia)
 
 Mendengar itu membuatku merasa senang. Itulah seberapa besar keinginan Ain untuk melindungiku. Betapa pentingnya aku baginya.
 
-"Ya! Itu benar! Ain, kamu lihat, dia benar-benar luar biasa!
-Dia selalu melindungiku. Dan dia juga pandai menyanyi.」
-Ya, ya. Itu benar. Aku bahkan bertanya-tanya berapa banyak orang yang bisa menembus penghalang miliknya ini.
-Terlebih lagi, karena dia menggunakannya secara tidak sadar sekarang, dia tidak menahan diri sama sekali.
-Saat ini, tempat paling aman di dunia mungkin adalah di mana kamu berada.」
-Begitu, luar biasa! Itu luar biasa! Aku tahu bahwa Ain benar-benar luar biasa!」
-Juga, cara makanmu, mungkinkah Ainsel-chan yang menyuruhmu melakukannya?」
-Yup, yup! Ain tahu banyak hal, kamu tahu? Sementara Ain tidak tahu etika minum teh, dia mengajariku tentang sopan santun dan etiket sederhana. Dan banyak hal lainnya juga-」
+"Ya! Itu benar! Ain itu, dia benar-benar luar biasa! Dia selalu melindungiku. Dan dia juga pandai menyanyi." (Ciel)
 
-Sebelum Aku menyadarinya, Aku mulai berbicara dengan cara yang sama dengan Ain dan banyak berbicara dengan Fii.
+"Ya, ya. Itu benar. Aku bahkan bertanya-tanya berapa banyak orang yang bisa menembus barrier miliknya ini. Terlebih lagi, karena dia menggunakannya secara tidak sadar sekarang, dia tidak menahan diri sama sekali. Saat ini, tempat paling aman di dunia mungkin adalah di mana kamu berada." (Fiiyanamia)
 
-◇
+"Begitu, luar biasa! Itu luar biasa! sudah kuduga Ain benar-benar luar biasa!" (Ciel)
+
+"Juga, cara makanmu, mungkinkah Ainsel-chan yang menyuruhmu melakukannya?" (Fiiyanamia)
+
+"Yup, yup! Ain tahu banyak hal, kamu tahu? walaupun Ain tidak tahu etika minum teh, dia mengajariku tentang sopan santun dan etiket sederhana. Dan banyak hal lainnya juga-" (Ciel)
+
+tanpa kusadari, Aku mulai berbicara dengan cara yang sama dengan Ain dan banyak berbicara dengan Fii.
+
+🎵🎵🎵
 
 Berbicara tentang Ain sangat menyenangkan.
+
 Ketika Ain dipuji, Aku merasa lebih bahagia daripada ketika Aku mendapat pujian.
+
 tapi, aku teringat sesuatu. Ketika Ain menghilang sebelumnya, Aku pikir itu karena Aku tidak melakukan apa pun untuk Ain.
 
 Beberapa tahun telah berlalu sejak itu, tapi apakah aku bisa melakukan sesuatu untuk Ain?
+
 Bukankah aku hanya seseorang yang dilindungi oleh Ain bahkan sampai sekarang?
-Tetap saja, apa yang Ain ingin aku lakukan untuknya?
+
+Tetap saja, apa yang Ain inginkan yang bisa kulakukan untuknya?
 
 Saat aku memikirkan hal ini selama teh sore kami, Fii diam-diam menurunkan cangkir menyentuh bibirnya dan menatap langsung ke arahku.
-Cara dia meletakkan cangkirnya sangat cantik.
 
-Meskipun Aku mengatakan bahwa Ainsel-chan tidak bangun karena dia berada di sisi Dewa Tertinggi, sebenarnya ada satu alasan lain untuk itu.」
-Alasan lain?」
-Ya. Dia sangat kelelahan. Bukan fisik tapi mental. Ainsel-chan sepertinya tidak merasakan kelelahan fisik sejak awal.
-tapi, dia terlalu tegang sampai-sampai dia tertidur karena relaksasi sesaat.
+Cara dia meletakkan cangkirnya sangat indah.
+
+"Meskipun Aku mengatakan bahwa Ainsel-chan tidak bangun karena dia berada di sisi Dewa Tertinggi, sebenarnya ada satu alasan lain untuk itu." (Fiiyanamia)
+
+"Alasan lain?" (Ciel)
+
+"Ya. Dia sangat kelelahan. Bukan fisik, tapi mental. Ainsel-chan sepertinya tidak merasakan kelelahan fisik dari awal. tapi, dia terlalu tegang sampai-sampai dia tertidur hanya karena merasa rileks sebentar." (Fiiyanamia)
 
 Mendengar itu, aku tiba-tiba sadar.
+
 Aku tidak ingat Ain pernah tidur.
+
 Ain menghilang selama sehari ketika aku berumur lima tahun tapi hanya itu.
 
 Tidak mungkin Ain tidak kelelahan.
+
 Tidak mungkin Ain tidak stres.
+
 Jika itu aku, aku bahkan tidak akan bertahan selama tiga hari.
 
 Tapi Ain melanjutkan.
+
 Demi aku, untuk melindungiku.
+
 Aku sadar bahwa Ain harus kelelahan secara mental.
 
 Kalau begitu, aku akan berterima kasih pada Ain saat dia kembali.
+
 Aku akan memberinya istirahat.
 
-(Bab ini disediakan untuk kamu oleh Re:Library)
-
-(Jika kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
-
 --Tapi bagaimana caranya?
+
 Apa yang harus Aku katakan kepada Ain?
 
 ---Aku tidak tahu.
 
 Apa hal yang paling penting?
+
 Bahwa Aku melakukan sesuatu untuk membantu Ain?
 
 Aku ingin melakukan sesuatu untuk Ain.
+
 Aku ingin melakukan hal-hal yang dapat membantu Ain.
+
 Tapi aku tidak tahu bagaimana melakukannya.
 
 Aku berharap Aku bisa membantu Ain.
+
 Tetap saja, yang terpenting bukanlah aku membantu Ain, tapi Ain mendapat bantuan.
+
 Dan aku yakin Fii akan tahu cara yang baik untuk membantu Ain.
+
 Menjadi seseorang yang mengakui Ain dengan benar, aku bisa mempercayakan ini pada Fii.
 
 Bahkan jika itu membuatku merasa agak kosong.
+
 Bahkan jika itu membuat Aku merasa agak frustrasi.
 
 Ain perlu merasa lebih baik dulu.
 
-Fii. Aku punya bantuan.
-Sebuah bantuan? Ada apa?」
-Aku akan membiarkanmu memanggilku Ciel, jadi bisakah kamu membuat Ain merasa lebih baik?」
-Apakah kamu benar-benar baik-baik saja dengan itu?」
-……. Tidak apa-apa. Aku tidak tahu bagaimana Aku bisa membantu Ain merasa lebih baik.」
-Aku mengerti, Aku mengerti. Aku mengerti, Ciel.
-tapi, kamu tidak perlu merasa terlalu sedih tentang hal ini. Lagi pula, kamu belum cukup dewasa.
-Tidak tidak. Bahkan orang dewasa pun akan kesulitan memahami bagaimana perasaan Ainsel-chan. Menggambarkan perasaannya yang tersembunyi akan sulit bahkan bagiku.
-Itu sebabnya tidak apa-apa bahkan jika kamu masih tidak bisa berbuat apa-apa sekarang.
+"Fii. Aku punya tawaran." (Ciel)
+
+"Sebuah tawaran? apa itu?" (Fiiyanamia)
+
+"Aku akan membiarkanmu memanggilku Ciel, jadi bisakah kamu membuat Ain merasa lebih baik?" (Ciel)
+
+"Apakah kamu benar-benar baik-baik saja dengan itu?" (Fiiyanamia)
+
+".... Tidak apa-apa. Aku tidak tahu bagaimana Aku bisa membantu Ain merasa lebih baik." (Ciel)
+
+"Aku mengerti, Aku mengerti. Aku mengerti, Ciel. tapi, kamu tidak perlu merasa terlalu sedih tentang hal ini. Lagi pula, kamu belum cukup dewasa. Tidak tidak. Bahkan orang dewasa pun akan kesulitan memahami bagaimana perasaan Ainsel-chan. Menggambarkan perasaannya yang tersembunyi akan sulit bahkan bagiku. Itu sebabnya tidak apa-apa bahkan jika kamu masih tidak bisa berbuat apa-apa sekarang." (Fiiyanamia)
 
 Fii menjelaskan demikian.
+
 Aku masih anak-anak. Seorang anak yang dilindungi oleh Ain. Dan Fii bilang tidak apa-apa.
+
 Ain mungkin akan mengatakan hal serupa dalam situasi ini juga.
 
-Tetap saja, lain kali aku ingin bisa membantu Ain merasa lebih baik.
+Tetap saja, aku ingin bisa membantu Ain merasa lebih baik.
 
-Sementara Aku memiliki tekad baru, Fii memiliki tampilan yang agak khawatir.
+Sementara Aku memiliki tekad baru, Fii tampaknnya agak khawatir.
 
-Tetap saja, kan, ini cukup meresahkan.」
-Seperti yang kupikirkan, apakah ini benar-benar sulit?」
-Mengungkapkan perasaan tersembunyi Ainsel-chan adalah sesuatu yang bisa aku kelola. Dengan metode yang agak tidak adil itu.
-tapi, yang paling meresahkan adalah jika kita terlihat bersahabat satu sama lain, aku yakin Ainsel-chan akan merasa cemburu.」
-Cemburu… Aku tidak terlalu memahaminya.」
-Apa Maksudku adalah bahwa dia mungkin marah.」
-Bukan seseorang yang akan marah karena kita bersahabat satu sama lain. Dia tidak.
-Dia tidak berpikiran sempit.」
-Tentu saja, dia sebenarnya mungkin tidak cemburu. Bagaimanapun, dia harus mengerti bahwa itu adalah hal yang baik.
-Tetap saja, itu bukan masalah apakah dia berpikiran sempit atau tidak.
-Ciel, pernahkah kamu mengalami saat-saat kamu menjadi iri karena Ainsel-chan bergaul dengan orang lain?」
-Aku pernah. Maksudku, semua orang bisa menyentuh Ain, tapi mau bagaimana lagi.
+"Tetap saja, kan, ini cukup merepotkan." (Fiiyanamia)
+
+"Seperti yang kupikirkan, apakah ini benar-benar sulit?" (Ciel)
+
+"Mengungkapkan perasaan tersembunyi Ainsel-chan adalah sesuatu yang bisa aku lakukan. Dengan metode yang agak tidak adil. tapi, yang paling meresahkan adalah jika kita terlihat bersahabat satu sama lain, aku yakin Ainsel-chan akan merasa cemburu." (Fiiyanamia)
+
+"Cemburu... Aku tidak terlalu memahaminya." (Ciel)
+
+"Maksudku adalah bahwa dia mungkin marah." (Fiiyanamia)
+
+"Ain Bukan seseorang yang akan marah karena kita bersahabat satu sama lain. Dia tidak berpikiran sempit." (Ciel)
+
+"Tentu saja, dia sebenarnya mungkin tidak cemburu. Bagaimanapun juga, dia mengerti bahwa itu adalah hal yang baik. Tetap saja, itu bukan masalah apakah dia berpikiran sempit atau tidak. Ciel, pernahkah kamu mengalami saat-saat kamu menjadi iri karena Ainsel-chan bergaul dengan orang lain?" (Fiiyanamia)
+
+"pernah. Maksudku, semua orang bisa menyentuh Ain, tapi mau bagaimana lagi." (Ciel)
 
 Saat itu ketika Ain berada di bak mandi yang sama dengan Viviana, untuk beberapa alasan, aku benar-benar iri.
+
 Aku ingin menyentuh Ain juga.
+
 Butuh banyak usaha untuk menahan diri. Lagi pula, Aku tahu bahwa tidak ada cara untuk melakukan itu.
 
-Itulah yang dimaksud dengan kecemburuan. Kamu merasa seperti itu karena kamu menyukai Ain, ya?
+"Itulah yang dimaksud dengan kecemburuan. Kamu merasa seperti itu karena kamu menyukai Ain, ya?" (Ciel)
 
 Jadi begitu. Dalam hal ini, itu jauh lebih mudah untuk dipahami.
+
 Jika Ain akan merasakan apa yang aku rasakan saat itu jika dia melihatku dengan Fii, maka entah bagaimana aku merasa itu akan membuatku bahagia.
-Rasanya menyakitkan saat itu tetapi untuk beberapa alasan, Aku merasa seperti ini.
 
-Ingin melihat Ain merasa seperti itu, aku benar-benar gadis yang buruk.
+aku merasakan sakit saat itu tetapi untuk beberapa alasan, Aku merasa seperti ini.
 
-Jadi apa yang harus Aku lakukan?」
-Bersiaplah untuk menerima sisi Ainsel-chan itu, Aku kira?」
-Kalau begitu itu mudah. Sangat mudah, kamu tahu?
+Ingin melihat Ain merasa seperti itu, aku benar-benar gadis yang nakal.
+
+"Jadi apa yang harus Aku lakukan?" (Ciel)
+
+"Bersiaplah untuk menerima sisi Ainsel-chan yang seperti itu?" (Fiiyanamia)
+
+"Kalau begitu itu mudah. Sangat mudah..." (Ciel)
 
 Meskipun aku tidak tahu apa yang akan kurasakan jika Ain tiba-tiba marah, jika karena cemburu, maka itu akan menggemaskan.
-Sekarang Aku sedikit bersemangat untuk melihat sisi mana dari Ain yang akan Aku lihat nanti.
 
-(Bab ini disediakan untuk kamu oleh Re:Library)
-
-(Katakan tidak pada pencuri konten!)
+Sekarang Aku sedikit bersemangat untuk melihat sisi dari Ain yang akan kulihat nanti.
 
 Tetap saja, yang lebih penting, aku benar-benar ingin melihat Ain segera.
-Ain, jika kamu mengambil terlalu banyak waktu, Aku mungkin cemburu pada Dewa, kamu tahu?
+
+Ain, jika kamu terlalu lama, Aku mungkin cemburu pada Dewa lho... 
