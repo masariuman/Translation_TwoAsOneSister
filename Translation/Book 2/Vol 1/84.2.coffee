@@ -278,4 +278,16 @@ Sekarang Aku sedikit bersemangat untuk melihat sisi dari Ain yang akan kulihat n
 
 Tetap saja, yang lebih penting, aku benar-benar ingin melihat Ain segera.
 
-Ain, jika kamu terlalu lama, Aku mungkin cemburu pada Dewa lho... 
+Ain, jika kamu terlalu lama, Aku mungkin cemburu pada Dewa lho...
+
+-------------------------------------------
+
+hewwrrooooo ~~~~~!
+
+kali ini kali ini kali ini, kita bisa melihat sisi nakal dedek ciel lagi !!! YAGTTAAAAA !!!!!
+
+Fiiyanamia sangat pandai bagaimana cara berbicara dengan dedek ciel.. ya tentu semua orang juga tahu kalau orang yang tidak mau berbicara terkadang juga pasti akan berbicara hanya dengan membahas apa yang orang tersebut senangi...
+
+Melihat dedek ciel kita yang kembali energik, diriku juga menjadi energi kembali !!!! YATTAAAAAAAAA ~~~!! dan Fiiyanamia sangat pandai membuat dedek ciel menyadari sesuatu, YA !! walau ain tidak lelah fisik, mental tetap lelah... tidak tidur, tidak makan, dan selalu waspada akan hal sekitar... kasihan juga si ain... dan akhirnya dedek ciel menyadarinya... sangat imut melihat dedek ciel yang khawatir dengan ain dan berusaha untuk membuat ain menjadi lebih baik... sangat imut melihat dedek ciel yang berusaha pada sesuatu.. KYAAAAA ~~!! dan disini kita bisa melihat transaksi ringat dedek ciel kita dengan Fiiyanamia yaitu dengan panggilan nama yang ditukar dengan bantuan dari Fiiyanamia untuk membuat ain menjadi lebih baik... hmmmmmm dan juga Fiiyanamia berkata dia bisa tapi ain akan cemburu... hmmm hmm hmmm.. sesuai dengan chapter sebelumnya ain benar benar terbukti cemburu, mereka berhasil !!! aaaa saya penasaran bagaimana kedepannya hubungan mereka berdua... Fiiyanamia lebih berasa sebagai ibu ciel, yang mengerti anaknya dan berusaha utk menolongnya... rasa senang di chapter ini terbalaskan dengan chapter sebelumnya di mana dedek ciel kita jadi kacau hanya karna ain hilang...
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
