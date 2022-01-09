@@ -17,46 +17,58 @@ itu harusnya akan baik-baik saja kan? Mungkin iya, mungkin tidak? karena baru ba
 [Selamat pagi Ciel.] (Ain)
 
 Dan saat Ciel memanggilku, aku secara refleks menyapa sebagai balasan.
-Aku selalu menjawab ketika Aku mendengar suaranya, meskipun kadang-kadang ketika Aku terlalu sibuk dengan sesuatu, itu hanya melewati telinga Aku dan Aku tidak menjawab.
-Sebaliknya, Aku pikir Aku selalu menyapa Ciel pertama di pagi hari.
+
+Aku selalu menjawab ketika Aku mendengar suaranya, meskipun ada kalanya ketika Aku terlalu sibuk dengan sesuatu dan suaranya hanya melewati telingaku dan Aku tidak menjawab.
+
+tapi, kupikir Aku selalu menyapa Ciel pertama di pagi hari.
+
 Tapi kali ini, mungkin karena aku tertidur, Ciel yang menyapaku lebih dulu.
 
-Bagaimanapun, itu tidak lebih dari pertukaran biasa.
+yaah, itu tidak lebih dari percakapan biasa.
 
-Tapi Ciel hari ini tampaknya sangat senang untuk beberapa alasan,
-Benar, fufu, selamat pagi. dan menjawab dengan itu.
+Tapi Ciel hari ini tampaknya sangat senang untuk beberapa alasan dan menjawab dengan [Benar, fufu, selamat pagi.].
+
 Melihat kegembiraannya, roh-roh itu mendekatinya dan terbang mengelilinginya.
 
-Kamu tampaknya cukup bahagia.
-Maksudku, bagaimanapun juga, Ain ada di sini. Sampai kemarin, tidak akan ada balasan tidak peduli berapa banyak Aku memberi salam, kau tahu? 」
-『Uhh, itu-.....』
+[Kamu tampaknya cukup bahagia.] (Ain)
 
-Mungkin karena berada di tempat Dewa Pencipta, Aku tidak merasa banyak waktu telah berlalu tetapi Aku sebenarnya sudah keluar selama tiga hari.
+[yaaah, bagaimanapun juga, Ain ada di sini. Sampai kemarin, tidak akan ada balasan tidak peduli berapa banyak Aku memanggilmu...] (Ciel)
+
+[Uhh, itu-...] (Ain)
+
+Mungkin karena berada di tempat Dewa Pencipta, Aku tidak merasa banyak waktu telah berlalu tetapi Aku sebenarnya sudah berada disana selama tiga hari.
+
 Selama hari-hari itu, Aku tidak bisa menyapa Ciel dan, tentu saja, Aku tidak bisa menyapanya kembali.
-Kemarin, Fiiyanamia-sama mengatakan bahwa Ciel hampir menutup hatinya hanya dalam satu hari. Itu mungkin tidak berlebihan.
 
+Kemarin, Fiiyanamia-sama mengatakan bahwa Ciel hampir menutup hatinya hanya dalam satu hari. Itu mungkin tidak berlebihan.
 
 Itu membuatku merasa sangat bersalah dan, pada saat yang sama, takut berdiskusi dengan Ciel tentang apa yang akan terjadi pada kami mulai sekarang. Bagaimanapun, Ciel mungkin harus membuat pilihan yang sulit.
 
-Tapi Kamu tahu, tidak apa-apa. Lagipula, sepertinya kamu merasa lebih baik sekarang, Ain.
+[Tapi itu tidak apa-apa. Lagipula, sepertinya kamu merasa lebih baik sekarang, Ain.] (Ciel)
 
 Kalau dipikir-pikir, Fiiyanamia-sama juga mengatakan bahwa Ciel meminta bantuannya.
-Sejujurnya, Aku tidak tahu seberapa besar tekanan yang Aku berikan pada diri Aku, tetapi mengingat fakta bahwa rasanya seperti beban berat terangkat dari dada Aku setelah apa yang terjadi kemarin, itu mungkin benar-benar berbahaya.
+
+Sejujurnya, Aku tidak tahu seberapa besar tekanan yang Aku berikan pada diriku, tetapi mengingat fakta bahwa rasanya seperti beban berat terangkat dari dadaku setelah apa yang terjadi kemarin, itu mungkin benar-benar berbahaya.
+
 Dan memahami itu, kurasa Ciel meminta bantuan Fiiyanamia-sama.
 
-Jika itu Ciel di masa lalu, tidak mungkin baginya untuk melakukannya. Aku sudah tahu bahwa Ciel ingin melakukan sesuatu untuk Aku, jadi Aku kira ini adalah kesempatan yang sempurna untuk itu.
-Tapi, Aku pikir Aku tidak pernah mengeluh tentang apa pun di depan Ciel. Dan demi argumen, bahkan jika Aku dibius dan dibuat untuk berbicara, Aku mungkin tidak akan terbangun dengan perasaan segar ini sekarang jika itu adalah Ciel.
+Jika itu Ciel di masa lalu, tidak mungkin baginya untuk melakukannya. Aku sudah tahu bahwa Ciel ingin melakukan sesuatu untukku, jadi Aku kira ini adalah kesempatan yang sempurna untuk itu.
+
+Tapi, Aku pikir Aku tidak pernah mengeluh tentang apa pun di depan Ciel. Dan bahkan jika Aku dibius dan dibuat untuk berbicara, Aku mungkin tidak akan terbangun dengan perasaan segar ini sekarang jika itu adalah Ciel.
 
 Aku yakin jika Ciel yang mendengar ucapanku kemarin, dia pasti bingung bagaimana menjawabnya.
+
 Paling tidak, jika Aku berada di posisi Fiiyanamia-sama, Aku tidak tahu apakah Aku bisa mengakhiri semuanya semulus dia.
+
 Ciel kemungkinan menyadari itu sendiri, yang membuatnya meminta ini.
 
-Fakta ini membuat Aku merasa agak kesepian tetapi juga tersentuh melihat pertumbuhan Ciel.
-Pada titik ini, Aku tidak akan pernah meragukan fakta bahwa Ciel benar-benar menyayangi Aku.
+Fakta ini membuatku merasa agak kesepian tetapi juga tersentuh melihat pertumbuhan Ciel.
 
-Lagipula, dia dengan santai menerimaku sebagai pria yang dulu dan datang dari dunia yang berbeda.
+Pada titik ini, Aku tidak akan pernah meragukan fakta bahwa Ciel benar-benar menyayangiku.
 
-"Terima kasih."
+Lagipula, dia dengan santai menerimaku sebagai pria dulunya dan datang dari dunia yang berbeda.
+
+[Terima kasih.] (Ain)
 
 Mendengar ucapan terima kasihku yang secara tidak sengaja dipenuhi dengan berbagai emosi yang berbeda, Ciel menunjukkan ekspresi yang agak kesepian.
 
