@@ -10,7 +10,7 @@ Meskipun karena obat, kemarin sungguh memalukan.
 
 Tetap saja, Fiiyanamia-sama menyebut kami keluarga.
 
-itu harusnya akan baik-baik saja kan? Mungkin iya, mungkin tidak? karena baru bangun, pikiranku masih agak kabur.
+itu harusnya tidak masalah kan? Mungkin iya, mungkin tidak? Bangun beberapa saat yang lalu, pikiranku masih agak kabur.
 
 [Pagi Ain.] (Ciel)
 
@@ -18,55 +18,57 @@ itu harusnya akan baik-baik saja kan? Mungkin iya, mungkin tidak? karena baru ba
 
 Dan saat Ciel memanggilku, aku secara refleks menyapa sebagai balasan.
 
-Aku selalu menjawab ketika Aku mendengar suaranya, meskipun ada kalanya ketika Aku terlalu sibuk dengan sesuatu dan suaranya hanya melewati telingaku dan Aku tidak menjawab.
+Aku selalu menjawab ketika Aku mendengar suaranya, tapi terkadang ketika Aku terlalu sibuk dengan sesuatu, suaranya hanya melewati telingaku dan Aku tidak menjawab.
 
-tapi, kupikir Aku selalu menyapa Ciel pertama di pagi hari.
+kupikir Aku yang selalu pertama kali menyapa Ciel di pagi hari.
 
-Tapi kali ini, mungkin karena aku tertidur, Ciel yang menyapaku lebih dulu.
+Tapi kali ini, mungkin karena aku tertidur, Ciel yang menyapaku duluan.
 
 yaah, itu tidak lebih dari percakapan biasa.
 
-Tapi Ciel hari ini tampaknya sangat senang untuk beberapa alasan dan menjawab dengan [Benar, fufu, selamat pagi.].
+Tapi Ciel hari ini tampaknya sangat senang untuk beberapa alasan,
 
-Melihat kegembiraannya, roh-roh itu mendekatinya dan terbang mengelilinginya.
+dan menjawab dengan [benar, fufu, selamat pagi.].
+
+Melihat kegembiraannya, roh-roh mendekatinya dan terbang mengelilinginya.
 
 [Kamu tampaknya cukup bahagia.] (Ain)
 
-[yaaah, bagaimanapun juga, Ain ada di sini. Sampai kemarin, tidak akan ada balasan tidak peduli berapa banyak Aku memanggilmu...] (Ciel)
+[bagaimanapun juga, Ain ada di sini. kemarin, tidak ada balasan darimu tidak peduli berapa banyak Aku memanggilmu, kau tahu?] (Ciel)
 
-[Uhh, itu-...] (Ain)
+[Uhh, itu-.....] (Ain)
 
-Mungkin karena berada di tempat Dewa Pencipta, Aku tidak merasa banyak waktu telah berlalu tetapi Aku sebenarnya sudah berada disana selama tiga hari.
+Mungkin karena berada di tempat dewa Pencipta, Aku tidak merasa banyak waktu telah berlalu tetapi Aku sebenarnya disana selama tiga hari.
 
-Selama hari-hari itu, Aku tidak bisa menyapa Ciel dan, tentu saja, Aku tidak bisa menyapanya kembali.
+Selama hari-hari itu, Aku tidak bisa menyapa Ciel dan, tentu saja, Aku tidak bisa menjawab panggilannya kembali.
 
 Kemarin, Fiiyanamia-sama mengatakan bahwa Ciel hampir menutup hatinya hanya dalam satu hari. Itu mungkin tidak berlebihan.
 
-Itu membuatku merasa sangat bersalah dan, pada saat yang sama, takut berdiskusi dengan Ciel tentang apa yang akan terjadi pada kami mulai sekarang. Bagaimanapun, Ciel mungkin harus membuat pilihan yang sulit.
+Itu membuatku merasa sangat bersalah dan, pada saat yang sama, takut memberitahu Ciel tentang apa yang akan terjadi pada kami mulai sekarang. Bagaimanapun juga, Ciel mungkin harus membuat pilihan yang sulit.
 
-[Tapi itu tidak apa-apa. Lagipula, sepertinya kamu merasa lebih baik sekarang, Ain.] (Ciel)
+[Tapi, tidak apa-apa. Lagipula, sepertinya kamu merasa lebih baik sekarang, Ain.] (Ciel)
 
-Kalau dipikir-pikir, Fiiyanamia-sama juga mengatakan bahwa Ciel meminta bantuannya.
+Kalau dipikir-pikir, Fiiyanamia-sama juga mengatakan bahwa Ciel meminta bantuan padanya.
 
 Sejujurnya, Aku tidak tahu seberapa besar tekanan yang Aku berikan pada diriku, tetapi mengingat fakta bahwa rasanya seperti beban berat terangkat dari dadaku setelah apa yang terjadi kemarin, itu mungkin benar-benar berbahaya.
 
-Dan memahami itu, kurasa Ciel meminta bantuan Fiiyanamia-sama.
+Dan dengan memahami itu, kurasa Ciel meminta bantuan Fiiyanamia-sama.
 
 Jika itu Ciel di masa lalu, tidak mungkin baginya untuk melakukannya. Aku sudah tahu bahwa Ciel ingin melakukan sesuatu untukku, jadi Aku kira ini adalah kesempatan yang sempurna untuk itu.
 
-Tapi, Aku pikir Aku tidak pernah mengeluh tentang apa pun di depan Ciel. Dan bahkan jika Aku dibius dan dibuat untuk berbicara, Aku mungkin tidak akan terbangun dengan perasaan segar ini sekarang jika itu adalah Ciel.
+Tapi, kupikir Aku tidak pernah mengeluh tentang apa pun di depan Ciel. Bahkan jika Aku dibius dan dibuat berbicara, Aku mungkin tidak akan terbangun dengan perasaan segar ini sekarang jika itu adalah Ciel.
 
 Aku yakin jika Ciel yang mendengar ucapanku kemarin, dia pasti bingung bagaimana menjawabnya.
 
 Paling tidak, jika Aku berada di posisi Fiiyanamia-sama, Aku tidak tahu apakah Aku bisa mengakhiri semuanya semulus dia.
 
-Ciel kemungkinan menyadari itu sendiri, yang membuatnya meminta ini.
+Ciel mungkin menyadari itu sendiri, yang membuatnya meminta ini.
 
-Fakta ini membuatku merasa agak kesepian tetapi juga tersentuh melihat pertumbuhan Ciel.
+Fakta ini membuat Aku merasa agak kesepian tetapi juga tersentuh melihat pertumbuhan Ciel.
 
-Pada titik ini, Aku tidak akan pernah meragukan fakta bahwa Ciel benar-benar menyayangiku.
+Pada titik ini, Aku tidak akan pernah meragukan fakta bahwa Ciel benar-benar menghargaiku.
 
-Lagipula, dia dengan santai menerimaku sebagai pria dulunya dan datang dari dunia yang berbeda.
+Lagipula, dia dengan santai menerimaku sebagai pria yang dulu dan berasal dari dunia yang berbeda.
 
 [Terima kasih.] (Ain)
 
@@ -74,14 +76,13 @@ Mendengar ucapan terima kasihku yang secara tidak sengaja dipenuhi dengan berbag
 
 [Maafkan Aku. Tidak, terima kasih, Ain.] (Ciel)
 
-
 Dari emosi yang memenuhi jawabannya, seberapa banyak yang Aku mengerti?
 
-Aku tidak tahu. Tetapi karena tidak sopan untuk menanyakannya, Aku menyimpan pertanyaan ini untuk diriku sendiri.
+Aku tidak tahu apa-apa. Tetapi karena tidak sopan untuk menanyakannya, Aku menyimpan pertanyaan ini untuk diriku sendiri.
 
 🎵🎵🎵
 
-Beberapa saat kemudian, kami dipanggil untuk sarapan, tapi rasanya sangat canggung untuk melihat Fiiyanamia-sama secara langsung.
+Beberapa saat kemudian, kami dipanggil untuk sarapan, tapi rasanya canggung sekali melihat Fiiyanamia-sama secara langsung.
 
 walaupun aku merasa tersembunyi di dalam Ciel, Fiiyanamia-sama mengetahui keberadaanku.
 
@@ -89,7 +90,7 @@ Dipanggil oleh seorang maid, kami dituntun ke tempat yang terlihat seperti ruang
 
 Sebuah meja yang bisa menampung selusin orang dan ruang terbuka yang luas.
 
-dan yang makan di ruangan ini hanya Ciel dan Fiiyanamia-sama, tidak ada orang lain.
+di ruangan ini hanya Ciel dan Fiiyanamia-sama, tidak ada orang lain.
 
 Sepertinya mereka sudah menggunakan tempat ini beberapa kali sebelumnya karena Ciel duduk di salah satu dari beberapa kursi yang tersedia tanpa ragu-ragu.
 
@@ -97,13 +98,13 @@ Sepertinya mereka sudah menggunakan tempat ini beberapa kali sebelumnya karena C
 
 "Fii, pagi." (Ciel)
 
-"Benar, selamat pagi Ciel." (Fiiyanamia)
+"ya, selamat pagi Ciel." (Fiiyanamia)
 
 Ciel menyapa Fiiyanamia-sama dengan senyuman.
 
-Kemarin, hanya pertukaran sederhana seperti ini dapat merobek hatiku, tapi tidak hari ini. Sebaliknya, Aku cukup senang bahwa Ciel telah menemukan seseorang selain Aku yang dapat dia ajak bicara dan membuka hatinya. Lagipula, kami belum bisa berbicara dengan roh.
+Kemarin, hanya dengan percakapan sederhana seperti ini merobek hatiku, tapi tidak hari ini. Sebaliknya, Aku cukup senang bahwa Ciel telah menemukan seseorang selain Aku yang dapat dia ajak bicara dan membuka hatinya. Lagipula, kami belum bisa berbicara dengan roh.
 
-Tapi, Aku harap Kamu akan memaafkanku karena merasa agak kesepian.
+Tapi, kuharap Kamu akan memaafkanku karena merasa agak kesepian.
 
 "Apakah Ainsel-chan baik-baik saja?" (Fiiyanamia)
 
@@ -111,7 +112,7 @@ Tapi, Aku harap Kamu akan memaafkanku karena merasa agak kesepian.
 
 "Terima kasih, katanya. Terima kasih untuk kemarin Fii." (Ciel)
 
-[Tidak, tidak. Jangan sebutkan itu. Itu memiliki arti tersendiri...] (Ain)
+"Tidak, tidak. tidak apa-apa. Sebaliknya, itu memberikan beberapa efek untukmu juga." (Fiiyanamia)
 
 Fiiyanamia-sama membuat celah kecil antara ibu jari dan jari telunjuknya untuk menggoda Ciel.
 
@@ -119,115 +120,156 @@ Tolong hentikan. Tolong hentikan dengan topik ini.
 
 Aku yakin dia tidak akan membicarakan detailnya.
 
-"ada apa, ada apa? Jadi sesuatu terjadi antara kamu dan Ain?" (Ciel)
+"Ada apa, ada apa? ada sesuatu terjadi antara kamu dan Ain?" (Ciel)
 
-"ara ara~ ufufu. Itu rahasia." (Fiiyanamia)
+"ara~ ara~, ufufu. Itu rahasia." (Fiiyanamia)
 
 "Itu tidak adil, sangat tidak adil!" (Ciel)
 
-Melihat bagaimana Ciel tampaknya menikmati pertukaran itu, sepertinya dia tidak benar-benar ingin mengeluarkannya dari Fiiyanamia-sama.
+Melihat bagaimana Ciel tampaknya menikmati percakapan itu, sepertinya dia tidak benar-benar ingin memaksa Fiiyanamia-sama.
+
 Mereka berdua mungkin mengerti bahwa aku tidak ingin Ciel mendengar apa pun tentang apa yang aku katakan kemarin.
-Itu sebabnya ini hanya olok-olok. Sementara aku baik-baik saja dengan Ciel menikmati dirinya sendiri, mendengar mereka membicarakannya hanya......memalukan.
 
-『U-um, mengapa kita tidak makan sarapan dulu? Lihat, sepertinya sangat enak.
+karena itulah percakapan ini hanya gurauan saja. walaupun aku suka karena Ciel menikmati dirinya sendiri, mendengar mereka berbicara tentang hal itu rasanya......memalukan.
 
-Itu sebabnya Aku mengalihkan topik ke sarapan.
-Aku yakin Ciel harus memperhatikannya. Lagi pula, ketika semua dikatakan dan dilakukan, dia suka makan.
+[U-um, mengapa kita tidak makan sarapan dulu? Lihat, sepertinya sangat enak.] (Ain)
 
-Seperti yang Aku harapkan, Baiklah. Ciel setuju tetapi setelah ini, dia tertawa kecil.
+Aku mengalihkan topik ke sarapan.
 
-Aku mungkin tidak tahu apa yang terjadi antara Fii dan Ain kemarin, tapi kamu tidak tahu bagaimana Ain sekarang. Jadi itu tidak mengganggu Aku. Ya ampun
-. Kalau begitu, saatnya makan.
+Aku yakin Ciel memahaminya. Lagi pula, dia suka makan.
 
-Setelah pertukaran tak terduga itu, sarapan dimulai.
+Seperti yang Aku harapkan, "Baiklah.", Ciel setuju tetapi setelah ini, dia tertawa kecil.
+
+"Aku mungkin tidak tahu apa yang terjadi antara Fii dan Ain kemarin, tetapi Kamu tidak tahu bagaimana Ain sekarang. Jadi itu tidak menggangguku." (Ciel) 
+
+"ara~ ara~. Kalau begitu, saatnya makan." (Fiiyanamia)
+
+Setelah percakapan tak terduga itu, sarapan dimulai.
+
 Ada roti, sup, dan salad. Mereka adalah hidangan sederhana, tetapi semuanya tampaknya disiapkan dengan bahan-bahan berkualitas tinggi dan sangat lezat.
 
-Sudah lama aku tidak makan seperti ini, jadi aku benar-benar terpikat oleh rasanya tapi karena ini terjadi Ngomong-ngomong, ngomong-ngomong」 Fiiyanamia-sama berbicara dengan Ciel.
+Sudah lama aku tidak makan seperti ini, jadi aku benar-benar terpikat oleh rasanya tapi, "Ngomong-ngomong, ngomong-ngomong", Fiiyanamia-sama berbicara dengan Ciel.
 
-Apakah Kamu punya rencana untuk hari ini? Karena Ainsel-chan sudah kembali sekarang, apakah kamu ingin pergi keluar?」
-Ain, apakah kamu memiliki sesuatu yang ingin kamu lakukan?」
-Umm, ada sesuatu yang harus aku diskusikan denganmu, jadi bisakah kamu meluangkan waktu luang? 』
-「Ain tampaknya memiliki sesuatu untuk bicara dengan Aku tentang.」
-「 Mengetahui apa yang Dewa Agung dibahas dengan Ainsel-chan penting setelah semua.
-Aku mengerti. Sampai kalian berdua selesai berdiskusi, aku akan mencoba untuk menghindari memanggil kalian berdua sebanyak mungkin.」
-Terima kasih Fii.
+"Apakah Kamu punya rencana untuk hari ini? Karena Ainsel-chan sudah kembali sekarang, apakah kamu ingin pergi keluar?" (Fiiyanamia)
 
-Haruskah Aku senang bahwa semuanya telah diputuskan dengan lancar atau haruskah Aku mengulur waktu lagi?
-Bahkan jika aku memilih yang terakhir, itu hanya akan mengurangi waktu Ciel untuk memikirkannya, jadi itu hanya omong kosong.
+"Ain, apakah kamu memiliki sesuatu yang ingin kamu lakukan?" (Ciel)
+
+[Umm, ada sesuatu yang harus aku diskusikan denganmu, jadi bisakah kamu meluangkan waktu?] (Ain)
+
+"Ain sepertinya ingin berbicara denganku." (Ciel)
+
+"Mengetahui apa yang dewa bahas dengan Ainsel-chan tentu saja penting. Aku mengerti. Sampai kalian berdua selesai berdiskusi, aku akan mencoba untuk menghindari memanggil kalian berdua sebanyak mungkin." (Fiiyanamia)
+
+"Terima kasih Fii." (Ciel)
+
+Haruskah Aku senang karena semuanya berjalan dengan lancar atau haruskah Aku mengulur waktu lagi?
+
+Bahkan jika aku memilih mengulur waktu, itu hanya akan mengurangi waktu Ciel untuk memikirkannya, jadi itu hanya omong kosong.
 
 🎵🎵🎵
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
-
 Setelah sarapan selesai, kami kembali ke kamar.
-Para pelayan juga diberitahu tentang ini, jadi seharusnya tidak ada yang mengganggu kita.
+
+Para pelayan juga sudah diberitahu, jadi seharusnya tidak ada yang mengganggu kami.
+
 Duduk di tempat tidur, Ciel menungguku untuk memulai percakapan.
 
 Aku secara impulsif berbicara tentang fakta bahwa Aku adalah seorang pria, meskipun itu benar-benar sesuatu yang seharusnya jauh lebih sulit untuk dibicarakan.
-Apa yang akan Aku bicarakan kali ini sama sulitnya untuk dikatakan, tetapi berapa lama Aku merenungkannya tidak akan mengubah apa pun. Untuk saat ini, Aku akan mencari peluang bagus sambil membicarakan banyak hal.
 
-Ciel, Kamu tahu di mana Aku selama tiga hari terakhir, kan?』
-Fii mengatakan bahwa Ain mungkin berada di alam dewa.」
-Itu benar. Aku dipanggil oleh Dewa Pencipta ke alam ilahi.』
-Alam ilahi, tempat seperti apa itu?」
-Itu adalah tempat yang indah. Aku kira Aku akan mengatakan bahwa itu mirip dengan taman di sini.
-Tapi ada banyak bunga yang belum pernah Aku lihat sebelumnya dan sinar matahari di sana sangat lembut.
-Di sana, Aku duduk dengan Dewa Pencipta dan kami berbicara tentang banyak hal. Dia adalah orang yang sangat cantik...... Atau kurasa Dewa?
+Apa yang akan Aku bicarakan kali ini sama sulitnya untuk dikatakan, tetapi seberapa lamapun Aku merenungkannya, itu tidak akan mengubah apa pun. Untuk saat ini, Aku akan mencari peluang bagus sambil membicarakan banyak hal.
 
-Selama waktu seperti ini, Aku agak bingung dengan ekspresi.
+[Ciel, Kamu tahu di mana Aku selama tiga hari terakhir, kan?] (Ain)
 
-Dengan alur percakapan saat ini, Aku sedang berpikir untuk berbicara tentang apa yang Dewa Pencipta katakan kepada Aku ketika tiba-tiba Apa yang kamu katakan barusan?」 Ciel mengajukan pertanyaan kepada Aku, jadi Aku menghentikan topik di sana.
+[Fii bilang Ain mungkin berada di alam dewa.] (Ciel)
 
-Apa yang kamu maksud dengan itu?』
-Kamu bilang kamu duduk bersama Dewa Pencipta, kan?」
-Benar. Aku duduk di kursi yang indah saat kami berbicara.
+[Itu benar. Aku dipanggil oleh Dewa Pencipta ke alam Dewa.] (Ain)
 
-Melihat ketertarikannya yang aneh pada bagian itu, aku bertanya-tanya apakah Ciel adalah tipe orang yang memperhatikan furnitur. Meskipun dia mungkin ingin tahu tentang hal-hal lain juga, sepertinya dia mulai dari topik ini.
+[Alam Dewa, tempat seperti apa itu?] (Ciel)
+
+[Itu adalah tempat yang indah. mungkin bisa dikatanak itu mirip dengan taman di sini. Tetapi ada banyak bunga yang belum pernah Aku lihat sebelumnya dan sinar matahari di sana sangat lembut. Di sana, Aku duduk dengan Dewa Pencipta dan kami berbicara tentang banyak hal. Dia adalah orang yang sangat cantik...... Atau kurasa dewa yang cantik?] (Ain)
+
+Aku agak bingung dengan ekspresiku.
+
+Dengan arus percakapan saat ini, Aku sedang berpikir untuk berbicara tentang apa yang dewa Pencipta katakan kepadaku ketika tiba-tiba [Apa yang kamu katakan barusan?], Ciel mengajukan pertanyaan kepadaku, jadi Aku menghentikan topik di sana.
+
+[Apa maksudmu?] (Ain)
+
+[Kamu bilang kamu duduk bersama Dewa Pencipta, kan?] (Ciel)
+
+[Benar. Aku duduk di kursi yang indah saat kami berbicara.] (Ain)
+
+Melihat dengan aneh tertarik pada bagian itu, aku bertanya-tanya apakah Ciel adalah tipe orang yang tertarik dengan furnitur. Meskipun dia mungkin ingin tahu tentang hal-hal lain juga, tapi sepertinya dia mulai dari topik ini.
+
 Tapi, respon Ciel berbeda dari yang aku harapkan.
 
-Kamu bilang duduk, kan? Dengan kata lain, Ain memiliki tubuh di alam dewa? Apakah itu masalahnya?」
-Umm, daripada memiliki tubuh, Aku pikir itu hanya jiwa Aku yang mengambil bentuk manusia.
-Lalu itu berarti bentuk ini akan menjadi seperti apa Ain jika Kamu memiliki tubuh manusia?」
-Itulah masalahnya.
+[Kamu bilang duduk, kan? Dengan kata lain, Ain memiliki tubuh di alam dewa? iya kan?] (Ciel)
 
-Kukira Ciel akan tertarik, tapi aku heran dia menyadarinya hanya dengan aku duduk.
+[Umm, bukannya tubu, itu hanya jiwaku dalam bentuk manusia.] (Ain)
+
+[itu berarti bentuk ini akan menjadi seperti apa Ain jika Kamu memiliki tubuh manusia?] (Ciel)
+
+[Iya.] (Ain)
+
+tidak kusangka ciel tertarik masalah itu, tapi aku heran dia menyadarinya hanya dengan aku duduk.
+
 Aku bahkan tidak menyadarinya. Padahal aku yang duduk.
 
-Jadi, seperti apa rupamu Ain? Apa yang kamu lakukan!」
-Aku memiliki penampilan yang mirip denganmu, Ciel. Karena aku menggunakan tubuhmu, sepertinya jiwaku terpengaruh olehnya.
-Tapi palet warna yang Aku miliki sama dengan saat Aku masih hidup. Rambut dan mata Aku hitam, kulit Aku...... oranye terang, Aku pikir?』
+[Jadi seperti apa rupamu Ain? Seperti apa!] (Ciel)
+
+[Aku memiliki penampilan yang mirip denganmu, Ciel. Karena aku menggunakan tubuhmu, sepertinya jiwaku terpengaruh olehnya. Tapi warna dasar warna yang Aku miliki sama dengan saat Aku masih hidup. Rambut dan mataku hitam, kulitku...... oranye terang, Mungkin ?] (Ain)
 
 Warna kulit orang Asia, bagaimana sebenarnya Aku menggambarkannya?
-Jika Aku hanya mengatakan berwarna daging, maka itu akan merujuk pada warna kulit khas orang-orang di dunia ini, tetapi Aku sebenarnya tidak tahu apa warna kulit khas itu. Atau lebih tepatnya, sejauh ini Aku telah melihat cukup banyak warna kulit yang berbeda.
-Warna kulit khas mungkin juga bervariasi tergantung pada ras, jadi sebagai mantan orang Jepang yang memiliki kulit berwarna daging, Aku benar-benar bingung di sini.
 
-Itu sangat bagus, sangat bagus, Aku ingin melihatnya juga!」
-Aku mengerti..... Apa yang ingin Aku bicarakan agak terkait dengan itu juga, jadi mengapa kita tidak pergi ke topik utama.
+Jika Aku hanya mengatakan berwarna daging, itu akan merujuk pada warna kulit khas orang-orang di dunia ini, tetapi Aku sebenarnya tidak tahu apa warna kulit khas itu. Atau lebih tepatnya, Aku telah melihat cukup banyak warna kulit yang berbeda sejauh ini.
 
-Jika Aku menjadi dewa, Ciel mungkin akan memiliki kesempatan untuk melihat tubuh Aku.
+Warna kulit yang khas mungkin juga bervariasi tergantung pada ras, jadi sebagai mantan orang Jepang yang memiliki kulit berwarna daging, Aku benar-benar bingung di sini.
+
+[Itu sangat bagus, sangat bagus, aku ingin melihatnya juga!] (Ciel)
+
+[Begitu ya... Yang ingin aku bicarakan agak terkait dengan itu juga, jadi ayo kita berbicara topik utamanya.] (Ain)
+
+Jika Aku menjadi dewa, Ciel mungkin akan memiliki kesempatan untuk melihat tubuhku.
+
 Tapi di luar itu, Aku rasa tidak akan ada peluang lain.
+
 Itu sebabnya aku harus memberitahunya.
 
-Tapi sebelum itu, Aku akan membahas situasi Aku sampai sekarang.
+Tapi sebelum itu, Aku akan membahas situasiku sampai sekarang.
+
 Ah, bagian ini mungkin sesuatu yang seharusnya aku jelaskan pada Fiiyanamia-sama juga.
-Tidak ada gunanya mengkhawatirkannya sekarang, jadi kurasa aku akan memberitahu Fiiyanamia-sama saja saat dia menanyakannya nanti.
+
+Tidak ada gunanya mengkhawatirkannya sekarang, jadi kurasa aku akan memberi tahu Fiiyanamia-sama saat dia menanyakannya nanti.
 
 🎵🎵🎵
 
-Untuk saat ini, Aku menjelaskan kepada Ciel detail tentang bagaimana Aku bisa berada di sisinya dan bagaimana Aku memperoleh kekuatan suci.
-Kali ini Aku tidak menyentuh apa pun tentang kehidupan masa lalu Aku.
+Untuk saat ini, Aku menjelaskan kepada Ciel detail tentang bagaimana Aku sampai di sisinya dan bagaimana Aku memperoleh kekuatan dewa.
+
+Kali ini Aku tidak menyentuh apa pun tentang kehidupan masa laluku.
+
 Sementara Aku berbicara, Ciel mendengarkan dengan ekspresi serius di wajahnya.
 
-Jadi dengan kata lain, eksperimen pria itu sebagian berhasil?」
-Itulah masalahnya. Tapi, membuatnya benar-benar berhasil seharusnya tidak mungkin.』
-Itu benar. Lagi pula, pria itu sepertinya tidak tahu seberapa baik eksperimennya juga.
-Meskipun demikian, kita bisa melihat roh mungkin semua berkat pria itu, kan? Ini memberi Aku perasaan yang sangat rumit.」
-Aku merasakan hal yang sama.』
-Yang lebih penting, Ain benar-benar luar biasa! Lagipula kamu menggunakan sihir!」
-Meskipun karena itu, aku tidak akan pernah memiliki kemampuan untuk menggunakan sihir tempur sama sekali tapi….. Aku akan menyerahkan ini padamu, Ciel.』
-Ya! Tentu saja, tentu saja!
+[Jadi dengan kata lain, eksperimen pria itu sebagian berhasil?] (Ciel)
 
-Itu mengakhiri kata pengantar.
-Sekarang saatnya untuk pergi ke topik utama yang sebenarnya: Apa yang akan terjadi pada kita mulai sekarang.
+[Itulah masalahnya. Tapi, tidak mungkin itu sempurna.] (ain)
+
+[Itu benar. Lagi pula, pria itu sepertinya tidak tahu seberapa baik eksperimennya bekerja dengan baik juga. Meskipun demikian, kita bisa melihat roh mungkin semua berkat pria itu, kan? Ini memberi Aku perasaan yang sangat rumit.] (Ciel)
+
+[Aku merasakan hal yang sama.] (Ain)
+
+[tapi hal yang terpenting, Ain benar-benar luar biasa! Lagipula kamu menggunakan sihir(magic)!] (Ciel)
+
+[Tapi, aku tidak akan pernah memiliki kemampuan untuk menggunakan sihir(sorcery) tempur sama sekali Tapi... Aku akan menyerahkannya padamu, Ciel.] (Ain)
+
+[Ya! Tentu saja, tentu saja!] (Ciel)
+
+Itu mengakhiri pembicaraan pembuka kami.
+
+Sekarang saatnya untuk ke topik utama yang sebenarnya: Apa yang akan terjadi pada kami mulai sekarang.
+
+-----------------------------------------
+
+Hewwrroooo ~~ Kali ini sepertinya ain akan membicarakan semuanya dengan dedek ciel kita. tentu tidak masa lalunya. Saya sendiri mungkin memperkirakan dedek ciel tetap ingin bersama ain bahkan ketika menjadi dewa pun tetap ingin bersama. Setelah ain dari alam dewa, dedek ciel juga agak lebih dekat dengan Fiiyanamia yang artinya dedek ciel kita mulai bisa terbuka kepada selain ain. dan seperti biasa, dedek ciel hanya tertarik dengan ain, yang mana yang pertama kali terlintas dipikirannya adalah ain yang duduk, yang berarti punya penampilan fisik / tubuh yang bisa duduk, dan langsung bisa menyimpulkan seperti itu. bahkan ain sendiri tidak langsung berfikir seperti itu...
+
+dan ya, eksperimen duke rispelgia berhasil, tapi tidak berhasil sempurna karena yang ditangkapnya adalah ain yang diberikan oleh dewa pencipta, bukan dewanya sendiri. dan untungnya si duke tidak dapat mengetahui kalau sebenarnya percobannya berhasil dan bisa mengulangnya sampai sempurna... dan benar juga berkat itu ada ain di sisi dedek ciel, mereka bisa melihat para roh, dan hal lainnya... yah semoga saja perasaan ini tidak akan menjadi gangguan dimasa mendatang, sudah cukup rasanya urusan dengan duke rispelgia ini, tapi yang namanya masalah utama atau sumber akarnya tentu tidak akan terlepas begitu saja dari sebuah cerita. karena itu saya jadi penasaran bagaimana nantinya ketika berurusan dengan si duke nanti...
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
