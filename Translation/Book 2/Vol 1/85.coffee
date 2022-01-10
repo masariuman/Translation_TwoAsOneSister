@@ -68,52 +68,62 @@ Pada titik ini, Aku tidak akan pernah meragukan fakta bahwa Ciel benar-benar men
 
 Lagipula, dia dengan santai menerimaku sebagai pria dulunya dan datang dari dunia yang berbeda.
 
-[Terima kasih.] (Ain
----------------------)
+[Terima kasih.] (Ain)
 
 Mendengar ucapan terima kasihku yang secara tidak sengaja dipenuhi dengan berbagai emosi yang berbeda, Ciel menunjukkan ekspresi yang agak kesepian.
 
-"Maafkan Aku. Tidak, terima kasih, Ain.
+[Maafkan Aku. Tidak, terima kasih, Ain.] (Ciel)
 
 
 Dari emosi yang memenuhi jawabannya, seberapa banyak yang Aku mengerti?
-Aku tidak punya ide. Tetapi karena tidak sopan untuk menanyakannya, Aku menyimpan pertanyaan ini untuk diri Aku sendiri.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Aku tidak tahu. Tetapi karena tidak sopan untuk menanyakannya, Aku menyimpan pertanyaan ini untuk diriku sendiri.
 
 🎵🎵🎵
 
 Beberapa saat kemudian, kami dipanggil untuk sarapan, tapi rasanya sangat canggung untuk melihat Fiiyanamia-sama secara langsung.
-Sementara aku merasa tersembunyi di dalam Ciel, Fiiyanamia-sama mengetahui keberadaanku.
+
+walaupun aku merasa tersembunyi di dalam Ciel, Fiiyanamia-sama mengetahui keberadaanku.
+
 Dipanggil oleh seorang maid, kami dituntun ke tempat yang terlihat seperti ruang makan para bangsawan.
 
 Sebuah meja yang bisa menampung selusin orang dan ruang terbuka yang luas.
-Makan di ruangan ini hanya Ciel dan Fiiyanamia-sama, tidak ada orang lain.
-Sepertinya mereka sudah menggunakan tempat ini beberapa kali sebelumnya saat Ciel duduk di salah satu dari beberapa kursi yang tersedia tanpa ragu-ragu.
 
-「Uh-hm. Kalian berdua benar-benar datang.」
-Fii, pagi.」
-Benar, selamat pagi Ciel.
+dan yang makan di ruangan ini hanya Ciel dan Fiiyanamia-sama, tidak ada orang lain.
+
+Sepertinya mereka sudah menggunakan tempat ini beberapa kali sebelumnya karena Ciel duduk di salah satu dari beberapa kursi yang tersedia tanpa ragu-ragu.
+
+"Uh-hm. Kalian berdua benar-benar datang." (Fiiyanamia)
+
+"Fii, pagi." (Ciel)
+
+"Benar, selamat pagi Ciel." (Fiiyanamia)
 
 Ciel menyapa Fiiyanamia-sama dengan senyuman.
-Kemarin hanya pertukaran sederhana seperti ini yang akan merobek hatiku, tapi tidak hari ini. Sebaliknya, Aku cukup senang bahwa Ciel telah menemukan seseorang selain Aku yang dapat dia ajak bicara dan membuka hatinya. Lagipula, kita belum bisa berbicara dengan roh.
-Tapi, Aku harap Kamu akan memaafkan Aku karena merasa agak kesepian.
 
-Apakah Ainsel-chan baik-baik saja?」
-Terima kasih.
-Terima kasih, katanya.
-Terima kasih untuk kemarin Fii.」
-Tidak, tidak. Jangan sebutkan itu. Sebaliknya, itu memiliki beberapa fasilitas, Kamu tahu.
+Kemarin, hanya pertukaran sederhana seperti ini dapat merobek hatiku, tapi tidak hari ini. Sebaliknya, Aku cukup senang bahwa Ciel telah menemukan seseorang selain Aku yang dapat dia ajak bicara dan membuka hatinya. Lagipula, kami belum bisa berbicara dengan roh.
+
+Tapi, Aku harap Kamu akan memaafkanku karena merasa agak kesepian.
+
+"Apakah Ainsel-chan baik-baik saja?" (Fiiyanamia)
+
+[Terima kasih.] (Ain)
+
+"Terima kasih, katanya. Terima kasih untuk kemarin Fii." (Ciel)
+
+[Tidak, tidak. Jangan sebutkan itu. Itu memiliki arti tersendiri...] (Ain)
 
 Fiiyanamia-sama membuat celah kecil antara ibu jari dan jari telunjuknya untuk menggoda Ciel.
+
 Tolong hentikan. Tolong hentikan dengan topik ini.
+
 Aku yakin dia tidak akan membicarakan detailnya.
 
-"Apaya apaya? Jadi sesuatu terjadi antara kamu dan Ain?」
-Ya ampun, ufufu. Itu rahasia.」
-Itu tidak adil, sangat tidak adil!」
+"ada apa, ada apa? Jadi sesuatu terjadi antara kamu dan Ain?" (Ciel)
+
+"ara ara~ ufufu. Itu rahasia." (Fiiyanamia)
+
+"Itu tidak adil, sangat tidak adil!" (Ciel)
 
 Melihat bagaimana Ciel tampaknya menikmati pertukaran itu, sepertinya dia tidak benar-benar ingin mengeluarkannya dari Fiiyanamia-sama.
 Mereka berdua mungkin mengerti bahwa aku tidak ingin Ciel mendengar apa pun tentang apa yang aku katakan kemarin.
