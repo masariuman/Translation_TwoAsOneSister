@@ -68,7 +68,8 @@ Pada titik ini, Aku tidak akan pernah meragukan fakta bahwa Ciel benar-benar men
 
 Lagipula, dia dengan santai menerimaku sebagai pria dulunya dan datang dari dunia yang berbeda.
 
-[Terima kasih.] (Ain)
+[Terima kasih.] (Ain
+---------------------)
 
 Mendengar ucapan terima kasihku yang secara tidak sengaja dipenuhi dengan berbagai emosi yang berbeda, Ciel menunjukkan ekspresi yang agak kesepian.
 
