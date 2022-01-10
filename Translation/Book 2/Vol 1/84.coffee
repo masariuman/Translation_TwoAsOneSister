@@ -20,16 +20,20 @@ dan, Ciel berbicara dengan normal sekarang.
 
 Sampai sekarang, Ciel hanya akan berbicara secara normal denganku. Itu sebabnya aku yakin Ciel sangat percaya pada Fiiyanamia-sama.
 
-Melihat Ciel bisa berbicara dengan orang lain selain aku, aku seharusnya senang, aku harus bangga, namun aku bahkan tidak bisa mengatakan padanya bahwa aku sudah bangun sekarang, apalagi mengucapkan selamat padanya untuk itu.
+Melihat Ciel bisa berbicara dengan orang lain selain aku, aku seharusnya senang, aku harus bangga, tapi aku bahkan tidak bisa mengatakan padanya bahwa aku sudah sadar sekarang, apalagi mengucapkan selamat padanya untuk itu.
 
-Ciel mengulangi kata-katanya dua kali adalah bukti bahwa dia sangat senang.
-Lalu Fiiyanamia-sama menang atas Ciel hanya dalam tiga hari?
+Ciel mengulangi kata-katanya sampai dua kali adalah bukti bahwa dia sangat senang.
+
+Lalu Fiiyanamia-sama memenangkan Ciel hanya dalam tiga hari?
 
 Emosi keruh mengalir dari dalam diriku.
+
 Aku senang bahwa Aku tidak memiliki tubuh. Kalau tidak, aku pasti sudah gemetar sekarang.
 
 Setiap kali Ciel membuat ekspresi senang dan gembira di depan Fiiyanamia-sama, itu membangkitkan emosiku.
-Bukankah baik-baik saja jika aku tetap bersembunyi dan menghilang begitu saja?
+
+Bukankah akan baik-baik saja jika aku tetap bersembunyi dan menghilang begitu saja?
+
 Bukankah lebih baik bagiku untuk menggunakan sihir Ainsel sekarang?
 
 Bukankah aku dan keburukanku ini tidak cocok untuk bersama Ciel?
