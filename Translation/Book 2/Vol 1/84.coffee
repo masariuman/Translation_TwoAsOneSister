@@ -2,9 +2,9 @@ CHAPTER 84: JEALOUSY, ANTICLIMACTIC, AND TRUE THOUGHTS
 
 "Ini enak, sangat enak! Jadi teh hitam bisa terasa berbeda tergantung variasinya ya! Meskipun Aku tidak tahu mana yang lebih baik...... Ini sangat menyenangkan!" (Ciel)
 
-Ya, ya. Aku senang Kamu menikmatinya. Adapun yang mana yang paling Kamu sukai, kami akan punya banyak waktu untuk mempelajarinya mulai sekarang.
+"Ya, ya. Aku senang Kamu menikmatinya. Adapun yang mana yang paling Kamu sukai, kita akan punya banyak waktu untuk mengetahuinya mulai sekarang." (Fiiyanamia)
 
-Saat Aku membuka (?) mata Aku, Aku mendengar percakapan ini.
+Saat Aku tersadar, Aku mendengar percakapan ini.
 
 Suara pertama adalah milik Ciel dan yang lainnya adalah milik Fiiyanamia-sama.
 
@@ -12,11 +12,11 @@ Sepertinya mereka melakukan percakapan yang sangat menyenangkan.
 
 Rasanya kepalaku dipukul dengan palu.
 
-Aku merasa pusing, seperti kepala Aku bergoyang-goyang.
+Aku merasa pusing, seperti kepalaku bergoyang-goyang.
 
 Mereka berdua menjadi sangat dekat saat aku pergi.
 
-Lagi pula, Ciel berbicara dengan normal sekarang.
+dan, Ciel berbicara dengan normal sekarang.
 
 Sampai sekarang, Ciel hanya akan berbicara secara normal denganku. Itu sebabnya aku yakin Ciel sangat percaya pada Fiiyanamia-sama.
 
