@@ -1,16 +1,16 @@
 CHAPTER 84: JEALOUSY, ANTICLIMACTIC, AND TRUE THOUGHTS
 
-"Ini enak, sangat enak! Jadi teh hitam bisa terasa berbeda tergantung variasinya ya! Meskipun Aku tidak tahu mana yang lebih baik...... Ini sangat menyenangkan!" (Ciel)
+"Ini enak, sangat enak! Jadi teh hitam bisa terasa berbeda tergantung variasinya ya! Meskipun Aku tidak tahu mana yang lebih enak...... Ini sangat menyenangkan!" (Ciel)
 
-"Ya, ya. Aku senang Kamu menikmatinya. Adapun yang mana yang paling Kamu sukai, kita akan punya banyak waktu untuk mengetahuinya mulai sekarang." (Fiiyanamia)
+"Ya, ya. Aku senang Kamu menikmatinya. Adapun yang mana yang paling Kamu sukai, kita punya banyak waktu untuk mengetahuinya mulai dari sekarang." (Fiiyanamia)
 
 Saat Aku tersadar, Aku mendengar percakapan ini.
 
-Suara pertama adalah milik Ciel dan yang lainnya adalah milik Fiiyanamia-sama.
+Suara pertama adalah suara Ciel dan yang satunya adalah suara Fiiyanamia-sama.
 
 Sepertinya mereka melakukan percakapan yang sangat menyenangkan.
 
-Rasanya kepalaku dipukul dengan palu.
+kepalaku rasanya dipukul dengan palu.
 
 Aku merasa pusing, seperti kepalaku bergoyang-goyang.
 
@@ -18,13 +18,13 @@ Mereka berdua menjadi sangat dekat saat aku pergi.
 
 dan, Ciel berbicara dengan normal sekarang.
 
-Sampai sekarang, Ciel hanya akan berbicara secara normal denganku. Itu sebabnya aku yakin Ciel sangat percaya pada Fiiyanamia-sama.
+Sampai sekarang, Ciel hanya akan berbicara secara normal denganku. karena itulah aku yakin Ciel sangat percaya pada Fiiyanamia-sama.
 
 Melihat Ciel bisa berbicara dengan orang lain selain aku, aku seharusnya senang, aku harus bangga, tapi aku bahkan tidak bisa mengatakan padanya bahwa aku sudah sadar sekarang, apalagi mengucapkan selamat padanya untuk itu.
 
 Ciel mengulangi kata-katanya sampai dua kali adalah bukti bahwa dia sangat senang.
 
-Lalu Fiiyanamia-sama memenangkan Ciel hanya dalam tiga hari?
+jadi, Fiiyanamia-sama memenangkan Ciel hanya dalam tiga hari?
 
 Emosi keruh mengalir dari dalam diriku.
 
@@ -34,60 +34,64 @@ Setiap kali Ciel membuat ekspresi senang dan gembira di depan Fiiyanamia-sama, i
 
 Bukankah akan baik-baik saja jika aku tetap bersembunyi dan menghilang begitu saja?
 
-Bukankah lebih baik bagiku untuk menggunakan sihir Ainsel sekarang?
+Bukankah lebih baik bagiku hanya menggunakan sihir Ainsel sekarang?
 
 Bukankah aku dan keburukanku ini tidak cocok untuk bersama Ciel?
 
+Tidak peduli berapa banyak Aku menolak pikiran ini, emosiku tetap suram.
 
-Tidak peduli berapa banyak Aku menolak pikiran ini, emosi Aku tetap suram seperti sebelumnya.
 Aku yakin yang aku rasakan saat ini adalah cemburu.
+
 Aku cemburu pada Fiiyanamia-sama. Aku kesal dengan Ciel karena bersenang-senang dengan Fiiyanamia-sama.
 
 Menjijikkan, menjijikkan, menjijikkan.
 
-Pikiran Aku, emosi Aku, sedang menuju ke arah yang negatif.
+Pikiranku, emosiku, sedang menuju ke arah yang negatif.
 
-Aku yakin jika Aku berbicara sekarang, Aku tidak akan bisa menghentikan emosi Aku dari mulut Aku.
-Aku tidak tahu apa yang bisa Aku katakan. Aku tidak bisa mempercayai diri Aku sendiri dengan berbicara.
+Aku yakin jika Aku berbicara sekarang, Aku tidak akan bisa menghentikan emosiku dari mulutku.
 
-Sebelum Aku menyadarinya, mereka berdua telah menghabiskan waktu minum teh mereka dan Aku tercengang melihat betapa Aku sangat kesal sehingga Aku sama sekali tidak ingat apa pun dari percakapan mereka.
+Aku tidak tahu apa yang bisa Aku katakan. Aku tidak bisa mempercayai diriku sendiri.
 
-◇.
+tanpa kusadari, mereka berdua telah menghabiskan waktu minum teh mereka dan Aku tercengang melihat betapa Aku sangat kesal sehingga Aku sama sekali tidak ingat apa pun dari percakapan mereka.
 
-Ciel kembali ke kamar yang kami berikan. Saat dia bergumam Apakah kamu masih di luar Ain?」 sambil berbaring di tempat tidur, akhirnya aku mendapat kesempatan untuk mengungkapkan keberadaanku.
+🎵🎵🎵
 
-Umm, selamat pagi, Ciel.』Ain
-! Itu kamu ya Ain? Selamat pagi, Ain.
+Ciel kembali ke kamar. Saat dia bergumam "Apakah kamu masih belum disini Ain?" sambil berbaring di tempat tidur, akhirnya aku mendapat kesempatan untuk mengungkapkan keberadaanku.
 
-Sementara Aku merasa senang mendengarnya berulang kali memanggil nama Aku dengan gembira, apa yang terjadi sebelumnya masih ada di pikiran Aku, jadi sejujurnya Aku tidak bisa merasa bahagia.
+[Umm, selamat pagi, Ciel.] (Ain)
 
-Umm, Ciel. Apakah Kamu baik-baik saja?』
-Ya, ya. Aku sedikit depresi tapi aku baik-baik saja.
-Kamu tahu, Fii mengajari Aku banyak hal.」 Begitu
-...... Kamu tampaknya sangat bersenang-senang.』
+"Ain! Ini kamu kan, Ain? Selamat pagi, Ain." (Ciel)
 
+walaupun Aku merasa senang mendengarnya berulang kali memanggil namaku dengan gembira, apa yang terjadi sebelumnya masih ada di pikiranku, jadi sejujurnya Aku tidak terlalu merasa bahagia.
+
+[Umm, Ciel. Apakah Kamu baik-baik saja?] (Ain)
+
+"Ya, ya. Aku sedikit depresi tapi aku baik-baik saja. Fii mengajari Aku banyak hal." (Ciel)
+
+[Begitu...... Kamu tampaknya sangat bersenang-senang.] (Ain)
 
 Dia sudah memanggil Fiiyanamia-sama dengan nama panggilan. Jadi itu bisa berarti, dia membiarkan Fiiyanamia-sama memanggilnya Ciel?
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Entah bagaimana, itu...... ya.
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Tidak, ini buruk. rasa sinis yang kusembunyikan akan keluar dari bibirku.
 
-Entah bagaimana, itu…… ya.
+"Oh, jadi kamu tahu, Ain? Apakah Kamu melihat kami?" (Ciel)
 
-Tidak, ini buruk. Sinisme yang kusembunyikan akan keluar dari bibirku.
+[Ya, Aku melihatnya. Sepertinya Kamu benar-benar menikmatinya.] (Ain)
 
-Oh, jadi kamu tahu, Ain? Apakah Kamu melihat kami?」
-Ya, Aku melihat. Sepertinya Kamu benar-benar menikmati diri sendiri.』
-Itu benar, itu benar. Soalnya, Fii adalah-」
-Tentu saja itu akan menyenangkan!
-Daripada makhluk tak dikenal yang samar-samar sepertiku, beberapa mantan pria dari dunia yang berbeda, berbicara dengan seorang wanita yang lahir di dunia ini seperti Fiiyanamia-sama pasti lebih menyenangkan, kan!?』
+"Itu benar, itu benar. Soalnya, Fii-" (Ciel)
 
-Aku sudah mengatakannya sekarang. Dan aku berteriak pada Ciel.
-Ciel akan membenciku jika aku mengatakan ini.
-Jadi untuk menghindari hal itu terjadi, Aku selalu menyimpan ini untuk diri Aku sendiri.
+[Tentu saja itu menyenangkan! Daripada makhluk yang tidak jelas sepertiku, seorang mantan pria dari dunia yang berbeda, berbicara dengan seorang wanita yang lahir di dunia ini seperti Fiiyanamia-sama pasti lebih menyenangkan, kan!?] (Ain)
+
+Aku mengatakannya. Dan aku berteriak pada Ciel.
+
+Ciel akan membenciku jika aku melakukan ini.
+
+Jadi untuk menghindari hal itu terjadi, Aku selalu menyimpan perasaan ini sendiri.
 
 Aku yakin Ciel akan jijik padaku. Lagipula, aku laki-laki seperti Duke Respelgia.
+
 Aku yakin Ciel akan menganggapku meresahkan. Lagipula, aku bukan seseorang dari dunia ini.
 
 Tetap saja, pada akhirnya aku harus mengatakan ini padanya.
