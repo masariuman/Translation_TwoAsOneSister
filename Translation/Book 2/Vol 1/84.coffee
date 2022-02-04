@@ -95,28 +95,32 @@ Aku yakin Ciel akan jijik padaku. Lagipula, aku laki-laki seperti Duke Respelgia
 Aku yakin Ciel akan menganggapku meresahkan. Lagipula, aku bukan seseorang dari dunia ini.
 
 Tetap saja, pada akhirnya aku harus mengatakan ini padanya.
+
 Aku bermaksud mengatakan ini padanya setelah kami mencapai tempat yang aman.
-Rumah besar tempat Fiiyanamia-sama tinggal ini mungkin adalah tempat teraman di dunia, jadi selain waktu, ini mungkin tempat terbaik untuk itu.
+
+Rumah besar tempat Fiiyanamia-sama tinggal ini mungkin adalah tempat teraman di dunia ini, jadi selain masalah waktu, ini mungkin tempat terbaik untuk itu.
 
 Memikirkan itu, Aku mengundurkan diri. Sama seperti bagaimana anak-anak pada akhirnya harus mandiri dari orang tua mereka, Ciel pada akhirnya juga perlu mandiri.
-Hanya saja kali ini adalah sekarang, aku yakin itu. Meskipun itu lebih seperti aku baru saja menarik pelatuk.
+
+waktunya adalah sekarang, aku yakin itu. Meskipun itu lebih seperti aku baru saja menarik pelatuk.
 
 Kalau begitu, aku senang Ciel akan membenciku karena jika dia membenciku, dia mungkin tidak akan sedih untuk apa yang akan terjadi selanjutnya.
 
-Fufufu, begitu. Jadi begitu. Lalu, apa yang dikatakan Fii itu benar, mungkin?」
-Umm, Ciel?』
+"Fufufu, begitu. Jadi begitu. apa yang dikatakan Fii ternyata benar, mungkin?" (Ciel)
 
+[Umm, Ciel?] (Ain)
 
 Ciel terkejut tapi tiba-tiba tertawa, jadi aku secara refleks memanggilnya.
 
-Fii memberitahuku, kamu mengerti? Bahwa jika aku rukun dengan Fii, Ain mungkin akan marah.
-Aku mengatakan kepadanya bahwa Ain tidak akan marah karena itu tetapi dia mengatakan bahwa Ain akan cemburu karena Aku penting bagi Kamu.
-Kecemburuan bukanlah emosi yang baik jadi maafkan aku, Ain, tapi aku sangat senang kau cemburu. Bagaimanapun, itu adalah bukti bahwa aku sangat penting bagi Ain.
-Tetap saja, karena sangat senang tentang ini, aku mungkin menjadi gadis yang buruk.」
-Aku...... awalnya laki-laki, kamu tahu?』
-Aku selalu punya firasat.
-Jadi, bagaimana dengan itu?」
-Jadi apa ……』
+"Fii memberitahuku, kalau aku akrab dengan Fii, Ain mungkin akan marah. Aku mengatakan kepadanya bahwa Ain tidak akan marah karena itu tetapi dia mengatakan bahwa Ain akan cemburu karena Aku penting bagimu. Kecemburuan bukanlah emosi yang baik jadi maafkan aku, Ain, tapi aku sangat senang kamu cemburu. Bagaimanapun juga, itu adalah bukti bahwa aku sangat penting bagi Ain. tapi Tetap saja, karena aku merasa sangat senang karena ini, aku mungkin menjadi gadis yang buruk." (Ciel)
+
+[Aku...... aslinya laki-laki, kamu tahu?] (Ain)
+
+"Aku selalu punya firasat bahwa ain adalah laki-laki. terus kalau iya, memangnya kenapa?" (Ciel)
+
+[kenapa ......] (Ain)
+
+----------------------------------------------------------------
 
 Apa yang Aku khawatirkan untuk waktu yang lama diterima dengan mudah.
 Sebaliknya, dia mengetahuinya sejak awal?
