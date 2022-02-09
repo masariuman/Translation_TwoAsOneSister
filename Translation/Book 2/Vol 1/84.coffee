@@ -241,37 +241,55 @@ Aku telah kehilangan keraguan untuk membunuh makhluk hidup. Sekarang Aku melihat
 
 Aku mengerti betul bahwa Aku telah berubah.
 
-"Tidak, tidak. Kamu bisa membiarkannya keluar. Itu sulit, bukan? Lagi pula, Kamu sangat tertekan sehingga tidak aneh bagimu untuk down setiap saat.
-Jika tidak, kamu tidak akan bisa melindungi Ciel-chan, kan? Kamu selalu memikirkan Ciel lebih dari dirimu sendiri, bukan?」
-Tidak apa-apa, semuanya baik-baik saja. Tidak peduli seberapa sulit dan menakutkan itu. Karena Ciel bersamaku saat itu. Jadi tolong, tolong jangan bawa Ciel pergi.
-Tentu saja, jangan khawatir. Tidak ada yang akan mengambil Ciel-chan darimu. Itu tidak mungkin untuk memulai.
-Tetap saja, waktunya sangat buruk, bukan? Sepertinya Aku akan melakukannya.
-Aku tidak ingin dipisahkan dari Ciel. Tapi aku harus suatu hari nanti. Tidak baik bagi kita untuk bersama selamanya.
-Aku harus menghilang untuk Ciel.
+"Tidak, tidak. Kamu bisa membiarkannya keluar. Itu sulit, bukan? Lagi pula, Kamu sangat tertekan sehingga tidak aneh bagimu untuk down setiap saat. Jika tidak, kamu tidak akan bisa melindungi Ciel-chan, kan? Kamu selalu memikirkan Ciel lebih dari dirimu sendiri, bukan?" (Fii)
+
+"Tidak apa-apa, semuanya baik-baik saja. Tidak peduli seberapa sulit dan menakutkan itu. Karena Ciel bersamaku. Jadi tolong, tolong jangan bawa Ciel pergi." (Ain)
+
+"Tentu saja, jangan khawatir. Tidak ada yang akan mengambil Ciel-chan darimu. Itu bahkan tidak mungkin terjadi. tapi Tetap saja, timingnya jelek, kan? Sepertinya Aku akan melakukannya." (Fii)
+
+"Aku tidak ingin dipisahkan dari Ciel. Tapi aku harus berpisah suatu hari nanti. Tidak baik bagi kami untuk bersama selamanya. Aku harus menghilang untuk Ciel." (Ain)
 
 Karena aku yakin hari itu akan datang. Aku tidak bisa egois. Jika aku mengatakan sesuatu yang egois, itu hanya akan menyusahkan Ciel.
 
+"Tidak tidak. Kamu tidak harus menghilang. Tidak ada yang menginginkan itu." (Fii)
 
-"Tidak tidak. Kamu tidak harus menghilang. Tidak ada yang menginginkan itu.
-Tapi, tapi, Ciel seharusnya tidak bergantung padaku. Benar?」
-Bukankah itu baik-baik saja? Lagi pula, suka atau tidak suka, Kamu berdua tidak dapat dipisahkan satu sama lain.
-Selain itu, bukankah tidak apa-apa selama kalian berdua bahagia?」
-Benarkah?
+"Tapi, tapi, Ciel seharusnya tidak bergantung padaku, kan?" (Ain)
 
-Apakah itu benar-benar? Aku tidak berpikir kita berdua bisa bahagia kecuali kita bisa mandiri satu sama lain.
-Apakah itu berbeda untuk kita?
-Atau begitulah cara orang luar melihat ketergantungan bersama, sementara orang-orang yang bersangkutan sebenarnya bahagia?
+"Bukankah itu tidak masalah? Lagi pula, suka atau tidak suka, Kamu berdua tidak dapat dipisahkan satu sama lain.
+Selain itu, bukankah tidak apa-apa selama kalian berdua bahagia?" (Fii)
 
-Tapi bahkan tanpa aku, Ciel bisa……」
-Kau tahu, alasan aku menjadi dekat dengan Ciel-chan adalah karena kami membicarakanmu.」
-…..?」
-Itu menunjukkan betapa pentingnya dirimu untuk Ciel-chan.
-Lagipula, dia hampir menutup hatinya untuk segalanya setelah hanya satu hari tanpamu. Itu sebabnya aku entah bagaimana harus mendekatinya, Ciel-chan bisa saja hancur jika tidak.」
-...... Apakah itu... begitu.」
-Ya ampun, apakah kamu sudah selesai mengungkapkan perasaanmu?」
-Maafkan aku untuk tampilan yang memalukan.」
-Tidak apa-apa. Kamu pernah mendengar dari Dewa Pencipta, bukan? Bagaimanapun, kami seperti keluarga.
-Andalkan Aku kapan saja, oke?」
-Terima kasih banyak.
+"Benarkah?" (Ain)
 
-Selamat beristirahat. Setelah Fiiyanamia-sama berkata demikian sambil tersenyum, dia meninggalkan ruangan.
+Apakah itu benar? Aku tidak berpikir kami berdua bisa bahagia kecuali kami bisa mandiri satu sama lain.
+
+Apakah itu berbeda untuk kami?
+
+Atau apakah itu cara orang luar melihat ketergantungan bersama, sementara yang bersangkutan sebenarnya bahagia?
+
+"Tapi bahkan tanpa aku, Ciel bisa......" (Ain)
+
+"Kau tahu, alasan aku menjadi dekat dengan Ciel-chan adalah karena kami membicarakanmu." (Fii)
+
+"......?" (Ain)
+
+"Itu menunjukkan betapa pentingnya dirimu untuk Ciel-chan. Lagipula, dia hampir menutup hatinya untuk segalanya setelah hanya satu hari tanpamu. Itu sebabnya aku entah bagaimana harus mendekatinya, Ciel-chan bisa saja hancur saat itu." (Fii)
+
+"...... begitu..." (Ain)
+
+"Ara ara~ apakah kamu sudah selesai mengungkapkan perasaanmu?" (Fii)
+
+"Maafkan aku karena memperlihatkan sisi memalukan ini." (Ain)
+
+"Tidak apa-apa. Kamu sudah mendengar dari Dewa Pencipta, bukan? Bagaimanapun juga, kita seperti keluarga. kamu bisa mengandalkan Aku kapan saja, oke?" (Fii)
+
+"Terima kasih banyak." (Ain)
+
+"Selamat beristirahat." (Fii)
+
+Setelah Fiiyanamia-sama berkata demikian sambil tersenyum, dia meninggalkan ruangan.
+
+--------------------------------------------------------------------------------------------
+
+uuuhhgghgghhghgg.. chapter kali ini... uuuu... jujur saya ngeTL 1ch ini lama... agak gak kuat saya dengan hal seperti ini... arrrgghhh... kadang pengen teriakin ain utk terlalu mikirin dari sisinya saja tapi tidak pernah mempertimbangkan apa yang dedek ciel pikirkan...
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
