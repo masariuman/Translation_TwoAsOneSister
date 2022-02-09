@@ -128,47 +128,45 @@ Sebaliknya, apakah dia mengetahuinya dari awal?
 
 [...... Kamu... tidak?] (ain)
 
-"Aku buruk dengan laki-laki tapi pada dasarnya Aku buruk dengan semua orang asing, Kamu tahu?" (Ciel)
+"Aku buruk dengan laki-laki tapi pada dasarnya Aku buruk dengan semua orang asing, Kamu tahu? Jika Aku harus membedakan antara mereka, yang pertama kali kulakukan adalah membuat kategori 'Ain' dan 'orang lain'. Ain adalah yang paling penting, Kamu tahu?" (Ciel)
 
-Jika Aku harus membedakan antara orang, pertama-tama Aku akan membaginya menjadi Ain dan orang lain. Ain adalah yang paling penting, Kamu tahu?
+Dengan ledakan bom yang tiba-tiba itu, otakku berhenti. Aku benar-benar siap untuk menghilang, tetapi sekarang? Tidak lagi.
 
-Dengan ledakan bom yang tiba-tiba itu, otakku berhenti. Aku benar-benar siap untuk menghilang tetapi sekarang? Tidak lagi.
-Sebaliknya, Aku dihadapkan dengan kasih sayang langsung dan itu membuat Aku merasa gelisah dalam arti yang berbeda.
+Sebaliknya, Aku dihadapkan dengan kasih sayang dan itu membuatku merasa gelisah dalam arti yang berbeda.
 
-Selain itu, meskipun Ain yang lama berbeda, Ain saat ini adalah perempuan, kan? Bagaimanapun, Kamu seorang Song Princess.
-Umm, ya. Sepertinya begitu.』
-Lalu tidak ada masalah, kan?」
-Itu …… kan?』
-Tidak ada masalah, kan?」
-Ya.
+"Selain itu, meskipun Ain yang lama berbeda, Ain saat ini adalah perempuan, kan? Bagaimanapun juga, Kamu seorang Song Princess." (Ciel)
+
+[Umm, ya. Sepertinya begitu.] (Ain)
+
+"terus tidak ada masalah, kan?" (Ciel)
+
+[Hanya ...... itu?] (Ain)
+
+"Tidak ada masalah, kan?" (Ciel)
+
+[Ya.] (Ain)
 
 Merasakan intensitas yang aneh darinya, yang bisa kulakukan hanyalah mengangguk.
 
-Tetap saja, Aku bukan orang dari dunia ini, Kamu tahu?
-Dan apakah ada masalah dengan itu? Atau lebih tepatnya, Aku juga punya firasat bahwa itulah masalahnya.」
-...... Ini juga?』
-Ada beberapa alasan tetapi bahasa "Cielmer" berasal dari... "Ferentch", bukan?
-Aku belum pernah mendengar negara dengan bahasa seperti itu.
+[Tetap saja, Aku bukan orang dari dunia ini...] (Ain)
 
-Betapa ceroboh. Jika Aku sudah tergelincir sejak lama, maka Aku mungkin akan lebih tergelincir lagi setelah itu.
+"Dan apakah ada masalah dengan itu? Atau lebih tepatnya, Aku juga punya firasat bahwa kamu memang bukan dari dunia ini." (Ciel)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+[...... Ini juga?] (Ain)
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"Ada beberapa alasan tetapi bahasa 'Cielmer' berasal dari... 'prancis', bukan? Aku belum pernah mendengar negara dengan bahasa seperti itu." (Ciel)
 
-Itulah sebabnya, Ain. Jangan khawatir. Aku tidak baik tanpamu.
-Tanpa Ain, aku selalu cemas dan gelisah.
-Dan Aku yakin ini tidak akan pernah berubah di masa depan.
+Bodohnya aku. Jika Aku sudah keceplosan sejak lama, maka Aku mungkin akan lebih keceplosan lagi setelah itu.
 
+"Itulah sebabnya, Ain. Jangan khawatir. Aku tidak apa-apa tanpamu. Tanpa Ain, aku selalu cemas dan gelisah. Dan Aku yakin ini tidak akan pernah berubah di masa depan. Karena itu, Ain. Tinggal bersamaku selamanya. Jika kamu menghilang, aku akan mencarimu sampai aku mati lho..." (Ciel)
 
-Karena itu, Ain. Tinggal bersamaku selamanya.
-Jika kamu menghilang, aku akan mencarimu sampai aku mati, tahu?
-……. Ya. Aku mengerti."
+[.... Ya. Aku mengerti.] (Ain)
 
-Mungkin lega, jika tidak yakin, dengan jawaban Aku, Ciel membunyikan bel sebelum berbaring kembali di tempat tidur dan tertidur.
-Meskipun entah bagaimana rasanya Ciel baru saja membuangku sekarang, aku juga merasa agak lelah.
+Mungkin karena lega, atau tidak yakin, dengan jawabanku, Ciel membunyikan bel sebelum berbaring kembali di tempat tidur dan tertidur.
 
-◇.
+Meskipun entah bagaimana rasanya Ciel baru saja mengabaikanku sekarang, aku juga merasa agak lelah.
+
+🎵🎵🎵
 
 Saat Ciel tertidur dan aku sedang memikirkan apa yang harus dilakukan, aku segera mendengar ketukan dari pintu.
 Itu pasti Fiiyanamia-sama tapi aku agak enggan untuk berbicara dengannya karena perasaanku menjadi rumit sekarang.
