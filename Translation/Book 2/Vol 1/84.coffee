@@ -290,6 +290,8 @@ Setelah Fiiyanamia-sama berkata demikian sambil tersenyum, dia meninggalkan ruan
 
 --------------------------------------------------------------------------------------------
 
-uuuhhgghgghhghgg.. chapter kali ini... uuuu... jujur saya ngeTL 1ch ini lama... agak gak kuat saya dengan hal seperti ini... arrrgghhh... kadang pengen teriakin ain utk terlalu mikirin dari sisinya saja tapi tidak pernah mempertimbangkan apa yang dedek ciel pikirkan...
+uuuhhgghgghhghgg.. chapter kali ini... uuuu... jujur saya ngeTL 1ch ini lama... agak gak kuat saya dengan hal seperti ini... arrrgghhh... kadang pengen teriakin ain utk terlalu mikirin dari sisinya saja tapi tidak pernah mempertimbangkan apa yang dedek ciel pikirkan... tapi semoga setelah ini.... baik baik saja... tapi pasti akward sekali dah atau canggung pasti setelah ini... tentunya ain yg akan canggung, sama dedek ciel ataupun fii...
+
+Fii disini, sangat amat pengertian juga... sungguh sosok kakak / ibu yang baik utk dedek ciel kita... dan sekarang selain ain, dedek ciel kita mulai percaya lagi dengan orang lain walaupun baru Fiiyanamia saja... satu satunya yang diminta pertolongan dengan sepenuh hati hanya untuk ain...
 
 nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
