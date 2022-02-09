@@ -169,63 +169,79 @@ Meskipun entah bagaimana rasanya Ciel baru saja mengabaikanku sekarang, aku juga
 🎵🎵🎵
 
 Saat Ciel tertidur dan aku sedang memikirkan apa yang harus dilakukan, aku segera mendengar ketukan dari pintu.
-Itu pasti Fiiyanamia-sama tapi aku agak enggan untuk berbicara dengannya karena perasaanku menjadi rumit sekarang.
-Meskipun dengan mengatakan itu, aku juga tidak bisa mengabaikannya begitu saja.
-Bagaimanapun, ini adalah rumah Fiiyanamia-sama.
 
-Apakah Kamu punya waktu?
-Ya. Tidak apa-apa sekarang.
+Itu pasti Fiiyanamia-sama tapi aku agak enggan untuk berbicara dengannya karena perasaanku menjadi rumit sekarang.
+
+Meskipun dengan mengatakan itu, aku juga tidak bisa mengabaikannya begitu saja.
+
+Bagaimanapun juga, ini adalah rumah Fiiyanamia-sama.
+
+"Apakah Kamu ada waktu?" (Fii)
+
+"Ya. Tidak ada masalah sekarang." (Ain)
 
 Sebelum aku bisa meninggalkan tempat tidur untuk membuka pintu, Fiiyanamia-sama memasuki kamar.
+
 Dengan penampilannya yang sama seperti sebelumnya, itu membuatku berpikir bahwa aku benar-benar terus bertemu orang-orang cantik sejak aku datang ke dunia ini tapi kalau dipikir-pikir, kurasa aku juga salah satu dari orang-orang cantik itu sekarang. Lagipula aku terlihat seperti Ciel.
 
-Tidak apa-apa, duduklah. Umm, ada yang bisa Aku bantu hari ini?」
-Ciel-chan meminta bantuan Aku.
+"Tidak apa-apa, duduklah." (Fii)
+
+"Umm, apakah ada yang bisa kubantu hari ini?" (Ain)
+
+"Ciel-chan meminta bantuanku." (Fii)
 
 Aku merasakan sakit di dadaku.
-Menyembunyikan ini, Aku bertanya tentang hal itu.
 
-Sebuah bantuan?」
-Ya, ya. Itu sebabnya, bisakah kamu minum secangkir teh hitam ini?」
-Teh hitam?」
-Ya, maukah kamu?」
-...... Mengerti.」
+Menyembunyikan rasa ini, Aku bertanya tentang hal itu.
 
-Ini sangat mencurigakan. Sebaliknya, itu hanya mencurigakan. Padahal, karena ini permintaan, aku tidak bisa menolak begitu saja.
-Mengambil cangkir yang dia berikan padaku, aku meminum teh hitam yang memiliki rona indah dalam sekali teguk.
-Aku menunggu beberapa saat untuk melihat apakah ada efek sampingnya tetapi karena tidak ada yang terjadi secara khusus, Aku memutuskan untuk bertanya apa sebenarnya teh ini.
+"Sebuah bantuan?" (Ain)
 
+"Ya, ya. Itu sebabnya, bisakah kamu minum secangkir teh hitam ini?" (Fii)
 
-Jangan ambil Ciel, tolong, jangan ambil Ciel dariku ……」
+"Teh hitam?" (Ain)
 
-……!?
-Itu… Aku tidak punya niat untuk mengatakan itu. Aku hanya ingin bertanya tentang apa teh itu.
+"Ya, maukah kamu meminumnya?" (Fii)
+
+"...... baiklah." (Ain)
+
+Ini sangat mencurigakan. tapi, itu lebih dari hanya mencurigakan. yaah, karena ini permintaan, aku tidak bisa menolak begitu saja.
+
+denga Mengambil cangkir yang dia berikan padaku, aku meminum teh hitam yang memiliki rona indah dalam sekali teguk.
+
+Aku menunggu beberapa saat untuk melihat apakah ada efek sampingnya tetapi karena tidak ada yang terjadi, Aku memutuskan untuk bertanya apa sebenarnya teh ini.
+
+"Jangan ambil Ciel, tolong, jangan ambil Ciel dariku..." (Ain)
+
+......!?
+
+Itu... Aku tidak punya niat untuk mengatakan itu. Aku hanya ingin bertanya tentang teh ini.
 
 Saat aku terkejut, Fiiyanamia-sama menyeka pipiku dengan sapu tangan.
 
 Air mata? Aku menangis sekarang?
 
-"Aku tahu Aku tahu. Ini mengejutkan, bukan? Apa yang baru saja Kamu minum adalah... semacam serum kebenaran, Aku kira.
-Ini menarik keluar pikiran Kamu telah disimpan tersembunyi.」
-Mengapa... mengapa? Aku tidak kuat, aku harus kuat.
-Ini sangat sulit, Aku ingin berhenti tetapi, tetapi Aku tidak bisa mengatakan ini!
+"Aku tahu, Aku tahu. Ini mengejutkan, bukan? Apa yang baru saja Kamu minum adalah... semacam serum kebenaran, mungkin.
+Ini menarik keluar pikiranmu telah disimpan tersembunyi." (Fii)
 
-Karena jika Aku katakan, Ciel akan khawatir.
+"Mengapa... mengapa? Aku tidak kuat, aku harus kuat. Ini sangat sulit, Aku ingin berhenti tetapi, tetapi Aku tidak bisa mengatakan ini!" (Ain)
+
+Karena jika Aku mengatakannya, Ciel akan khawatir.
+
 Aku harus melindungi Ciel tapi tidak ada artinya jika dia khawatir.
 
 Tapi, itu sangat sulit. Itu sangat melelahkan; bahkan ada saat-saat ketika Aku berpikir untuk menyerah.
-Lagi dan lagi dan lagi orang ingin kita mati. Aku bahkan tidak pernah merasakan niat membunuh sepanjang hidupku sampai saat itu. Aku pikir Aku sudah mati hanya karena itu.
+
+Lagi dan lagi dan lagi orang ingin kami mati. Aku bahkan tidak pernah merasakan niat membunuh sepanjang hidupku sampai saat itu. Aku pikir Aku sudah mati hanya karena itu.
+
 Itu menakutkan, hanya menakutkan.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Katakan tidak pada pencuri konten!)
-
 Dan melihat diriku berubah secara bertahap juga menakutkan.
-Aku telah kehilangan keragu-raguan untuk membunuh makhluk hidup. Sekarang Aku melihat kematian orang dengan objektivitas yang dingin.
+
+Aku telah kehilangan keraguan untuk membunuh makhluk hidup. Sekarang Aku melihat kematian orang dengan objektivitas yang dingin.
+
 Aku mengerti betul bahwa Aku telah berubah.
 
-"Tidak tidak. Kamu bisa membiarkannya keluar. Itu sulit, bukan? Lagi pula, Kamu sangat tertekan sehingga tidak aneh bagi Kamu untuk mogok setiap saat.
+"Tidak, tidak. Kamu bisa membiarkannya keluar. Itu sulit, bukan? Lagi pula, Kamu sangat tertekan sehingga tidak aneh bagimu untuk down setiap saat.
 Jika tidak, kamu tidak akan bisa melindungi Ciel-chan, kan? Kamu selalu memikirkan Ciel lebih dari dirimu sendiri, bukan?」
 Tidak apa-apa, semuanya baik-baik saja. Tidak peduli seberapa sulit dan menakutkan itu. Karena Ciel bersamaku saat itu. Jadi tolong, tolong jangan bawa Ciel pergi.
 Tentu saja, jangan khawatir. Tidak ada yang akan mengambil Ciel-chan darimu. Itu tidak mungkin untuk memulai.
