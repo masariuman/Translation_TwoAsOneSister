@@ -120,14 +120,16 @@ Ciel terkejut tapi tiba-tiba tertawa, jadi aku secara refleks memanggilnya.
 
 [kenapa ......] (Ain)
 
-----------------------------------------------------------------
+Apa yang Aku khawatirkan selama ini diterima dengan mudah.
 
-Apa yang Aku khawatirkan untuk waktu yang lama diterima dengan mudah.
-Sebaliknya, dia mengetahuinya sejak awal?
+Sebaliknya, apakah dia mengetahuinya dari awal?
 
-Ain, Kamu tampaknya memiliki kesalahpahaman kecil tapi sebenarnya Aku tidak terlalu buruk dengan laki-laki, Kamu tahu?」
-...... Kamu tidak?』
-Aku juga buruk dengan laki-laki tapi Aku buruk dengan orang-orang di umum, Kamu tahu?
+"Ain, Kamu tampaknya memiliki kesalahpahaman kecil tapi sebenarnya Aku tidak terlalu buruk dengan laki-laki kok..." (Ciel)
+
+[...... Kamu... tidak?] (ain)
+
+"Aku buruk dengan laki-laki tapi pada dasarnya Aku buruk dengan semua orang asing, Kamu tahu?" (Ciel)
+
 Jika Aku harus membedakan antara orang, pertama-tama Aku akan membaginya menjadi Ain dan orang lain. Ain adalah yang paling penting, Kamu tahu?
 
 Dengan ledakan bom yang tiba-tiba itu, otakku berhenti. Aku benar-benar siap untuk menghilang tetapi sekarang? Tidak lagi.
