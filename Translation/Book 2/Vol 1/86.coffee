@@ -122,35 +122,25 @@ Mendengar kata-kataku, Ciel memiringkan kepalanya dan memikirkan sesuatu.
 
 [Apakah...... begitu?] (Ain)
 
-Tapi Kamu tahu, Kamu tahu, Aku tidak suka melihat Ain sebenarnya bermasalah dan Aku tidak mau melihatmu sedih juga, oke?
-Ummm, aku senang Ain berpikir untuk membuatku bahagia, dan itu sudah cukup membuatku bahagia, tapi kurasa apa yang Ain maksud dengan membuatku bahagia itu tidak mungkin.」
-Apa maksudmu?』
+"Tapi Kamu tahu, Kamu tahu, Aku tidak suka melihat Ain sebenarnya bermasalah dan Aku tidak mau melihatmu sedih juga, oke? Ummm, aku senang Ain berpikir untuk membuatku bahagia, dan itu sudah cukup membuatku bahagia, tapi kurasa apa yang Ain maksud dengan membuatku bahagia itu tidak mungkin." (Ciel)
 
-Ciel mengerahkan semua yang dia harus berbicara menggemaskan tapi aku tidak bisa mengerti maksudnya, atau lebih tepatnya aku tidak bisa memahaminya dengan baik.
+[Apa maksudmu?] (Ain)
 
-Lagipula, aku dan Ain berbeda. Ketika Ain tampak bermasalah, Aku senang melihat Ain bingung. Kamu belum pernah tahu tentang ini sampai sekarang kan, Ain?
-Selain itu, bahkan Aku tidak tahu semua yang akan membuat Aku bahagia. Aku yakin jika Aku melihat sisi lain dari Ain yang tidak pernah Aku ketahui sebelumnya, Aku akan senang atau sedih.
-Dengan cara yang sama, bahkan aku tidak tahu bagaimana aku bisa menjadi bahagia.
+Ciel mencoba untuk berbicara sebisanya sungguh menggemaskan tapi aku tidak bisa mengerti maksudnya, atau lebih tepatnya aku tidak bisa memahaminya dengan baik.
 
-Itu sebabnya, Aku pikir Aku hanya akan menjadi bahagia sendiri.
-Aku yakin kamu juga bahagia sendiri, kan?
-Tapi meski begitu, meski aku tidak tahu bagaimana aku bisa bahagia, setidaknya aku tahu bahwa aku butuh Ain untuk bahagia.
+"Lagipula, aku dan Ain berbeda. Ketika Ain tampak bermasalah, Aku senang melihat Ain bingung. Kamu belum pernah tahu tentang ini sampai sekarang kan, Ain? Selain itu, bahkan Aku tidak tahu semua yang akan membuatku bahagia. Aku yakin jika Aku melihat sisi lain dari Ain yang tidak pernah Aku ketahui sebelumnya, Aku akan senang atau sedih. Dengan cara yang sama, bahkan aku tidak tahu bagaimana aku bisa menjadi bahagia. Itu sebabnya, Aku pikir Aku hanya akan menjadi bahagia entah bagaimana. Aku yakin kamu juga seperti itu, kan? Tapi meski begitu, meski aku tidak tahu bagaimana aku bisa bahagia, setidaknya aku tahu bahwa aku butuh Ain untuk bahagia. Bagaimana denganmu Ain? Apakah kebahagiaanmu membutuhkanku?" (Ciel)
 
-Bagaimana denganmu Ain? Apakah kebahagiaan Kamu membutuhkan Aku?
+Tentu saja Aku tidak tahu bahwa Ciel senang melihatku kebingungan. Untuk beberapa alasan, itu membuatku merasa sangat geli.
 
-Tentu saja Aku tidak tahu bahwa Ciel senang melihat Aku bermasalah. Untuk beberapa alasan, itu membuatku merasa sangat geli.
+Tetap saja, apakah kebahagiaanku membutuhkannya...... huh.
 
-Tetap saja, apakah kebahagiaanku membutuhkannya…… huh.
 Jika sebelum Aku bertemu Ciel, Aku tidak bisa mengatakannya; tapi sekarang setelah aku bertemu dengannya, kebahagiaan tanpa Ciel tidak terpikirkan.
+
 Sebaliknya, itu karena aku melekat pada Ciel sejak aku datang ke dunia ini sehingga aku bisa hidup.
 
-Memang...... ya.
-Dalam hal ini, tidak ada masalah. Lagipula, Ain tidak perlu membuatku bahagia.
-Mulai sekarang sampai selamanya, mari kita bahagia sendiri bersama.
+[...... ya.] (Ain)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"Dalam hal ini, tidak ada masalah. Lagipula, Ain tidak perlu membuatku bahagia. Mulai sekarang sampai selamanya, mari kita bahagia bersama." (Ciel)
 
 Ciel tersenyum. Seperti bunga yang mekar, dengan terangnya mentari.
 Entah bagaimana kedengarannya seperti dia melamar dan pikiran itu membuatku tersenyum juga.
