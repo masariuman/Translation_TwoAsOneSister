@@ -31,10 +31,13 @@ Jika Aku memiliki tubuh, kecemasan yang Aku rasakan saat ini mungkin akan merobe
 [Kemudian ketika kamu menjadi dewa, Kamu akan berhenti menua, makanan dan tidur menjadi tidak diperlukan dan kemudian akan sulit bagimu untuk mati. Masalahnya adalah itu tidak dapat diubah. Setelah Kamu melangkah alam dewa, Kamu tidak dapat kembali menjadi manusia lagi.] (Ain)
 
 Bahkan setelah mengatakan sebanyak ini, ekspresi Ciel sama seriusnya seperti sebelumnya.
-Aku tidak berpikir bahwa Ciel tidak mengerti apa artinya ini, tetapi mungkin terasa tidak nyata baginya.
-Itulah mengapa hal yang akan Aku katakan selanjutnya… mungkin sedikit tidak adil.
 
-Agar Kamu tidak menjadi dewa, Aku harus menghilang-......』
+Aku tidak berpikir bahwa Ciel tidak mengerti apa artinya ini, tetapi mungkin terasa tidak nyata baginya.
+
+Itulah mengapa hal yang akan Aku katakan selanjutnya... mungkin sedikit tidak adil.
+
+[Agar Kamu tidak menjadi dewa, Aku harus menghilang-......] (Ain)
+
 Kalau begitu tidak perlu memikirkannya. Ain menghilang adalah tidak langsung.
 
 Aku terganggu sebelum Aku bisa menyelesaikannya.
