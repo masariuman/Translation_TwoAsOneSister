@@ -1,28 +1,34 @@
 CHAPTER 86: GOD, HAPPINESS, AND CHOICE
 
-Tentang topik selanjutnya, untuk saat ini, tidak seperti Fiiyanamia - sama atau Raja Roh, kami tidak memiliki tugas apapun.』
-Artinya kita bisa melanjutkan seperti biasanya, kan?」
-Meskipun, tidak akan seperti itu. cara lama. Sudah ada sedikit keilahian yang bercampur dalam diri Aku dan tampaknya Aku secara bertahap akan semakin dekat dengan keilahian.
-Akhirnya aku akan menjadi salah satu dewa.』
-Lalu apakah Ain akan menjadi dewa?」
+[Tentang topik selanjutnya, untuk saat ini, tidak seperti Fiiyanamia-sama atau Raja Roh, kita tidak memiliki tugas apapun.] (Ain)
+
+"berarti kita bisa melanjutkan seperti biasanya, kan?" (Ciel)
+
+[yaah, kita tidak akan seperti ini dalam waktu lama. Sudah ada sedikit kekuatan dewa yang bercampur dalam diriku dan tampaknya Aku secara bertahap akan semakin dekat dengan status dewa. dan pada akhirnya aku akan menjadi salah satu dari dewa.] (Ain)
+
+"Lalu apakah Ain akan menjadi dewa?" (Ciel)
 
 Ciel memiringkan kepalanya.
-Mendengar Aku mengatakan Aku akan menjadi dewa tiba-tiba mungkin tidak terasa nyata dan jujur, situasi Aku tidak terlalu penting.
 
-Aku menjadi dewa relatif tidak penting, jadi mari kita berhenti di situ untuk saat ini.
-Melanjutkan, setelah setengah dari kekuatan sihirku digantikan dengan kekuatan suci, sepertinya saat itulah aku menjadi salah satu dewa.
-Dan Aku diberitahu bahwa paling lama akan memakan waktu 10 tahun untuk mencapai titik itu.』
-Jadi apa masalahnya?」
-Ketika Aku menjadi lebih dari dewa, Kamu akan ditarik dan menjadi dewa juga.
+Mendengar Aku akan menjadi dewa secara tiba-tiba mungkin tidak terasa nyata dan jujur saja, situasiku tidak terlalu penting.
 
-Mengatakan ini terasa seperti aku menghadapi tantangan terbesar dalam hidupku, tapi Ciel sepertinya tidak memahaminya.
-Jika Aku memiliki tubuh, kecemasan yang Aku rasakan saat ini mungkin akan merobek hati Aku tetapi sepertinya perasaan ini masih akan berlanjut untuk sementara waktu.
+[Aku menjadi dewa relatif tidak penting, jadi mari kita berhenti di situ untuk saat ini. kemudian, setengah dari kekuatan sihirku digantikan dengan kekuatan dewa, sepertinya itu ketika saat aku menjadi salah satu dewa. Dan Aku diberitahu bahwa hal itu terjadi paling lama akan memakan waktu 10 tahun untuk mencapai titik itu.] (Ain)
 
-Apa yang terjadi ketika Aku mulai menjadi lebih seperti dewa?」
-Mari kita lihat. Pada titik tertentu, Kamu akan mulai dapat mendengar suara roh dan kemudian Kamu dapat menyentuhnya juga.』
-Itu luar biasa.」
-Kemudian begitu Kamu melangkah ke dalam keilahian, Kamu akan berhenti menua, secara bertahap makanan dan tidur menjadi tidak perlu dan kemudian akan sulit bagi Kamu untuk mati.
-Masalahnya adalah itu tidak dapat diubah. Setelah Kamu melangkah ke dalam keilahian, Kamu tidak dapat kembali menjadi manusia lagi.』
+"Jadi apa masalahnya?" (Ciel)
+
+[Ketika Aku menjadi lebih dari dewa, Kamu akan ikut menjadi dewa juga.] (Ain)
+
+Mengatakan semua ini rasanya seperti aku menghadapi tantangan terbesar dalam hidupku, tapi Ciel sepertinya tidak memahaminya.
+
+Jika Aku memiliki tubuh, kecemasan yang Aku rasakan saat ini mungkin akan merobek hatiku tetapi sepertinya perasaan ini masih akan berlanjut untuk sementara waktu.
+
+"Apa yang terjadi ketika Aku mulai menjadi seperti dewa?" (Ciel)
+
+[hmmm... Pada titik tertentu, Kamu akan mulai dapat mendengar suara roh dan kemudian Kamu dapat menyentuhnya juga.] (Ain)
+
+"Itu luar biasa." (Ciel)
+
+[Kemudian ketika kamu menjadi dewa, Kamu akan berhenti menua, makanan dan tidur menjadi tidak diperlukan dan kemudian akan sulit bagimu untuk mati. Masalahnya adalah itu tidak dapat diubah. Setelah Kamu melangkah alam dewa, Kamu tidak dapat kembali menjadi manusia lagi.] (Ain)
 
 Bahkan setelah mengatakan sebanyak ini, ekspresi Ciel sama seriusnya seperti sebelumnya.
 Aku tidak berpikir bahwa Ciel tidak mengerti apa artinya ini, tetapi mungkin terasa tidak nyata baginya.
@@ -64,7 +70,7 @@ Tidak …… tidak.
 
 Kata-kata Ciel membuatku sangat bahagia. Senang, tapi untuk beberapa alasan, itu menggangguku.
 
-Fiiyanamia- sama memberitahuku bahwa kita bersama itu baik-baik saja.
+Fiiyanamia-sama memberitahuku bahwa kita bersama itu baik-baik saja.
 Aku yakin Ciel saat ini sejujurnya tidak keberatan jika dia menjadi dewa.
 Dia mungkin tidak memiliki keterikatan untuk menjadi fana.
 
