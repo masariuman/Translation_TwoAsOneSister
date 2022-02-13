@@ -39,54 +39,58 @@ Itulah mengapa hal yang akan Aku katakan selanjutnya... mungkin sedikit tidak ad
 [Agar Kamu tidak menjadi dewa, Aku harus menghilang-......] (Ain)
 
 "Kalau begitu tidak perlu dipikirkan. Ain menghilang adalah TIDAK." (Ciel)
--------------------------
+
 Aku terganggu sebelum Aku bisa menyelesaikannya.
+
 Aku merasakan tekad yang tak diragukan dari kejernihan suara Ciel.
 
-
 Jujur, ini membuatku lega. Bahkan jika Aku menghilang, Aku sudah siap untuk itu tetapi meskipun demikian, berpisah dengan Ciel itu menyakitkan.
+
 Tetap saja, aku tidak bisa begitu saja merasa lega di sini. Lagi pula, itu bukan sesuatu yang harus diputuskan secara impulsif.
 
-Tolong pikirkan baik-baik, Ciel. Kamu akan berhenti menjadi manusia, Kamu tahu?
+[Tolong pikirkan baik-baik, Ciel. Kamu akan berhenti menjadi manusia, Kamu tahu?] (Ain)
 
 Ini adalah keputusan penting, jadi silakan pilih dengan lebih hati-hati. Saat aku membicarakan hal ini, Ciel menggembungkan pipinya.
-Dia cemberut cemberut bibirnya. Terus terang, sepertinya aku membuatnya marah.
 
-Lalu bagaimana denganmu, Ain? Apakah Kamu benar-benar berpikir dengan benar? Aku mengatakannya, bukan? Jika Ain menghilang, aku akan mencarimu selamanya. Aku akan melakukannya sampai aku mati, oke?
-Jangan bilang bahwa kamu pikir aku berbohong?」
-Tidak, tapi mungkin sudah terlambat untuk memutuskan kapan kamu mulai berpikir bahwa kamu ingin tetap menjadi manusia.』
-Dan itu sama dengan menghilangnya Ain. Jika aku berpikir ingin bersama Ain, itu akan terlambat ketika kamu sudah pergi.
-Selain itu, bahkan jika Aku menjadi dewa, Aku memiliki Ain, roh dan Fii, kan?
-Aku memiliki semua yang Aku butuhkan. Apakah Kamu mengerti?
-Ya...... Aku mengerti.
+Dia cemberut. Sepertinya aku membuatnya marah.
+
+"Lalu bagaimana denganmu, Ain? Apakah Kamu benar-benar berpikir dengan benar? Aku mengatakannya, bukan? Jika Ain menghilang, aku akan mencarimu selamanya. Aku akan melakukannya sampai aku mati, oke? Jangan bilang kamu pikir aku berbohong?" (Ciel)
+
+[Tidak, tapi mungkin sudah terlambat untuk memutuskan ketika kamu mulai berpikir bahwa kamu ingin tetap menjadi manusia.] (Ain)
+
+"Dan itu sama dengan menghilangnya Ain. Jika aku berpikir ingin bersama Ain, itu akan terlambat ketika kamu sudah pergi. Selain itu, bahkan jika Aku menjadi dewa, Aku memiliki Ain, roh dan Fii, kan? Aku memiliki semua yang Aku butuhkan. Apakah Kamu mengerti?" (Ciel)
+
+[Ya...... Aku mengerti.] (Ain)
 
 Diintimidasi oleh Ciel, Aku akhirnya setuju.
-Ini mungkin pertama kalinya Ciel marah padaku. Kemarin mungkin pertama kalinya aku meneriakinya juga, tapi situasinya benar-benar berbeda. Jika ada orang lain yang mengawasi kita, mereka mungkin akan bertanya siapa yang benar-benar dewasa di sini.
+
+Ini mungkin pertama kalinya Ciel marah padaku. Kemarin mungkin pertama kalinya aku meneriakinya juga, tapi situasinya benar-benar berbeda. Jika ada orang lain yang melihat kami, mereka mungkin akan bertanya siapa yang benar-benar dewasa di sini.
 
 Saat aku merasa tertekan karena kurangnya harga diriku, Ciel bertanya padaku dengan suara pelan.
 
-Katakan, Ainsel. Ain, apakah kamu mungkin membenciku?」
-Tidak, aku sangat mencintaimu. Jika tidak, aku tidak akan tinggal bersamamu sampai sekarang.
-Aku juga, aku juga sangat mencintaimu, tahu?
-Itu sebabnya, apa pun yang terjadi, Aku akan selalu memilih Ain. Apakah itu tidak bagus?」
-Tidak …… tidak.
+"Katakan, Ainsel. Ain, apakah kamu membenciku?" (Ain)
+
+[Tidak, aku sangat mencintaimu. Jika tidak, aku tidak akan tinggal bersamamu sampai sekarang.] (Ain)
+
+"Aku juga, aku juga sangat mencintaimu, kamu tahu? Itu sebabnya, apa pun yang terjadi, Aku akan selalu memilih Ain. Apakah itu tidak baik?" (Ciel)
+
+[Tidak ...... tidak.] (Ain)
 
 Kata-kata Ciel membuatku sangat bahagia. Senang, tapi untuk beberapa alasan, itu menggangguku.
 
-Fiiyanamia-sama memberitahuku bahwa kita bersama itu baik-baik saja.
+Fiiyanamia-sama memberitahuku bahwa kami bersama tidak masalah.
+
 Aku yakin Ciel saat ini sejujurnya tidak keberatan jika dia menjadi dewa.
-Dia mungkin tidak memiliki keterikatan untuk menjadi fana.
+
+Dia mungkin tidak memiliki keterikatan untuk menjadi manusia.
 
 Lalu kenapa aku merasa terganggu?
-Apa yang membuat Aku merasa tidak nyaman ?
+
+Apa yang membuatku merasa tidak nyaman ?
 
 Mengapa Aku yakin bahwa Aku harus berpisah dengan Ciel?
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
-
-Jadi dia bisa mandiri?
+Agar dia bisa mandiri?
 
 -Tidak.
 
@@ -95,25 +99,29 @@ Karena aku harus membiarkannya bebas?
 -Tidak.
 
 Ah, aku mengerti. Itu karena Aku pikir jika dia tidak mandiri dan Aku tidak melepaskannya, dia tidak akan mendapatkan kebahagiaan.
+
 Itu benar. Aku gelisah karena aku tidak tahu apakah aku bisa membuat Ciel bahagia.
 
-Jika Aku meninggal pada usia yang sedikit lebih muda, Aku mungkin bisa mengatakan bahwa Aku akan membuat Ciel bahagia tidak peduli kesulitan apa yang kita hadapi. Jika Aku adalah seorang siswa sekolah menengah, Aku bahkan mungkin dengan percaya diri menyatakannya dengan keyakinan yang tidak berdasar. Lagipula, aku belum melihat kenyataan.
-Namun, sementara Aku tidak bisa menyebut diri Aku orang dewasa yang tepat, Aku tidak terlalu dewasa untuk tidak memahami kesulitan mengambil tanggung jawab atas kehidupan seseorang.
+Jika Aku meninggal pada usia yang sedikit lebih muda, Aku mungkin bisa mengatakan bahwa Aku akan membuat Ciel bahagia tidak peduli kesulitan apa yang kami hadapi. Jika Aku adalah seorang siswa sekolah menengah, Aku bahkan mungkin dengan percaya diri menyatakannya dengan keyakinan yang tidak berdasar. Lagipula, aku belum melihat kenyataan.
 
-Apalagi, jika kita menjadi dewa, kehidupan itu sepertinya tidak akan berakhir. Ini jauh lebih berat daripada kehidupan manusia yang hanya bertahan beberapa dekade.
+Tapi, walaupun Aku tidak bisa menyebut diri Aku orang dewasa yang tepat, Aku tidak terlalu dewasa untuk tidak memahami kesulitan mengambil tanggung jawab atas kehidupan seseorang.
 
-Ada yang mengganggumu, kan?」
-Aku.......Aku tidak ingin berpisah denganmu, Ciel.
-Tapi… aku tidak yakin bisa membuatmu bahagia. Ketika Aku berpikir bahwa Aku mungkin membuat Kamu tidak bahagia setelah menyeret Kamu bersama Aku, itu membuat Aku merasa cemas.
+Apalagi, jika kami menjadi dewa, kehidupan itu sepertinya tidak akan berakhir. Ini jauh lebih berat daripada kehidupan manusia yang hanya bertahan beberapa dekade.
 
-Ah~ah. Aku mengekspos ketidakamanan Aku untuk Ciel.
-Tapi aku harus mengatakan ini padanya dengan benar. Aku tidak bisa hanya mengatakan Aku pasti akan membuat Kamu bahagia dengan tidak bertanggung jawab. Jika Aku harus mengatakan sesuatu Aku akan terus melindungi Kamu adalah yang paling bisa Aku katakan.
+"Ada yang mengganggumu, kan?" (Ciel)
+
+[Aku...... Aku tidak ingin berpisah denganmu, Ciel. Tapi... aku tidak yakin bisa membuatmu bahagia. Ketika Aku berpikir bahwa Aku mungkin membuatmu tidak bahagia setelah menyeretmu bersamaku, itu membuatku merasa cemas.] (Ain)
+
+Ah~ah. Aku mengekspos rasaku untuk Ciel.
+
+Tapi aku harus mengatakan ini padanya dengan benar. Aku tidak bisa hanya mengatakan Aku pasti akan membuatmu bahagia dengan tidak bertanggung jawab. Jika Aku harus mengatakan sesuatu, [Aku akan terus melindungimu] adalah yang paling bisa Aku katakan.
 
 Mendengar kata-kataku, Ciel memiringkan kepalanya dan memikirkan sesuatu.
 
-Kau tahu, Ain. Aku suka Ain. Aku suka bagaimana Ain tertawa, Aku suka bagaimana Ain bernyanyi, dan Aku suka ketika Kamu menikmati diri sendiri.
-Namun, Aku juga suka melihat Ain bingung. Aku juga suka melihat Ain malu dan Aku juga suka bagaimana Kamu marah demi Aku.」
-Apakah...... begitu?』
+"Kau tahu, Ain. Aku suka Ain. Aku suka bagaimana Ain tertawa, Aku suka bagaimana Ain bernyanyi, dan Aku suka ketika Kamu menikmati diri sendiri. Tapi, Aku juga suka melihat Ain bingung. Aku juga suka melihat Ain malu dan Aku juga suka bagaimana Kamu marah demi Aku." (Ciel)
+
+[Apakah...... begitu?] (Ain)
+
 Tapi Kamu tahu, Kamu tahu, Aku tidak suka melihat Ain sebenarnya bermasalah dan Aku tidak mau melihatmu sedih juga, oke?
 Ummm, aku senang Ain berpikir untuk membuatku bahagia, dan itu sudah cukup membuatku bahagia, tapi kurasa apa yang Ain maksud dengan membuatku bahagia itu tidak mungkin.」
 Apa maksudmu?』
