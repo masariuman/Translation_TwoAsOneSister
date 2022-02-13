@@ -38,8 +38,8 @@ Itulah mengapa hal yang akan Aku katakan selanjutnya... mungkin sedikit tidak ad
 
 [Agar Kamu tidak menjadi dewa, Aku harus menghilang-......] (Ain)
 
-Kalau begitu tidak perlu memikirkannya. Ain menghilang adalah tidak langsung.
-
+"Kalau begitu tidak perlu dipikirkan. Ain menghilang adalah TIDAK." (Ciel)
+-------------------------
 Aku terganggu sebelum Aku bisa menyelesaikannya.
 Aku merasakan tekad yang tak diragukan dari kejernihan suara Ciel.
 
