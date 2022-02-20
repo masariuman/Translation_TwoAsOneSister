@@ -250,3 +250,12 @@ Aku tidak tahu apakah kata-kata Aku sampai ke telinganya, tetapi Ciel dengan pen
 
 ------------------------------------------------------
 
+AIN PUNYA TUBUH COMING SOOOOOOOOOOOOONNNN F YEAAAAHH !!!!!!
+
+akhirnya ain mengerti apa yang harus dilakukan agar dedek ciel kita bahagia... yang mana cukup dengna sama-sama melengkapi saja... yeah ain, benar sekali, hanya dengan menghilang begitu saja tidak menyelesaikan masalah yg ada... harusnya kamu sadar, waktu umur 5 tahun aja dedek ciel kita kehilangan semangat sampai kamu muncul lagi... dan ya hanya kamu saja yang selalu berada di sisi dedek ciel dari bayi hinggal sekarang... tentu saja tidak rela dong kalau menghilang begitu saja... tapi akhirnya disini dedek ciel kita blak blakan juga.. saya sendiri juga sudah lelah dengan ain yang tidak peka dibagian ini... tidak ada salahnya egois bersama dedek ciel kita... biarkan saja, sampai memang apabila dedek ciel kita mengusir baru mungkin boleh berfikiran seperti itu... tapi yaah, akhirnya masalah yg membebani pikiran ain sudah selesai... jadi paling tidak sekarang bisa fokus dalam hal lainnya... baguslah...
+
+dan wow dewa memantau mereka dari awal ? jadi tau dong percakapan mereka ... tapi ... hanya 1 hari ??? pelit amat !! paling tidak berikan kemudahan dong... misalnya hanya boleh memakai tubuh ain kalau tidak ada orang lain disekitar gitu... atau sebulan sekali kek.,. ini sekali aja utk selamanya ??? ah saya harap semakin menjadi dewa ntar ain punya tubuh permanen.. haa ~~ 
+
+dan ya walau demikian hanya sehari, sikap dedek ciel kita ini patut di jadikan contoh yang mana tetap bersyukur apa yang diberikan... dia tetap senang dan gembira walaupun permintaannnya hanya berlaku sementara saja... maka dari itu tetaplah bersyukur wahai pembaca temanku ~~ apa yang kalian hadapi didunia ini, baik buruknya, sakit enaknya, tetaplah bersyukur... dan berusahalah menjadi lebih baik dari yang telah ada !!! tentunya dengan cara baik baik yaa ~~
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
