@@ -154,26 +154,37 @@ Ciel mungkin merasakan hal yang sama.
 
 Dan itu baik-baik saja.
 
-Menjadi satu sama lain terasa alami, bersama itu perlu, kami berdua ingin membuat yang lain bahagia, dan hanya dengan satu sama lain memberi kami kebahagiaan.
-Rasanya seperti kita akan tenggelam ke dalam pasir hisap tanpa dasar, tetapi selama kita bahagia, itu tidak masalah.
-Kami berdua saling bergantung satu sama lain. Namun, itu tidak dalam cara yang negatif. Setidaknya, itulah yang Aku pikirkan.
+Menjadi satu sama lain terasa alami, bersama itu perlu, kami berdua sama-sama ingin membuat sesama kami bahagia, dan hanya dengan satu sama lain memberi kami kebahagiaan.
 
-Jadi, Ain, tidak ada lagi pembicaraan tentang menghilang, oke?
-Mengerti.
-Kalau begitu, apakah kita sudah selesai berbicara sekarang?」
+Rasanya seperti kami akan tenggelam ke dalam pasir hisap tanpa dasar, tetapi selama kita bahagia, itu tidak masalah.
+
+Kami berdua saling bergantung satu sama lain. Tapi, itu tidak dalam cara yang negatif. Setidaknya, itulah yang Aku pikirkan.
+
+"Jadi, Ain, tidak ada lagi pembicaraan tentang menghilang, oke?" (Ciel)
+
+[Baiklah...] (Ain)
+
+"Kalau begitu, apakah kita sudah selesai berbicara sekarang?" (Ciel)
 
 Mendengar itu, aku teringat.
+
 Kami di sini bukan untuk menegaskan kembali hubungan kami, tetapi untuk membicarakan apa yang akan terjadi pada kami di masa depan.
-Namun, Aku pikir Aku sudah membicarakan hal-hal yang perlu segera didiskusikan.
-Bagaimanapun, masalah utama adalah tentang transformasi Ciel menjadi dewa.
+
+Tapi, Aku pikir Aku sudah membicarakan hal-hal yang perlu segera didiskusikan.
+
+Bagaimanapun juga, masalah utama adalah tentang transformasi Ciel menjadi dewa.
 
 Ah, tapi kalau dipikir-pikir, ada hal lain yang harus kuberitahukan padanya sesegera mungkin.
 
-Ada satu hal lagi yang harus Aku bicarakan.
-Apa itu?」
-Dewa Tertinggi berkata bahwa dia akan mengabulkan satu permintaan Kamu, Ciel. Meskipun itu bukan apa-apa, tampaknya.』
-Dia akan mengabulkan permintaan?」
-Aku diberitahu bahwa oracle akan diberikan untuk menjawab apakah itu mungkin untuk dikabulkan atau tidak.』
+[Ada satu hal lagi yang harus Aku bicarakan.] (Ain)
+
+"Apa itu?" (Ciel)
+
+[Dewa Tertinggi berkata bahwa dia akan mengabulkan satu permintaanmu, Ciel. Meskipun itu bukan apapun yg kamu minta, tampaknya.] (Ain)
+
+"Dia akan mengabulkan permintaan?" (Ciel)
+
+[Aku diberitahu bahwa wahyu akan diberikan untuk menjawab apakah itu mungkin untuk dikabulkan atau tidak.] (Ain)
 
 Meskipun ada batasannya, Dewa Tertinggi itu sendiri yang akan memberikannya, jadi sebagian besar hal seharusnya menjadi mungkin.
 Tapi klise membangkitkan orang mati, keabadian, atau dominasi dunia mungkin tidak diperbolehkan.
