@@ -187,44 +187,66 @@ Ah, tapi kalau dipikir-pikir, ada hal lain yang harus kuberitahukan padanya sese
 [Aku diberitahu bahwa wahyu akan diberikan untuk menjawab apakah itu mungkin untuk dikabulkan atau tidak.] (Ain)
 
 Meskipun ada batasannya, Dewa Tertinggi itu sendiri yang akan memberikannya, jadi sebagian besar hal seharusnya menjadi mungkin.
-Tapi klise membangkitkan orang mati, keabadian, atau dominasi dunia mungkin tidak diperbolehkan.
+
+Tapi klise membangkitkan orang mati, keabadian, atau menguasai dunia mungkin tidak diperbolehkan.
+
 Menjadi bangsawan mungkin juga rumit.
+
 Apa yang akan Aku harapkan jika itu Aku? Saat aku merenungkan itu, sepertinya Ciel telah memutuskan sesuatu.
 
-Aku ingin tubuh Ain.」
-Tubuh Aku?』
-Aku ingin menyentuh dan berinteraksi dengan Ain juga. Ain memiliki tubuh spiritual, jadi itu mungkin, tapi bagaimana menurutmu?」
-Untuk saat ini, mari kita tunggu oracle.
+"Aku ingin tubuh untuk Ain." (Ciel)
 
-Ya. "Tunggu oracle" terdengar sangat menakjubkan. Meskipun Aku tidak benar-benar berpikir bahwa oracle adalah hal-hal yang datang begitu saja jika Kamu menunggunya.
+[Tubuh?] (Ain)
 
-Jika hanya satu hari di rumah Fiiyanamia, itu layak.】
+"Aku ingin menyentuh dan berinteraksi dengan Ain juga. Ain memiliki tubuh spiritual, jadi itu memungkinkan, tapi bagaimana menurutmu?" (Ciel)
 
-Woah ……』
-Apakah itu oracle?」
-Jadi, Kamu juga mendengarnya. Seharusnya begitu.
-Ini adalah pertama kalinya Aku dengan satu, jadi Aku tidak bisa mengatakan dengan pasti.』
-Tapi hanya satu hari diperbolehkan, kan?...... Yah, mau bagaimana lagi.」
-Apakah kamu baik-baik saja dengan Ciel itu?』
-Apa lagi yang bisa diharapkan? Akan lebih baik jika itu permanen tapi itu tidak diperbolehkan, kan?」
-Jika kamu mengatakannya, maka baiklah.
+[Untuk saat ini, mari kita tunggu wahyunya.] (Ain)
+
+Ya. "Tunggu Wahyunya" terdengar sangat menakjubkan. Meskipun Aku tidak benar-benar berpikir bahwa Wahyu adalah hal-hal yang datang begitu saja jika Kamu menunggunya.
+
+【Jika hanya satu hari di rumah Fiiyanamia, itu bisa dilakukan.】 (Dewa)
+
+[Woah] (Ain)
+
+"Apakah itu wahyu?" (Ciel)
+
+[Jadi, Kamu juga mendengarnya. Seharusnya begitu. Ini adalah pertama kalinya untukku juga, jadi Aku tidak bisa mengatakan dengan pasti.] (Ain)
+
+"Tapi hanya satu hari saja yang diperbolehkan, kan?...... Yah, mau bagaimana lagi." (Ciel)
+
+[Apakah kamu tidak masalah dengan itu ciel?] (Ain)
+
+"Apa lagi yang bisa diharapkan? Akan lebih baik jika itu permanen tapi itu tidak diperbolehkan, kan?" (Ciel)
+
+[Jika kamu ok, maka baiklah.] (Ain)
 
 Karena itu keinginan Ciel, aku tidak berniat ikut campur.
+
 Sebaliknya, Ciel terlihat seolah-olah ini adalah keinginan paling alami di dunia.
-Dia sama sekali tidak berpikir untuk meminta pendapat Aku tentang itu.
 
-Sekarang aku memikirkannya, Dewa Tertinggi terdengar seperti dia tahu apa keinginan Ciel, jadi kurasa dia mengharapkan ini.
+Dia sama sekali tidak berpikir untuk meminta pendapatku tentang itu.
+
+Sekarang aku memikirkannya, Dewa Tertinggi terdengar seperti dia tahu apa keinginan Ciel, jadi kurasa dia sudah memprediksikan ini.
+
 Atau lebih tepatnya, mempersiapkan tubuhku membutuhkan batasan, ya.
-Seperti, Aku merasa bahwa menyediakan hal seperti homunculus untuk Aku masuki akan cukup baik.
 
-Ah......tapi sepertinya tidak akan berhasil kecuali dia mampu menahan divine power.
-Dalam hal ini, mungkin akan sangat sulit dalam aspek teknis. Atau lebih tepatnya, homunculus dengan kekuatan suci berbau seperti kasing Artificial Divine XX」.
+Seperti, Aku merasa bahwa menyediakan hal seperti +homunculus untukku rasuki akan cukup baik.
 
-Kalau dipikir-pikir, kapan tepatnya hitungan mundur suatu hari akan dimulai?』
-Itu benar. Jika dimulai sekarang, maka akan sedikit canggung. Mungkin besok?
-Aku pikir dia harus mendengar percakapan ini, jadi dia mungkin akan mempertimbangkan itu.
-Lalu Aku harus berbicara dengan Fii tentang ini juga.
-Bagaimanapun, ini adalah kesempatan langka untuk berinteraksi dengan Ain, jadi aku harus memastikan bahwa tidak ada yang menghalangi sebanyak mungkin.」
-Aku tidak benar-benar berpikir bahwa dia akan menghalangi...... kan
+Ah......tapi sepertinya tidak akan berhasil kecuali dia mampu menahan kekuatan dewa.
+
+Dalam hal ini, mungkin akan sangat sulit dalam aspek teknis. Atau lebih tepatnya, homunculus dengan kekuatan dewa berbau seperti [Dewa Buatan XX].
+
+[Kalau dipikir-pikir, kapan tepatnya hitungan satu harunya akan dimulai?] (Ain)
+
+"Itu benar. Jika dimulai sekarang, maka akan sedikit canggung. Mungkin besok?" (Ciel)
+
+[kupikir dia bisa mendengar percakapan ini, jadi dia mungkin akan mempertimbangkan itu.] (Ain)
+
+"kalau begitu Aku harus berbicara dengan Fii tentang ini juga. Bagaimanapun juga, ini adalah kesempatan langka untuk berinteraksi dengan Ain, jadi aku harus memastikan bahwa tidak ada yang menghalangi sebanyak mungkin." (Ciel)
+
+[Aku tidak benar-benar berpikir bahwa dia akan menghalangi......] (Ain)
 
 Aku tidak tahu apakah kata-kata Aku sampai ke telinganya, tetapi Ciel dengan penuh semangat terbang keluar dari ruangan.
+
+------------------------------------------------------
+
