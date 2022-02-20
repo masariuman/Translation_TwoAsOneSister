@@ -143,12 +143,16 @@ Sebaliknya, itu karena aku melekat pada Ciel sejak aku datang ke dunia ini sehin
 "Dalam hal ini, tidak ada masalah. Lagipula, Ain tidak perlu membuatku bahagia. Mulai sekarang sampai selamanya, mari kita bahagia bersama." (Ciel)
 
 Ciel tersenyum. Seperti bunga yang mekar, dengan terangnya mentari.
-Entah bagaimana kedengarannya seperti dia melamar dan pikiran itu membuatku tersenyum juga.
-Ah, tapi itu benar. Hubungan kita bukanlah sesuatu yang bisa kita bebaskan atau lepaskan begitu saja. Tidak mungkin saat ini.
+
+Entah bagaimana kedengarannya seperti dia melamarku dan pikiran itu membuatku tersenyum juga.
+
+Ah, tapi itu benar. Hubungan kami bukanlah sesuatu yang bisa kami lepaskan begitu saja. Tidak mungkin untuk saat ini.
 
 Aku akan terus melindungi Ciel dan aku berencana melakukan yang terbaik untuk membuat Ciel bahagia, tapi itu karena aku ingin melihat Ciel bahagia.
+
 Ciel mungkin merasakan hal yang sama.
-Dan itu baik-baik saja seperti itu.
+
+Dan itu baik-baik saja.
 
 Menjadi satu sama lain terasa alami, bersama itu perlu, kami berdua ingin membuat yang lain bahagia, dan hanya dengan satu sama lain memberi kami kebahagiaan.
 Rasanya seperti kita akan tenggelam ke dalam pasir hisap tanpa dasar, tetapi selama kita bahagia, itu tidak masalah.
