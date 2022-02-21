@@ -162,81 +162,113 @@ Setelah aku duduk, Fiiyanamia-sama menatapku dengan rasa ingin tahu.
 
 "Ya ampun, Ainsel-chan. Kamu terlihat sangat mirip dengan Ciel." (Fii)
 
-Aku diberitahu bahwa Aku dipengaruhi oleh Ciel.
-Aku kira itu bisa terjadi? Tetap saja, kalian berdua terlihat seperti saudara kembar, itu cukup menyenangkan.
-Kebetulan, Aku melihat ada juga bagian dari sarapan yang disiapkan untuk Aku. Aku sangat terkejut ketika Aku melihat apa yang terjadi pada Aku pagi ini. Personil mansion tampaknya tidak terlalu terkejut tentang hal itu.」
-Mansion itu menampung banyak orang, jadi sejumlah besar makanan disiapkan sebelumnya. Makanan tambahan tidak masalah.
+"Aku diberitahu bahwa Aku dipengaruhi oleh Ciel." (Ain)
 
-Sekarang dia menyebutkannya, ada banyak pelayan dan harus ada sejumlah juru masak juga.
+"mungkin itu bisa terjadi? Tetap saja, kalian berdua terlihat seperti saudara kembar, itu cukup menyenangkan." (Fii)
+
+"entah mengapa, Aku melihat ada juga bagian dari sarapan yang disiapkan untukku. Aku sangat terkejut ketika Aku melihat apa yang terjadi padaku pagi ini. Personil mansion tampaknya tidak terlalu terkejut tentang hal itu." (Ain)
+
+'Mansion ini menampung banyak orang, jadi sejumlah besar makanan disiapkan sebelumnya. Makanan tambahan tidak masalah.' (Fii)
+
+Sekarang setelah dia menyebutkannya, ada banyak pelayan dan juga ada sejumlah juru masak juga.
+
 Semakin besar jumlah yang dimasak, semakin sedikit porsi setiap orang yang harus dikurangi untuk porsi orang tambahan. Jadi, benar, seharusnya tidak ada masalah.
 
-Selain itu, pelayannya adalah profesional. Sesuatu seperti itu tidak akan mengganggu mereka dan mereka juga tidak akan membocorkan informasi tentang Kamu.
+"Selain itu, pelayannya adalah profesional. Sesuatu seperti itu tidak akan mengganggu mereka dan mereka juga tidak akan membocorkan informasi tentangmu." (Fii)
 
-Pembantu menakjubkan. Seperti yang diharapkan dari real deal, kurasa.
+pelayan menakjubkan. Seperti yang diharapkan dari Fiiyanamia, kurasa.
+
 Mungkin karena keherananku, Fiiyanamia-sama mulai terkikik.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Tidak, tidak, itu sebenarnya bohong. Mereka sebenarnya terkejut tetapi mereka dilatih untuk tidak menampakkannya. Mereka pasti tidak akan membocorkan apapun. Lagi pula, jika mereka melakukannya, itu tidak akan berakhir dengan pemecatan sederhana." (Fii)
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"Itu melegakan." (Ain)
 
-Tidak, tidak, itu sebenarnya bohong. Mereka sebenarnya terkejut tetapi mereka dilatih untuk tidak membiarkannya muncul. Yang mengatakan, mereka harus terkejut di bawahnya.
-Mereka pasti tidak akan membocorkan apapun. Lagi pula, jika mereka melakukannya, itu tidak akan berakhir dengan pemecatan sederhana.
-Itu melegakan.
+Aku tidak benar-benar menemukan mereka berbicara tentangku sebagai sesuatu yang perlu dikhawatirkan.
 
-
-Aku tidak benar-benar menemukan mereka berbicara tentang Aku sebagai sesuatu yang perlu dikhawatirkan.
 Dan jika itu terjadi di Central, tidak diragukan lagi bahwa Fiiyanamia-sama akan mengetahuinya.
 
-Sekarang cepatlah makan.」 Saat Fiiyanamia-sama mendesakku, aku memutuskan untuk berhenti mengobrol di sana dan mencicipi makanan yang disajikan.
+"Sekarang cepatlah makan." (Fii)
+
+Ketika Fiiyanamia-sama mendesakku, aku memutuskan untuk berhenti mengobrol dan mencicipi makanan yang disajikan.
 
 🎵🎵🎵
 
-Saat aku memikirkan apa yang harus kulakukan selanjutnya setelah sarapan selesai, Untuk saat ini, Ainsel-chan akan membutuhkan beberapa pakaian.」 Fiiyanamia-sama bergumam.
-Itu mengingatkan Aku, Aku berjalan-jalan dengan daster, ya. Meskipun hanya ada wanita di sekitar sini, sekarang aku mengingat ini, itu memalukan.
-Namun, meskipun mengenakan pakaian yang mirip denganku, mengapa Ciel terkikik padaku?
+Saat aku memikirkan apa yang harus kulakukan selanjutnya setelah sarapan selesai, Fiiyanamia-sama bergumam "Untuk saat ini, Ainsel-chan akan membutuhkan beberapa pakaian.".
 
-Namun, Aku tidak bisa keluar hari ini, Kamu tahu?」
-Itu benar-benar, paling pasti, tidak ada yang perlu dikhawatirkan. Dari apa yang Aku lihat, Kamu memiliki sosok yang sama persis dengan Ciel, ya?」
-Logisnya, memang begitu.
+Itu mengingatkanku, Aku berjalan-jalan dengan daster, ya. Meskipun hanya ada wanita di sekitar sini, sekarang ketika aku mengingat ini, itu memalukan.
 
-Karena tubuh Aku didasarkan pada Ciel, kita seharusnya tidak berbeda.
+Tapi, meskipun mengenakan pakaian yang mirip denganku, mengapa Ciel terkikik padaku?
+
+"Tapi, Aku tidak pergi keluar hari ini, Kamu tahu?" (Ain)
+
+"Itu benar-benar, pastinya, tidak ada yang perlu dikhawatirkan. Dari apa yang Aku lihat, Kamu memiliki sosok yang sama persis dengan Ciel, kan?" (Fii)
+
+"Logisnya, memang begitu." (Ain)
+
+Karena tubuhku didasarkan pada Ciel, kami seharusnya tidak berbeda.
+
 Dan setelah menggunakan tubuh ini untuk sementara waktu, Aku tidak merasakan sesuatu yang tidak pada tempatnya.
-Jika Aku harus mengatakannya, Aku kira fakta bahwa rambut yang berkelap-kelip di sudut mata Aku berwarna hitam terasa aneh.
-Aku sudah memiliki pengalaman dengan ini sejak rambut Ciel awalnya pirang dan berubah menjadi warna putih saat ini, jadi itu tidak terlalu mengganggu.
 
-Kalau dipikir-pikir, Aku juga memiliki sirkuit di rambut Aku tapi...... Yah, Aku rasa itu bagus. Aku tidak punya keluhan.
+Jika Aku harus mengatakannya, Aku kira fakta bahwa rambut yang berkelap-kelip di sudut mataku berwarna hitam terasa aneh.
+
+Aku sudah memiliki pengalaman dengan ini sejak rambut Ciel awalnya pirang dan berubah menjadi warna putih, jadi itu tidak terlalu mengganggu.
+
+Kalau dipikir-pikir, Aku juga memiliki sirkuit di rambutku tapi...... Yah, Aku rasa itu bagus. Aku tidak punya keluhan.
+
 Kebetulan, Aku juga bisa menggunakan sirkuit Ciel dengan bebas. Dan aku curiga Ciel juga bisa menggunakan milikku sesukanya.
+
 Pada dasarnya, sirkuit kami digandakan, jadi itu saja yang membuat kondisi kami saat ini menjadi tidak normal.
 
-"Benar, benar. Dalam hal ini, Aku sudah menyiapkan beberapa, jadi itu tidak masalah.
-Ciel juga harus terbiasa dengan pakaian yang pantas.」
-Tidak. Aku memiliki Ain untuk diri Aku sendiri hari ini.
+"Benar, benar. Dalam hal ini, Aku sudah menyiapkan beberapa, jadi itu tidak masalah. Ciel juga harus terbiasa dengan pakaian yang pantas." (Fii)
 
-Mendengar penolakan tak terduga Ciel membuatku gugup tapi Fiiyanamia-sama sepertinya tidak terlalu terganggu olehnya. Sebaliknya, dia mulai menegur Ciel dengan main-main.
+"Tidak. Aku memiliki Ain untuk diriku sendiri hari ini." (Ciel)
 
-Ya ampun, apakah Kamu benar-benar yakin tentang itu? Hanya untuk hari ini, kamu bisa mendandani Ainsel-chan sesukamu , tahu?」
-Dan bagaimana dengan itu? Ain menggemaskan tidak peduli apa yang dia kenakan.」
-Tentu saja, tentu saja begitu. Ainsel-chan cukup menggemaskan. Namun, dia akan menjadi lebih menggemaskan saat berdandan, kau tahu?」
-Apakah itu benar?」
+Mendengar penolakan tak terduga Ciel membuatku gugup tapi Fiiyanamia-sama sepertinya tidak terlalu terganggu olehnya. Sebaliknya, dia mulai menegur Ciel dengan bermain-main.
 
+"Ya ampun, apakah Kamu benar-benar yakin tentang itu? Hanya untuk hari ini, kamu bisa mendandani Ainsel-chan sesukamu, kau tahu?" (Fii)
 
-Menjawab tatapan skeptis Ciel, Fiiyanamia-sama menjawab Ya, tentu saja. sambil tersenyum dan bertepuk tangan dua kali.
-Dan entah dari mana — yah, tidak juga — seorang pelayan biasanya muncul.
-Dia berjalan di belakangku, mengatakan Permisi. sebelum membantuku berdiri.
+"Dan ada apa dengan itu? Ain menggemaskan tidak peduli apa yang dia kenakan." (Ciel)
 
-Dia menempatkan stola berwarna terang di pundakku dan berjalan di sekitarku sambil memeriksaku dengan cermat.
-Dan setelah mengangguk besar, dia berkata Maafkan Aku. dan mendudukkan Aku kembali.
+"Tentu saja, tentu saja begitu. Ainsel-chan cukup menggemaskan. Tapi, tahukah kamu dia akan menjadi lebih menggemaskan saat berdandan ?" (Fii)
 
-Kulit Aku yang terlihat adalah sesuatu yang mengganggu Aku, jadi Aku bersyukur untuk mencuri menutupinya tapi apa itu semua?
+"Apakah itu benar?" (Ciel)
+
+Menjawab tatapan skeptis Ciel, Fiiyanamia-sama menjawab "Ya, tentu saja." sambil tersenyum dan bertepuk tangan dua kali.
+
+Dan entah dari mana — seorang pelayan muncul.
+
+Dia berjalan di belakangku, mengatakan "Permisi." sebelum membantuku berdiri.
+
+Dia menempatkan stola(mirip syal) berwarna terang di pundakku dan berjalan di sekitarku sambil memeriksaku dengan cermat.
+
+Dan setelah mengangguk besar, dia berkata "Maafkan Aku." dan mendudukkanku kembali.
+
+Kulitku yang terlihat adalah sesuatu yang menggangguku, jadi Aku bersyukur stola menutupinya tapi untuk apa itu semua?
+
 Juga, stola ini anehnya menyenangkan untuk disentuh. Jadi begini rasanya barang mewah, ya.
+
 Dengan tekstur ini, mungkin bagus untuk membeli satu meskipun agak mahal.
+
 Lagipula, hal seperti ini seharusnya tidak merusak kulit Ciel.
 
-Bagaimana dengan itu?」 Begitu
-, kan...... aku bisa mengerti maksudmu, Fii.
-Benar? Aku berharap begitu. Dengan mengatakan itu, mengapa kita tidak mencari pakaian untuk Ainsel-chan ?」
-Ya, tentu saja, mari kita lakukan. Tapi hanya untuk setengah hari, oke?」
-Itu aku mengerti. Aku tidak punya niat untuk membuang-buang waktu Kamu bersama. Kalau
-begitu ayo cepat. Ke mana kita harus pergi?
+"Bagaimana?" (Fii)
 
-Sementara aku benar-benar terganggu oleh stola itu, Ciel dan Fiiyanamia-sama tiba-tiba cocok satu sama lain. Aku punya firasat bahwa ini akan terjadi tetapi untuk beberapa alasan, Ciel tampaknya lebih antusias daripada yang Aku harapkan dan Aku mendapatkan firasat buruk tentang ini.
+"Begitu, benar...... aku bisa mengerti maksudmu, Fii." (Ciel)
+
+"benar kan? sudah kuduga. kalau begitu, mengapa kita tidak mencari pakaian untuk Ainsel-chan ?" (Fii)
+
+"Ya, tentu saja, mari kita lakukan. Tapi hanya untuk setengah hari, oke?" (Ciel)
+
+"aku mengerti. Aku tidak punya niat untuk membuang-buang waktu kalian." (Fii)
+
+"Kalau begitu ayo cepat. Ke mana kita harus pergi?" (Ciel)
+
+ketika perhatianku benar-benar terfokus dengan oleh stola itu, entah mengapa Ciel dan Fiiyanamia-sama tiba-tiba menjadi kompak. Aku punya firasat bahwa ini akan terjadi tetapi untuk beberapa alasan, Ciel tampaknya lebih antusias daripada yang Aku harapkan dan Aku mendapatkan firasat buruk tentang ini.
+
+-------------------------------------------------------
+
+AiNsEl-CHUUAAAANNN ~~~~~ >_<
+
+Si Kembar Ainsen-Chan dan Ciel-Chan, Yang satu rambut putih kulit putih mata biru, yang satunya kulit sawo matang (warna kulit asia) beramput butam dan bermata hitam... daripada kembaran, lebih seperti versi alter nya dedek ciel yak >_<
+
