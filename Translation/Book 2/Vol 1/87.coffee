@@ -83,68 +83,85 @@ Hmm, kurasa itu karena aku terbiasa hidup sebagai seorang gadis.
 "Tidak, tidak sama sekali! Hanya mengetahui bahwa itu Ain membuatmu lebih menggemaskan. Selain itu, rambut dan mata hitammu adalah hal yang tidak aku miliki." (Ciel)
 
 Benar, itu adalah fakta bahwa perubahan warna yang sederhana sekalipun dapat mengubah kesan seseorang secara drastis.
+
 Rambut hitamku berkebalikan dengan warna rambut Ciel, jadi mungkin akan memberikan kesan yang sama sekali berbeda.
-Dan warna kulit Aku persis seperti orang Asia.
+
+Dan warna kulitku persis seperti orang Asia.
 
 Ciel dengan riang menatapku.
-Kalau dipikir-pikir, apa yang Aku pakai sekarang? Berpikir demikian, Aku perhatikan bahwa Aku mengenakan daster yang terbuat dari kain tipis. Kulit Aku terlihat di bahu dan beberapa bagian yang lebih tipis, jadi agak memalukan.
 
+Kalau dipikir-pikir, apa yang Aku pakai sekarang? Berpikir demikian, Aku perhatikan bahwa Aku mengenakan daster yang terbuat dari kain tipis. Kulitku terlihat di bahu dan beberapa bagian yang lebih tipis, jadi agak memalukan.
 
 Setelah menatapku sebentar, Ciel tiba-tiba memelukku.
+
 Dan mungkin karena Ciel memakai sesuatu yang mirip, aku bisa merasakan kehangatan tubuhnya.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
-
-Akhirnya aku bisa memelukmu, Ain. Aku selalu, selalu ingin menyentuhmu.
+"Akhirnya aku bisa memelukmu, Ain. Aku selalu, selalu ingin menyentuhmu." (Ciel)
 
 Ciel menyentuh leherku, jadi aku melingkarkan tanganku di kepalanya dan dengan lembut menyisir rambutnya.
+
 Sama seperti Ciel yang ingin menyentuhku, aku selalu ingin menyentuh Ciel di banyak kesempatan.
-Aku bertanya-tanya berapa kali aku pernah berpikir untuk membelai kepalanya dan memujinya, dan memeluknya erat-erat dan menghiburnya.
 
-Mengalami kesempatan yang paling tak terduga untuk bisa menyentuh Ciel secara fisik, hatiku diam-diam tapi pasti berdenyut senang.
+Aku bertanya-tanya berapa kali aku pernah berpikir untuk membelai kepalanya dan memujinya, memeluknya erat-erat dan menghiburnya.
 
-Begitu menenangkan, begitu lembut. Aku memiliki keyakinan penuh bahwa Aku dapat menghabiskan sepanjang hari tenggelam dalam kebahagiaan ini, tetapi seperti yang dikatakan Ciel, hari ini adalah satu-satunya waktu kita.
+Mengalami kesempatan yang paling tak terduga untuk bisa menyentuh Ciel secara fisik, hatiku diam tapi pasti berdenyut senang.
+
+Begitu menenangkan, begitu lembut. Aku memiliki keyakinan penuh bahwa Aku dapat menghabiskan sepanjang hari tenggelam dalam kebahagiaan ini, tetapi seperti yang dikatakan Ciel, hari ini adalah satu-satunya waktu kami.
+
 Setelah beberapa saat, aku memegang bahu Ciel dan dengan lembut mendorongnya menjauh.
-Dicabik-cabik olehku, Ciel tampak agak tidak senang tetapi setelah melihat wajahku, dia terkekeh.
+
+Ciel tampak agak tidak senang tetapi setelah melihat wajahku, dia terkekeh.
 
 Tawanya itu sangat menggemaskan sehingga aku secara refleks membuang muka.
-Dan tampaknya senang dengan ini, Ciel meraih tanganku dan Ayo sarapan. mulai berjalan.
+
+Dan tampaknya senang dengan ini, Ciel meraih tanganku dan "Ayo sarapan.", dan mulai berjalan.
 
 🎵🎵🎵
 
 Karena aku punya tubuh, ada satu hal yang membuatku penasaran.
-Artinya, apakah Aku bisa memberikan penghalang pada Ciel dengan level yang sama dengan yang Aku gunakan sampai sekarang?
-Dalam keadaanku saat ini, bahkan penghalang yang terdegradasi harus memiliki kekuatan pertahanan yang cukup.
+
+Artinya, apakah Aku bisa memberikan barrier pada Ciel dengan level yang sama dengan yang Aku gunakan sampai sekarang?
+
+Dalam keadaanku saat ini, bahkan barrier yang terdegradasi harusnya memiliki kekuatan pertahanan yang cukup.
 
 Tapi itu cerita yang berbeda. Dalam melindungi Ciel, Aku tidak punya niat untuk berkompromi.
+
 Dengan mengatakan itu, saat aku ditarik oleh Ciel, aku mengkonfirmasi kondisiku saat ini.
-Pertama, kekuatan sihir. Aku tidak bisa merasakan apapun yang seperti kekuatan sihir. Sebaliknya, Aku merasakan kekuatan yang sama yang Aku rasakan dari Tuhan Pencipta.
-Selanjutnya, sihir. Aku bisa memberikan penghalang pada Ciel jauh lebih halus dari biasanya. Kekuatan pertahanannya juga memuaskan.
+
+Pertama, energi sihir. Aku tidak bisa merasakan apapun yang seperti energi sihir. Sebaliknya, Aku merasakan energi yang sama yang Aku rasakan dari dewa Pencipta.
+
+Selanjutnya, sihir. Aku bisa memberikan barrier pada Ciel jauh lebih halus dari biasanya. Kekuatan pertahanannya juga memuaskan.
 
 Ya. Ya. Ini, sepertinya aku semacam dewa sekarang.
-Lagipula, aku tidak bisa menjadi dewa sejati hanya karena keinginan kemarin dan kekuatan yang kurasakan tidak sebesar yang kurasakan dari Dewa Pencipta dan Fiiyanamia-sama.
-Bagaimana Aku harus mengatakan ini, keadaan Aku saat ini seperti semacam Dewa: Mode Percobaan」.
 
+Lagipula, aku tidak bisa menjadi dewa sejati hanya karena keinginan kemarin dan kekuatan yang kurasakan tidak sebesar yang kurasakan dari Dewa Pencipta dan Fiiyanamia-sama.
+
+bisa dikatakan, keadaanku saat ini seperti semacam mode percobaan dewa.
 
 Itu menjelaskan kenapa aku tidak bisa meninggalkan mansion.
-Jika beberapa dewa tiruan dilepaskan ke dunia, bahkan hanya untuk satu hari, siapa yang tahu apa yang bisa terjadi.
-Secara khusus, ada kemungkinan individu yang bersangkutan akan menggunakan penguatan fisik dengan kekuatan suci, menyerbu ke dalam kastil dengan kekuatan penuh dan menghancurkan sebuah negara. Yang tentu saja tidak akan Aku lakukan.
-Aku tidak dapat melakukan kerusakan besar bahkan jika Aku menyerang tetapi jika Aku pergi ke keluarga kerajaan dan menusuk mereka semua dengan pisau, itu praktis akan menghancurkan negara. Bukannya aku akan pernah melakukannya.
 
-Hal lain yang bisa Aku katakan adalah bahwa mungkin saja keadaan Aku saat ini adalah apa yang akan terjadi jika Ciel atau Aku, jika bukan kami berdua, menjadi dewa di masa depan.
-Aku tidak terlalu tahu banyak tentang menjadi dewa jadi Aku tidak bisa mengatakan dengan pasti, tetapi saat ini tubuh Aku terdiri dari kekuatan suci namun tubuh ini jelas milik Aku.
+Jika sesuatu yang seperti dewa dilepaskan ke dunia, bahkan hanya untuk satu hari, siapa yang tahu apa yang bisa terjadi.
 
-Untuk saat ini, kekhawatiran Aku hilang, jadi Aku menuju ke area sarapan tepat ketika Ciel membawa Aku.
+Secara khusus, ada kemungkinan individu yang bersangkutan akan menggunakan penguatan fisik dengan kekuatan dewa, menyerbu ke dalam istana dengan kekuatan penuh dan menghancurkan sebuah negara. Yang tentu saja tidak akan Aku lakukan.
+
+Aku tidak dapat melakukan kerusakan besar bahkan jika Aku menyerang tetapi jika Aku pergi ke keluarga kerajaan dan menusuk mereka semua dengan pisau, itu sama saja dapat menghancurkan negara. tapi aku tidak akan pernah melakukannya.
+
+Hal lain yang bisa Aku katakan adalah bahwa mungkin saja keadaanku saat ini adalah apa yang akan terjadi jika Ciel atau Aku, jika bukan kami berdua, menjadi dewa di masa depan.
+
+Aku tidak terlalu tahu banyak tentang menjadi dewa jadi Aku tidak bisa mengatakan dengan pasti, tetapi saat ini tubuhku terdiri dari kekuatan dewa tapi tubuh ini jelas milikku.
+
+Untuk saat ini, kekhawatiranku hilang, jadi Aku menuju ke area sarapan ketika Ciel membawaku.
 
 🎵🎵🎵
 
 Fiiyanamia-sama sudah menunggu kami dan Ciel duduk tanpa ragu-ragu.
+
 Sekarang, apa yang akan Aku lakukan? Saat aku memikirkan itu, seorang pelayan menarik kursi tepat di sebelah Ciel, jadi aku duduk di sana.
+
 Setelah aku duduk, Fiiyanamia-sama menatapku dengan rasa ingin tahu.
 
-Ya ampun, Ainsel-chan. Kamu terlihat sangat mirip dengan Ciel.」
+"Ya ampun, Ainsel-chan. Kamu terlihat sangat mirip dengan Ciel." (Fii)
+
 Aku diberitahu bahwa Aku dipengaruhi oleh Ciel.
 Aku kira itu bisa terjadi? Tetap saja, kalian berdua terlihat seperti saudara kembar, itu cukup menyenangkan.
 Kebetulan, Aku melihat ada juga bagian dari sarapan yang disiapkan untuk Aku. Aku sangat terkejut ketika Aku melihat apa yang terjadi pada Aku pagi ini. Personil mansion tampaknya tidak terlalu terkejut tentang hal itu.」
