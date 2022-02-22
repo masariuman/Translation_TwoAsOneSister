@@ -272,3 +272,12 @@ AiNsEl-CHUUAAAANNN ~~~~~ >_<
 
 Si Kembar Ainsen-Chan dan Ciel-Chan, Yang satu rambut putih kulit putih mata biru, yang satunya kulit sawo matang (warna kulit asia) beramput butam dan bermata hitam... daripada kembaran, lebih seperti versi alter nya dedek ciel yak >_<
 
+ahha !! Fii kali ini sangat pandai sekali mengarahkan dedek ciel kita dan membuatnya setuju dengan apa yang diinginkan... maan, siapapun cepat garap ilustrasi nya dong, berwarna kalau bisa... saya ingin sekali melihat ilustrasi officalnya dedek ciel dan ainsel :( 
+
+yaah, setelah selesai 1 buku yang berisi 3 volume, dan sekarang di volume 4 yg mana buku kedua, dan sudah lebih dari 80an chapter jika ditambah dengan selingan, akhirnya ain kita memiliki tubuh, walau hanya sehari saja... aaaahhh ketika ain bangun dengan ngantuknya, dan dedek melihat serta memeluk dan mengelus rambut dedek ciel kita.. aaah PLISS MANA ILUSTRASINYA !!! AAAAAA IMAJINASI SAYA SANGAT LAH LIAARRRRRRR DENGAN KEMANISAN GULA DI CHAPTER KALI INI AAAAAA !!!!
+
+dedek ciel kita kali ini sangat sangat bahagia ketika mengetahui ain mendapatkan tubuhnya, tidak peduli kalau bentuknya menyerupai ciel... selama bisa menyentuh ain, ciel bahagia, begitu juga sebaliknya untuk ain... sungguh sesuatu yang sangat amat simpel dapat menjadi kebahagian yang tinggi... andai saja ada seseorang yang dapat membuat saya bahagia hanya dengan mengelus rambutnya (playing : lagu sedih)... 
+
+ya memang fii banyak memiliki pelayan dan koki, dan mungkin banyak lagi yang bekerja di mansion fii, tapi saya harap tidak ada pengkhianatan dengan mengumbarkan apa yang terjadi di mansion keluar... entah mengapa saya merasa kalau duke rispelgia akan mengetahui hal ini, akan mengetahui kalau ada seorang anak yang memiliki kekuatan dewa, dan setelah mendengar penjelasan yg ternyata menyerupai ciel mungkin duke rispelgia merasa berhasil dan berusaha untuk memiliki ciel kembali... entah mengapa pikiran saya mengarah ke arah begitu... karena seperti yang dibilang di chapter ini ada banyak orang di mansion, yang mana saya sangat tidak percaya semua orang tersebut baik... mungkin tidak ada yang jahat, tapi pasti ada yang netral... netral ke fii, netral ke duke atau orang luar... dan orang ini juga bisa berbahaya untuk ainciel kita...
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
