@@ -62,70 +62,87 @@ Saat aku menunjuk para pelayan yang sedang memilih pakaian, Martha-san dengan le
 
 "Kamu menang?" (Ain)
 
-Ya. Bagaimanapun, dipercaya untuk melayani tamu Fiiyanamia-sama adalah hak istimewa yang besar. Hanya ada beberapa yang diundang ke rumah ini sebagai tamu, Kamu tahu.
+"Ya. Bagaimanapun juga, dipercaya untuk melayani tamu Fiiyanamia-sama adalah hak istimewa yang besar. Hanya ada beberapa yang diundang ke rumah ini sebagai tamu." (Martha)
 
-Jadi begitulah adanya. Dipercayakan sebagai tamu mungkin akan menunjukkan bahwa Fiiyanamia-sama telah cukup memercayaimu untuk melakukannya, jadi kurasa itu adalah hak istimewa.
+Jadi begitu. Dipercayakan sebagai tamu mungkin akan menunjukkan bahwa Fiiyanamia-sama telah cukup memercayaimu, jadi kurasa itu adalah hak istimewa.
+
 Sekarang setelah dia menyebutkannya, Martha-san agak terlihat bangga dan penuh kemenangan.
 
 Selain itu, melayani mungkin termasuk membantu mengganti pakaian.
+
 Kalau begitu, kurasa aku benar-benar harus mengkonfirmasi sesuatu dengannya.
 
-Martha-san, seberapa banyak yang Kamu ketahui tentang Aku?」
-Tidak ada sama sekali...... adalah apa yang ingin Aku katakan, tapi Aku telah diberitahu bahwa Kamu adalah makhluk yang pada akhirnya akan menjadi setara dengan Fiiyanamia-sama.」
-Itu tidak mengejutkan Kamu?」
-Tidak. Pada awalnya Aku terkejut, tetapi karena Kamu adalah tamu Fiiyanamia-sama, seharusnya tidak terbayangkan.
+"Martha-san, seberapa banyak yang Kamu ketahui tentangku?" (Ain)
+
+"Tidak ada sama sekali...... adalah apa yang ingin Aku katakan, tapi Aku telah diberitahu bahwa Kamu adalah makhluk yang pada akhirnya akan menjadi setara dengan Fiiyanamia-sama." (Martha)
+
+"Itu tidak mengejutkanmu?" (Ain)
+
+"Pada awalnya Aku terkejut, tetapi karena Kamu adalah tamu Fiiyanamia-sama, seharusnya tidak terbayangkan." (Martha)
 
 Apakah itu berarti para pelayan di mansion ini tahu tentang sifat asli Fiiyanamia-sama ?
-Paling tidak, mereka tampaknya tahu bahwa dia tidak fana. Padahal, apakah mereka tahu bahwa dia memiliki status seperti utusan dewa atau tidak adalah cerita yang berbeda.
-Penampilannya tidak berubah dan dia tidak selalu makan. Dia seperti legenda hidup, jadi kurasa bahkan penampilan orang sepertiku tidak terlalu mengejutkan bagi mereka.
 
-Dengan kata lain, bahkan bagi kita yang berada di urutan ke-10 dewa saat ini, mansion ini mungkin jauh lebih nyaman untuk ditinggali daripada yang kukira.
+Paling tidak, mereka tampaknya tahu bahwa dia bukan manusia. Entah mereka tahu bahwa dia memiliki status seperti utusan dewa atau tidak adalah cerita yang berbeda.
+
+Penampilannya tidak berubah dan dia tidak selalu makan. Dia seperti legenda hidup, jadi kurasa bahkan orang sepertiku tidak terlalu mengejutkan bagi mereka.
+
+Dengan kata lain, bahkan bagi kami yang berada di urutan ke-10 dewa saat ini, mansion ini mungkin jauh lebih nyaman untuk ditinggali daripada yang kukira.
+
 Yah, bagian tentang aku menjadi dewa adalah sesuatu yang hanya aku ketahui setelah datang ke sini.
+
 Sebelum itu, mungkin hanya seseorang dengan gangguan kepribadian ganda.
 
-
-Kalau begitu, persiapannya sepertinya sudah selesai, jadi mari kita lanjutkan.
-
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"Kalau begitu, persiapannya sepertinya sudah selesai, jadi mari kita lanjutkan." (Martha)
 
 Dengan 3......tidak, 5 pasang mata menatapku dengan antisipasi, aku berjalan di tengah suasana yang sedikit canggung ini.
 
 🎵🎵🎵
 
 Dengan bantuan Martha-san dan para pelayan yang memilih pakaian, hal pertama yang Aku kenakan adalah gaun putih.
-Itu dipenuhi sampai penuh dengan tali dan embel-embel dan tampak seperti sesuatu yang disukai gadis-gadis untuk dipakai.
+
+Itu dipenuhi dengan tali dan hiasan dan tampak seperti sesuatu yang disukai gadis-gadis untuk dipakai.
+
 Itu tidak berlengan tetapi sebagai gantinya, Aku diberi sarung tangan panjang.
 
 Aku pernah melihatnya di manga dan sejenisnya, tapi ini pertama kalinya aku memakai ini.
-Ini bisa baik selama musim panas untuk mencegah sengatan matahari. Pikiran acak itu tiba-tiba terlintas di benakku.
-Aku juga mengenakan korset. Ini tidak ketat karena Aku masih anak-anak tetapi karena itu adalah sesuatu yang digunakan untuk koreksi figur, agaknya memberi Aku lebih banyak tampilan feminin.
 
-Aku berdiri di depan cermin ukuran penuh yang menunjukkan seluruh tubuh Aku untuk konfirmasi akhir.
+Ini bagus selama musim panas untuk mencegah sengatan matahari. Pikiran acak itu tiba-tiba terlintas di benakku.
+
+Aku juga mengenakan korset. Ini tidak ketat karena Aku masih anak-anak tetapi karena itu adalah sesuatu yang digunakan untuk memperbaiki bentuk tubuh, sepertinya memberiku lebih banyak tampilan feminin.
+
+Aku berdiri di depan cermin ukuran penuh yang melihat seluruh tubuhku untuk konfirmasi akhir.
+
 Aku tidak terlalu mengenal hal-hal semacam ini, tetapi Aku pikir cermin sejernih ini sulit ditemukan bahkan di bumi.
+
 Setidaknya, itu benar-benar berbeda dari cermin buram di kamar mandi tempatku.
 
 Seperti yang kupikirkan, dengan kehadiran sihir, ada perbedaan dalam hal perkembangannya. Anehnya ini membuatku terkesan.
 
-Adapun bagian penting dari penampilan Aku, Aku pikir Aku menjadi sangat menggemaskan.
+Adapun bagian penting dari penampilanku, Aku pikir Aku menjadi sangat menggemaskan.
+
 Padahal, tubuhku didasarkan pada Ciel, jadi itu wajar saja.
+
 Karena gaunnya berwarna putih, mata dan rambut hitamku menonjol. Ini sudah cukup bagus, tapi saat kupikir kelihatannya tidak lengkap, Martha-san melingkarkan pita biru di pinggangku.
 
-Yup, itu harus dilakukan.
+Yup, itu cocok.
 
 Dua pelayan kemudian mengangguk satu sama lain dan mulai mengerjakan rambutku kali ini.
-Agak terlambat untuk mengatakan ini, tetapi karena rambut Aku didasarkan pada Ciel, itu sangat panjang. Bagaimanapun, ini adalah sirkuit. Memotongnya akan memperpendek sirkuit kita, jadi seharusnya tidak dipotong. Juga, mungkin lebih keras daripada rambut biasa, jadi tidak bisa dipotong dengan mudah.
-Pertama-tama, itu juga dilindungi oleh penghalangku, jadi tidak bisa dipotong. Jika ada gunting yang bisa memotongnya, itu harus digunakan sebagai senjata.
 
-Kuncir kuda, kepang, kuncir, Aku dapat melihat dari balik cermin bahwa mereka mencoba gaya yang berbeda, tetapi hanya perubahan gaya rambut yang banyak mengubah kesan seseorang.
+Agak terlambat untuk mengatakan ini, tetapi karena rambutku didasarkan pada Ciel, itu sangat panjang. Bagaimanapun juga, ini adalah sirkuit sihir. Memotongnya akan memperpendek sirkuit kami, jadi seharusnya tidak dipotong. dan juga mungkin lebih keras daripada rambut biasa, jadi tidak bisa dipotong dengan mudah.
+
+Pertama-tama, itu juga dilindungi oleh barrierku, jadi tidak bisa dipotong. Jika ada gunting yang bisa memotongnya, itu pasti digunakan sebagai senjata.
+
+Ponytail, kepang, Pigtail, Aku dapat melihat dari balik cermin bahwa mereka mencoba gaya yang berbeda, tetapi hanya perubahan gaya rambut banyak mengubah kesan seseorang.
+
 Bahkan pria pun memberikan kesan yang berbeda saat mereka memotong pendek rambut mereka, jadi kurasa masuk akal jika mengubah gaya rambut akan membuat seseorang terlihat berbeda.
+
 Melihatnya seperti ini, sebenarnya cukup menyenangkan.
 
-Akhirnya sebagai aksen, hanya sisi kiri Aku yang dikepang dan sekarang sudah lengkap.
+Akhirnya, hanya sisi kiriku yang dikepang dan sekarang sudah selesai.
 
-Ini sangat cocok untukmu!」
-Terima kasih banyak.
+"Ini sangat cocok untukmu!" (Pelayan)
+
+"Terima kasih banyak." (Ain)
 
 Pelayan itu dengan penuh semangat memujiku, jadi aku berterima kasih padanya.
 Bagi Aku, ini adalah pengalaman belajar yang baik. Mengesampingkan gaun, mempelajari penggunaan aksesori dan efek dari perubahan gaya rambut cukup membuahkan hasil.
