@@ -1,16 +1,21 @@
 CHAPTER 88: BLACK AND WHITE DRESS UP DOLL
 
-Aku tidak tahu apa-apa tentang ini, jadi Aku hanya akan menonton hari ini.
+"Aku tidak tahu apa-apa tentang ini, jadi Aku hanya akan menonton saja kali ini." (Ciel)
 
 Untuk beberapa alasan, saat kami memasuki ruang ganti yang disiapkan untuk Ciel, Ciel mengatakan ini dan dengan cepat menyerah untuk mendandaniku.
+
 Tetap saja, matanya berbinar cerah, seperti penonton yang menikmati peragaan busana.
-Melihat itu, Fiiyanamia-sama menjawab Benar, benar. Itu mungkin yang terbaik. dengan anggukan.
 
-Selera mode Ciel adalah...... tidak berarti buruk. Sebaliknya, itu adalah misteri.
-Aku hanya memilih pakaian pemburu yang tidak berbahaya dan Ciel benar-benar menonjol, jadi tidak peduli apa yang dia kenakan, itu selalu tersembunyi di bawah jubah.
-Aku tidak memiliki keberanian untuk memilih sesuatu yang mencolok, jadi tidak berlebihan untuk mengatakan bahwa ini mengakibatkan Ciel tidak mengembangkan selera mode.
+Melihat itu, Fiiyanamia-sama menjawab "Benar, benar. Itu mungkin yang terbaik." dengan anggukan.
 
-Jika Aku harus mengatakan, ada waktu Celia-san mengajari kami tentang mode tetapi itu hanya satu kali dari lebih dari dua tahun yang lalu. Ciel telah berkembang pesat sejak saat itu, jadi pakaian yang kami beli tidak muat lagi.
+Selera Ciel...... tidak berarti buruk. Sebaliknya, itu masih misteri.
+
+Aku hanya memilih pakaian hunter yang tidak berbahaya dan Ciel benar-benar menonjol, jadi tidak peduli apa yang dia kenakan, itu selalu tersembunyi di bawah jubah.
+
+Aku tidak memiliki keberanian untuk memilih sesuatu yang mencolok, jadi tidak berlebihan untuk mengatakan bahwa ini mengakibatkan Ciel tidak mengembangkan seleranya dalam berpakaian.
+
+Ada waktu Celia-san mengajari kami tentang berpakaian tetapi itu hanya satu kali dan lebih dari dua tahun yang lalu. Ciel telah berkembang pesat sejak saat itu, jadi pakaian yang kami beli tidak muat lagi.
+
 Itu sebabnya bukan hal yang buruk baginya untuk belajar hari ini.
 Fakta bahwa Aku didelegasikan menjadi bahan ajar adalah sesuatu yang Aku tidak setuju, tetapi jika itu demi Ciel, maka Aku bisa bertahan.
 
