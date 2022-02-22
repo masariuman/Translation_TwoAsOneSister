@@ -17,38 +17,51 @@ Aku tidak memiliki keberanian untuk memilih sesuatu yang mencolok, jadi tidak be
 Ada waktu Celia-san mengajari kami tentang berpakaian tetapi itu hanya satu kali dan lebih dari dua tahun yang lalu. Ciel telah berkembang pesat sejak saat itu, jadi pakaian yang kami beli tidak muat lagi.
 
 Itu sebabnya bukan hal yang buruk baginya untuk belajar hari ini.
-Fakta bahwa Aku didelegasikan menjadi bahan ajar adalah sesuatu yang Aku tidak setuju, tetapi jika itu demi Ciel, maka Aku bisa bertahan.
+
+Fakta bahwa Aku didelegasikan menjadi bahan ajar adalah sesuatu yang Aku tidak setuju, tetapi jika itu demi Ciel, Aku bisa bertahan.
 
 Hal yang menakutkan adalah bahwa di antara lima pelayan yang datang bersama kami, tiga dari mereka sangat antusias.
+
 Mereka terlihat seperti baru saja menemukan mainan yang bagus.
+
 Setelah menatapku dengan tatapan tajam, mereka dengan cepat mengalihkan pandangan mereka ke pakaian.
 
 Salah satu dari dua pelayan lainnya pergi ke sisi Ciel dan Fiiyanamia-sama, dan yang lainnya pergi ke sisiku.
 
-Saat aku melihat dengan ketakutan dan ketakutan, pelayan yang ada di sampingku menundukkan kepalanya dan meminta maaf.
-Dengan kacamata di atas matanya yang terbalik, dia tampak seperti pelayan yang agak serius. Tingginya kira-kira dua kali lipat dariku—meskipun itu tidak berarti dia sangat tinggi—dan dia memberikan kesan dingin saat dia diam.
+Saat aku melihat dengan ketakutan, pelayan yang ada di sampingku menundukkan kepalanya dan meminta maaf.
 
-Bagaimana?」
-Tentang mereka. Mereka belum melayani siapa pun selain Fiiyanamia-sama, dan baik Ainsel-sama maupun Cielmer-sama cukup menggemaskan, jadi mereka bersemangat hari ini.」
-Kamu termasuk Fiiyanamia-sama, tapi Ciel juga subjek untuk berpakaian. naik?」
-Ya. Dan kami, tentu saja, akan senang jika kalian berdua berdandan berdampingan-...... Tidak, agar Cielmer-sama terbiasa berdandan menjadi lebih baik.」
+Dengan kacamata di atas matanya yang sipit, dia tampak seperti pelayan yang agak serius. Tingginya kira-kira dua kali lipat dariku, meskipun itu tidak berarti dia sangat tinggi dan dia memberikan kesan dingin saat dia diam.
 
+"Bagaimana dengan mereka?" (Ain)
 
-Mempertimbangkan cara dia berbicara yang cepat dan bersemangat pada awalnya, yang menunjukkan kepribadian aslinya untuk sesaat, orang ini mungkin sebenarnya ingin dengan pemilihan pakaian juga.
-Meskipun demikian, mengapa dia ada di sini di sampingku?
-Kalau dipikir-pikir, Aku tidak tahu nama mereka dan Aku juga tidak tahu seberapa banyak mereka tahu tentang keadaan kita.
+"Mereka belum melayani siapa pun selain Fiiyanamia-sama, dan Ainsel-sama maupun Cielmer-sama cukup menggemaskan, jadi mereka bersemangat hari ini." (Pelayan X)
+
+"Kamu memasukkan Fiiyanamia-sama, tapi Ciel juga subjek untuk berpakaian ?" (Ain)
+
+"Ya. Dan kami, tentu saja, akan senang jika kalian berdua berdandan berdampingan...... Tidak, agar Cielmer-sama terbiasa berdandan menjadi lebih baik." (Pelayan x)
+
+Mempertimbangkan cara dia berbicara yang cepat dan bersemangat, yang menunjukkan kepribadian aslinya untuk sesaat, orang ini mungkin sebenarnya ingin memilih pakaian juga.
+
+walau begitu, mengapa dia ada di sini di sampingku?
+
+Kalau dipikir-pikir, Aku tidak tahu nama mereka dan Aku juga tidak tahu seberapa banyak mereka tahu tentang keadaan kami.
 
 Karena itu, Aku tidak tahu seberapa banyak Aku bisa berbicara.
-Perasaan dingin yang dia berikan sepertinya hanya kesan luar, jadi mungkin aku bisa bertanya saja.
 
-Jika Kamu tidak keberatan, bisakah Kamu memberi tahu Aku nama Kamu?
-Aku? Nama Aku Martha.」 Martha-
-san, apakah kamu tidak akan bergabung dengan mereka?」
+Perasaan dingin yang dia berikan sepertinya hanya kesan luar, jadi mungkin aku bisa bertanya.
+
+"Jika Kamu tidak keberatan, bisakah Kamu memberi tahuku namamu?" (Ain)
+
+"Aku? Namaku Martha." (Martha)
+
+"Martha-san, apakah kamu tidak akan bergabung dengan mereka?" (Ain)
 
 Saat aku menunjuk para pelayan yang sedang memilih pakaian, Martha-san dengan lembut menggelengkan kepalanya.
 
-Aku di sini karena aku memenangkan hak untuk melayani Ainsel-sama.」
-Kamu menang?」
+"Aku di sini karena aku memenangkan hak untuk melayani Ainsel-sama." (Martha)
+
+"Kamu menang?" (Ain)
+
 Ya. Bagaimanapun, dipercaya untuk melayani tamu Fiiyanamia-sama adalah hak istimewa yang besar. Hanya ada beberapa yang diundang ke rumah ini sebagai tamu, Kamu tahu.
 
 Jadi begitulah adanya. Dipercayakan sebagai tamu mungkin akan menunjukkan bahwa Fiiyanamia-sama telah cukup memercayaimu untuk melakukannya, jadi kurasa itu adalah hak istimewa.
