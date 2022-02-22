@@ -145,12 +145,17 @@ Akhirnya, hanya sisi kiriku yang dikepang dan sekarang sudah selesai.
 "Terima kasih banyak." (Ain)
 
 Pelayan itu dengan penuh semangat memujiku, jadi aku berterima kasih padanya.
-Bagi Aku, ini adalah pengalaman belajar yang baik. Mengesampingkan gaun, mempelajari penggunaan aksesori dan efek dari perubahan gaya rambut cukup membuahkan hasil.
 
-Melengkapi pandanganku, aku dibawa kembali ke tempat Ciel dan yang lainnya berada dan Ciel segera menghampiriku.
-Dia kemudian memegang kedua tangan Aku dan dengan penuh semangat berbicara kepada Aku.
+Bagiku, ini adalah pengalaman belajar yang baik. Mengesampingkan gaun, mempelajari penggunaan aksesori dan efek dari perubahan gaya rambut cukup membuahkan hasil.
 
-Menggemaskan, menggemaskan! Ain terlihat sangat bagus dalam gaun putih.」
+selesai dengan penampilanku, aku dibawa kembali ke tempat Ciel dan yang lainnya berada dan Ciel segera menghampiriku.
+
+Dia kemudian memegang kedua tanganku dan dengan penuh semangat berbicara kepadaku.
+
+"Menggemaskan, menggemaskan! Ain terlihat sangat bagus dalam gaun putih." (Ciel)
+
+----------------------------------------------------------------------------------------
+
 Itu akan terlihat bagus untukmu juga menurutku, kau tahu?」
 Begitukah? Bagiku, itu tidak masalah selama Ain menggemaskan.」
 Jika sesuatu terlihat bagus untukku, itu pasti akan terlihat bagus juga untukmu, Ciel. Bagaimanapun, kami memiliki bangunan yang sama.
