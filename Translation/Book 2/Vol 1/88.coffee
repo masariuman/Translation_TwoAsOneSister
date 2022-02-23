@@ -186,53 +186,77 @@ Meskipun kami memiliki sejumlah besar uang, itu masalah pribadi...... atau mungk
 
 Sebenarnya, berapa banyak uang yang kami miliki?
 
-Mengesampingkan pembicaraan praktis, Aku melihat ke samping Aku saat Aku sedang berdandan.
+Mengesampingkan hal itu, Aku melihat ke samping Aku saat Aku sedang berdandan.
+
 Saat mata kami bertemu, Ciel tersenyum padaku.
 
-Setelah beberapa kali berganti pakaian, Ciel bergabung dengan sisi boneka berdandan.
-Aku mendengar bahwa setelah diberitahu bahwa dia bisa bersama Aku, dia segera beralih sisi. Akankah Ciel baik-baik saja? Bukankah dia terlalu mudah untuk ditangani?
-Atau begitulah yang Aku katakan, tetapi Aku mengerti bahwa itu mungkin hanya karena itu terkait dengan Aku.
+Setelah beberapa kali berganti pakaian, Ciel bergabung ke sisi boneka yang sedang berdandan.
+
+Aku mendengar bahwa setelah diberitahu dia bisa bersamaku, dia segera berpindah. Akankah Ciel baik-baik saja? Bukankah dia terlalu mudah untuk ditangani?
+
+Atau begitulah yang kupikirkan. tetapi Aku mengerti bahwa itu mungkin hanya karena itu terkait denganku.
+
 Ini membuatku merasa agak geli. Aku tidak bisa tidak merasa malu.
 
-Jika Aku tidak memiliki tubuh, Aku dapat menyembunyikan perasaan Aku, tetapi saat ini, Aku mungkin tidak dapat menyembunyikannya sama sekali.
+Jika Aku tidak memiliki tubuh, Aku dapat menyembunyikan perasaanku, tetapi saat ini, Aku mungkin tidak dapat menyembunyikannya sama sekali.
 
 Setelah berdandan, kami berdua berdiri di depan cermin berdampingan.
 
 Ciel mengenakan gaun one-piece hitam sementara aku mengenakan gaun serupa berwarna putih.
-Rambut kami ditata sedemikian rupa sehingga kami mencerminkan satu sama lain. Aku memiliki anting di telinga kiri Aku, sementara Ciel memiliki satu di kanannya.
-Semua detail kecil pada kami dibalik secara horizontal dan warna terbalik.
-Ketelitian para pelayan sangat terlihat. Padahal, jika Aku harus mengatakan, mata Aku yang hitam kontras dengan biru Ciel mungkin adalah satu-satunya hal yang tidak sesuai dengan tema.
+
+Rambut kami ditata sedemikian rupa sehingga kami mencerminkan satu sama lain. Aku memiliki anting di telinga kiriku, sementara Ciel memiliki di kanannya.
+
+Semua detail kecil kami dibalik secara horizontal dan warna terbalik.
+
+Ketelitian para pelayan sangat terlihat. tapi, jika Aku harus mengatakannya, mataku yang hitam kontras dengan biru Ciel mungkin adalah satu-satunya hal yang tidak sesuai dengan tema.
 
 Ini tidak bisa dihindari. Lagi pula, kami tidak memiliki lensa kontak berwarna di sini.
 
 Tercermin di cermin, Ciel menatap gembira saat dia membandingkan penampilannya dengan milikku.
+
 Dan kemudian dia meringkuk di dekatku.
 
-Kami mencocokkan Ain, kami mencocokkan pakaian!」
-Benar, kami mencocokkan pakaian. Juga, itu terlihat bagus untukmu, Ciel. Begitukah
-? Kamu juga menggemaskan, Ain.
+"kita cocok Ain, pakaian kita sangat cocok!" (Ciel)
+
+"Benar, pakaian kita cocok. dan Juga, itu terlihat bagus untukmu, Ciel." (Ain)
+
+"Begitukah ? Kamu juga menggemaskan, Ain." (Ciel)
 
 Melihat Ciel bermain-main dengan riang, sungguh menghangatkan hati.
+
 Selain itu, melihat Ciel mengenakan sesuatu yang cantik membuatku agak ingin mendandaninya sendiri.
+
 Seperti yang diharapkan, karena warna Jepang, kulit putih Ciel terlihat sangat cantik.
 
 Aku sangat senang bahwa Aku melindungi Ciel dari sinar matahari.
+
 Rambut putih Ciel adalah hasil dari perubahannya menjadi sirkuit, jadi mungkin tidak akan berubah bahkan dengan paparan sinar matahari.
+
 Dengan pemikiran itu, rambut hitam yang berfungsi sebagai sirkuit mungkin sebenarnya unik.
+
 Rambut Fiiyanamia-sama juga putih.
 
-Hal yang sama untuk Ainsel-sama tapi, Cielmer-sama, kulitmu sangat cerah, sulit dipercaya bahwa kamu adalah seorang pemburu.」 Bagaimanapun juga,
-Ain melindungiku.」
-Sungguh patut ditiru.
+"mirip dengan Ainsel-sama tapi, Cielmer-sama, kulitmu sangat cerah, sulit dipercaya bahwa kamu adalah seorang hunter." (Martha)
 
-Melihat Ciel berbicara secara normal dengan pelayan itu… cukup mengharukan.
+"Bagaimanapun juga, Ain melindungiku." (Ciel)
+
+"Sangar dapat diandalkan." (Martha)
+
+Melihat Ciel berbicara secara normal dengan pelayan itu... cukup mengharukan.
+
 Padahal, mungkin dia tidak bisa mengubah cara bicaranya dengan baik karena aku di sebelahnya.
+
 Secara alami, Aku tidak akan cemburu lagi. Aku tidak merasa itu hanya sedikit menjengkelkan, tidak sama sekali.
 
 Meskipun demikian, Ciel menatapku. Dan kemudian terkikik.
+
 Entah bagaimana rasanya Ciel yang dewasa, itu membuat frustrasi.
+
 Dan saat aku sedikit tidak senang, Ciel dengan lembut menepuk kepalaku.
 
 Aku benar-benar tidak bisa menang melawannya. Aku sedikit lega.
 
-Aku telah memanggil Ciel mudah untuk menyenangkan sebelumnya, tetapi Aku sendiri tidak jauh berbeda.
+Aku mengatakan ciel gampang dipengaruhi, tetapi Aku sendiri tidak jauh berbeda.
+
+--------------------------------------------------------------
+
