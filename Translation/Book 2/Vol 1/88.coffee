@@ -154,34 +154,37 @@ Dia kemudian memegang kedua tanganku dan dengan penuh semangat berbicara kepadak
 
 "Menggemaskan, menggemaskan! Ain terlihat sangat bagus dalam gaun putih." (Ciel)
 
-----------------------------------------------------------------------------------------
+"Itu akan terlihat bagus untukmu juga menurutku, kau tahu?" (Ain)
 
-Itu akan terlihat bagus untukmu juga menurutku, kau tahu?」
-Begitukah? Bagiku, itu tidak masalah selama Ain menggemaskan.」
-Jika sesuatu terlihat bagus untukku, itu pasti akan terlihat bagus juga untukmu, Ciel. Bagaimanapun, kami memiliki bangunan yang sama.
-Selain itu, Aku juga ingin melihat Kamu mengenakan pakaian lucu juga, Ciel. kan
+"Begitukah? Bagiku, itu tidak masalah selama Ain menggemaskan." (Ciel)
 
-Alangkah baiknya jika ini membuat Ciel tertarik untuk menjadi modis tetapi dari tampilannya, sepertinya membuat Aku berdandan lebih penting di sini.
-Disebut menggemaskan oleh Ciel adalah, yah...... tidak buruk sama sekali, tapi meski begitu, aku sendiri ingin Ciel terlihat imut.
-Setelah menjadi tontonan untuk sementara waktu, Aku sekali lagi pergi untuk pakaian ganti berikutnya.
+"Jika sesuatu terlihat bagus untukku, itu pasti akan terlihat bagus juga untukmu, Ciel. Bagaimanapun juga, kita memiliki postur dan tampilan yang sama. Selain itu, Aku juga ingin melihat Kamu mengenakan pakaian imut juga, Ciel." (Ain)
+
+Alangkah baiknya jika ini membuat Ciel tertarik untuk menjadi modis tetapi dari yang kulihat, sepertinya membuatku berdandan lebih penting di sini.
+
+Disebut menggemaskan oleh Ciel, yah...... tidak buruk sama sekali, tapi meski begitu, aku sendiri ingin Ciel terlihat imut.
+
+Setelah menjadi tontonan untuk sementara waktu, Aku sekali lagi pergi untuk pakaian berikutnya.
 
 🎵🎵🎵
 
-Setelah itu gaun hitam. Itu memiliki lengan yang menutupi lengan atasku tapi itu tembus pandang di sekitar bagian bahu.
-Aku berpikir bahwa gaun hitam itu akan tumpang tindih dengan warna alami Aku sendiri, tetapi setelah memakai kalung mutiara yang besar—menurut saya—kalung itu menyeimbangkan semuanya dengan cukup baik. Setelah itu, aksesori rambut berwarna cerah dan kini, lengkap.
+Selanjutnya adalah gaun hitam. Gaun ini memiliki lengan yang menutupi lengan atasku tapi tembus pandang di sekitar bagian bahu.
+
+Aku berpikir bahwa gaun hitam itu akan tertutup dengan warna alamiku sendiri, tetapi setelah memakai kalung mutiara yang besar, menurutku, kalung itu menyeimbangkan semuanya dengan cukup baik. Setelah itu, aku dipakaikan aksesori rambut berwarna cerah.
+
 Aku rasa Aku tahu alasan mengapa perempuan menyukai aksesoris sekarang.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Ketika Aku sedang didandani seperti boneka dalam situasi ini, itu sangat berbeda dari yang Aku harapkan dan Aku merasa itu menyenangkan.
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+Dari sudut pandangku, itu seperti kami mendandani Ciel.
 
-Ketika Aku sedang didandani seperti boneka dalam situasi ini, itu sangat berbeda dari yang Aku harapkan dan Aku merasa itu biasanya menyenangkan.
-Dari sudut pandang Aku, itu praktis seperti kami mendandani Ciel.
 Kami memiliki warna yang berbeda sehingga pakaian yang sama mungkin akan memberikan kesan yang berbeda pada dirinya, tetapi fashion itu sendiri dapat dimengerti. Soalnya semua baju di sini mahal-mahal.
 
 Jika Aku mencoba untuk menyiapkan pakaian serupa, tidak ada yang tahu berapa biayanya.
+
 Meskipun kami memiliki sejumlah besar uang, itu masalah pribadi...... atau mungkin tidak.
-Sebenarnya, berapa banyak uang yang kita miliki?
+
+Sebenarnya, berapa banyak uang yang kami miliki?
 
 Mengesampingkan pembicaraan praktis, Aku melihat ke samping Aku saat Aku sedang berdandan.
 Saat mata kami bertemu, Ciel tersenyum padaku.
