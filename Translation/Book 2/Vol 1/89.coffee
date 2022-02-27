@@ -136,7 +136,8 @@ Saat napas Ciel mulai tenang, dia berbicara padaku.
 
 "Ini pertama kalinya Aku mendengar lagu-lagu Ain seperti ini. yang pertama lagu apa? Ini pertama kalinya aku mendengarnya. dan Juga itu tidak terdengar seperti kata-kata yang biasa kamu nyanyikan, kan?" (Ciel)
 
-Aku mendengar suara dari suatu tempat, jadi aku hanya mencoba bernyanyi bersamanya.」
+"Aku mendengar suara dari suatu tempat, jadi aku hanya mencoba bernyanyi bersamanya." (Ain)
+
 Begitukah? Aku belum mendengar apa-apa, Kamu tahu?」
 Itu bisa berhubungan dengan keadaan Aku saat ini.
 Benar, benar. Betapa anehnya. Sangat aneh. Namun, itu adalah lagu yang bagus.
