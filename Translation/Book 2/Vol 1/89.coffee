@@ -271,3 +271,11 @@ Ciel meraih tanganku, "Ayo.", dan menyerbu masuk.
 HEWWROOOOOO ~~~!!!
 
 hari ini, kita, menyaksikan, sebuah chapter, yang isinya, PENUH DENGAN GULAAA AAAAAAAAAAA !!!!
+
+andai ada animasi dimana dedek ciel kita menari dengan nyanyian ain kita .. asaaaaa !!!!
+
+saya tidak bisa komentar apa apa disini, karena kalian semua tahu kalau chapter ini adalah quality time dan healing chapter dengan banyak gula yang terkandung didalamnya... maka dari itu,
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
+
+*deD
