@@ -1,76 +1,91 @@
 CHAPTER 89: SONG PRINCESS, DANCE PRINCESS, AND BATH
 
-Setelah berdandan seperti boneka, kami makan siang dan bersembunyi di kamar Ciel, tanpa pelayan secara alami.
-Aku sendirian di ruangan besar bersama Ciel. Kedengarannya dipertanyakan ketika Aku mengatakannya seperti itu tetapi pada dasarnya situasinya sama dengan pagi ini.
+Setelah berdandan seperti boneka, kami makan siang dan berdiam di kamar Ciel, tentunya tanpa pelayan.
 
-Meskipun demikian, kami sudah berada di kamar kami dan semuanya tetapi kami masih belum memutuskan apa yang harus dilakukan.
-Dengan kasus ini, secara alami hanya ada satu hal yang harus kita lakukan, tetapi kemudian sebuah ide bagus tiba-tiba muncul di benak kita. Itu akan membutuhkan izin Fiiyanamiya-sama, jadi kita harus meninggalkan ruangan lagi.
+Aku sendirian di ruangan besar bersama Ciel. Kedengarannya dapat dipertanyakan ketika Aku mengatakannya seperti itu tetapi pada dasarnya situasinya sama dengan pagi ini.
 
-Mengapa kita tidak mencoba bertanya apakah kita bisa menggunakan taman?」
-Begitu. Itu akan menyenangkan. Aku tidak sabar.
+Meskipun demikian, kami masih belum memutuskan apa yang harus dilakukan.
+
+Dengan kasus ini, secara alami hanya ada satu hal yang harus kami lakukan, tetapi kemudian sebuah ide bagus tiba-tiba muncul di benak kami. Itu akan membutuhkan izin Fiiyanamiya-sama, tapi kami harus meninggalkan ruangan lagi.
+
+"Mengapa kita tidak mencoba bertanya apakah kita bisa menggunakan taman?" (Ain)
+
+"Begitu. Itu akan menyenangkan. Aku tidak sabar." (Ciel)
 
 Hanya dari beberapa kata itu, Ciel sepertinya mengerti maksudku, membuatnya berdiri dengan kegembiraan yang sesuai dengan usianya.
+
 Kalau terus begini, aku punya firasat bahwa Ciel mungkin akan menggandeng tanganku dan menuntunku berlarian di sekitar mansion untuk mencari Fiiyanamia-sama.
 
-Aku akan bertanya padanya sekarang, jadi tolong tunggu sebentar.
-……? Ah, itu benar. Ain bisa menghubungi Fii kapan saja, kan? Aku akan menyerahkannya kepada Kamu, semoga berhasil.」
-Dengan itu, bisakah kita meminjam taman mansion?」
+"Aku akan bertanya padanya sekarang, jadi tolong tunggu sebentar." (Ain)
 
-Karena Fiiyanamia-sama sepertinya tetap mendengar kami, aku bertanya seperti itu. Dan dengan metode yang sama yang dia gunakan di masa lalu, dia memberikan izinnya.
+"......? Ah, itu benar. Ain bisa menghubungi Fii kapan saja, kan? Aku akan menyerahkannya kepadamu, semoga berhasil." (Ciel)
 
-Sepertinya baik-baik saja.
-Kalau begitu ayo pergi.
+"Dengan itu, bisakah kita meminjam taman mansion?" (Ain)
+
+Karena Fiiyanamia-sama sepertinya mendengar kami, aku bertanya seperti itu. Dan dengan metode yang sama yang dia gunakan di masa lalu, dia memberikan izinnya.
+
+"Sepertinya tidak masalah." (Ain)
+
+"Kalau begitu ayo pergi." (Ciel)
 
 Ciel memegang tanganku dan meluncur dengan penuh semangat.
 
-
-◇.
+🎵🎵🎵
 
 Seperti yang Aku pikirkan, taman rumah Fiiyanamia-sama benar-benar indah.
-Melihatnya dari teras juga bagus, tapi sebenarnya berada di tengahnya memiliki pesona yang berbeda.
+
+Melihatnya dari teras juga bagus, tapi berada di tengahnya memiliki pesona yang berbeda.
+
 Seperti penampilan dan aroma bunganya sekarang sudah bisa dibedakan, tidak seperti jika dilihat dari jauh.
 
 Sungguh mengesankan bagaimana taman itu tidak hanya dibuat untuk menyenangkan mata tetapi juga untuk menyenangkan untuk berjalan-jalan.
 
 Nah, alasan kami datang ke taman ini bukan karena kami ingin melihat bunga.
+
 Kami juga ingin melihat bunga-bunga ini, tetapi tujuan kami sebenarnya datang ke sini adalah untuk bernyanyi dan menari di tengah-tengahnya.
+
 Aku yakin bernyanyi di tengah pemandangan yang begitu indah pasti terasa luar biasa.
 
-Sepertinya Ciel tidak sabar untuk bergerak juga, karena terlihat jelas dari sisinya bahwa dia sangat bersemangat.
-Sekarang, apa yang harus Aku nyanyikan? Saat aku sedang merenungkan ini, aku mendengar sebuah lagu mengendarai angin.
+Sepertinya Ciel tidak sabar untuk bergerak juga, karena terlihat jelas bahwa dia sangat bersemangat.
+
+Sekarang, apa yang harus Aku nyanyikan? Saat aku sedang merenungkan ini, aku mendengar sebuah lagu.
 
 Dinyanyikan dengan suara feminin yang lembut.
+
 Dari apa yang Aku mengerti, Ciel tidak bisa mendengar penyanyi misterius ini.
+
 Dan suara ini, untuk beberapa alasan, sangat mengesankan.
 
-Aku punya banyak lagu yang bisa Aku nyanyikan dan di antaranya ada beberapa yang sangat Aku sukai sehingga Aku bisa menyanyikannya setelah dengar pendapat pertama.
-Lagu yang Aku dengar sekarang membuat Aku terpesona hampir sama dengan lagu-lagu ini, bahkan lebih.
+Aku punya banyak lagu yang bisa Aku nyanyikan dan di antaranya ada beberapa yang sangat Aku sukai sehingga Aku bisa menyanyikannya setelah mendengarnya.
+
+Lagu yang Aku dengar sekarang membuatku terpesona hampir sama dengan lagu-lagu ini, bahkan lebih dari itu.
 
 Lagi pula, terlepas dari kenyataan bahwa lagu itu masih berlangsung, Aku sudah ingin menyanyikannya.
-Aku seharusnya tidak memiliki pengetahuan bahasa, tetapi Aku ingin menyanyikannya.
+
+Aku seharusnya tidak memiliki pengetahuan tentang bahasa, tetapi Aku ingin menyanyikannya.
 
 Itu menyegarkan seperti angin yang bertiup, lembut seperti daun yang bergoyang, dan hangat seperti sinar matahari yang melewati pepohonan.
-Sebuah lagu, sebuah lagu, seperti sebuah hutan.
 
-Dengan setiap nada menjadi penting, lagu ini mengingatkan Aku pada kegembiraan bernyanyi.
+Sebuah lagu, sebuah musik, seperti sebuah hutan.
 
+Dengan setiap nada menjadi penting, lagu ini mengingatkanku pada kegembiraan bernyanyi.
 
-Sebelum Aku menyadarinya, Aku sudah bernyanyi.
+tanpa kusadari, Aku sudah bernyanyi.
+
 Apa yang seharusnya menjadi lagu yang tidak dikenal, dengan apa yang seharusnya menjadi bahasa yang tidak dikenal.
-Aku seharusnya bernyanyi atas kemauan Aku sendiri tetapi Aku tidak tahu persis mengapa Aku menyanyikannya.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Aku bernyanyi atas kemauanku sendiri tetapi Aku tidak tahu persis mengapa Aku menyanyikannya.
 
 Seperti bernafas, lagu itu secara alami mengalir keluar dari bibirku.
 
-Namun, untuk beberapa alasan, aku tidak punya waktu untuk memikirkannya sekarang.
+tapi, untuk beberapa alasan, aku tidak punya waktu untuk memikirkannya sekarang.
+
 Lagipula, aku suka menyanyi. Jadi selama Aku bisa menyanyikannya, tidak apa-apa.
 
-Dan Aku suka menonton Ciel menari, jadi daripada mempertanyakan ini, Aku lebih suka membakar tarian Ciel dalam ingatan Aku.
+Dan Aku suka menonton Ciel menari, jadi daripada mempertanyakan ini, Aku lebih suka membakar tarian Ciel dalam ingatanku.
 
 Mencocokkan laguku, Ciel menari.
+
 Seperti peri yang bermain-main di tepi danau. Sangat menggerakkan tubuh kecilnya, dia mengungkapkan kegembiraan.
 Di tanah yang bertemu dengan kaki Ciel, seolah-olah cahaya menyebar ke luar, seperti bunga-bunga menyanyikan pujian untuknya.
 
@@ -145,7 +160,7 @@ Sisi Ciel ini cukup langka untuk dilihat, jadi aku biarkan dia melakukan apa yan
 Setelah itu, dia kemudian meringkuk dekat untuk berpegangan tangan, jadi aku menyerahkan tangan kanan yang kubelai pipinya.
 Setelah melihat Ciel memegang tanganku dengan tatapan puas, merasakan kehangatan Ciel, aku memejamkan mata, dan mulai bernyanyi sambil merasakan angin sepoi-sepoi.
 
-◇.
+🎵🎵🎵
 
 Tanpa disadari, hari sudah malam. Aku kira Aku hanya punya sedikit waktu tersisa untuk memiliki tubuh seperti ini.
 Apakah itu akan berakhir saat Aku tidur hari ini atau akan terus berlanjut sampai tanggal berubah, Aku tidak tahu.
