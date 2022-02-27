@@ -5,33 +5,43 @@ Di kamar mandi luas yang bisa menampung lebih banyak orang, tidak ada yang menye
 Sebagai gantinya, ada keran dan wastafel, jadi kami menggunakan itu untuk membilas tubuh kami.
 
 Bahkan di kehidupan masa laluku, tidak setiap kamar mandi dilengkapi dengan shower, jadi itu bukan hal yang aneh.
-Sebaliknya, memiliki sesuatu seperti pancuran lebih tidak biasa di dunia ini.
 
-Ciel, yang telah memimpin Aku dengan tangan, melepaskan pegangannya Bisakah kita melakukan itu mencuci satu sama lain?」 dan memiringkan kepalanya.
-Kalau dipikir-pikir, aku ingat kita membuat janji itu.
-Jika Aku tidak salah, Aku seharusnya membuat janji ini dengan Ciel ketika dia merajuk tentang Aku berada di kamar mandi bersama Vivian-san.
+Sebaliknya, memiliki sesuatu seperti shower lebih tidak biasa di dunia ini.
+
+Ciel, yang telah menarikkuku dengan tangannya, melepaskan pegangannya dan berkata "Bisakah kita melakukan itu, mencuci satu sama lain?", dan memiringkan kepalanya.
+
+Kalau dipikir-pikir, aku ingat kami membuat janji itu.
+
+Jika Aku tidak salah, Aku seharusnya membuat janji ini dengan Ciel ketika dia merajuk tentangku berada di kamar mandi bersama Vivian-san.
+
 Saat itu, Aku tidak menyangka janji itu akan terwujud secepat ini. Tidak, Aku bahkan tidak berpikir bahwa itu akan pernah terwujud.
 
-Karena kita di sini, aku ingin sekali menggosok Ciel sampai bersih, tapi mungkin lebih baik meminta pelayan untuk melakukannya. Namun dalam kasus kami, membilas keringat kami saja sudah cukup.
+Karena kami di sini, aku ingin sekali menggosok Ciel sampai bersih, tapi mungkin lebih baik meminta pelayan untuk melakukannya. tapi dalam kasus kami, membilas keringat kami saja sudah cukup.
 
-Saling membasuh berarti kita hanya perlu saling membasuh tubuh, kan?」
-Benar. Padahal, untuk rambut, kita bisa membilas kotoran seperti biasa. Begitu
-. Aku hanya perlu mencuci Ain dulu, kan?
+"Saling mencuci berarti kita hanya perlu saling menyikat tubuh, kan?" (Ciel)
+
+"Benar. walaupun untuk rambut, kita bisa membilas kotoran seperti biasa." (Ain)
+
+"Begitu... Aku hanya perlu mencuci Ain dulu, kan?" (Ciel)
 
 Memahami apa yang Aku katakan, Ciel mengisi baskom dengan air hangat.
-Untuk memastikan Ciel tidak masuk angin, aku akan menghangatkan Ciel dengan sihir. Aku tidak bisa membuat sihir tingkat pertempuran, jadi kurasa aku bisa menggunakan sihir tipe api apa saja.
+
+Untuk memastikan Ciel tidak masuk angin, aku akan menghangatkan Ciel dengan sihir. Aku tidak bisa membuat sihir pertempuran, jadi kurasa aku bisa menggunakan sihir tipe api apa saja.
 
 Nah, tentang Ciel, karena seseorang, dia menjadi sangat pandai membuat busa sabun.
+
 Aku masih lebih baik darinya untuk saat ini, tapi dia mungkin akan menyusulku pada akhirnya.
+
 Sementara itu, Aku duduk di kursi dan menunggu.
 
-…… hiya-…
+"......hiya-..." (Ain)
 
 Saat aku sedang menunggu dengan santai, sesuatu membelai punggungku.
+
 Aku tahu betul itu perbuatan Ciel tapi aku mengeluarkan suara aneh dan itu memalukan.
 
+"Suara Ain benar-benar menggemaskan." (Ciel)
 
-Suara Ain benar-benar menggemaskan.」
 ...... Suara kita seharusnya sama.」
 Menurutmu begitu? Ain adalah Putri Lagu. Bukankah wajar jika Ain memiliki suara yang lebih menggemaskan?」
 Sekarang setelah kamu menyebutkannya, itu mungkin benar.
