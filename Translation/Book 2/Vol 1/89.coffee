@@ -270,3 +270,4 @@ Ciel meraih tanganku, "Ayo.", dan menyerbu masuk.
 
 HEWWROOOOOO ~~~!!!
 
+hari ini, kita, menyaksikan, sebuah chapter, yang isinya, PENUH DENGAN GULAAA AAAAAAAAAAA !!!!
