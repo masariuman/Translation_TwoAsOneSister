@@ -169,76 +169,92 @@ Memikirkannya, mau tak mau aku merasa kasihan pada Ainsel. Kalau tidak salah, ad
 
 "Itu karena Ainsel telah menjadi saklar bagiku untuk menghilang." (Ain)
 
-Kamu tidak bisa menghilang, Ain. Kamu berjanji untuk tidak melakukannya!
+"Kamu tidak boleh menghilang, Ain. Kamu berjanji untuk tidak melakukannya!" (Ciel)
 
 Seperti yang diharapkan, Ciel menunjukkan reaksi yang ekstrim. Seolah menahanku untuk pergi, lengan di leherku mengencang dan tubuh kami semakin dekat. Untuk menenangkan Ciel, aku dengan lembut membelai lengannya.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Ya. Karena tidak perlu bagiku untuk menghilang lagi, aku memutuskan untuk membicarakannya." (Ain)
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"Benarkah? Itu bukan bohong, kan?" (Ciel)
 
-"Ya. Karena tidak perlu bagiku untuk menghilang lagi, aku memutuskan untuk membicarakannya.」
-Benarkah? Itu bukan bohong, kan?」
-Tentu saja.
-
+"Tentu saja." (Ain)
 
 Saat aku menjawabnya, Ciel mengendurkan tangannya.
+
 Meski begitu, tubuh kami tetap dekat satu sama lain. Pipi kami juga menempel satu sama lain.
+
 Kehangatan ini berbeda dengan mandi, sensasi sentuhan kulit ini tanpa ada apa-apa di antaranya, aku hanya ingin menyerahkan diriku padanya.
 
-Sekarang, tentang bagaimana aku akan menghilang, singkatnya, itu karena Ainsel berarti 'diriku sendiri'.
-Bahkan Ain saja masih memiliki arti "Aku".
-Oleh karena itu, bahkan jika Ciel memanggilku Ain, tidak ada bedanya dengan kamu menunjuk dirimu sendiri. Itu akan terlihat dari sudut pandang orang luar.」
-Jadi bahkan jika aku berkata, Ain memasang penghalang ini, itu akan seperti aku mengatakan bahwa aku memasang penghalang ini, kan?」
-Aku tidak yakin itu akan berhasil, melainkan lebih merupakan angan-angan dari Aku.
-Seperti yang kita ketahui, beberapa jenis pengorbanan diperlukan untuk menggunakan sihir. kan
+"Sekarang, tentang bagaimana aku akan menghilang, singkatnya, itu karena Ainsel berarti 'diriku sendiri'. Bahkan Ain saja masih memiliki arti 'Aku'. Oleh karena itu, bahkan jika Ciel memanggilku Ain, tidak ada bedanya dengan kamu menunjuk dirimu sendiri. Itu akan terlihat dari sudut pandang orang luar." (Ain)
+
+"Jadi bahkan jika aku berkata, Ain memasang barrier ini, itu akan seperti aku mengatakan bahwa aku memasang barrier ini, kan?" (Ciel)
+
+"Aku tidak yakin itu akan berhasil, melainkan lebih merupakan angan-angan dariku. Seperti yang kita ketahui, beberapa jenis pengorbanan diperlukan untuk menggunakan sihir." (Ain)
 
 Berkat itu, aku tidak bisa menggunakan sihir tempur.
+
 Aku mungkin tidak bisa menggunakan sihir penyembuhan juga. Padahal, dalam hal penyembuhan, Song Princess bisa menutupinya.
 
-Itulah mengapa Aku memikirkan sihir yang akan memberikan semua kemampuan dan keterampilan Aku dalam sihir kepada Kamu, Ciel.
-Lagi pula, dengan itu, kamu akan bisa membuat penghalang sendiri.
-Pengorbanan akan menjadi keberadaanku sendiri. Itu akan menghapus fakta bahwa aku ada, bahkan tidak meninggalkan jejak.
-Itu juga akan mengubah ingatan dan sangat diragukan apakah itu mungkin untuk dilakukan, tapi karena aku menggunakan nama Ainsel3, yang entah bagaimana memungkinkan.
-
-Dengan kata lain, jika sihir ini diaktifkan, semua yang telah kulakukan akan menjadi milik Ciel.
-Lagipula, tidak termasuk orang-orang di mansion ini, satu-satunya orang yang tahu dan menggunakan nama Ainsel adalah kamu, Ciel.
-Tidak termasuk Fiiyanamia-sama, karena dia adalah utusan dewa, para pelayan yang membantuku mungkin merasakan sesuatu yang tidak pada tempatnya karena mereka membantu “diri mereka sendiri”. Tapi selain itu, aku harus menghilang dari pikiran semua orang tanpa masalah besar.
+"Itulah mengapa Aku memikirkan sihir yang akan memberikan semua kemampuan dan skillku dalam sihir kepada Kamu, Ciel. Lagi pula, dengan itu, kamu akan bisa membuat barrier sendiri. Pengorbanannya akan menjadi keberadaanku sendiri. Itu akan menghapus fakta bahwa aku ada, bahkan tidak meninggalkan jejak. Itu juga akan mengubah ingatan dan sangat diragukan apakah itu mungkin untuk dilakukan, tapi karena aku menggunakan nama 'Ainsel3', yang entah bagaimana memungkinkan. Dengan kata lain, jika sihir ini diaktifkan, semua yang telah kulakukan akan menjadi milik Ciel. Lagipula, tidak termasuk orang-orang di mansion ini, satu-satunya orang yang tahu dan menggunakan nama Ainsel adalah kamu, Ciel. Tidak termasuk Fiiyanamia-sama, karena dia adalah utusan dewa, para pelayan yang membantuku mungkin merasakan sesuatu yang tidak pada tempatnya karena mereka membantu 'diri mereka sendiri'. Tapi selain itu, aku bisa menghilang dari pikiran semua orang tanpa masalah besar." (Ain)
 
 Tak satu pun dari orang yang kita temui sebelum datang ke mansion ini tahu tentang Ainsel, jadi perubahan ingatan tidak diperlukan.
 
 Apakah itu mungkin atau tidak, sejujurnya Aku tidak tahu.
-Akan lebih baik jika Aku bisa, itu praktis angan-angan dari Aku, tetapi karena Aku mendapat persetujuan Tuhan Yang Maha Esa, ini harus menjadi sihir.
-Atau lebih tepatnya, mungkin ini bisa dilakukan karena ada kelebihan dari kekuatan Tuhan Yang Maha Esa.
 
-Apa pun masalahnya, jika Ciel tidak ingin menjadi dewa, jika dia tidak dapat menerima apa adanya aku, atau jika dinilai bahwa aku tidak diperlukan; Aku bermaksud menghilang menggunakan sihir ini.
+Akan lebih baik jika Aku bisa, itu adalah angan-angan dariku, tetapi karena Aku mendapat persetujuan dewa, ini bisa menjadi sihir.
 
-Lalu, bahkan sekarang, Ain masih dalam keadaan di mana sihir itu bisa digunakan, kan?
-Apa yang bisa kita lakukan untuk membuat sihir itu tidak dapat digunakan?」
-Jika aku diberi nama yang berbeda dan disebut demikian, sihir itu akan menjadi tidak dapat digunakan.」
-...... Itu meresahkan, benar-benar meresahkan. Bagi Aku, Ain adalah Ain, yang lain akan terasa sangat aneh.
+Atau lebih tepatnya, mungkin ini bisa dilakukan karena ada kelebihan dari kekuatan dewa.
+
+Apa pun masalahnya, jika Ciel tidak ingin menjadi dewa, jika dia tidak dapat menerima apa adanya diriku, atau jika dinilai bahwa aku tidak diperlukan; Aku bermaksud menghilang menggunakan sihir ini.
+
+"Lalu, bahkan sekarang, Ain masih dalam keadaan di mana sihir itu bisa digunakan, kan? Apa yang bisa kita lakukan untuk membuat sihir itu tidak dapat digunakan?" (Ciel)
+
+"Jika aku diberi nama yang berbeda dan disebut demikian, sihir itu akan menjadi tidak dapat digunakan." (Ain)
+
+"...... Itu meresahkan, benar-benar meresahkan. Bagiku, Ain adalah Ain, yang lain akan terasa sangat aneh." (Ciel)
 
 Yah, aku mengerti seberapa besar rintangan bagi Ciel untuk memikirkan nama untukku.
-Selain itu, Aku mengerti perasaan itu. Akan terasa aneh bagiku untuk dipanggil dengan nama Yumemura Leon setelah sekian lama juga.
-Kalau begitu, jika Ciel tidak bisa memikirkan apa pun, membuatnya memanggilku dengan nama lamaku seharusnya menjadi pilihan terbaik.
-Lagi pula, bahkan Dewa Tertinggi tidak membicarakannya.
 
+Selain itu, Aku mengerti perasaan itu. Akan terasa aneh bagiku untuk dipanggil dengan nama Yumemura Leon setelah sekian lama juga.
+
+Kalau begitu, jika Ciel tidak bisa memikirkan apa pun, membuatnya memanggilku dengan nama lamaku seharusnya menjadi pilihan terbaik.
+
+Lagi pula, bahkan Dewa Tertinggi tidak membicarakannya.
 
 Tetap saja, dengan penampilanku sekarang, nama Yumemura Leon tidak terlalu cocok untukku.
 
-Kalau begitu, bahkan sekali ini saja, tolong panggil aku Yume.
+"Kalau begitu, bahkan sekali ini saja, tolong panggil aku Yume." (Ain)
 
 Aku sedang mempertimbangkan Leo, tapi Yume terdengar sedikit lebih kekanak-kanakan.
+
 Mendengar apa yang aku katakan, Ciel memiringkan kepalanya dengan bingung tetapi karena wajah kami berdekatan, kepala Ciel menabrak kepalaku.
+
 Untuk saat ini, aku dengan lembut mengusap kepalanya yang imut dan Ciel dengan geli menyipitkan matanya.
 
-Apakah itu nama lama Ain?」
-Sebuah nama panggilan yang dibuat dari nama lama Aku...... Aku kira. Aku pikir yang ini paling cocok dengan penampilan Aku saat ini, Kamu tahu. Begitu
-.
-...... Katakan, Yume. Aku suka Yume. Aku sangat menyukai Yume. Jadi tolong, jangan menghilang, oke?」
-Ya, tentu saja.
+"Apakah itu nama lama Ain?" (Ciel)
+
+"Sebuah nama panggilan yang dibuat dari nama lamaku...... Aku pikir yang ini paling cocok dengan penampilanku saat ini." (Ain)
+
+"Begitu...... hey, Yume. Aku suka Yume. Aku sangat menyukai Yume. Jadi tolong, jangan menghilang, oke?" (Ciel)
+
+"Ya, tentu saja." (Ain)
 
 Aku menyandarkan kepalaku pada Ciel juga. Ada rambut di antara kami, entah bagaimana ini terasa sangat menenangkan.
-Pada saat yang sama, Aku mengerti dengan naluri bahwa Aku tidak bisa lagi menggunakan sihir yang akan membuat Aku menghilang.
 
-Ciel memintaku untuk menjawab dengan tatapannya, jadi aku berbisik padanya: Aku tidak bisa menggunakannya lagi.
+Pada saat yang sama, Aku mengerti dengan naluri bahwa Aku tidak bisa lagi menggunakan sihir yang akan membuatku menghilang.
+
+Ciel memintaku untuk menjawab dengan tatapannya, jadi aku berbisik padanya, "Aku tidak bisa menggunakannya lagi."
+
+-------------------------------------------------------------------------------------------
+
+HEWWROOOOOO ~~!!
+
+aaaaawaawawawawawawawwawawawawawawa baiklah...
+
+setengah dari chapter ini tentu saja yg manis manis... yaa, bau bau yuri.. tapi EITSS !!! MEREKA MASIH BOCAH !! AWAS SAJA KALIAN BERPIKIR MACAM MACAM !!! TETANGGA SAYA POLISI !!!
+
+dan wow kita sepertinya sudah mengetahui sebagian besar atau semua rahasia ain ? akhirnya sudah jelas dengan namanya !! jadi nama ainsel sebagai tringger untuk menghilang ? wow jadi ain kita sudah merencanakan ini dari awal ?? dari waktu ciel masih kecil ??? Sungguh luar biasa !!! tapi kali ini tidak dapat di lakukan karena saya juga tidak terima kalau ain menghilang dan membuat ciel menderita !!
+
+sepertinya sebentar lagi arc healing dan rahasia tentang dewa serta ain akan selesai dan akan masuk ke arc baru dimana tentunya akan ada musuh baru ?? semoga saja tidak terlalu merepotkan ainciel kita...
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
