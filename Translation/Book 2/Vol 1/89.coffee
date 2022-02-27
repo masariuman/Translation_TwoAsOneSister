@@ -86,32 +86,42 @@ Dan Aku suka menonton Ciel menari, jadi daripada mempertanyakan ini, Aku lebih s
 
 Mencocokkan laguku, Ciel menari.
 
-Seperti peri yang bermain-main di tepi danau. Sangat menggerakkan tubuh kecilnya, dia mengungkapkan kegembiraan.
+Seperti peri yang bermain-main di tepi danau. dengan menggerakkan tubuh kecilnya, dia mengungkapkan kegembiraan.
+
 Di tanah yang bertemu dengan kaki Ciel, seolah-olah cahaya menyebar ke luar, seperti bunga-bunga menyanyikan pujian untuknya.
 
 Mata Ciel bertemu dengan mataku.
+
 Matanya menyipit dalam kegembiraan dan mataku juga melakukan hal yang sama sebagai balasannya.
 
 Sesuatu yang hanya mungkin dengan tubuh.
-Senyum hanya terlihat oleh Aku karena memiliki tubuh.
+
+Senyuman yang hanya terlihat olehku karena memiliki tubuh.
 
 —Ah, betapa senangnya.
+
 —Menyenangkan, sangat menyenangkan.
 
-Sebelum aku menyadarinya, Ciel telah menggunakan sihir.
+tanpa kusadari, Ciel telah menggunakan sihir.
+
 Bola besar air yang tiba-tiba dia luncurkan ke langit jatuh dalam bentuk hujan.
-Ciel menari di tengah hujan mengingatkan Aku pada seorang anak yang bermain di tengah hujan. Ini cukup menggemaskan.
+
+Ciel menari di tengah hujan mengingatkanku pada seorang anak yang bermain di tengah hujan. Ini cukup menggemaskan.
 
 Kemudian, seolah-olah mengikuti gerakannya, Ciel memanipulasi air untuk meninggalkan jejak saat dia bergerak.
+
 Karena air berkilauan dari cahaya matahari, tarian menjadi fantastis.
 
 Jejak air yang mengalir seperti ular di bawah kendali Ciel dan percikan yang memantulkan sinar matahari tampaknya berfungsi untuk menyoroti Ciel.
 
-Aku juga mengubah nyanyian Aku agar sesuai dengan tarian Ciel.
+Aku juga mengubah nyanyianku agar sesuai dengan tarian Ciel.
+
 Tentu itu tidak mungkin tanpa mengakhiri lagu, jadi Aku akan mencoba yang terbaik untuk mengakhiri lagu sambil mencocokkan waktu Ciel.
 
-Aku bertanya-tanya berapa lama kita telah melanjutkan ini? Aku sudah mulai melihat kelelahan dari Ciel, jadi Aku berhenti bernyanyi.
-Mencocokkan dengan Aku, Ciel berhenti menari juga.
+Aku bertanya-tanya berapa lama kami telah melakukan ini? Aku sudah mulai melihat kelelahan dari Ciel, jadi Aku berhenti bernyanyi.
+
+Mencocokkan denganku, Ciel berhenti menari juga.
+
 Pada akhirnya, Aku tidak ingat berapa banyak lagu yang kami mainkan tetapi melihat bagaimana bahu Ciel naik turun saat dia bernafas, Aku mungkin banyak bernyanyi.
 
 Jika Aku diam-diam menambahkan efek pemulihan stamina saat bernyanyi, kami mungkin akan terus berlanjut sampai hari mulai gelap.
