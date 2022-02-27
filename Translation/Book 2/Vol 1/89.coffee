@@ -138,60 +138,78 @@ Saat napas Ciel mulai tenang, dia berbicara padaku.
 
 "Aku mendengar suara dari suatu tempat, jadi aku hanya mencoba bernyanyi bersamanya." (Ain)
 
-Begitukah? Aku belum mendengar apa-apa, Kamu tahu?」
-Itu bisa berhubungan dengan keadaan Aku saat ini.
-Benar, benar. Betapa anehnya. Sangat aneh. Namun, itu adalah lagu yang bagus.
-Maukah kamu menyanyikannya lagi, Ain?」
-Ya, tentu saja.
+"Begitukah? Aku belum mendengar apa-apa, Kamu tahu?" (Ciel)
+
+"Itu mungkin berhubungan dengan keadaanku saat ini." (Ain)
+
+"Benar, benar. Betapa anehnya. Sangat aneh. tapi itu adalah lagu yang bagus. Maukah kamu menyanyikannya lagi, Ain?" (Ciel)
+
+"Ya, tentu saja." (Ain)
 
 Saat kami berbicara, angin sepoi-sepoi bertiup di antara kami.
+
 Aku bertanya-tanya apa yang harus kita lakukan tetapi karena Ciel tampak lelah, dan pemandangan di sini juga bagus, aku memberi isyarat padanya ke sisiku.
-Meskipun bingung, Ciel pergi ke Aku tanpa hati-hati.
+
+Meskipun bingung, Ciel datang padaku tanpa hati-hati.
+
 Dan sementara dia melakukannya, aku duduk di lantai berumput.
 
 Saat Ciel tiba di depanku, aku menyuruhnya duduk dan dengan lembut meletakkan kepalanya di atas pangkuanku.
+
 Itu yang disebut bantal pangkuan.
-Tubuh Ciel cukup kurus, jadi Aku tidak tahu apakah pangkuan Aku bisa berfungsi sebagai bantal. Tapi karena pangkuanku memang memiliki karakteristik kelembutan wanita, di sisi lain, ini seharusnya tidak melelahkan.
 
-Cara Ciel dengan mata terbelalak heran di pangkuanku sangat menggemaskan.
+Tubuh Ciel cukup kurus, jadi Aku tidak tahu apakah pangkuanku bisa berfungsi sebagai bantal. Tapi karena pangkuanku memang memiliki karakteristik kelembutan wanita, di sisi lain, ini seharusnya tidak melelahkan.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Ciel dengan mata terbelalak heran di pangkuanku sangat menggemaskan.
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"Posisi yang luar biasa ini, apa ini! apa ini!" (Ciel)
 
-Posisi yang luar biasa ini, ada apa! Apa itu!」
-Ini bantal pangkuan. Sepertinya kamu cukup lelah, jadi tolong istirahatlah. Begitu
-, itu benar. Aku akan menerima tawaran itu.
+"Ini adalah bantal pangkuan. Sepertinya kamu cukup lelah, jadi tolong istirahatlah." (Ain)
+
+"Begitu, itu benar. Aku akan menerima tawaran itu." (Ciel)
 
 Sementara dia mengatakan itu, akankah Ciel benar-benar bisa beristirahat dengan kegembiraannya ini?
+
 Sambil menyanyikan lagu yang tepat agar Ciel bisa lebih rileks sedikit lagi, aku terus mengelus pipi Ciel.
-Ciel terkekeh geli, jadi aku mungkin baru saja melewatkan waktu untuk berhenti.
+
+Ciel terkekeh geli, jadi aku mungkin baru saja melewatkan timing untuk berhenti.
 
 Tak lama, Ciel mengulurkan tangannya ke pipiku juga.
-Saat dia menyentuh pipiku dan menikmati kelembutannya, dia menyeringai.
-Sisi Ciel ini cukup langka untuk dilihat, jadi aku biarkan dia melakukan apa yang dia suka. Namun sulit untuk bernyanyi.
 
-Setelah itu, dia kemudian meringkuk dekat untuk berpegangan tangan, jadi aku menyerahkan tangan kanan yang kubelai pipinya.
+Saat dia menyentuh pipiku dan menikmati kelembutannya, dia menyeringai.
+
+Sisi Ciel ini cukup langka untuk dilihat, jadi aku biarkan dia melakukan apa yang dia suka. tapi sulit untuk bernyanyi.
+
+Setelah itu, dia kemudian bergerak merapat untuk berpegangan tangan, jadi aku menyerahkan tangan kanan yang kubelai pipinya.
+
 Setelah melihat Ciel memegang tanganku dengan tatapan puas, merasakan kehangatan Ciel, aku memejamkan mata, dan mulai bernyanyi sambil merasakan angin sepoi-sepoi.
 
 🎵🎵🎵
 
-Tanpa disadari, hari sudah malam. Aku kira Aku hanya punya sedikit waktu tersisa untuk memiliki tubuh seperti ini.
-Apakah itu akan berakhir saat Aku tidur hari ini atau akan terus berlanjut sampai tanggal berubah, Aku tidak tahu.
-Ciel, yang ada di pangkuanku, tertidur tanpa aku sadari, dan saat dia bangun, dia memelukku erat-erat.
+Tanpa disadari, hari sudah malam. Aku hanya punya sedikit waktu tersisa untuk memiliki tubuh seperti ini.
 
-Sebelum aku meninggal, aku tidak pernah berpelukan dengan orang lain seperti ini—walaupun aku tidak bisa mengatakan dengan pasti, karena ingatanku di sekitar sekolah dasar tidak terlalu jelas—jadi agak memalukan.
+Apakah itu akan berakhir saat Aku tidur hari ini atau akan terus berlanjut sampai hari berubah, Aku tidak tahu.
+
+Ciel, yang ada di pangkuanku, tertidur tanpa kusadari, dan saat dia bangun, dia memelukku erat-erat.
+
+Sebelum aku meninggal, aku tidak pernah berpelukan dengan orang lain seperti ini, walaupun aku tidak bisa mengatakan dengan pasti, karena ingatanku di sekitar sekolah dasar tidak terlalu jelas, jadi agak memalukan.
+
 Meski begitu, itu sangat melegakan. Bukan karena kehangatan tubuh atau kelembutan tubuh seorang gadis, tapi karena rasa kebersamaan secara fisik dengan Ciel. Ini sangat memuaskan secara emosional.
 
 Kami tidak bisa tetap seperti ini selamanya, jadi Aku membantu Ciel berdiri saat kami berpelukan.
 
-Seharusnya makan malam dalam waktu dekat tapi aku ingin mandi sebelum itu. Begitu
-. Kalau begitu, silakan mandi-……」
-Kita pergi bersama, kan?」
-Umm, kan. Jika Kamu tidak keberatan, maka Aku akan menemani Kamu ke kamar mandi.
+"Seharusnya sebentar lagi makan malam tapi aku ingin mandi sebelum itu." (Ciel)
 
-Aku tidak tahu apakah kita bisa masuk sendiri, jadi Aku meminta izin Fiiyanamia-sama sebelum kembali ke dalam mansion.
+"Begitu. Kalau begitu, silakan mandi-....." (Ain)
+
+"Kita mandi bersama, kan?" (Ciel)
+
+"Umm, baaiklah. Jika Kamu tidak keberatan, maka Aku akan menemanimu ke kamar mandi." (Ain)
+
+Aku tidak tahu apakah kami bisa masuk sendiri, jadi Aku meminta izin Fiiyanamia-sama sebelum kembali ke dalam mansion.
+
 Dalam perjalanan, kami bertemu dengan seorang pelayan, dan dia menyiapkan handuk dan pakaian untuk kami.
+
 Dia menyarankan agar mereka bisa membantu mandi, tapi karena Ciel dan aku ingin berduaan saja kali ini, kami menolak.
 
 Penampilannya yang benar-benar kecewa benar-benar meninggalkan kesan bagiku, tetapi biarkan kami pergi untuk hari ini.
