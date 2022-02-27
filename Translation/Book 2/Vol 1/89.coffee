@@ -125,14 +125,17 @@ Mencocokkan denganku, Ciel berhenti menari juga.
 Pada akhirnya, Aku tidak ingat berapa banyak lagu yang kami mainkan tetapi melihat bagaimana bahu Ciel naik turun saat dia bernafas, Aku mungkin banyak bernyanyi.
 
 Jika Aku diam-diam menambahkan efek pemulihan stamina saat bernyanyi, kami mungkin akan terus berlanjut sampai hari mulai gelap.
+
 Lebih buruk lagi, kami mungkin melanjutkan lebih dari itu.
-Dengan kontrol kekuatan sihir Ciel selama durasi penggunaan Dance Princess, akan mudah baginya untuk menerangi area itu bahkan di malam hari.
+
+Dengan kontrol energi sihir Ciel selama durasi penggunaan Dance Princess, akan mudah baginya untuk menerangi area bahkan di malam hari.
+
 Dengan suasana yang sedikit berbeda di malam hari, Aku juga ingin melihat Ciel menari di taman di bawah langit berbintang.
 
 Saat napas Ciel mulai tenang, dia berbicara padaku.
 
-Ini pertama kalinya Aku mendengar lagu-lagu Ain seperti ini.
-Apa lagu pertama itu? Ini pertama kalinya aku mendengarnya. Juga, itu tidak terdengar seperti kata-kata biasa, kan?」
+"Ini pertama kalinya Aku mendengar lagu-lagu Ain seperti ini. yang pertama lagu apa? Ini pertama kalinya aku mendengarnya. dan Juga itu tidak terdengar seperti kata-kata yang biasa kamu nyanyikan, kan?" (Ciel)
+
 Aku mendengar suara dari suatu tempat, jadi aku hanya mencoba bernyanyi bersamanya.」
 Begitukah? Aku belum mendengar apa-apa, Kamu tahu?」
 Itu bisa berhubungan dengan keadaan Aku saat ini.
