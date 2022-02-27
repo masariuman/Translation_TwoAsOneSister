@@ -260,3 +260,14 @@ Aku mengatakan ciel gampang dipengaruhi, tetapi Aku sendiri tidak jauh berbeda.
 
 --------------------------------------------------------------
 
+HEWWROOOOOO ~~!!!!
+
+Kali ini sitausinya berubah !!!! dedek ciel kita berasa dewasa dan ain kita berasa kurang dewasa...oh tidak, role mereka tertukar, tapi tetap IMUT !!
+
+untuk chapter kali ini kita menyaksikan dengan langsung keimutan ainsel kita !!! duuh ketika mereka berdiri bersama bercermin seperti sikembar dengan warna yang berbeda, ingin rasanya melihat ilustrasi berwarnanya !! aaaaa pasti imuttt bangeeetttt.. must proteccc both !!
+
+kalau dipikir pikir, tema untuk ainsel ini seperti gender bender kan ? tapi rasanya si ainsel kita ini tidak menolak.. mungkin sudah terlalu lama dengan dedek ciel kita dan sudah terbiasa dengan tubuh wanita, jadi ainsel kita disini menerimanya apa adanya dan malah merasa bagus / imut... dan saya sangat suka dengan cerita ini yang mana tidak ada harem atau sejenisnya, tetap konstant dengan mereka berdua saja... untuk saat ini, mungkin.. yaa harapannya tetap berdua saja dan character lain hanya sekedar numpang bantu atau numpang lewat di arc nya saja... 
+
+daaan seperti biasa saya masih tidak merasa enak dengan kelancaran semua ini, takut saja duke rispelgia muncul lagi dengan hal hal yang tidak menyenangkan, atau bahkan tau perihal ainciel kita karena info entah dari pelayan Fiiyanamia yang berkhianat atau dari orang-orang yang Fiiyanamia usir sebelumnya ketika ainciel kita baru datang ditempat ini...
+
+nah sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
