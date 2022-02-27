@@ -212,27 +212,37 @@ Dalam perjalanan, kami bertemu dengan seorang pelayan, dan dia menyiapkan handuk
 
 Dia menyarankan agar mereka bisa membantu mandi, tapi karena Ciel dan aku ingin berduaan saja kali ini, kami menolak.
 
-Penampilannya yang benar-benar kecewa benar-benar meninggalkan kesan bagiku, tetapi biarkan kami pergi untuk hari ini.
+dia benar-benar kecewa, tetapi tolong biarkan kami pergi untuk hari ini.
+
 Sepertinya para pelayan di mansion ini benar-benar lapar akan pekerjaan.
-Fiiyanamia-sama sepertinya tidak terlalu membutuhkan bantuan, jadi mereka mungkin ingin semuanya disibukkan.
+
+Fiiyanamia-sama sepertinya tidak terlalu membutuhkan bantuan, jadi mereka mungkin ingin kesibukan.
 
 Tapi Aku sendiri juga tidak terlalu membutuhkan bantuan.
+
 Dan dalam kasus Ciel, mungkin cukup dengan menyiapkan makanannya untuk dimakan.
 
 Setelah membimbing kami ke ruang ganti, hanya Ciel dan aku yang masuk ke dalam.
-Buka pakaian dan masukkan pakaian ke dalam keranjang. Hal-hal yang harus dilakukan sebelum memasuki kamar mandi tidak berbeda dari biasanya, tapi hari ini akan menjadi pertama kalinya aku telanjang di tubuh ini, jadi aku gugup.
+
+kami membuka pakaian dan memasukkannya ke dalam keranjang. Hal-hal yang harus dilakukan sebelum memasuki kamar mandi tidak berbeda dari biasanya, tapi hari ini akan menjadi pertama kalinya aku telanjang dengan tubuh ini, jadi aku gugup.
+
 Karena tubuh ini didasarkan pada Ciel, aku tahu bahwa tidak ada yang membuatku merasa malu, tapi ini benar-benar membangkitkan rasa malu yang awalnya kumiliki.
 
 Aku tahu apa yang kukatakan ini aneh setelah meminjam tubuh Ciel dan mandi bersama Viviana-san.
+
 Tapi itu memalukan, jadi aku memunggungi Ciel dan dengan malu-malu membuka pakaian.
-Jika Aku diberi gaun pada perubahan terakhir selama acara dandanan, Aku mungkin tidak bisa melepas pakaian Aku sendiri.
+
+Jika Aku diberi gaun selama berdandan, Aku mungkin tidak bisa melepas pakaianku sendiri.
 
 Setelah menanggalkan pakaian sepenuhnya, Aku mengintip bagaimana keadaan Ciel. Ciel sudah selesai membuka baju dan mengamati tubuhku dengan seksama.
-Yah begitulah. Ini praktis tubuhnya sendiri, jadi Aku tidak terlalu keberatan, tapi itu benar-benar memalukan.
-Saat aku menahan rasa malu, Jadi beginilah bentuk tubuhku. Ciel berkata begitu dengan nada terkesan aneh.
 
-Tubuh Ciel cantik, jadi cukup bagus untukku.」
-Lalu, apakah Ain pernah melihat banyak tubuh wanita lain selain tubuhku?」
+Yaah, Ini juga tubuhnya sendiri, jadi Aku tidak terlalu keberatan, tapi itu benar-benar memalukan.
+
+Saat aku menahan rasa malu, "Jadi beginilah bentuk tubuhku.", Ciel berkata begitu dengan nada terkesan aneh.
+
+"Tubuh Ciel cantik, jadi cukup bagus untukku." (Ain)
+
+"Lalu, apakah Ain pernah melihat banyak tubuh wanita lain selain tubuhku?" (CIel)
 
 Mendengar Ciel terkikik saat dia bertanya, aku bingung bagaimana aku harus menjawabnya.
 Tidak ada keraguan bahwa meskipun Ciel sangat terlindungi, dia tahu apa artinya melihat banyak hal dengan Aku yang dulunya laki-laki.
