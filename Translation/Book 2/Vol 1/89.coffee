@@ -245,23 +245,28 @@ Saat aku menahan rasa malu, "Jadi beginilah bentuk tubuhku.", Ciel berkata begit
 "Lalu, apakah Ain pernah melihat banyak tubuh wanita lain selain tubuhku?" (CIel)
 
 Mendengar Ciel terkikik saat dia bertanya, aku bingung bagaimana aku harus menjawabnya.
-Tidak ada keraguan bahwa meskipun Ciel sangat terlindungi, dia tahu apa artinya melihat banyak hal dengan Aku yang dulunya laki-laki.
-Secara praktis, jika Aku harus mengatakan apakah Aku telah melihat beberapa, Aku belum benar-benar melihat sebanyak itu.
-Satu-satunya yang kulihat telanjang dalam kenyataan, tidak termasuk Ciel dan keluargaku, kurang lebih Viviana-san.
 
-Tetap saja, itu tidak seperti aku tidak punya sama sekali.
+Tidak ada keraguan bahwa meskipun Ciel sangat terkurung, dia tahu apa artinya dilihat olehku yang dulunya laki-laki.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+jika Aku harus mengatakan apakah Aku telah melihat beberapa sebelumnya, Aku belum benar-benar melihat sebanyak itu.
 
-(Katakan tidak pada pencuri konten!)
+Satu-satunya yang kulihat telanjang secara langsung, tidak termasuk Ciel dan keluargaku, kurang lebih Viviana-san.
 
-Ciel hanya menatapku dengan tatapan menggoda, dan sepertinya tidak memiliki tatapan mengkritik, tapi kurasa ini adalah efek samping negatif dari aku mengungkapkan bahwa aku dulunya laki-laki.
+Tetap saja, bukan berarti aku tidak pernah melihat wanita telanjang.
 
-Sayangnya, Aku belum cukup melihat untuk membuat perbandingan apa pun.
-Satu-satunya gadis yang pernah kulihat telanjang kurang lebih adalah Viviana-san dan ibuku. Namun, sejujurnya Aku pikir tubuh Ciel itu cantik. Jadi secara pribadi, Aku merasa istimewa.」
-Begitukah? Begitu, Aku sangat senang Ain menyukainya.
+Ciel hanya menatapku dengan tatapan menggoda, dan sepertinya tidak memiliki tatapan mengkritik, tapi kurasa ini adalah efek samping negatif dariku mengungkapkan bahwa aku dulunya laki-laki.
+
+"Sayangnya, Aku belum cukup melihat untuk membuat perbandingan apa pun. Satu-satunya gadis yang pernah kulihat telanjang kurang lebih adalah Viviana-san dan ibuku. tapi, sejujurnya Aku pikir tubuh Ciel itu cantik. Jadi secara pribadi, Aku merasa istimewa." (Ain)
+
+"Begitukah? Begitu, Aku sangat senang Ain menyukainya." (Ciel)
 
 Aku entah bagaimana berhasil melepaskannya.
 
-Mengesampingkan diriku, akan buruk bagi Ciel untuk tetap telanjang di sini di ruang ganti terlalu lama, Ayo masuk sekarang, oke? jadi Aku menyarankan untuk pindah.
-Ciel meraih tanganku, Ayo. dan menyerbu masuk.
+Mengesampingkan diriku, akan buruk bagi Ciel untuk tetap telanjang di sini di ruang ganti terlalu lama, "Ayo masuk sekarang, oke?", Aku menyarankan untuk bergerak.
+
+Ciel meraih tanganku, "Ayo.", dan menyerbu masuk.
+
+----------------------------------------------------------------------------------------
+
+HEWWROOOOOO ~~~!!!
+
