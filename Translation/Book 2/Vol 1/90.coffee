@@ -42,9 +42,11 @@ Aku tahu betul itu perbuatan Ciel tapi aku mengeluarkan suara aneh dan itu memal
 
 "Suara Ain benar-benar menggemaskan." (Ciel)
 
-...... Suara kita seharusnya sama.」
-Menurutmu begitu? Ain adalah Putri Lagu. Bukankah wajar jika Ain memiliki suara yang lebih menggemaskan?」
-Sekarang setelah kamu menyebutkannya, itu mungkin benar.
+"...... Suara kita seharusnya sama." (Ain)
+
+"Menurutmu begitu? Ain adalah song princess. Bukankah wajar jika Ain memiliki suara yang lebih menggemaskan?" (Ciel)
+
+"...itu mungkin benar." (Ain)
 
 Aku sedikit merajuk karena serangan mendadak itu, tetapi ketika kami terus berbicara, itu akhirnya menjadi tidak relevan bagi Aku.
 Soal suara, Ciel sepertinya benar.
