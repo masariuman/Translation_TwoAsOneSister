@@ -1,104 +1,129 @@
 CHAPTER 91: PLAN FOR THE FUTURE, BED, AND LULLABY
 
-Keluar dari bak mandi, Aku menyeka diri Aku sendiri sebelum memakai daster yang disediakan.
-Yang Aku kenakan ketika Aku bangun, daster misterius itu.
-Apa sebenarnya ini? Aku punya firasat bahwa itu adalah sesuatu yang dibuat oleh dewa pencipta, mungkin Aku hanya diberi daster ini hanya sebagai bonus.
+Keluar dari bak mandi, Aku menyeka diriku sendiri sebelum memakai daster yang disediakan.
+
+Daster yang Aku kenakan ketika Aku bangun, daster misterius.
+
+Apa sebenarnya daster ini? Aku punya firasat bahwa itu adalah sesuatu yang dibuat oleh dewa pencipta, mungkin Aku hanya diberi daster ini sebagai bonus.
 
 Mungkin juga Fiiynamia-sama memperhatikan inkarnasiku dan mengenakannya padaku.
-Apapun masalahnya, itu menunjukkan bahu Aku, jadi Aku benar-benar ingin mencuri.
 
-Setelah memakai daster, Aku menelepon Ciel.
-Ciel juga selesai berdandan dan mendekatiku, tampak bingung.
+Apapun masalahnya, itu menunjukkan bahuku, jadi Aku benar-benar ingin selendang.
 
-Ain, ada apa?」
-Aku sedang berpikir untuk mengeringkan rambutmu. Bisakah kamu duduk?」
-Tentu, mengerti.
+Setelah memakai daster, Aku memanggil Ciel.
+
+Ciel juga selesai memakai baju dan mendekatiku, tampak bingung.
+
+"Ain, ada apa?" (Ciel)
+
+"Aku sedang berpikir untuk mengeringkan rambutmu. Bisakah kamu duduk?" (Ain)
+
+"Tentu, baiklah." (Ciel)
 
 Aku menarik kursi yang ada di pojok ke tengah ruang ganti dan menyuruh Ciel duduk.
+
 Rambut putihnya yang lembap kemungkinan besar tidak akan rusak bahkan jika dibiarkan kering.
-Aku bahkan bisa langsung mengeringkannya jika harus, tapi kali ini, aku menggunakan sihir untuk mengeringkan rambutnya seperti yang dilakukan pengering rambut.
+
+Aku bahkan bisa langsung mengeringkannya jika mai, tapi kali ini, aku menggunakan sihir untuk mengeringkan rambutnya seperti yang dilakukan pengering rambut.
+
 Sambil menyisir rambut Ciel dengan jariku, aku juga memijat kulit kepalanya dengan ringan.
 
 Ciel duduk diam dengan mata tertutup, jadi melakukan ini sangat mudah.
-Saat ini, bagi Aku rasanya seperti kami adalah saudara perempuan yang sebenarnya.
-Meskipun, itu tidak seperti Aku akan tahu bagaimana saudara perempuan bertindak satu sama lain.
 
-Bagaimanapun, sepertinya Ciel cukup senang berdasarkan bibirnya yang longgar, jadi aku cukup puas.
+Saat ini, bagiku rasanya kami seperti saudara perempuan yang sebenarnya.
 
-Saat aku selesai mengeringkannya, Selesai. Aku menarik tanganku dan Ciel, membuka matanya, menatapku, tampak sedih.
+Meskipun, aku tidak begitu tahu bagaimana saudara perempuan bertindak sesama saudaranya.
 
+Bagaimanapun juga, sepertinya Ciel cukup senang berdasarkan bibirnya yang longgar, jadi aku cukup puas.
 
-Sudah selesai? Sayang sekali.」
-Lagi pula, aku tidak bisa terus mengeringkannya selamanya.
-Ya. Terima kasih, Ain. Rasanya sangat enak.」
-Aku senang mendengarnya.
+Saat aku selesai mengeringkannya, "Selesai.", Aku menarik tanganku dan Ciel, membuka matanya, menatapku, tampak sedih.
 
-Mengatakan demikian, Aku menunjukkan tangan Aku di depan Ciel.
+"Sudah selesai? Sayang sekali." (Ciel)
+
+"Tentu saja, aku tidak bisa terus mengeringkannya selamanya." (Ain)
+
+"Ya. Terima kasih, Ain. Rasanya sangat enak." (Ciel)
+
+"Aku senang mendengarnya." (Ain)
+
+dengan Mengatakan demikian, Aku menunjukkan tanganku di depan Ciel.
+
 Mengambil tanganku, dia berdiri, dan kami pergi untuk makan malam.
 
 🎵🎵🎵
 
 Makan malamnya juga sangat enak.
-Aku sedang memikirkan sesuatu untuk dibicarakan dengan Fiiyanamia-sama tetapi mengetahui bahwa hanya ada beberapa jam tersisa, dia dengan cepat mengantar kami ke kamar tidur.
+
+Aku sedang memikirkan sesuatu untuk dibicarakan dengan Fiiyanamia-sama tetapi mengetahui bahwa hanya ada beberapa jam yang tersisa, dia dengan cepat mengantar kami ke kamar tidur.
+
 Aku tidak bisa menghitung berapa kali Aku merasa berterima kasih kepada Fiiyanamia-sama hari ini.
-Akan lebih baik jika Aku dapat membalas budi suatu saat nanti.
 
-Saat ini, bagaimanapun, Aku harus fokus pada waktu Aku dengan Ciel.
+Akan lebih baik jika Aku dapat membalas budinya suatu saat nanti.
 
-Hari akan segera berakhir, bukan......」
-Kita masih punya sedikit waktu, jadi kita bisa melakukan apa yang ingin kamu lakukan, tahu?」
-Biarkan aku berpikir...... Aku bertanya-tanya bagaimana tubuh Ain benar sekarang."
+Saat ini, bagaimanapun, Aku harus fokus pada waktuku dengan Ciel.
+
+"Hari akan segera berakhir, bukan......" (Ciel)
+
+"Kita masih punya sedikit waktu, jadi kita bisa melakukan apa yang ingin kamu lakukan." (Ain)
+
+"Biarkan aku berpikir...... Aku bertanya-tanya bagaimana dengan tubuh Ain sekarang." (Ciel)
 
 Mengatakan demikian, Ciel menyentuh lengan atasku.
+
 Dia ingin tahu, tapi dengan lembut, mencubitnya berulang kali, itu cukup lucu.
 
-Aku kira itu seperti kekuatan ilahi yang melapisi jiwa Aku.
-Karena itu, tubuh ini sepertinya tidak membutuhkan makanan yang sebenarnya.」
-Kekuatan ilahi… apakah itu berarti jika Aku menjadi dewa, Aku akan dapat membuat tubuh Ain?」
-Aku percaya begitu, tapi Aku bisa 'tidak mengatakan dengan pasti.
-Begitu, jadi begitulah.
+"Mungkin itu seperti energi dewa yang melapisi jiwaku. Karena itu, tubuh ini sepertinya tidak membutuhkan makanan." (Ain)
+
+"Energi Dewa... apakah itu berarti jika Aku menjadi dewa, Aku akan dapat membuat tubuh Ain?" (Ciel)
+
+"Aku percaya ktu bisa, tapi Aku bisa benar-benar memastikannya." (Ain)
+
+"Begitu, jadi begitu." (Ciel)
 
 Ciel memegang tanganku dan mulai merenung sambil berulang kali meremas.
+
 Tanganku yang lain terasa agak kesepian, jadi aku memutuskan untuk mengusap pipi Ciel dengan lembut.
-Entah bagaimana, aku sudah merasa sangat senang hanya dengan menyentuh kulit lembut dan halus Ciel, tapi kemudian Ciel memegang tanganku dengan tangan bebasnya yang lain.
+
+Entah bagaimana, aku sudah merasa sangat senang hanya dengan menyentuh kulit lembut dan halus Ciel, tapi kemudian Ciel memegang tanganku dengan tangannya yang lain.
+
 Dan saat dia tersenyum dengan sangat gembira, Aku diliputi oleh emosi.
 
-kamu tahu, Ain, Aku selalu berpikir sendiri, apakah ada cara untuk membuat Ain menjadi tubuh?
-Jadi, hanya melihat kemungkinan bagi kita untuk bersama seperti ini, benar-benar membuatku sangat bahagia, aku merasa seperti hatiku akan meledak. Itu benar, kamu tahu?
+"kamu tahu, Ain, Aku selalu berpikir sendiri, apakah ada cara untuk membuat tubuh Ain ? Jadi, hanya melihat kemungkinan bagi kita untuk bersama seperti ini, benar-benar membuatku sangat bahagia, aku merasa seperti hatiku akan meledak. serius..." (Ciel)
 
+sambil Mengatakan itu, Ciel mendudukkanku di tempat tidur dan memeluk kepalaku.
 
-Mengatakan itu, Ciel mendudukkanku di tempat tidur dan memeluk kepalaku.
 Di luar sensasi lembut, aku mendengar jantung Ciel berdetak sangat cepat.
 
-(Bab ini disediakan untuk kamu oleh Re:Library)
+Aku hanya memiliki khayalan mampu secara fisik menyentuh Ciel suatu hari nanti.
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
-
-Aku tidak pernah memiliki lebih dari fantasi mendung Aku mampu secara fisik menyentuh Ciel suatu hari nanti.
 Sebaliknya, Aku mungkin memutuskan secara tidak sadar bahwa Aku harus menghilang bahkan sebelum mempertimbangkan masalah memiliki tubuh.
+
 Mungkin itu sebabnya aku tidak bisa membayangkan dengan baik betapa senangnya Ciel.
 
-Aku yakin Ciel selalu ingin bisa menyentuhku bahkan sebelum kesempatan permohonan yang dikabulkan oleh Tuhan Yang Maha Esa ini datang. Pasti untuk waktu yang lebih lama dari yang Aku lakukan setidaknya.
-Dan perbedaan ini harus secara proporsional mempengaruhi keterikatan emosional dengan keinginan ini juga.
+Aku yakin Ciel selalu ingin bisa menyentuhku bahkan sebelum kesempatan permohonan yang dikabulkan oleh dewa ini datang. Pasti untuk waktu yang lebih lama dari yang Aku bayangkan.
 
-Namun, sekarang Aku tahu. Kebahagiaan bisa berinteraksi secara fisik dengan Ciel. Apa yang seharusnya hanya kebahagiaan sepele.
-Keadaan normal ini yang tidak pernah memiliki kesempatan untuk bertahan di masa lalu.
-Itu sebabnya, Aku juga ingin memiliki tubuh Aku sendiri.
+Dan perbedaan ini secara proporsional mempengaruhi keterikatan emosional dengan keinginan ini juga.
 
-Aku baik-baik saja bahkan jika Aku tidak dapat memilikinya setiap hari, tetapi hanya satu hari yang menyakitkan.
+tapi, sekarang Aku tahu. Kebahagiaan bisa berinteraksi secara fisik dengan Ciel. Apa yang seharusnya hanya kebahagiaan sepele.
 
-Butuh waktu paling lama 10 tahun bagi pendewaan kita untuk menghentikan kita dari penuaan.
-Dari sana, mungkin akan membutuhkan lebih banyak waktu bagi kita untuk benar-benar menjadi dewa.」
-Itu benar, kamu mengatakan itu sebelumnya.
-Namun, ada cara untuk mempercepat ini.
-Benar, aku juga menyadarinya. Bagaimanapun, cara Ain berbicara menyiratkan itu.
-Bagaimana kita bisa melakukan itu?」
-Dengan menggunakan banyak divine power. Pada dasarnya, hanya mencampurkan beberapa ke dalam penghalang akan mempercepatnya.
+Keadaan normal ini yang tidak pernah memiliki kesempatan untuk terpikirkan di masa lalu.
 
-Saat ini, masih tidak mungkin bagiku untuk menggunakannya terus-menerus tetapi begitu beberapa kekuatan sihirku diubah menjadi kekuatan suci, aku seharusnya bisa melakukannya.
-Dan sementara Aku tidak tahu seberapa banyak kita bisa mempercepatnya, setidaknya itu harus dipercepat beberapa tahun.
+Itu sebabnya, Aku juga ingin memiliki tubuhku sendiri.
 
-Kalau begitu, apakah ini semua untukmu, Ain?」
+Aku baik-baik saja bahkan jika Aku tidak dapat memilikinya setiap hari, tetapi hanya satu hari saja menyakitkan.
+
+"Butuh waktu paling lama 10 tahun untuk status dewa kita untuk menghentikan kita dari penuaan. Dari situ, mungkin akan membutuhkan lebih banyak waktu bagi kita untuk benar-benar menjadi dewa." (Ain)
+
+"Itu benar, kamu mengatakan itu sebelumnya." (Ciel)
+
+"Tapi, ada cara untuk mempercepat ini." (Ain)
+
+"Benar, aku juga menyadarinya. cara Ain berbicara menyiratkan itu. Bagaimana kita bisa mempercepatnya?" (Ciel)
+
+"Dengan menggunakan banyak kekuatan dewa. Pada dasarnya, hanya mencampurkan beberapa saja ke dalam barrier akan mempercepatnya. Saat ini, masih tidak mungkin bagiku untuk menggunakannya terus-menerus tetapi begitu beberapa energi sihirku diubah menjadi energi dewa, aku seharusnya bisa melakukannya. Dan sementara Aku tidak tahu seberapa banyak kita bisa mempercepatnya, setidaknya itu bisa dipercepat beberapa tahun." (Ain)
+
+"Kalau begitu, apakah ini semua untukmu, Ain?" (Ciel)
+
 Ciel masih tidak bisa memanipulasi energi ilahi. Aku tidak yakin kapan kamu akan mulai dapat menggunakannya, tetapi pada dasarnya sayalah yang memengaruhi transformasi, jadi ini kemungkinan besar akan terjadi pada Aku.
 Jika memungkinkan, Aku benar-benar ingin membantu juga …… 」
 
