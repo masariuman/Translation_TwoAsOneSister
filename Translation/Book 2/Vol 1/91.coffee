@@ -122,109 +122,148 @@ Aku baik-baik saja bahkan jika Aku tidak dapat memilikinya setiap hari, tetapi h
 
 "Dengan menggunakan banyak kekuatan dewa. Pada dasarnya, hanya mencampurkan beberapa saja ke dalam barrier akan mempercepatnya. Saat ini, masih tidak mungkin bagiku untuk menggunakannya terus-menerus tetapi begitu beberapa energi sihirku diubah menjadi energi dewa, aku seharusnya bisa melakukannya. Dan sementara Aku tidak tahu seberapa banyak kita bisa mempercepatnya, setidaknya itu bisa dipercepat beberapa tahun." (Ain)
 
-"Kalau begitu, apakah ini semua untukmu, Ain?" (Ciel)
+"Kalau begitu, apakah ini semua hanya kamu, Ain?" (Ciel)
 
-Ciel masih tidak bisa memanipulasi energi ilahi. Aku tidak yakin kapan kamu akan mulai dapat menggunakannya, tetapi pada dasarnya sayalah yang memengaruhi transformasi, jadi ini kemungkinan besar akan terjadi pada Aku.
-Jika memungkinkan, Aku benar-benar ingin membantu juga …… 」
+"Ciel masih tidak bisa memanipulasi energi dewa. Aku tidak yakin kapan kamu akan mulai dapat menggunakannya, tetapi pada dasarnya akulah yang berubah menjadi dewa, jadi ini kemungkinan besar hanya aku yang bisa melakukannya." (Ain)
+
+"Jika memungkinkan, Aku benar-benar ingin membantu juga ......" (Ciel)
 
 Ciel mulai memikirkan hal ini, tapi ada sesuatu yang harus kusampaikan padanya.
 
-Aku juga ingin melakukan kontak fisik dengan kamu, Ciel.
-Namun, jika kita terlalu terburu-buru, kamu akan berhenti menua sebelum kamu menyelesaikan pertumbuhan kamu.
-Jadi tolong ingat ini.
+"Aku juga ingin melakukan kontak fisik denganmu, Ciel. Tapi, jika kita terlalu terburu-buru, kamu akan berhenti menua sebelum kamu menyelesaikan pertumbuhanmu. Jadi tolong ingat ini." (Ain)
 
 Ciel akan segera berusia 13 tahun. Mengingat usia maksimalnya adalah 10 tahun, ia akan berhenti menua pada usia sekitar 22-23 tahun.
-Karena pendewaan dipercepat berdasarkan perambahan, ada kemungkinan bahwa, jika kita memberikan segalanya, kita akan mengalami penghentian penuaan dalam beberapa tahun.
-Jika kita bisa membagi waktu, ini akan menjadi sekitar 17-18. Bahkan mungkin pertumbuhannya berhenti pada usia sekitar 15 tahun.
+
+Karena pendewaan dipercepat, ada kemungkinan bahwa, jika kami melakukan segalanya yang kita bisa, kami akan mengalami penghentian penuaan dalam beberapa tahun.
+
+Jika kami bisa membagi waktu, ini akan menjadi sekitar usia 17-18. Bahkan mungkin pertumbuhannya berhenti pada usia sekitar 15 tahun.
+
 Ciel sangat menawan bahkan sekarang, tapi dia jauh dari menjadi wanita dewasa.
 
-Ain, apakah menurutmu aku tidak sebaik sekarang?」
-Tidak. Kamu lucu seperti kamu sekarang. Kamu sudah lucu sejak itu.
-Kalau begitu, aku tidak keberatan. Aku ingin melakukan yang terbaik untuk menjadi dewa secepat mungkin.
+"Ain, apakah menurutmu aku kurang bagus sekarang?" (Ciel)
+
+"Tidak. Kamu imut sekarang. Kamu sudah imut dari dulu." (Ain)
+
+"Kalau begitu, aku tidak keberatan. Aku ingin melakukan yang terbaik untuk menjadi dewa secepat mungkin." (Ciel)
 
 Dengan wajah sedikit memerah, Ciel menegaskan demikian.
-Karena itu, aku yakin dia memikirkan ini dengan matang. Di situlah Aku salah kemarin, setelah semua.
+
+Karena itu, aku yakin dia memikirkan ini dengan matang. Di situlah Aku salah kemarin.
+
 Saat aku memikirkan ini, Ciel menambahkan.
 
-Bagaimanapun, itu yang kamu inginkan, Ain.
-Aku ingin cepat dan bisa bebas berinteraksi dengan Ain juga. Karena itu, tidak ada alasan untuk ragu.
+"Bagaimanapun juga, itu yang kamu inginkan, Ain. Aku ingin cepat dan bisa bebas berinteraksi dengan Ain juga. Karena itu, tidak ada alasan untuk ragu." (Ciel)
 
 Aku merasakan pipiku tersenyum kecil, tapi aku segera kembali fokus dan menjawab dengan nada tegas.
 
-"Aku mengerti. Aku akan menggunakan energi ilahi sebanyak yang Aku bisa.」
-Dan selain itu, Aku tidak tahu berapa banyak yang dapat dilakukan dewa, tetapi dewa yang ditemui Ain dapat mengubah penampilannya dengan bebas, kan?
-Kalau begitu, bukankah kita setidaknya mampu mengubah usia kita?」
-Sekarang setelah kamu menyebutkannya, mungkin itu masalahnya.
+"Aku mengerti. Aku akan menggunakan energi dewa sebanyak yang Aku bisa." (Ain)
+
+"Dan selain itu, Aku tidak tahu berapa banyak yang dapat dilakukan dewa, tetapi dewa yang ditemui Ain dapat mengubah penampilannya dengan bebas, kan? Kalau begitu, bukankah kita setidaknya mampu mengubah usia kita?" (Ciel)
+
+"Sekarang setelah kamu menyebutkannya, mungkin itu bisa." (Ain)
 
 Tentu saja, ada kemungkinan seperti yang dikatakan Ciel tetapi hanya kemungkinan.
-Namun, bisa berinteraksi secara fisik dengan Ciel adalah kebahagiaanku. Dan karena kami telah memutuskan untuk bahagia sendiri, Aku akan mengambil tindakan untuk mendapatkan tubuh Aku sendiri sesegera mungkin. Itulah yang telah Aku putuskan untuk lakukan.
+
+Tapi, bisa berinteraksi secara fisik dengan Ciel adalah kebahagiaanku. Dan karena kami telah memutuskan untuk bahagia, Aku akan mengambil tindakan untuk mendapatkan tubuhku sendiri sesegera mungkin. Itulah yang telah Aku putuskan untuk kulakukan.
+
 Selama itu tidak membuat Ciel tidak bahagia, aku akan mengejar kebahagiaanku sendiri.
 
-Jika itu masalahnya, maka mungkin baik untuk mencoba dan mencari "Utusan Ilahi Buatan".」
-Benar, itu benar. Lagi pula, Ain bisa menjadi dewa setelah mengalahkan serigala itu...... kan?」
-Secara kasar, ya.」
-Kalau begitu, jika kita mengalahkan lebih banyak Utusan Ilahi Buatan itu, pendewaan Ain bisa meningkat pesat. Seharusnya
-ada manfaat dalam mencoba itu. Masalah sebenarnya adalah apakah ada lebih banyak dari ini di sekitar atau tidak tapi......」
-Jadi sementara itu, mengumpulkan informasi tampaknya menjadi pilihan terbaik.
-Dan bagaimanapun juga pria itu, jadi sangat mungkin dia bereksperimen dengan lebih banyak hal dari itu.
+"Jika itu masalahnya, maka mungkin lebih baik untuk mencoba dan mencari 'utusan dewa buatan'." (Ain)
 
-Tidak ada yang akan dimulai jika kita tidak bergerak. Kami belum punya rencana apa pun sejak kami tiba di Central, jadi ada baiknya kami menemukan sesuatu untuk dilakukan.
-Aku tidak punya rencana untuk menginjakkan kaki di Estoque lagi, tetapi mereka mungkin telah melarikan diri ke negara lain. Dan itu tidak seperti kita tidak akan menjadi dewa jika kita tidak dapat menemukan lebih banyak dari mereka.
+"Benar, itu benar. Lagi pula, Ain menjadi dewa setelah mengalahkan serigala itu...... kan?" (Ciel)
 
-(Bab ini disediakan untuk kamu oleh Re:Library)
+"Secara kasar, ya." (Ain)
 
-(Jika kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"Kalau begitu, jika kita mengalahkan lebih banyak Utusan Dewa Buatan itu, pendewaan Ain bisa meningkat pesat." (Ciel)
 
-Dengan keputusan itu, Aku akan menjadikan Ain sebagai bantal peluk hari ini, Aku akan melakukannya!」
+"Seharusnya ada untungnya mencoba itu. Masalah sebenarnya adalah apakah ada utusan dewa buatan......" (Ain)
+
+"Jadi sementara itu, mengumpulkan informasi tampaknya menjadi pilihan terbaik. Dan bagaimanapun juga pria itu, sangat mungkin dia bereksperimen dengan lebih banyak hal dari itu." (Ciel)
+
+Tidak ada yang akan dimulai jika kami tidak bergerak. Kami belum punya rencana apa pun sejak kami tiba di Central, jadi ada baiknya kami menemukan sesuatu untuk dilakukan.
+
+Aku tidak punya rencana untuk menginjakkan kaki di Estoque lagi, tetapi mereka mungkin telah melarikan diri ke negara lain. Dan itu tidak seperti kami tidak akan menjadi dewa jika kami tidak dapat menemukan lebih banyak dari mereka.
+
+"Dengan keputusan itu, Aku akan menjadikan Ain sebagai guling hari ini, Aku akan melakukannya!" (Ciel)
 
 Saat rencana masa depan kami diputuskan, atau mungkin karena dia mendapatkan informasi yang dia inginkan, Ciel terlihat sangat puas saat dia mendorongku ke bawah.
 
 🎵🎵🎵
 
 Di tempat tidur, kami saling berhadapan dengan tangan saling berpegangan.
-Pada awalnya, Ciel sangat ingin memiliki Aku sebagai bantal peluknya tetapi setelah dia benar-benar mencobanya, dia tampaknya menyadari bahwa tubuh manusia tidak cocok untuk menjadi bantal peluk dan setelah berbagai percobaan.
-Sepertinya bagi Ciel, fakta bahwa dia tidak bisa melihat wajahku ketika dia memelukku memberi penilaian negatif pada bantal pelukan.
+
+Pada awalnya, Ciel sangat ingin memilikiku sebagai gulingnya tetapi setelah dia benar-benar mencobanya, dia tampaknya menyadari bahwa tubuh manusia tidak cocok untuk menjadi guling.
+
+Sepertinya bagi Ciel, fakta bahwa dia tidak bisa melihat wajahku ketika dia memelukku memberi penilaian negatif pada guling.
 
 Sejak kami menetap di posisi ini, kami belum bertukar kata atau melakukan sesuatu yang khusus.
+
 Melalui rasa tangan kami yang bersatu dan wajah yang kami lihat di depan kami, kami hanya memastikan keberadaan satu sama lain.
-Tatapan kami terjalin dan, saat kami terpikat oleh mata satu sama lain, kami berdua terkikik.
+
+Tatapan kami terhubung dan, saat kami terpikat oleh mata satu sama lain, kami berdua terkikik.
 
 Hanya dari sini, untuk beberapa alasan, Aku merasa sangat puas.
 
 Entah sudah berapa lama, mata Ciel berangsur-angsur mulai mengantuk.
+
 Jumlah kedipannya meningkat dan aku yakin dia akan tertidur kapan saja sekarang.
+
 Meski begitu, mengetahui bahwa dia mencoba yang terbaik untuk tetap terjaga dan bersamaku bahkan hanya satu detik lebih lama, itu menghangatkan hatiku.
+
 Betapa manisnya, betapa menggemaskannya.
 
-Katakan, Ain?」
-Ya, ada apa?」
+"hei, Ain?" (Ciel)
+
+"Ya, ada apa?" (Ain)
 
 Aku mendengar suara Ciel, yang memiliki nada agak mengantuk.
 
-Maukah kamu bernyanyi untukku? Aku ingin mendengar lagu-lagu Ain sambil merasakan kehadiran kamu sekarang.」
-Bisakah Aku duduk? Sulit untuk bernyanyi sambil berbaring.
-Maukah kamu memegang tanganku?」
-Tentu saja.
+"Maukah kamu bernyanyi untukku? Aku ingin mendengar lagu-lagu Ain sambil merasakan kehadiranmu sekarang." (Ciel)
 
-Mengatakan demikian, aku duduk dan duduk di tepi tempat tidur.
-Kemudian, aku meraih tangan kiri Ciel dengan tangan kananku dan meletakkan tangan kiriku yang bebas di bahunya.
+"Bisakah Aku duduk? Sulit untuk bernyanyi sambil berbaring." (Ain)
+
+"Maukah kamu memegang tanganku?" (Ciel)
+
+"Tentu saja." (Ain)
+
+Mengatakan demikian, aku bangkit dan duduk di tepi tempat tidur.
+
+Kemudian, aku meraih tangan kiri Ciel dengan tangan kananku dan meletakkan tangan kiriku di bahunya.
 
 Menutup mata, Aku mulai bernyanyi.
 
 Sambil mengingat hari yang seperti mimpi ini. Untuk hari ini ketika Aku bisa menyentuh Ciel secara fisik, Aku mencoba membuatnya sedikit lebih spesial untuknya.
+
 Aku menyanyikan beberapa lagu pengantar tidur yang telah Aku nyanyikan berkali-kali sebelumnya, satu per satu, dengan hati-hati dan ekstensif.
 
 Dengan lembut, penuh kasih sayang, sambil memastikan itu sampai ke telinga Ciel.
+
 Untuk menidurkannya, aku mengetuk tangan kiriku secara berirama.
 
 Perlahan-lahan, pegangan Ciel mengendur.
+
 Dan napasnya mulai mengikuti siklus yang konsisten.
 
 Ketika Ciel benar-benar tertidur, Aku berhenti bernyanyi.
+
 Cahaya bulan menyinari wajahnya yang tertidur.
 
-Wajahnya yang familier ini menggemaskan seperti peri namun pada saat yang sama, memiliki kecantikan tersembunyi seperti dewi.
+Wajahnya menggemaskan seperti peri namun pada saat yang sama, memiliki kecantikan tersembunyi seperti dewi.
+
 Saat aku meletakkan telapak tanganku di pipinya, dia tersenyum bahagia saat tertidur.
+
 Ekspresi polos yang biasanya tidak ditunjukkan Ciel ini sangat menyembuhkanku.
 
-Sambil membelai rambut putih saljunya, aku berbisik: Selamat malam, Cielmer.
+Sambil membelai rambut putih saljunya, aku berbisik, "Selamat malam, Cielmer."
+
+--------------------------------------------------------
+
+Hewrooo ~!
+
+Kali ini, Setelah beberapa gula, akhirnya ainciel kita memutuskan untuk apa yang akan dilakukan selanjutnya... akhirnya mereka akan berhadapan dengan duke rispelgia... walau mungkin ainciel kita tidak mau berhadapan, mungkin saja dewa nanti akan meminta mereka atau Fiiyanamia yang meminta mereka untuk melawan duke rispelgia atau buatannya... berhubung ainciel mungkin akan menerima permintaan Fiiyanamia juga... saya sangat berterima kasih karena Fiiyanamia sangat mendukung mereka akan waktu-waktu mereka sampai detik terakhir tanpa menghambat mereka... terima kasih, fii...
+
+dan... jujur saja, ketika saya menerjemahkan beberapa baris terakhir, ketika ciel meminta ain bernyanyi sampai ciel tidur, dengan detailnya setiap apa yang terjadi, dari mata ciel yg mulai mengantuk, sampai tangan ciel melonggar, tersenyum ketika pipi disentuh, jujur saya sangat sedih... kenapa ? karena besoknya mereka tidak seperti ini lagi, ain akan didalam diri ciel lagi... rasanya, seperti, mimpi... mimpi yang indah yang tidak ingin hilang... dimana ingin mimpi itu terjadi setiap hari... saya pernah memimpikan hal serupa... sungguh wholesome.. sungguh wholesome (*nangis)...
+
+penulis sangat pandah membuat hati saya tersentuh walau dengan kemanisan di awal, serius di tengah, dan wholesome di akhir... arrggghhhhhhhh SUDAHLAH !!!
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
