@@ -46,35 +46,35 @@ Sementara pikiran itu terlintas di benakku, sungguh memprihatinkan mendengar sua
 
 Mengingat betapa menyenangkannya Aku ketika Fii dan Aku berbicara tentang Ain, Aku sangat ingin membaginya dengan Ain sehingga Aku tidak bisa menahan diri untuk tidak berbicara. Tapi tiba-tiba, Ain memblokir kata-kataku dengan nada kasar.
 
-Ini pertama kalinya aku melihat Ain seperti ini. Ini mengejutkan Aku.
-Tapi Aku kira ini adalah "kecemburuan", kalau begitu? Ain sangat menyayangiku, dia terpengaruh karena aku rukun dengan Fii, kan?
+Ini pertama kalinya aku melihat Ain seperti ini. Ini mengejutkanku.
 
-Berpikir begitu, mau tak mau aku melihat Ain benar-benar menggemaskan.
+Tapi mungkin ini adalah "kecemburuan"? kalau begitu, Ain sangat menyayangiku, dia terpengaruh karena aku akrab dengan Fii, kan?
+
+Berpikir begitu, aku melihat Ain benar-benar menggemaskan.
+
 Ain sangat berharga.
 
-Fufufu, begitu. Aku melihat. Lalu, apa yang dikatakan Fii itu benar, mungkin?」
-Umm, Ciel?』
+"Fufufu, begitu. begitu ya... kalau begitu, apa yang dikatakan Fii itu benar, mungkin?" (Ciel)
+
+[Umm, Ciel?] (Ain)
 
 Mau tak mau aku mengatakannya dengan keras, tapi nada bingung yang Ain jawab juga menggemaskan!
 
 Aku tidak bisa menahan diri untuk tidak tersenyum.
+
 Ain sedang menderita sekarang, jadi aku tidak seharusnya menikmati situasi ini sendirian.
 
-Fii memberitahuku, kamu mengerti? Bahwa jika aku rukun dengan Fii, Ain mungkin akan marah.
-Aku mengatakan kepadanya bahwa Ain tidak akan marah karena itu tetapi dia mengatakan bahwa Ain akan cemburu karena Aku penting bagi Kamu.
-Kecemburuan bukanlah emosi yang baik jadi maafkan aku, Ain, tapi aku sangat senang kau cemburu. Bagaimanapun, itu adalah bukti bahwa aku sangat penting bagi Ain.
-Tetap saja, karena sangat senang tentang ini, aku mungkin menjadi gadis yang buruk.」
-Aku...... awalnya laki-laki, kamu tahu?』
-Aku selalu punya firasat.
-Jadi, bagaimana dengan itu?」
-Jadi, apa ……』
+"Fii memberitahuku, Bahwa jika aku akrab dengan Fii, Ain mungkin akan marah. Aku mengatakan kepadanya bahwa Ain tidak akan marah karena itu tetapi dia mengatakan bahwa Ain akan cemburu karena Aku penting bagimu. Kecemburuan bukanlah emosi yang baik jadi maafkan aku, Ain, tapi aku sangat senang kau cemburu. itu adalah bukti bahwa aku sangat penting bagi Ain. Tetap saja, karena sangat senang tentang ini, aku mungkin menjadi gadis yang buruk." (Ciel)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+[Aku...... awalnya laki-laki, kamu tahu?] (Ain)
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"Aku selalu punya firasat untuk itu. terus apa?" (Ciel)
 
-Untuk memulainya, aku tidak terlalu peduli apakah Ain laki-laki atau perempuan dan aku sudah punya firasat bahwa Ain mungkin laki-laki, jadi "Aku mengerti." adalah satu-satunya hal yang terlintas dalam pikiran.
-Namun, karena Ain adalah laki-laki, lalu apakah Ain tinggi? Aku tidak bisa membayangkan Ain begitu tinggi dengan suaranya yang indah. Aku sedikit penasaran tentangnya.
+[Terus, apa ......] (Ciel)
+
+pada dasarnya, aku tidak terlalu peduli apakah Ain laki-laki atau perempuan dan aku sudah punya firasat bahwa Ain mungkin laki-laki, jadi "Aku mengerti." adalah satu-satunya hal yang terlintas dalam pikiranku.
+
+tapi, karena Ain adalah laki-laki, lalu apakah Ain tinggi? Aku tidak bisa membayangkan Ain begitu tinggi dengan suaranya yang indah. Aku sedikit penasaran tentangnya.
 
 Tapi ya, itu benar. Ain telah berakting sebagai wanita sepanjang waktu.
 Karena dia sepertinya berpikir bahwa aku takut pada pria.
