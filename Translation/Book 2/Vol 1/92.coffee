@@ -1,31 +1,40 @@
 CHAPTER 92: AINSEL AND LIESSYL
 
-Memisahkan tangan Ciel dari tanganku sambil memastikan untuk tidak membangunkannya, aku dengan lembut meletakkannya di atas dadanya.
-aku berpikir bahwa mungkin agak dingin malam ini, tetapi kemudian aku ingat bahwa itu seharusnya tidak menjadi masalah dengan penghalang.
-aku hanya memiliki waktu yang singkat dalam formulir ini tetapi ada seseorang yang harus aku ajak bicara sebelum aku kehilangan tubuh aku ini.
+aku Memisahkan tangan Ciel dari tanganku sambil memastikan untuk tidak membangunkannya dan aku dengan lembut meletakkannya di atas dadanya.
+
+aku berpikir bahwa malam ini mungkin agak dingin, tetapi kemudian aku ingat bahwa itu seharusnya tidak menjadi masalah dengan barrier.
+
+aku hanya memiliki waktu yang singkat kali ini tetapi ada seseorang yang harus aku ajak bicara sebelum aku kehilangan tubuhku ini.
 
 Berbicara sambil berada di samping Ciel yang sedang tidur bukanlah langkah yang baik, jadi kurasa aku akan pergi ke balkon untuk saat ini.
 
 Berpikir demikian, aku keluar dari kamar dan melihat Mohsasan tepat di luar pintu.
 
-Apakah ada masalah?」
-Tidak, aku hanya menunggumu, Ainsel-sama.
+"Apakah ada masalah?" (Ain)
+
+"Tidak, aku hanya menunggumu, Ainsel-sama." (Mohsasan)
 
 Saat aku bertanya demikian, dia dengan sopan menundukkan kepalanya.
-Apa yang dia maksud dengan "menungguku"? Mohsasan-mengatakan bahwa dia bertugas membantu aku, jadi aku kira itu terkait dengan itu?
-Tetap saja, tidak ada jaminan bahwa aku akan pergi keluar saat ini. Sebaliknya, bukankah normal untuk berasumsi bahwa aku akan tidur bersama Ciel?
+
+Apa yang dia maksud dengan "menungguku"? Mohsasan mengatakan bahwa dia bertugas membantuku, jadi terkait dengan itu?
+
+Tetap saja, tidak ada jaminan bahwa aku akan pergi keluar saat ini. Sebaliknya, bukankah normal untuk berasumsi bahwa aku tidur bersama Ciel?
 
 Atau begitulah menurutku, tapi ada satu individu yang setidaknya bisa membaca gerakanku.
 
-Apakah itu Fiiyanamia-sama ?」
-Ya. aku diberitahu bahwa kamu kemungkinan akan pergi ke luar malam ini.」
-aku ingin pergi ke balkon, tetapi apakah tidak apa-apa?」
-Tentu saja. Persiapan akan dilakukan setelah kami tiba.
+"Apakah itu Fiiyanamia-sama ?" (Ain)
 
-Apa yang kamu maksud dengan "persiapan"? Atau jadi aku bertanya-tanya, tetapi aku memutuskan untuk menyerahkan ini padanya.
+"Ya. aku diberitahu bahwa kamu kemungkinan akan pergi ke luar malam ini." (Mohsasan)
+
+"aku ingin pergi ke balkon, tetapi apakah tidak apa-apa?" (Ain)
+
+"Tentu saja. Persiapan akan dilakukan setelah kami tiba." (Mohsasan)
+
+Apa yang kamu maksud dengan "persiapan"? aku ingin bertanya tetapi aku memutuskan untuk menyerahkan ini padanya.
+
 Lagipula, aku tidak terbiasa memerintah orang.
 
-◇.
+🎵🎵🎵
 
 Memperlakukan pelayan—pelayan—seperti mereka tidak ada dan hanya berbicara tampaknya menjadi aturan tak terucapkan di antara para bangsawan.
 Dengan kata lain, mereka sama dengan tangan panggung di bioskop.
