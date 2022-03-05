@@ -9,34 +9,40 @@ Itu sebabnya tidak dapat dihindari bahwa Aku akhirnya bergumam, "Apakah kamu mas
 [Umm, selamat pagi, Ciel.] (Ain)
 
 Baru saja aku akan menghela nafas, aku mendengar sebuah suara.
-Sebuah suara yang Aku dengar setiap hari dalam hidup Aku, suara orang yang Aku cintai.
 
-Ain! Itu kamu ya, Ain? Selamat pagi, Ain.
+Sebuah suara yang Aku dengar setiap hari dalam hidupku, suara orang yang Aku cintai.
+
+"Ain! Itu kamu kan, Ain? Selamat pagi, Ain." (Ciel)
 
 Seolah kesuraman yang aku rasakan sebelumnya hanyalah kebohongan, kebahagiaan meluap.
-Mau tak mau aku menyebut nama Ain lagi dan lagi.
 
-Fii mengatakannya setelah semua. Saat Ain kembali, aku harus menunjukkan padanya bahwa aku baik-baik saja.
+aku menyebut nama Ain lagi dan lagi.
+
+Fii benar. Saat Ain kembali, aku harus menunjukkan padanya bahwa aku baik-baik saja.
+
 Itu sebabnya aku akan menjadi ceria semampuku, agar Ain tidak mengkhawatirkanku.
 
 Dan yang terpenting, Ain kembali, jadi tidak mungkin aku tidak merasa ceria!
 
-Umm, Ciel. Apakah kamu baik-baik saja?
+[Umm, Ciel. Apakah kamu baik-baik saja?] (Ain)
 
 Suara Ain terdengar agak suram, jadi aku menahan emosiku yang meluap sedikit.
 
-"Ya ya. Aku sedikit depresi tapi aku baik-baik saja.
-Soalnya, Fii mengajariku banyak hal.」 Begitu ya
-…… Lagipula, kamu sepertinya sangat bersenang-senang.』
-Oh, jadi kamu tahu, Ain? Apakah Kamu melihat kami?
+"Ya ya. Aku sedikit depresi tapi aku baik-baik saja. Soalnya, Fii mengajariku banyak hal." (Ciel)
+
+[Begitu ya...... Lagipula, kamu sepertinya sangat bersenang-senang.] (Ain)
+
+"Oh, jadi kamu tahu, Ain? Apakah Kamu melihat kami?" (Ciel)
 
 Jika dia melakukannya, maka akan lebih baik jika dia memanggilku lebih cepat.
+
 Sementara pikiran itu terlintas di benakku, sungguh memprihatinkan mendengar suara Ain begitu tak bernyawa.
 
-Ya, Aku melihat. Sepertinya Kamu benar-benar menikmati diri sendiri.』
-Itu benar, itu benar. Soalnya, Fii adalah-」
-Tentu saja itu akan menyenangkan!
-Daripada makhluk tak dikenal yang samar-samar sepertiku, beberapa mantan pria dari dunia yang berbeda, berbicara dengan seorang wanita yang lahir di dunia ini seperti Fiiyanamia-sama pasti lebih menyenangkan, kan!?』
+[Ya, Aku melihatnya. Sepertinya Kamu benar-benar menikmatinya.] (Ain)
+
+"Itu benar, itu benar. Soalnya, Fii adalah-" (Ciel)
+
+[Tentu saja itu akan menyenangkan! Daripada makhluk tak dikenal yang samar-samar sepertiku, sebagai mantan pria dari dunia yang berbeda, berbicara dengan seorang wanita yang lahir di dunia ini seperti Fiiyanamia-sama pasti lebih menyenangkan, kan!?] (Ain)
 
 Mengingat betapa menyenangkannya Aku ketika Fii dan Aku berbicara tentang Ain, Aku sangat ingin membaginya dengan Ain sehingga Aku tidak bisa menahan diri untuk tidak berbicara. Tapi tiba-tiba, Ain memblokir kata-kataku dengan nada kasar.
 
