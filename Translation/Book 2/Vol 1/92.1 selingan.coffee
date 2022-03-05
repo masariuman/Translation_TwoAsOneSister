@@ -77,55 +77,65 @@ pada dasarnya, aku tidak terlalu peduli apakah Ain laki-laki atau perempuan dan 
 tapi, karena Ain adalah laki-laki, lalu apakah Ain tinggi? Aku tidak bisa membayangkan Ain begitu tinggi dengan suaranya yang indah. Aku sedikit penasaran tentangnya.
 
 Tapi ya, itu benar. Ain telah berakting sebagai wanita sepanjang waktu.
+
 Karena dia sepertinya berpikir bahwa aku takut pada pria.
 
-Ain, Kamu tampaknya telah salah paham sedikit tapi sebenarnya Aku tidak terlalu buruk dengan laki-laki, Kamu tahu?」
-...... Kamu tidak?』
-Aku juga buruk dengan laki-laki tapi Aku buruk dengan orang-orang di umum, Kamu tahu?
-Jika Aku harus membedakan antara orang, pertama-tama Aku akan membaginya menjadi Ain dan orang lain. Ain adalah yang paling penting, Kamu tahu?
+"Ain, Kamu tampaknya telah salah paham sedikit tapi sebenarnya Aku tidak terlalu buruk dengan laki-laki, Kamu tahu?" (Ciel)
 
-Ada beberapa orang yang menurut Aku bisa Aku percaya. Misalnya, Fools' Gathering, Celia, dan Carol.
+[...... Kamu, tidak?] (Ain)
+
+"Aku juga buruk dengan laki-laki tapi Aku buruk dengan orang-orang pada dasarnya, Kamu tahu? Jika Aku harus membedakan antara orang, pertama-tama Aku akan membaginya menjadi Ain dan orang lain. Ain adalah yang paling penting, Kamu tahu?" (Ciel)
+
+Ada beberapa orang yang menurutku bisa kupercaya. Misalnya, Fools Gathering, Celia, dan Carol.
+
 Tetap saja, itu tidak benar-benar mengubah kategori Ain atau orang lain.
 
-Selain itu, meskipun Ain yang lama berbeda, Ain saat ini adalah perempuan, kan? Bagaimanapun, Kamu seorang Song Princess.
-Umm, ya. Sepertinya begitu.』
-Lalu tidak ada masalah, kan?」
-Itu …… kan?』
-Tidak ada masalah, kan?」
-Ya.
+"Selain itu, meskipun Ain yang lama berbeda, Ain saat ini adalah perempuan, kan? Bagaimanapun juga, Kamu seorang Song Princess." (Ciel)
+
+[Umm, ya. Sepertinya begitu.] (Ain)
+
+"jadi tidak ada masalah, kan?" (Ciel)
+
+[Itu ...... saja?] (Ain)
+
+"Tidak ada masalah, kan?" (Ciel)
+
+[Ya.] (Ain)
 
 Selama Ain adalah Ain, maka tidak ada hal lain yang penting.
-Ini adalah sesuatu yang Aku tidak akan pernah membiarkan bahkan Ain menyangkal.
 
-Selama itu Ain di dalam, aku bahkan tidak akan peduli meskipun dia memiliki tubuh Duke Rispelgia.
-…… tidak, sebenarnya aku mungkin akan membenci itu. Ain juga kemungkinan besar akan membencinya.
+Ini adalah sesuatu yang Aku tidak akan pernah membiarkan bahkan Ain menyangkalnya.
 
-Ain tampaknya masih tidak yakin tentang sesuatu, saat dia terus berbicara dengan takut-takut.
+Selama itu Ain, aku bahkan tidak akan peduli meskipun dia memiliki tubuh Duke Rispelgia.
 
-Tetap saja, Aku bukan orang dari dunia ini, Kamu tahu?
-Dan apakah ada masalah dengan itu? Atau lebih tepatnya, Aku juga punya firasat bahwa itulah masalahnya.」
-...... Ini juga?』
-Ada beberapa alasan tetapi bahasa "Cielmer" berasal dari... "Ferentch", bukan?
-Aku belum pernah mendengar negara mana pun dengan bahasa seperti itu.
+...... tidak, sebenarnya aku mungkin akan membenci itu. Ain juga kemungkinan besar akan membencinya.
 
-Ini juga. Aku sudah punya firasat tentang itu, tetapi hanya karena Ain berasal dari dunia yang berbeda, itu tidak mengubah fakta bahwa Aku menyukai Ain.
-Itu sebabnya tidak ada yang perlu dikhawatirkan oleh Ain.
-Bagaimanapun, Aku akan menerima Ain tidak peduli siapa dia.
+Ain tampaknya masih tidak yakin tentang sesuatu karena dia terus berbicara dengan takut-takut.
 
-Itulah sebabnya, Ain. Jangan khawatir. Aku tidak baik tanpamu.
-Tanpa Ain, aku selalu cemas dan gelisah.
-Dan Aku yakin ini tidak akan pernah berubah di masa depan.
+[Tetap saja, Aku bukan orang dari dunia ini, Kamu tahu?] (Ain)
 
-Karena itu, Ain. Tinggal bersamaku selamanya.
-Jika Kamu menghilang, Aku akan mencari Kamu sampai Aku mati, Kamu tahu?
+"Dan apakah ada masalah dengan itu? Atau lebih tepatnya, Aku juga punya firasat tentang itu juga." (Ciel)
+
+[...... Ini juga?] (Ain)
+
+"Ada beberapa alasan tetapi bahasa "Cielmer" berasal dari... "prancis", bukan? Aku belum pernah mendengar negara mana pun dengan bahasa seperti itu." (Ciel)
+
+Aku sudah punya firasat tentang itu, tetapi hanya karena Ain berasal dari dunia yang berbeda, itu tidak mengubah fakta bahwa Aku menyukai Ain.
+
+Itu sebabnya tidak ada yang perlu dikhawatirkan oleh Ain. Bagaimanapun juga, Aku akan menerima Ain tidak peduli siapa dia.
+
+"Itulah sebabnya, Ain. Jangan khawatir. Aku tidak bisa tanpamu. Tanpa Ain, aku selalu cemas dan gelisah. Dan Aku yakin ini tidak akan pernah berubah di masa depan. Karena itu, Ain. Tinggallah bersamaku selamanya. Jika Kamu menghilang, Aku akan mencarimu sampai Aku mati, Kamu tahu?" (Ciel)
 
 Aku yakin, sangat yakin, bahwa Aku akan mencari Ain selamanya.
+
 Bahkan jika Ain tidak menginginkanku, aku akan mencarinya sampai aku menemukannya.
 
-……. Ya. Aku mengerti."
+[...... Ya. Aku mengerti.] (Ain)
 
 Aku mendapat persetujuan Ain, jadi Aku sekarang bisa tenang menyerahkan sisanya kepada Fii.
+
 Aku membunyikan bel yang sudah disiapkan, memberi tahu Fii bahwa persiapannya sudah selesai.
+
 Aku yakin mereka akan membicarakan hal-hal yang Ain tidak ingin aku dengar, jadi aku akan tidur lebih awal.
 
 Mmmm, tetap saja, berbicara secara rahasia dengan Ain, apapun alasannya, membuatku merasa sedikit cemburu.
