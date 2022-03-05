@@ -64,49 +64,58 @@ Ain sudah bisa duduk di kursi.
 
 "Lalu itu berarti bentuk ini akan menjadi seperti apa Ain jika kamu memiliki tubuh manusia?" (Ciel)
 
-Itulah masalahnya.
+[Seperti itulah.] (Ain)
 
 Itu sangat menarik. Sangat, sangat menarik.
-aku selalu berpikir jika mungkin ada cara untuk membuat tubuh untuk Ain tetapi seperti apa dia seharusnya menjadi masalah.
+
+aku selalu berpikir jika mungkin ada cara untuk membuat tubuh untuk Ain tetapi bentuknya menjadi masalah.
+
 aku perlu mendapatkan informasi sebanyak mungkin di sini.
 
-Jadi, seperti apa rupamu Ain? Apa yang kamu lakukan!」
-Aku memiliki penampilan yang mirip denganmu, Ciel. Karena aku menggunakan tubuhmu, sepertinya jiwaku terpengaruh olehnya.
-Tapi palet warna yang aku miliki sama dengan saat aku masih hidup. Rambut dan mata aku hitam, kulit aku...... oranye terang, aku pikir?』
+"Jadi, seperti apa rupamu Ain? Apa yang kamu lakukan!" (Ciel)
+
+[Aku memiliki penampilan yang mirip denganmu, Ciel. Karena aku menggunakan tubuhmu, sepertinya jiwaku terpengaruh olehnya. Tapi warna yang aku miliki sama dengan saat aku masih hidup. Rambut dan mata aku hitam, kulitku...... oranye terang?] (Ain)
 
 Mata dan rambut hitam. Dan warna kulit sedikit lebih gelap.
+
 Ini adalah kombinasi yang belum banyak kulihat sampai sekarang, tapi aku yakin itu akan cocok untuk Ain.
 
-Itu sangat bagus, sangat bagus, aku juga ingin melihatnya!
-Apakah ada cara agar aku bisa melihat seperti apa Ain juga?」
-Begitu….. Apa yang ingin aku bicarakan agak terkait dengan itu juga, jadi mengapa kita tidak langsung ke topik utama.
+"Itu sangat bagus, sangat bagus, aku juga ingin melihatnya! Apakah ada cara agar aku bisa melihat seperti apa Ain juga?" (Ciel)
 
-Tepat sekali. Ini sebenarnya bukan topik utama kami.
+[Begitu...... Apa yang ingin aku bicarakan agak terkait dengan itu juga, jadi mengapa kita tidak langsung ke topik utama.] (Ain)
+
+Benar. Ini sebenarnya bukan topik utama kami.
+
 Untuk saat ini, aku akan tenang dan mendengar apa yang ingin Ain katakan.
 
-(Bab ini disediakan untuk kamu oleh Re:Library)
-
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
-
 Aku mendengarkan dengan pemikiran itu, tapi hal pertama yang Ain bicarakan adalah mengapa dan bagaimana dia bisa berada di sisiku.
-Sungguh menyebalkan bagaimana pria itu terus-menerus berhubungan dengan apa yang terjadi pada kita di masa lalu, tapi aku belajar betapa menakjubkannya Ain, jadi aku puas.
+
+Sungguh menyebalkan bagaimana pria itu terus-menerus berhubungan dengan apa yang terjadi pada kami di masa lalu, tapi aku belajar betapa menakjubkannya Ain, jadi aku puas.
+
 Setelah mendengarkan sebentar, Ain berhenti sejenak sebelum berbicara lagi.
 
 🎵🎵🎵
 
-Bagaimanapun, sepertinya Ain secara bertahap menjadi dewa.
+sepertinya Ain secara bertahap menjadi dewa.
+
 Ain mengatakan bahwa dia mungkin akan menjadi bagian dari dewa dalam 10 tahun, tapi apakah itu berarti dia akan menjadi seperti Fii?
-Dia hanya pergi Mari kita berhenti di situ untuk saat ini. tapi aku tidak terlalu suka bagian Ain ini. aku terus terang berpikir Ain harus lebih tertarik pada dirinya sendiri.
+
+Dia hanya berkata [Mari kita berhenti di situ untuk topik ini.], tapi aku tidak terlalu suka bagian Ain ini. aku terus terang berpikir Ain lebih tertarik pada dirinya sendiri.
+
 aku terus mendengarkan karena aku tidak ingin menyela dan tiba-tiba Ain sangat ragu-ragu tetapi dengan jelas mengatakan ini:
 
-Saat aku menjadi lebih dari dewa, kamu akan ditarik dan menjadi dewa juga.
+[Saat aku menjadi lebih dari dewa, kamu akan ditarik dan menjadi dewa juga.] (Ain)
 
 Saat Ain menjadi lebih dari dewa, aku juga mulai menjadi dewa?
-aku melihat. Itu bisa jadi sulit.
-Tetap saja, itu artinya aku bisa tetap bersama dengan Ain kan?
-Atau akankah aku terpisah dari Ain saat kita menjadi dewa?
 
-Apa yang terjadi ketika aku mulai menjadi lebih seperti dewa?」
+begitu. Itu bisa jadi sulit.
+
+Tetap saja, itu artinya aku bisa tetap bersama dengan Ain kan?
+
+Atau akankah aku terpisah dari Ain saat kami menjadi dewa?
+
+"Apa yang terjadi ketika aku mulai menjadi lebih seperti dewa?" (Ciel)
+
 Mari kita lihat. Pada titik tertentu, kamu akan mulai dapat mendengar suara roh dan kemudian kamu dapat menyentuhnya juga.』
 Itu luar biasa.」
 Kemudian begitu kamu melangkah ke dalam keilahian, kamu akan berhenti menua, lambat laun makanan dan tidur menjadi tidak perlu dan kemudian akan sulit bagi kamu untuk mati.
