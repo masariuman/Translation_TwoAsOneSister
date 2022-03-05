@@ -168,92 +168,112 @@ Meskipun ini adalah reaksi yang ingin aku lihat, kata-kata yang ingin aku dengar
 
 "Ada yang mengganggumu, kan?" (Ciel)
 
-Aku.......Aku tidak ingin berpisah denganmu, Ciel.
-Tapi… aku tidak yakin bisa membuatmu bahagia. Ketika aku berpikir bahwa aku mungkin membuat kamu tidak bahagia setelah menyeret kamu bersama aku, itu membuat aku merasa cemas.
+[Aku.......Aku tidak ingin berpisah denganmu, Ciel... Tapi... aku tidak yakin bisa membuatmu bahagia. Ketika aku berpikir bahwa aku mungkin membuat kamu tidak bahagia setelah menyeret kamu bersamaku, itu membuat aku merasa cemas.] (Ain)
 
 Entah kenapa, ini membuat jantungku berdebar.
+
 Ini pasti pertama kalinya aku mendengar Ain bersikap begitu negatif, tapi mungkin Ain menunjukkan sisi dirinya kepadaku adalah hal yang membuatku bahagia.
+
 Mungkin mendengar Ain mengatakan bahwa dia tidak ingin berpisah denganku membuatku bahagia.
+
 Atau mungkin melihat bahwa Ain sangat memikirkanku itulah yang membuatku merasa bahagia.
 
 Tetap saja, aku tidak bisa begitu saja bahagia sementara Ain begitu cemas di depanku.
+
 Apa yang bisa aku katakan padanya? Bagaimana aku bisa menghiburnya?
 
-(Bab ini disediakan untuk kamu oleh Re:Library)
-
-(Jika kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
-
 Aku yakin Ain memikirkan hal ini sejak dia mendengar ini dari dewa. Tidak ada keraguan bahwa itu menyiksanya.
+
 Tetap saja, fakta ini membuatku merasa senang.
+
 Apakah Ain memikirkan ini untuk membuatku merasa bahagia? Atau apakah pikiran itu hanya membuatnya menderita?
 
 Mungkin juga tidak. Mungkin Ain hanya ingin aku memilih.
-Ain hanya memberi tahu aku apakah keputusan yang menurut aku baik itu benar-benar baik atau tidak.
+
+Ain hanya memberi tahu aku apakah keputusan yang menurutku baik itu benar-benar baik atau tidak.
+
 Ini adalah sesuatu yang membuatku bahagia di masa depan, bukan untuk bahagiaku saat ini.
 
 Tetap saja, itu membuatku merasa bahagia.
 
-aku melihat, aku pikir. Ini cukup.
+aku melihat, aku pikir, Ini cukup.
+
 aku tidak yakin apakah aku dapat mengungkapkannya dengan benar, tetapi aku akan mencoba entah bagaimana.
 
-Kau tahu, Ain. aku suka Ain. aku suka bagaimana Ain tertawa, aku suka bagaimana Ain bernyanyi, dan aku suka ketika kamu menikmati diri sendiri.
-Namun, aku juga suka melihat Ain bingung. aku juga suka melihat Ain malu dan aku juga suka bagaimana kamu marah demi aku.」
-Apakah...... begitu?』
-Tapi kamu tahu, kamu tahu, aku tidak suka melihat Ain sebenarnya bermasalah dan aku tidak mau melihatmu sedih juga, oke?
-Ummm, aku senang Ain berpikir untuk membuatku bahagia, dan itu sudah cukup membuatku bahagia, tapi kurasa apa yang Ain maksud dengan membuatku bahagia itu tidak mungkin.」
-Apa maksudmu?』
+"Kau tahu, Ain. aku suka Ain. aku suka bagaimana Ain tertawa, aku suka bagaimana Ain bernyanyi, dan aku suka ketika kamu menikmati diri sendiri. tapi, aku juga suka melihat Ain bingung. aku juga suka melihat Ain malu dan aku juga suka bagaimana kamu marah demi aku." (Ain)
 
-aku melakukan yang terbaik untuk menjelaskan, tetapi masih terasa terlalu samar bahkan untuk aku.
-Apa yang Ain katakan lagi? Bahwa dia tidak yakin bahwa dia bisa membuatku bahagia, kan?
-Namun, apa kebahagiaan aku?
+[Apakah...... begitu?] (Ain)
+
+"Tapi kamu tahu, kamu tahu, aku tidak suka melihat Ain sebenarnya bermasalah dan aku tidak mau melihatmu sedih juga, oke? Ummm, aku senang Ain berpikir untuk membuatku bahagia, dan itu sudah cukup membuatku bahagia, tapi kurasa apa yang Ain maksud dengan membuatku bahagia itu tidak mungkin." (Ciel)
+
+[Apa maksudmu?] (Ain)
+
+aku melakukan yang terbaik untuk menjelaskan, tetapi masih terasa terlalu samar bahkan untukku.
+
+Apa yang Ain katakan? Bahwa dia tidak yakin bahwa dia bisa membuatku bahagia, kan?
+
+Namun, apa kebahagiaanku?
 
 Hal-hal yang Ain coba lakukan untukku, hal-hal yang telah dia lakukan untukku.
-Ain melindungiku. Ain menjadi perhatian dan berpikir dengan aku dalam pikiran.
+
+Ain melindungiku. Ain menjadi perhatian dan memikirkanku.
+
 Tentu saja ini membuatku senang.
 
 Tetapi melihat Ain bingung, melihatnya bernyanyi, aku pikir bahkan saat-saat ini membuat aku merasa bahagia. Aku merasakan kebahagiaan sendiri.
+
 Bahkan tanpa Ain membuatku bahagia, aku bisa bahagia saat melihat Ain.
+
 Tetap saja, itu tidak berarti mengatakan bahwa hanya dengan melihat Ain melakukan sesuatu akan membuatku bahagia. Aku tidak ingin melihat Ain bersedih. Aku bahkan tidak tahu apa yang akan terjadi padaku jika aku melihat Ain menangis.
 
-Dengan mengingat hal itu, aku tidak benar-benar tahu segalanya tentang kebahagiaan aku sendiri.
+Dengan mengingat hal itu, aku tidak benar-benar tahu segalanya tentang kebahagiaanku sendiri.
+
 Aku sendiri bahkan tidak mengetahuinya, jadi mustahil bagi Ain, seseorang yang bahkan bukan aku, untuk memberiku semua kebahagiaan.
+
 Ain berusaha terlalu keras.
 
 Aku yakin aku telah merasakan jauh lebih banyak kebahagiaan daripada yang Ain pikirkan.
+
 Mereka yang datang dari Ain dan yang aku temukan sendiri.
+
 Itu sebabnya Ain tidak perlu berusaha keras sendiri. Aku ingin Ain menemukan kebahagiaannya sendiri juga.
 
 Aku yakin melihat Ain bahagia akan menjadi hal yang membahagiakan.
 
-Lagipula, aku dan Ain berbeda. Ketika Ain tampak bermasalah, aku senang melihat Ain bingung. kamu belum pernah tahu tentang ini sampai sekarang kan, Ain?
-Selain itu, bahkan aku tidak tahu semua yang akan membuat aku bahagia. aku yakin jika aku melihat sisi lain dari Ain yang tidak pernah aku ketahui sebelumnya, aku akan senang atau sedih.
-Dengan cara yang sama, bahkan aku tidak tahu bagaimana aku bisa menjadi bahagia.
+"aku dan Ain berbeda. Ketika Ain tampak bermasalah, aku senang melihat Ain bingung. kamu belum pernah tahu tentang ini sampai sekarang kan, Ain? Selain itu, bahkan aku tidak tahu semua yang akan membuatku bahagia. aku yakin jika aku melihat sisi lain dari Ain yang tidak pernah aku ketahui sebelumnya, aku akan senang atau sedih. Dengan cara yang sama, bahkan aku tidak tahu bagaimana aku bisa menjadi bahagia. Itu sebabnya, aku pikir aku hanya akan menjadi bahagia dengan sedirinya. Aku yakin kamu juga begitu, kan? Tapi meski begitu, walaupun aku tidak tahu bagaimana aku bisa bahagia, setidaknya aku tahu bahwa aku membutuhkan Ain untuk bahagia." (Ciel)
 
-Itu sebabnya, aku pikir aku hanya akan menjadi bahagia sendiri.
-Aku yakin kamu juga bahagia sendiri, kan?
-Tapi meski begitu, sementara aku tidak tahu bagaimana aku bisa bahagia, setidaknya aku tahu bahwa aku membutuhkan Ain untuk bahagia.
+Bukannya aku tahu segalanya yang bisa membuat aku bahagia, tetapi yang aku tahu adalah bahwa Ain diperlukan untuk kebahagiaanku.
 
-Bukannya aku tahu segalanya yang bisa membuat aku bahagia, tetapi yang aku tahu adalah bahwa Ain diperlukan untuk kebahagiaan aku.
 Jika Ain berpikiran sama, aku yakin kita bisa selalu bahagia.
 
-Bagaimana denganmu Ain? Apakah kebahagiaan kamu membutuhkan aku?
+"Bagaimana denganmu Ain? Apakah kebahagiaanmu membutuhkanku?" (Ciel)
 
 Aku diam menunggu Ain menjawab. Memastikan bahwa apa pun yang dia katakan, aku bisa menjawab dengan tenang.
+
 Setelah beberapa saat, aku mendengar suara Ain.
 
-Memang …… ya.
+[...ya.] (Ain)
 
 Mendengar itu saja, aku senang. aku senang.
+
 aku ingin tetap tenang dan tenang, tetapi aku tidak bisa menahan diri untuk tidak tersenyum.
 
-(Bab ini disediakan untuk kamu oleh Re:Library)
+"kalau begitu, tidak ada masalah. Lagipula, Ain tidak perlu membuatku bahagia. Mulai sekarang sampai selamanya, mari kita bahagia bersama. Jadi Ain, tidak ada lagi pembicaraan tentang menghilang, oke?" (Ciel)
 
-(Katakan tidak pada pencuri konten!)
-
-Dalam hal ini, tidak ada masalah. Lagipula, Ain tidak perlu membuatku bahagia.
-Mulai sekarang sampai selamanya, mari kita bahagia sendiri bersama.
-Jadi Ain, tidak ada lagi pembicaraan tentang menghilang, oke?」
-Mengerti.
+[Baiklah.] (Ain)
 
 Kali ini sepertinya Ain mengerti sepenuhnya.
-Ain menghilang benar-benar, pasti, tidak apa-apa, oke?
+
+Ain menghilang benar-benar, pasti, Tidak diperlukan, oke?
+
+----------------------------------------------------
+
+Hewrooooo~!
+
+tidak banyak yang dapat saya sampaikan
+
+lebih kurangnya mohon dimaafkan...
+
+kali ini kurang lebih dengan chapter sebelumnya hanya saja kita mendapatkan isi pikiran ciel untuk chapter kali ini, yang mana ciel berusaha keras agar tidak salah omong dan memberikan pengertian kepada ain... super sekali..
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
