@@ -143,45 +143,65 @@ Mmmm, tetap saja, berbicara secara rahasia dengan Ain, apapun alasannya, membuat
 🎵🎵🎵
 
 Aku telah bangun. Aku mengangkat tubuhku dan duduk, tapi tidak ada salam dari Ain.
+
 Tiba-tiba mengingat apa yang terjadi beberapa hari yang lalu, Aku mulai merasa takut.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Pagi Ain." (Ciel)
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+Setelah dengan gugup mengatakannya, [Selamat pagi Ciel], ain membalasku seperti biasanya.
 
-Pagi Ain.
-
-Setelah dengan gugup mengatakannya, Selamat pagi Ciel』 Aku menerima balasan normal.
 Itu sangat melegakan dan, untuk beberapa alasan, kejadian normal ini membuatku sangat senang sehingga aku menyapa Ain lagi.
-Mungkin memahami bahwa Aku bahagia, roh-roh terbang ke mana-mana, membuat Aku merasa lebih bahagia.
 
-Kamu tampaknya cukup bahagia.
-Maksudku, bagaimanapun juga, Ain ada di sini. Sampai kemarin, tidak akan ada balasan tidak peduli berapa banyak Aku memberi salam, Kamu tahu?」
-Uhh, itu-…..』
+Mungkin memahami bahwa Aku bahagia, roh-roh terbang ke mana-mana, membuatku merasa lebih bahagia.
+
+[Kamu tampaknya cukup bahagia.] (Ain)
+
+"bagaimanapun juga, Ain ada di sini. Sampai kemarin, tidak akan ada balasan tidak peduli berapa banyak Aku memberi salam, Kamu tahu?" (Ciel)
+
+[Uhh, itu-...] (Ain)
 
 Aku sedikit menggoda Ain.
+
 Tapi karena aku tidak tahan melihatnya terlihat sangat menyesal untuk waktu yang lama, aku menggelengkan kepalaku setelah beberapa saat.
 
-Tapi Kamu tahu, tidak apa-apa. Lagipula, sepertinya kamu merasa lebih baik sekarang, Ain.
+"tidak apa-apa. Lagipula, sepertinya kamu merasa lebih baik sekarang, Ain." (Ciel)
 
 Sepertinya Fii berhasil.
-Ini membuat frustrasi mengetahui bahwa itu tidak mungkin bagi Aku, tetapi Aku hanya harus menelannya untuk saat ini.
-Lagipula, aku akan memastikan untuk menjadi orang yang menyemangati Ain lain kali.
 
-"Terima kasih."
+Ini membuatku frustrasi mengetahui bahwa itu tidak mungkin aku yang melakukannya, tetapi Aku hanya harus menelannya untuk saat ini.
+
+Lagipula, aku akan memastikan untuk menjadi orang yang menyemangati Ain berikutnya.
+
+[Terima kasih.] (Ain)
 
 Ain berterima kasih padaku. Apakah dia tahu bahwa Aku meminta bantuan Fii?
+
 Tetap saja, aku tidak bisa menerima rasa terima kasihnya yang jujur.
 
 Lagipula, aku tidak bisa membuat Ain merasa lebih baik.
-Dan untuk memulainya, akulah yang mendorong Ain sejauh ini.
+
+Dan pada dasarnya, akulah yang mendorong Ain sejauh ini.
 
 Aku belum melakukan apa pun untuk membantu Ain.
+
 Aku selalu hanya mengandalkannya.
 
-"Aku minta maaf. Tidak, terima kasih, Ain.
+"Aku minta maaf. Tidak, terima kasih, Ain." (Ciel)
 
 Aku minta maaf karena begitu menyedihkan, aku bahkan tidak bisa membuat Ain bergantung padaku.
+
 Aku minta maaf karena menutup mata, Aku seharusnya sudah memperhatikan bahwa Ain mengalami kesulitan sejak lama.
+
 Terima kasih telah melindungiku sampai sekarang. Terima kasih untuk semua yang telah kamu lakukan untukku sampai sekarang.
+
 Dan terima kasih telah datang ke sini di sisiku, Ainsel.
+
+--------------------------------------------
+
+Hewrooo
+
+kali ini kita berada di sisi ciel... dan akhirnya kita bisa mengetahui apa yang dipikirkan ciel... saya suka dengan penulis yang memberikan 2 sisi pandang dengan chapter berbeda, yang mana memang kita memiliki 1 karakter utama ada cerita novel ini...
+
+kali ini kita megetahui kalau dedek ciel kita sudah mulai dewasa.. yang mana demi ain, dia rela meminta bantuan Fiiyanamia, walau dirinya berat dan ingin dialah yang bisa membantu ain... dimana dedek ciel kita sadar kalau ain belum bisa bergantung padanya, dan merasa bersalah dan meminta maaf, serta sadar kalau sampai sekarang ain telah melindunginya, disisinya, dan mulai berfikir apa yang dirasakan ain... semakin lama, semakin dewasa lah dedek ciel kita... dia bahkan menerima kalau celia, carol, dan character lainnya dari cerita sebelumnya bisa dipercaya setelah ain... rasanya seperti melihat anak yang sudah dewasa ya...
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
