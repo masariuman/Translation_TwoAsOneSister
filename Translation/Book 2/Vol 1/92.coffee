@@ -274,3 +274,10 @@ Sebagai ucapan terima kasih, "Terima kasih banyak. Ini sangat enak dan menghanga
 
 Hewrooooo~!
 
+kali ini kita melihat chapter dimana ain dengan roh hutan, Lisyl berinteraksi... jadi selama 1 hari percobaan ini, ain menjadi 100% dewa ? pantas saja syarat nya ain tidak boleh keluar dari mansion Fiiyanamia... dan saya kira ain hanya sebatas 30% saja. ternyata langsung 100%...
+
+roh hutan disini, Lisyl sangat amat memperhatikan ainciel kita... dia menciptakan situasi dimana ainciel kita bisa berduaan saja, dan bahkan membantu ain kita bernyanyi... tapi hebat sekali ain kita bisa menebak semua itu perilaku dari Lisyl... dan ain berfikir Lisyl menganggap mereka seperti ibu ? yang mana saya berfikir Lisyl seperti ibu mereka yang selalu memperhatikan mereka ? perasaan saya jadi kompleks setelah mengetahui ini... tapi ya, akhirnya ain kita bisa berbicara dan berterima kasih kepada Lisyl... dan saya juga baru tahu kalau roh bisa minum atau makan makanan manusia walaupun mereka saja sebenarnya tidak dapat menyentuh ainciel sebelumnya... menarik...
+
+memang benar beberapa pekerja yang bekerja di mansion Fiiyanamia merasa terselamatkan, tapi dari sifat Fiiyanamia yang saya ketahui sampai saat ini sepertinya agar mudah mencari pekerja yang tidak mudah bocor... pelayan dan pekerja lainnya merasa berhutang kepada Fiiyanamia jadi mempersempit kemungkinan pengkhianatan, ya mungkin seperti itu... sama seperti yang ain pikirkan....
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
