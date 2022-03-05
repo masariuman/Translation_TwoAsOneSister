@@ -116,27 +116,34 @@ Atau akankah aku terpisah dari Ain saat kami menjadi dewa?
 
 "Apa yang terjadi ketika aku mulai menjadi lebih seperti dewa?" (Ciel)
 
-Mari kita lihat. Pada titik tertentu, kamu akan mulai dapat mendengar suara roh dan kemudian kamu dapat menyentuhnya juga.』
-Itu luar biasa.」
-Kemudian begitu kamu melangkah ke dalam keilahian, kamu akan berhenti menua, lambat laun makanan dan tidur menjadi tidak perlu dan kemudian akan sulit bagi kamu untuk mati.
-Masalahnya adalah itu tidak dapat diubah. Setelah kamu melangkah ke dalam keilahian, kamu tidak dapat kembali menjadi manusia lagi.』
+[Pada titik tertentu, kamu akan mulai dapat mendengar suara roh dan kemudian kamu dapat menyentuhnya juga.] (Ain)
 
-Sepertinya kita tidak akan berpisah.
-Tidak membutuhkan makanan dan tidur tampaknya cukup nyaman dan dapat berinteraksi dengan roh akan sangat menyenangkan. Tetap saja, apakah bagian di mana aku berhenti menjadi manusia fana mengganggu Ain?
-Selama aku bersama dengan Ain, aku tidak terlalu peduli tentang menjadi fana atau tidak.
+"Itu luar biasa." (Ciel)
 
-Agar kamu tidak menjadi dewa, aku harus menghilang-......』
-Kalau begitu tidak perlu memikirkannya. Ain menghilang adalah tidak langsung.
+[Kemudian begitu kamu melangkah semakin dalam ke bagian dewa, kamu akan berhenti menua, lambat laun makanan dan tidur menjadi tidak perlu dan kemudian akan sulit bagimu untuk mati. Masalahnya adalah itu tidak dapat diubah. Setelah kamu melangkah ke dalam alam dewa, kamu tidak dapat kembali menjadi manusia lagi.] (Ain)
+
+Sepertinya kami tidak akan berpisah.
+
+Tidak membutuhkan makanan dan tidur tampaknya cukup nyaman dan dapat berinteraksi dengan roh akan sangat menyenangkan. Tetap saja, apakah bagian di mana aku berhenti menjadi manusia mengganggu Ain?
+
+Selama aku bersama dengan Ain, aku tidak terlalu peduli tentang menjadi manusia atau tidak.
+
+[Agar kamu tidak menjadi dewa, aku harus menghilang-......] (Ain)
+
+"Kalau begitu tidak perlu memikirkannya. Ain menghilang adalah TIDAK." (Ciel)
 
 Mengatakan itu dengan sangat jelas, aku menghentikan Ain untuk mengatakan hal bodoh seperti itu.
 
 Sungguh, apa yang dia katakan? Tidak mungkin aku akan menyetujui Ain menghilang.
+
 Mendengar Ain masih terus membicarakannya, aku merasa sedikit marah.
+
 Tolong pikirkan baik-baik? Bahkan tidak perlu mempertimbangkannya.
 
-Lalu bagaimana denganmu, Ain? Apakah kamu benar-benar berpikir dengan benar? aku mengatakannya, bukan? Jika Ain menghilang, aku akan mencarimu selamanya. Aku akan melakukannya sampai aku mati, oke?
-Jangan bilang bahwa kamu pikir aku berbohong?」
-Tidak, tapi mungkin sudah terlambat untuk memutuskan kapan kamu mulai berpikir bahwa kamu ingin tetap menjadi manusia.』
+"Lalu bagaimana denganmu, Ain? Apakah kamu benar-benar berpikir dengan benar? aku mengatakannya, bukan? Jika Ain menghilang, aku akan mencarimu selamanya. Aku akan melakukannya sampai aku mati, oke? Jangan bilang bahwa kamu pikir aku berbohong?" (Ciel)
+
+[Tidak, tapi mungkin sudah terlambat untuk memutuskan kapan kamu mulai berpikir bahwa kamu ingin tetap menjadi manusia.] (Ain)
+
 Dan itu sama dengan menghilangnya Ain. Jika aku berpikir ingin bersama Ain, itu akan terlambat ketika kamu sudah pergi.
 Selain itu, bahkan jika aku menjadi dewa, aku memiliki Ain, roh dan Fii, kan?
 aku memiliki semua yang aku butuhkan. Apakah kamu mengerti?
