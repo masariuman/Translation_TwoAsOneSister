@@ -36,7 +36,8 @@ Lagipula, aku tidak terbiasa memerintah orang.
 
 🎵🎵🎵
 
-Memperlakukan pelayan—pelayan—seperti mereka tidak ada dan hanya berbicara tampaknya menjadi aturan tak terucapkan di antara para bangsawan.
+Memperlakukan pelayan seperti mereka tidak ada disini dan hanya berbicara tampaknya menjadi aturan tak terucapkan di antara para bangsawan.
+
 Dengan kata lain, mereka sama dengan tangan panggung di bioskop.
 Dan mereka juga telah dilatih untuk sama sekali tidak membicarakan apapun yang mereka dengar.
 Jika mereka melakukannya, mereka diberhentikan. Majikan secara alami memiliki status sosial yang lebih tinggi daripada pelayan yang dipekerjakan, jadi mencari pekerjaan baru setelah diberhentikan tidak akan mudah dengan kemungkinan hambatan. Jika desas-desus tentang apa yang dilakukan pelayan itu menyebar, mereka tidak akan pernah menemukan tempat kerja baru.
