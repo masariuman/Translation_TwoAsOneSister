@@ -194,65 +194,83 @@ Wajahnya memiliki kebahagiaan yang tulus, aku tidak tahu mengapa dia memiliki ek
 
 Mungkin memahami ini, Lisyl-san berbicara untuk lebih banyak konteks.
 
-aku berpikir bahwa, sementara Ainsel membenci dunia akan menyedihkan, mau bagaimana lagi~.
-kamu sudah cukup menderita untuk merasa seperti itu, bukan? Sekarang
-setelah kamu menyebutkannya, itu mungkin masalahnya.
+"aku berpikir bahwa, walaupun Ainsel membenci dunia, mau bagaimana lagi~. kamu sudah cukup menderita untuk merasa seperti itu, bukan?" (Lisyl) 
+
+"Sekarang setelah kamu menyebutkannya, itu mungkin benar." (Ain)
 
 Biasanya, mungkin tidak aneh bagi siapa pun, atau lebih tepatnya siapa pun yang waras, untuk mengutuk dunia saat tinggal di rumah Rispelgia.
+
 Tepat setelah dikirim ke dunia ini, hidupmu menjadi sasaran setiap hari.
-Bahkan aku tidak tahu bagaimana aku akan berakhir jika bukan karena Ciel tempat aku dikirim.
+
+Bahkan aku tidak tahu bagaimana aku akan berakhir jika bukan karena Ciel tempat kudikirim.
 
 aku kira aku akan menjadi seperti mayat, tidak memikirkan apa pun.
-Pertama-tama, aku adalah makhluk yang sudah mati, jadi aku tidak punya niat untuk melibatkan diri aku di dunia ini terlalu banyak.
 
-Namun, mulai sekarang, aku ingin lebih memperhatikan dunia ini.」
-Ya~. aku akan melakukan yang terbaik untuk membuat kamu menyukainya ~.
+Pertama-tama, aku adalah makhluk yang sudah mati, jadi aku tidak punya niat untuk melibatkan diriku di dunia ini terlalu banyak.
 
-Melihat Lisyl-san dengan senyum lebar, aku menyadari sesuatu yang membuat semuanya berbunyi klik.
-Dia adalah roh. Makhluk yang mengatur dunia ini. Dari sudut pandangnya, memilikiku seperti dunia mungkin memiliki arti yang lebih besar jika dibandingkan dengan mereka yang sudah hidup di dunia ini.
-Terlebih lagi, meski hanya sedikit, aku memiliki sebagian dari kekuatan Tuhan Yang Maha Esa. Cukup baginya untuk mengatakan bahwa aku seperti orang tua, jadi aku pikir dia tidak ingin aku membencinya.
+"Namun, mulai sekarang, aku ingin lebih memperhatikan dunia ini." (Ain)
+
+"Ya~. aku akan melakukan yang terbaik untuk membuatmu menyukainya ~." (Lisyl)
+
+Melihat Lisyl-san dengan senyum lebar, aku menyadari sesuatu yang membuat semuanya terhububg.
+
+Dia adalah roh. Makhluk yang mengatur dunia ini. Dari sudut pandangnya, membuatku menyukai dunia ini mungkin memiliki arti yang lebih besar jika dibandingkan dengan mereka yang sudah hidup di dunia ini.
+
+Terlebih lagi, meski hanya sedikit, aku memiliki sebagian dari kekuatan dewa pencipta. Cukup baginya untuk mengatakan bahwa aku seperti orang tua, jadi aku pikir dia tidak ingin aku membencinya.
 
 Adapun orang-orang, di Estoque, aku tidak terlalu bergaul dengan orang-orang Estoque.
-Bagaimanapun, tidak bisa meninggalkan Estoque karena keterikatan akan mengalahkan tujuan utama kami.
-Mulai sekarang, menjadi sedikit lebih santai dan bersosialisasi dengan orang lain bisa jadi bagus.
 
-Sementara itu, kurasa kita akan mulai dengan para pelayan di mansion ini.
+Bagaimanapun juga, tidak bisa meninggalkan Estoque karena keterikatan akan mengalahkan tujuan utama kami.
 
-Mohsa-san, kamu bisa masuk.」
-Permisi. Apakah lebih baik aku menyediakan dua cangkir teh?
+Mulai sekarang, ini menjadi sedikit lebih santai dan bersosialisasi dengan orang lain bisa jadi bagus.
+
+Sementara itu, kurasa kami akan mulai dengan para pelayan di mansion ini.
+
+"Mohsa-san, kamu bisa masuk." (Ain)
+
+"Permisi. Apakah lebih baik aku menyediakan dua cangkir teh?" (Mohsa)
 
 Ditanya begitu, aku menatap Lisyl-san dan dia mengangguk.
-Bisakah dia minum teh? Atau begitulah aku bertanya-tanya, tapi karena dia mengangguk, dia mungkin bisa.
 
-Tolong lakukan.
-Kalau begitu tolong beri aku waktu sebentar.
+Bisakah dia minum teh? aku penasaran, tapi karena dia mengangguk, dia mungkin bisa.
+
+"Tolong lakukan itu." (Ain)
+
+"Kalau begitu tolong beri aku waktu sebentar." (Mohsa)
 
 Dengan gerakan yang berpengalaman, Mohsa-san meletakkan dua cangkir di depanku.
+
 Karena dia tidak meletakkannya di sisi lain, bisakah dia melihat Lisyl-san ?
 
-Mohsa-san, bisakah kamu melihat roh?」
-Tidak, aku hanya bisa merasakan kehadiran mereka.
-Roh-sama di atas pangkuanmu tampaknya sangat kuat.
-aku tidak bisa melihatnya, tetapi aku jelas merasakan kehadirannya.
+"Mohsa-san, bisakah kamu melihat roh?" (Ain)
 
-Bagaimanapun, sepertinya dia tidak berpikir bahwa aku adalah orang aneh yang hanya berbicara dengan udara kosong di tengah malam.
-Padahal, Fiiyanamia-sama mungkin terkadang berbicara dengan roh juga, jadi sepertinya aku tidak akan terlihat seperti itu.
+"Tidak, aku hanya bisa merasakan kehadiran mereka. Roh-sama yang berada di atas pangkuanmu tampaknya sangat kuat. aku tidak bisa melihatnya, tetapi aku jelas merasakan kehadirannya." (Mosa)
 
-(Bab ini disediakan untuk kamu oleh Re:Library)
+sepertinya dia tidak berpikir bahwa aku adalah orang aneh yang hanya berbicara dengan udara kosong di tengah malam.
 
-(Katakan tidak pada pencuri konten!)
+Fiiyanamia-sama mungkin terkadang berbicara dengan roh juga, jadi sepertinya aku tidak akan terlihat seperti itu.
 
-Lisyl-san, bisakah kamu minum?」
-Jangan khawatir tentang itu~.」
+"Lisyl-san, bisakah kamu minum?" (Ain)
+
+"Jangan khawatir tentang itu~." (Lisyl)
 
 Cangkirnya jelas tidak cocok dengan ukurannya, jadi aku bertanya-tanya bagaimana dia akan meminumnya, tetapi dia membuat cangkirnya melayang di udara dan dengan terampil meminumnya.
-aku merasa aku harus bisa melakukannya jika aku mau, tetapi sepertinya itu membutuhkan manipulasi kekuatan sihir yang agak rumit atau lingkaran sihir yang cukup rumit.
+
+aku merasa aku bisa melakukannya jika aku mau, tetapi sepertinya itu membutuhkan manipulasi energi sihir yang agak rumit atau lingkaran sihir yang cukup rumit.
 
 Menjadi seseorang yang menggunakan sihir sebagai pengganti pengering rambut, aku tidak tahu apakah aku berhak mengatakan ini, tapi itu cara yang bagus untuk menggunakan kekuatannya.
 
 Menatap terlalu lama tidak sopan, jadi aku juga menyesap tehnya.
-Bukan hanya teh hitam biasa, ia memiliki rasa manis seperti madu dan aroma jahe mencapai hidungku.
-Menghembuskan napas setelah tegukan yang entah bagaimana menenangkan ini, aku merasakan kehangatan yang menyenangkan dari inti tubuh aku.
 
-Ini pertimbangan Mohsa-san untuk aku, yang mengenakan pakaian yang terlihat dingin di malam hari.
-Sebagai ucapan terima kasih, Terima kasih banyak. Ini sangat enak dan menghangatkanku.」 Aku memberikan kesanku tentang minuman itu sambil tersenyum.
+Bukan hanya teh hitam biasa, teh ini memiliki rasa manis seperti madu dan aroma jahe mencapai hidungku.
+
+Menghembuskan napas setelah tegukan yang entah bagaimana menenangkan ini, aku merasakan kehangatan yang menyenangkan dari inti tubuhku.
+
+Ini pertimbangan Mohsa-san untukku, yang mengenakan pakaian yang terlihat dingin di malam hari.
+
+Sebagai ucapan terima kasih, "Terima kasih banyak. Ini sangat enak dan menghangatkanku.", Aku memberikan kesanku tentang minuman itu sambil tersenyum.
+
+----------------------------------------------------
+
+Hewrooooo~!
+
