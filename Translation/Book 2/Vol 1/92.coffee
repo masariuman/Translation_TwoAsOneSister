@@ -8,15 +8,15 @@ aku hanya memiliki waktu yang singkat kali ini tetapi ada seseorang yang harus a
 
 Berbicara sambil berada di samping Ciel yang sedang tidur bukanlah langkah yang baik, jadi kurasa aku akan pergi ke balkon untuk saat ini.
 
-Berpikir demikian, aku keluar dari kamar dan melihat Mohsasan tepat di luar pintu.
+Berpikir demikian, aku keluar dari kamar dan melihat Mohsa-san tepat di luar pintu.
 
 "Apakah ada masalah?" (Ain)
 
-"Tidak, aku hanya menunggumu, Ainsel-sama." (Mohsasan)
+"Tidak, aku hanya menunggumu, Ainsel-sama." (Mohsa)
 
 Saat aku bertanya demikian, dia dengan sopan menundukkan kepalanya.
 
-Apa yang dia maksud dengan "menungguku"? Mohsasan mengatakan bahwa dia bertugas membantuku, jadi terkait dengan itu?
+Apa yang dia maksud dengan "menungguku"? Mohsa-san mengatakan bahwa dia bertugas membantuku, jadi terkait dengan itu?
 
 Tetap saja, tidak ada jaminan bahwa aku akan pergi keluar saat ini. Sebaliknya, bukankah normal untuk berasumsi bahwa aku tidur bersama Ciel?
 
@@ -24,11 +24,11 @@ Atau begitulah menurutku, tapi ada satu individu yang setidaknya bisa membaca ge
 
 "Apakah itu Fiiyanamia-sama ?" (Ain)
 
-"Ya. aku diberitahu bahwa kamu kemungkinan akan pergi ke luar malam ini." (Mohsasan)
+"Ya. aku diberitahu bahwa kamu kemungkinan akan pergi ke luar malam ini." (Mohsa)
 
 "aku ingin pergi ke balkon, tetapi apakah tidak apa-apa?" (Ain)
 
-"Tentu saja. Persiapan akan dilakukan setelah kami tiba." (Mohsasan)
+"Tentu saja. Persiapan akan dilakukan setelah kami tiba." (Mohsa)
 
 Apa yang kamu maksud dengan "persiapan"? aku ingin bertanya tetapi aku memutuskan untuk menyerahkan ini padanya.
 
@@ -38,28 +38,37 @@ Lagipula, aku tidak terbiasa memerintah orang.
 
 Memperlakukan pelayan seperti mereka tidak ada disini dan hanya berbicara tampaknya menjadi aturan tak terucapkan di antara para bangsawan.
 
-Dengan kata lain, mereka sama dengan tangan panggung di bioskop.
+Dengan kata lain, mereka sama dengan petugas di bioskop.
+
 Dan mereka juga telah dilatih untuk sama sekali tidak membicarakan apapun yang mereka dengar.
+
 Jika mereka melakukannya, mereka diberhentikan. Majikan secara alami memiliki status sosial yang lebih tinggi daripada pelayan yang dipekerjakan, jadi mencari pekerjaan baru setelah diberhentikan tidak akan mudah dengan kemungkinan hambatan. Jika desas-desus tentang apa yang dilakukan pelayan itu menyebar, mereka tidak akan pernah menemukan tempat kerja baru.
 
 Itu sudah cukup buruk, tetapi bahkan ada kemungkinan bahwa keluarga mereka juga akan terancam.
+
 Dipekerjakan oleh seseorang dengan pengaruh yang besar, orang yang telah mengkhianati kepercayaan mereka adalah salah.
+
 Ini mungkin tampak berlebihan di bumi, tetapi sepertinya itu normal di dunia ini.
 
-Padahal, jika boleh jujur, kupikir ini adalah dunia yang tidak berhubungan dengan kita.
+Padahal, jika boleh jujur, kupikir ini adalah dunia yang tidak berhubungan dengan kami.
 
-Mohsa-san, mengapa kamu bekerja sebagai pelayan?」
+"Mohsa-san, mengapa kamu bekerja sebagai pelayan?" (Mohsa)
 
-Makanya aku bertanya karena penasaran.
-aku tidak tahu secara spesifik, tetapi di dunia ini di mana banyak bangsawan dengan status lebih rendah menghadiri mereka yang berstatus lebih tinggi, dipekerjakan oleh Fiiyanamia-sama berarti dia harus berstatus sosial tinggi.
-Paling tidak, dia sepertinya bukan dari keluarga yang harus menundukkan kepala mereka pada beberapa orang asing yang tidak dikenal seperti kita.
+aku bertanya karena penasaran.
 
-Berdasarkan garis keturunan, kami adalah keluarga adipati sehingga semua orang di luar keluarga kerajaan harus memiliki kedudukan yang sama atau lebih rendah, tetapi saat ini kami tidak memiliki status sosial itu. Atau lebih tepatnya, ketika kami dijual, keberadaan kami seharusnya praktis terhapus.
+aku tidak tahu secara spesifik, tetapi di dunia ini di mana banyak bangsawan dengan status lebih rendah menghadiri mereka yang berstatus lebih tinggi, dipekerjakan oleh Fiiyanamia-sama berarti dia berstatus sosial tinggi.
 
-Semua orang yang bekerja di mansion ini diambil oleh Fiiyanamia-sama.」
-Diambil?」
-Beberapa yang dijauhi oleh keluarga bangsawan mereka karena menjadi anak dari istri sebelumnya, beberapa hampir dibuang dari tuduhan palsu, dan beberapa hanya memberikan untuk mengurangi jumlah mulut yang harus diberi makan. Fiiyanamia-sama mempekerjakan orang-orang yang kehilangan tempat karena alasan apa pun.」
-Begitu.
+Paling tidak, dia sepertinya bukan dari keluarga yang harus menundukkan kepala mereka pada beberapa orang asing yang tidak dikenal seperti kami.
+
+Berdasarkan garis keturunan, kami adalah keluarga duke sehingga semua orang di luar keluarga kerajaan memiliki kedudukan yang sama atau lebih rendah, tetapi saat ini kami tidak memiliki status sosial itu. Atau lebih tepatnya, ketika kami dijual, keberadaan kami seharusnya terhapus.
+
+"Semua orang yang bekerja di mansion ini diambil oleh Fiiyanamia-sama." (Mohsa)
+
+"diambil?" (Ain)
+
+"ada yang dijauhi oleh keluarga bangsawan mereka karena menjadi anak dari istri sebelumnya, ada yang hampir dibuang karena tuduhan palsu, dan ada yang diberikan hanya untuk mengurangi jumlah mulut yang harus diberi makan. Fiiyanamia-sama mempekerjakan orang-orang yang kehilangan tempat karena alasan apa pun." (Mohsa)
+
+"Begitu." (Ain)
 
 aku dapat mengatakan bahwa itu tidak benar, tetapi mungkin hanya berdasarkan keinginannya.
 Fiiyanamia-sama baik hati, tapi dia hanya mengarahkan sedikit kebaikannya kepada orang-orang.
@@ -76,7 +85,7 @@ Lagi pula, sementara aku tidak berniat untuk terlalu terlibat, karena kita hidup
 (Silakan kunjungi Re:Library untuk menunjukkan apresiasi kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
 
 Ketika ini terjadi, kami tiba di balkon.
-Meja dan kursi yang digunakan saat kami minum teh masih ada di sana dan saat aku duduk, Mohsasan berkata aku akan menyiapkan tehnya. sebelum berangkat ke suatu tempat.
+Meja dan kursi yang digunakan saat kami minum teh masih ada di sana dan saat aku duduk, Mohsa-san berkata aku akan menyiapkan tehnya. sebelum berangkat ke suatu tempat.
 
 Roh hutan-san. kamu di sana, kan?
 
@@ -195,7 +204,7 @@ Bisakah dia minum teh? Atau begitulah aku bertanya-tanya, tapi karena dia mengan
 Tolong lakukan.
 Kalau begitu tolong beri aku waktu sebentar.
 
-Dengan gerakan yang berpengalaman, Mohsasan meletakkan dua cangkir di depanku.
+Dengan gerakan yang berpengalaman, Mohsa-san meletakkan dua cangkir di depanku.
 Karena dia tidak meletakkannya di sisi lain, bisakah dia melihat Lisyl-san ?
 
 Mohsa-san, bisakah kamu melihat roh?」
@@ -222,5 +231,5 @@ Menatap terlalu lama tidak sopan, jadi aku juga menyesap tehnya.
 Bukan hanya teh hitam biasa, ia memiliki rasa manis seperti madu dan aroma jahe mencapai hidungku.
 Menghembuskan napas setelah tegukan yang entah bagaimana menenangkan ini, aku merasakan kehangatan yang menyenangkan dari inti tubuh aku.
 
-Ini pertimbangan Mohsasan untuk aku, yang mengenakan pakaian yang terlihat dingin di malam hari.
+Ini pertimbangan Mohsa-san untuk aku, yang mengenakan pakaian yang terlihat dingin di malam hari.
 Sebagai ucapan terima kasih, Terima kasih banyak. Ini sangat enak dan menghangatkanku.」 Aku memberikan kesanku tentang minuman itu sambil tersenyum.
