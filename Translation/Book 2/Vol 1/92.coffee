@@ -70,105 +70,128 @@ Berdasarkan garis keturunan, kami adalah keluarga duke sehingga semua orang di l
 
 "Begitu." (Ain)
 
-aku dapat mengatakan bahwa itu tidak benar, tetapi mungkin hanya berdasarkan keinginannya.
+aku bisa mengatakan bahwa itu tidak benar, tetapi mungkin hanya berdasarkan keinginannya saja.
+
 Fiiyanamia-sama baik hati, tapi dia hanya mengarahkan sedikit kebaikannya kepada orang-orang.
-Mungkin juga dia mempekerjakan orang yang tidak punya tempat untuk pergi untuk mengurangi kemungkinan pengkhianatan.
 
-Bagaimanapun, jika ada orang yang diselamatkan dari ini, maka aku pikir itu baik-baik saja.
+Mungkin juga dia mempekerjakan orang yang tidak punya tempat untuk mengurangi kemungkinan pengkhianatan.
 
+Bagaimanapun juga, jika ada orang yang diselamatkan dari ini, maka kupikir itu tidak masalah.
 
 Diterima oleh Fiiyanamia-sama, aku tidak punya niat untuk mencari kesalahan dengan itu, aku ingin mengikuti pendiriannya juga.
-Lagi pula, sementara aku tidak berniat untuk terlalu terlibat, karena kita hidup di dunia ini, memiliki hubungan dengan orang lain sampai batas tertentu akan diperlukan.
 
-(Bab ini disediakan untuk kamu oleh Re:Library)
+Lagi pula, aku tidak berniat untuk terlalu terlibat dan karena kami hidup di dunia ini, memiliki hubungan dengan orang lain sampai batas tertentu akan diperlukan.
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+kami tiba di balkon.
 
-Ketika ini terjadi, kami tiba di balkon.
-Meja dan kursi yang digunakan saat kami minum teh masih ada di sana dan saat aku duduk, Mohsa-san berkata aku akan menyiapkan tehnya. sebelum berangkat ke suatu tempat.
+Meja dan kursi yang digunakan saat kami minum teh masih ada di sana dan saat aku duduk, Mohsa-san berkata "aku akan menyiapkan tehnya." sebelum pergi ke suatu tempat.
 
-Roh hutan-san. kamu di sana, kan?
+"Roh hutan-san. kamu di sana, kan?" (Ain)
 
 Kehadiran mereka adalah alam itu sendiri. Karena itu, mendeteksi mereka hampir tidak mungkin.
-Meskipun demikian, entah bagaimana aku merasa bahwa dia datang bersama aku, jadi aku mencoba memanggilnya.
 
-Y~ naik. Aku disini. Pertama kali berbicara denganmu seperti ini~, Ainsel.
+Meskipun demikian, entah bagaimana aku merasa bahwa dia datang bersamaku, jadi aku mencoba memanggilnya.
 
-Tepat ketika aku mendengar suara lembut yang sedikit lemah, roh hutan tiba-tiba turun di atas meja.
-Begitu, jadi dia bangun saat itu. Berdiri di atas meja, seperti yang diharapkan, dia sekarang lebih tinggi dari kepalaku.
-Di sisi lain, jika dia duduk di kursi, meja akan menutupinya. Apa kesulitan.
+"Y~ yup. Aku disini. ini Pertama kalinya berbicara denganmu seperti ini~, Ainsel." (Roh Hutan)
 
-Senang mendengar dari kamu. Apakah kamu baik-baik saja dengan aku memanggil kamu roh hutan?」
-Mari kita lihat~. Aku memang memiliki nama Liessyl~ tapi aku tidak keberatan jika kamu memanggilku dengan sesuatu yang lebih mudah untuk dikatakan~.
-Bagaimana dengan Lisyl~?」
-Lalu, Lisyl-san. Terima kasih banyak untuk hari ini.
+Tepat ketika aku mendengar suara lembut yang sedikit santai, roh hutan tiba-tiba turun ke atas meja.
 
-Roh hutan, sekarang Lisyl-san, tersenyum lembut sebelum duduk di atas pangkuanku.
+Begitu, jadi dia diatas. Berdiri di atas meja, seperti yang diharapkan, dia sekarang lebih tinggi dari kepalaku.
+
+Di sisi lain, jika dia duduk di kursi, meja akan menutupinya. sungguh repot.
+
+"Senang mendengarmu berkata seperti itu. Apakah kamu tidak masalah apabila kupanggil denganroh hutan?" (Ain)
+
+"hmmm~. Aku memang memiliki nama Liessyl~ tapi aku tidak keberatan jika kamu memanggilku dengan sesuatu yang lebih mudah untuk dikatakan~. Bagaimana dengan Lisyl~?" (Lisyl)
+
+"kalau begitu, Lisyl-san. Terima kasih banyak untuk hari ini." (Ain)
+
+Roh hutan, yang sekarang Lisyl-san, tersenyum lembut sebelum duduk di atas pangkuanku.
+
 Seperti yang diharapkan, dia bisa duduk dengan benar hari ini.
 
-Jadi kamu bisa menyentuhku seperti aku sekarang.」
-Lagipula~, kita juga bisa bicara seperti ini~」
+"Jadi kamu bisa menyentuhku sekarang." (Ain)
 
-aku 100% didewakan selama masa percobaan dewa ini, jadi aku curiga bahwa berbicara dan berhubungan dengannya harus dimungkinkan dan sepertinya aku benar.
-Roh hutan—Lisyl-san — selalu ada untuk kita dan tidak ada yang tahu kapan aku bisa berbicara dengannya lagi, jadi aku ingin mengambil kesempatan ini untuk berbicara dengannya.
+"yaaa~, kita juga bisa bicara seperti ini~" (Lisyl)
 
-Lagu tadi pagi darimu, kan? Lisyl-san.」
-Benar~. Melihat kalian berdua, aku tidak bisa menahan diri.
-Meskipun aku cukup terkejut ketika kamu segera menyalinnya ~.
+aku 100% dalam status dewa selama masa percobaan dewa ini, jadi aku curiga bahwa berbicara dan berhubungan dengannya dimungkinkan dan sepertinya aku benar.
 
-Sementara dia mengatakan dia terkejut, dia tidak benar-benar terdengar terkejut.
+Roh hutan, Lisyl-san, selalu ada untuk kami dan tidak ada yang tahu kapan aku bisa berbicara dengannya lagi, jadi aku ingin mengambil kesempatan ini untuk berbicara dengannya.
+
+"Lagu tadi pagi darimu, kan? Lisyl-san." (Ain)
+
+"Benar~. Melihat kalian berdua, aku tidak bisa menahan diri. Meskipun aku cukup terkejut ketika kamu segera menyalinnya ~." (Lisyl)
+
+walaupun dia mengatakan dia terkejut, dia tidak benar-benar terdengar terkejut.
+
 Dan bahkan berdasarkan ekspresinya, dia terlihat seperti sedang menikmati dirinya sendiri.
 
-Fakta bahwa kita tidak melihat roh-roh lain hari ini juga yang kamu lakukan, kan?」
-Mengetahui apa yang telah kalian berdua lalui~, itu akan menjadi tidak pengertian~.
-Tetap saja, aku akhirnya menjadi sedikit mengganggu~」
-Lagu itu sangat indah, apakah itu lagu roh?」
-Benar~. Padahal, dengan mengatakan itu, itu hanya lagu yang aku suka yang dibuat dari meniru orang~」
-Tidak ada yang istimewa tentang itu?」
+"Fakta bahwa kami tidak melihat roh-roh lain hari ini juga karena kamu, kan?" (Ain)
 
-Fakta bahwa itu adalah "lagu roh" terdengar seperti itu entah bagaimana luar biasa dalam dirinya sendiri.
+"Mengetahui apa yang telah kalian berdua lalui~, itu akan menjadi tidak pengertian~. Tetap saja, aku akhirnya menjadi sedikit mengganggu~" (Lisyl)
+
+"Lagu itu sangat indah, apakah itu lagu roh?" (Lisyl)
+
+"Benar~. walaupun, dengan mengatakan itu, itu hanyalah lagu yang aku suka yang dibuat dari meniru orang~" (Lisyl)
+
+"Tidak ada yang istimewa tentang itu?" (Ain)
+
+Fakta bahwa itu adalah "lagu roh" terdengar seperti itu entah bagaimana luar biasa.
+
 Melihat Lisyl-san merenung, dengan kepala dimiringkan dan telapak tangannya di pipi, kurasa aku mungkin terlalu memikirkannya.
 
-Ini adalah lagu yang suka dinyanyikan oleh roh, jadi itu bukan sesuatu yang istimewa~ tetapi dalam arti bahwa roh menyanyikannya, itu mungkin membuatnya istimewa~.
-Paling tidak, orang biasanya tidak bisa menyanyikannya~.」
-Lagi pula, mereka tidak bisa mendengar lagu untuk memulainya.」
-Hmm~, bukan itu maksudku~ tapi, yah, tidak perlu dipikirkan itu~.
+"Ini adalah lagu yang suka dinyanyikan oleh roh, jadi itu bukan sesuatu yang istimewa~ tetapi dalam arti bahwa roh menyanyikannya, itu mungkin membuatnya istimewa~. Paling tidak, orang biasanya tidak bisa menyanyikannya~." (Lisyl)
+
+"Lagi pula, pada dasarnya mereka tidak bisa mendengar lagu itu." (Ain)
+
+"Hmm~, bukan itu maksudku~ tapi, yah, tidak perlu dipikirkan itu~." (Lisyl)
 
 aku sangat penasaran. Tetap saja, jika dia tidak mau membicarakannya, mau bagaimana lagi.
+
 aku pikir dia akan memberi tahu kami jika itu berita buruk, jadi aku kira tidak perlu khawatir dalam hal itu.
 
-Di atas pangkuanku, Lisyl-san menengadah ke langit.
-Mengikutinya, aku melihat ke langit dan melihat selimut bintang yang berkelap-kelip.
-Di tengah-tengah ini, dua bulan, perak dan emas, menonjol.
+Di atas pangkuanku, Lisyl-san melihat ke langit.
 
-Sama seperti saat aku melihat langit bersama Ciel sebelumnya. Namun, saat ini, Ciel berada di suatu tempat yang agak jauh.
+Mengikutinya, aku melihat ke langit dan melihat selimut bintang yang berkelap-kelip.
+
+Di tengah-tengahnya, dua bulan, perak dan emas, menonjol.
+
+Sama seperti saat aku melihat langit bersama Ciel sebelumnya. tapi, saat ini, Ciel berada di suatu tempat yang agak jauh.
+
 Ini saja tidak terdengar seperti sesuatu yang istimewa, tapi ini mungkin pertama kalinya aku pergi sejauh ini darinya sejak aku datang ke dunia ini.
+
 Mencapai titik ini membutuhkan waktu lebih dari 10 tahun, tidak berarti waktu yang singkat.
+
 Bahkan jika aku mulai menghitung sejak aku dapat berkomunikasi dengan Ciel, itu masih 5 tahun.
 
-Ainsel, apakah kamu menyukai dunia ini~?」
-
-(Bab ini disediakan untuk kamu oleh Re:Library)
-
-(Jika kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"Ainsel, apakah kamu menyukai dunia ini~?" (Lisyl)
 
 Mendengar dia tiba-tiba berkata begitu, aku tidak tahu bagaimana aku harus menjawabnya.
-Itu bukan hanya hal-hal baik bagi aku ketika aku datang ke dunia ini. Sebaliknya, itu adalah perjuangan sehari-hari.
-aku tidak punya waktu untuk melihat apa yang ada di sekitar aku.
 
-Tetap saja, pada setiap kesempatan penting yang secara sadar aku bisa lihat, pemandangan di dunia ini tidak buruk sama sekali.
+Itu bukan hanya hal-hal baik bagiku ketika aku datang ke dunia ini. Sebaliknya, itu adalah perjuangan sehari-hari.
+
+aku tidak punya waktu untuk melihat apa yang ada di sekitarku.
+
+Tetap saja, pada setiap kesempatan penting yang secara sadar bisa kulihat, pemandangan di dunia ini tidak buruk sama sekali.
+
 Mengapa? Itu karena Ciel ada di sana.
+
 Kalau begitu, apakah aku menyukai dunia ini?
 
 Langit biru yang sudah lama tidak kulihat, langit malam tempat bulan perak dan emas beristirahat, laut biru tempat para arwah bermain-main.
 
-Sejujurnya, aku tidak tahu. aku belum cukup memperhatikan dunia ini untuk mendapatkan jawaban.」
-Begitu ~. Maka itu melegakan~.」
-A…… lega?」 Lega
-rasanya karena kamu tidak membencinya~.
+"Sejujurnya, aku tidak tahu. aku belum cukup memperhatikan dunia ini untuk mendapatkan jawaban itu." (Ain)
+
+"Begitu ~. Maka itu melegakan~." (Lisyl)
+
+"L...... lega? " (Ain)
+
+"Lega rasanya karena kamu tidak membencinya~." (Lisyl)
 
 Lisyl-san memegang tanganku.
+
 Wajahnya memiliki kebahagiaan yang tulus, aku tidak tahu mengapa dia memiliki ekspresi seperti itu.
+
 Mungkin memahami ini, Lisyl-san berbicara untuk lebih banyak konteks.
 
 aku berpikir bahwa, sementara Ainsel membenci dunia akan menyedihkan, mau bagaimana lagi~.
