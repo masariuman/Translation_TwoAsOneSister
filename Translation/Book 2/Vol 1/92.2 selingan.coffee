@@ -144,26 +144,30 @@ Tolong pikirkan baik-baik? Bahkan tidak perlu mempertimbangkannya.
 
 [Tidak, tapi mungkin sudah terlambat untuk memutuskan kapan kamu mulai berpikir bahwa kamu ingin tetap menjadi manusia.] (Ain)
 
-Dan itu sama dengan menghilangnya Ain. Jika aku berpikir ingin bersama Ain, itu akan terlambat ketika kamu sudah pergi.
-Selain itu, bahkan jika aku menjadi dewa, aku memiliki Ain, roh dan Fii, kan?
-aku memiliki semua yang aku butuhkan. Apakah kamu mengerti?
-Ya...... aku mengerti.
+"Dan itu sama dengan menghilangnya Ain. Jika aku berpikir ingin bersama Ain, itu akan terlambat ketika kamu sudah pergi. Selain itu, bahkan jika aku menjadi dewa, aku memiliki Ain, roh dan Fii, kan? aku memiliki semua yang aku butuhkan. Apakah kamu mengerti?" (Ciel)
+
+[Ya...... aku mengerti.] (Ain)
 
 Selama Ain mengerti, semuanya baik-baik saja. Selama dia melakukannya.
+
 Ini mungkin pertama kalinya aku marah pada Ain.
 
 Tetap saja, aku ingin Ain tahu sedikit tentang betapa pentingnya dia bagiku.
 
-Katakan, Ainsel. Ain, apakah kamu mungkin membenciku?」
-Tidak, aku sangat mencintaimu. Jika tidak, aku tidak akan tinggal bersamamu sampai sekarang.
-Aku juga, aku juga sangat mencintaimu, tahu?
-Itu sebabnya, apa pun yang terjadi, aku akan selalu memilih Ain. Apakah itu tidak bagus?」
-Tidak …… tidak.
+"Katakan, Ainsel. Ain, apakah kamu mungkin membenciku?" (Ciel)
+
+[Tidak, aku sangat mencintaimu. Jika tidak, aku tidak akan tinggal bersamamu sampai sekarang.] (Ain)
+
+"Aku juga, aku juga sangat mencintaimu, tahu? Itu sebabnya, apa pun yang terjadi, aku akan selalu memilih Ain. Apakah itu tidak bagus?" (Ciel)
+
+[Tidak ...... tidak.] (Ain)
 
 Memproses kata-kataku, Ain menjawab dengan tidak.
+
 Meskipun ini adalah reaksi yang ingin aku lihat, kata-kata yang ingin aku dengar, Ain masih mengkhawatirkan sesuatu.
 
-Ada yang mengganggumu, kan?」
+"Ada yang mengganggumu, kan?" (Ciel)
+
 Aku.......Aku tidak ingin berpisah denganmu, Ciel.
 Tapi… aku tidak yakin bisa membuatmu bahagia. Ketika aku berpikir bahwa aku mungkin membuat kamu tidak bahagia setelah menyeret kamu bersama aku, itu membuat aku merasa cemas.
 
