@@ -180,7 +180,7 @@ Ah, tapi kalau dipikir-pikir, ada hal lain yang harus kuberitahukan padanya sese
 
 "Apa itu?" (Ciel)
 
-[Dewa Tertinggi berkata bahwa dia akan mengabulkan satu permintaanmu, Ciel. Meskipun itu bukan apapun yg kamu minta, tampaknya.] (Ain)
+[Dewa Tertinggi berkata bahwa dia akan mengabulkan satu permintaanmu, Ciel. Meskipun itu apapun yg kamu minta, tampaknya.] (Ain)
 
 "Dia akan mengabulkan permintaan?" (Ciel)
 

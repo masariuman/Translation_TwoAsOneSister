@@ -1,69 +1,86 @@
 INTERLUDE: THE DAY WISHES CAME TRUE 1 ※CIEL POV
 
-Lalu apakah kita sudah selesai berbicara sekarang?」
+"kalau begitu apakah kita sudah selesai berbicara sekarang?" (Ciel)
 
 Aku tidak tahu berapa banyak hal yang ingin Ain bicarakan tapi dari suaranya, sepertinya dia sudah selesai bicara.
+
 Atau setidaknya, selesai dengan topik ini.
 
-Ada satu hal lagi yang harus Aku bicarakan.
-Apa itu?」
+[Ada satu hal lagi yang harus Aku bicarakan.] (Ain)
+
+"Apa itu?" (Ciel)
 
 Kedengarannya seperti Ain baru mengingatnya sekarang, jadi mungkin tidak terlalu penting.
+
 Jika tidak, mungkinkah kepala Ain telah terisi penuh oleh topik sebelumnya?
 
-Dewa Tertinggi berkata bahwa dia akan mengabulkan satu permintaanmu, Ciel. Meskipun itu bukan apa-apa, tampaknya.』
-Dia akan mengabulkan permintaan?」
-Aku diberitahu bahwa oracle akan diberikan untuk menjawab apakah itu mungkin untuk dikabulkan atau tidak.』
+[Dewa Tertinggi berkata bahwa dia akan mengabulkan satu permintaanmu, Ciel. Meskipun itu apapun yg kamu minta, tampaknya.] (Ain)
 
-Kabulkan keinginan? Bukankah itu luar biasa?
-Ini adalah topik yang sangat penting menurut Aku tapi Aku rasa ini menunjukkan betapa pentingnya topik sebelumnya untuk Ain.
+"Dia akan mengabulkan permintaan?" (Ciel)
+
+[Aku diberitahu bahwa wahyu akan diberikan untuk menjawab apakah itu mungkin untuk dikabulkan atau tidak.] (Ain)
+
+mengabulkan permintaan? Bukankah itu luar biasa?
+
+Ini adalah topik yang sangat penting menurutku tapi Aku rasa ini menunjukkan betapa pentingnya topik sebelumnya untuk Ain.
+
 Jika itu masalahnya, maka aku senang Ain memikirkanku.
 
-Dikabulkan keinginan tentu saja penting tetapi karena apa yang Aku inginkan sudah ditentukan secara praktis, tidak perlu berpikir dua kali.
+Dikabulkannya keinginan tentu saja penting tetapi karena apa yang Aku inginkan sudah ditentukan, tidak perlu berpikir dua kali.
 
-Aku ingin tubuh Ain.
+"Aku ingin tubuh Ain." (Ciel)
 
-Tidak ada yang lain selain ini. Setelah itu, seorang oracle datang dan berkata bahwa Ain hanya dapat memiliki tubuh untuk hari itu, yang sangat disayangkan tetapi mau bagaimana lagi, jadi Aku memutuskan keinginan untuk menjadi itu.
+Tidak ada yang lain selain ini. Setelah itu, wahyu datang dan berkata bahwa Ain hanya dapat memiliki tubuh untuk satu hariu, yang sangat disayangkan tetapi mau bagaimana lagi, jadi Aku menerimanya.
 
-◇.
+🎵🎵🎵
 
-Ini pagi. Aku merasa ada sesuatu yang salah karena suatu alasan, jadi Aku dengan mengantuk membuka mata dan di sana Aku melihat seseorang yang belum pernah Aku lihat sebelumnya.
-Mataku terbuka lebar karena terkejut, tapi anehnya, aku tidak merasakan ketidaknyamanan sama sekali. Selain itu, ada sesuatu yang datang ke pikiran.
+Pagi hari. Aku merasa ada sesuatu yang salah karena suatu alasan, jadi Aku dengan mengantuk membuka mata dan di sana Aku melihat seseorang yang belum pernah Aku lihat sebelumnya.
+
+Mataku terbuka lebar karena terkejut, tapi anehnya, aku tidak merasakan ketidaknyamanan sama sekali. Selain itu, ada sesuatu yang terlintas dipikiranku.
 
 Tetap saja, apakah ini hanya mimpi?
-Aku tidak akan keberatan bahkan jika itu. Lagipula, aku yakin bahwa orang yang terlihat mirip tetapi jauh lebih menggemaskan dariku ini tidak diragukan lagi adalah orang yang berharga bagiku.
-Aku sudah sangat puas melihatnya dalam mimpi, tapi aku akan lebih bahagia jika tidak.
 
-Perasaan "mati" yang membangunkanku adalah sensasi tangannya menyentuh pipiku. Dari tangan itu, kehangatan lembut menyebar ke pipiku. Untuk memastikan apakah ini mimpi atau bukan, aku mencoba menyentuh tangan ini.
+Aku tidak akan keberatan bahkan jika hanya mimpi. Lagipula, aku yakin bahwa orang yang terlihat mirip tetapi jauh lebih menggemaskan dariku ini tidak diragukan lagi adalah orang yang berharga bagiku.
+
+Aku sudah sangat puas melihatnya dalam mimpi, tapi aku akan lebih bahagia jika ini nyata.
+
+Perasaan "aneh" yang membangunkanku adalah sensasi tangannya menyentuh pipiku. Dari tangan itu, kehangatan lembut menyebar ke pipiku. Untuk memastikan apakah ini mimpi atau bukan, aku mencoba menyentuh tangan ini.
+
 Untuk memastikan bahwa dia ada di sana. Untuk menegaskan keberadaannya.
 
 Saat sensasi yang berbeda memastikan bahwa ini bukan mimpi, mau tak mau aku merasa bahagia, membuatku segera memeluknya.
 Hanya dengan ini, Aku benar-benar puas. Ini seperti aku mendapatkan kebahagiaan seumur hidup.
 
-Kamu Ain, kan? Pagi, Ain.
+"Kamu Ain, kan? Pagi, Ain." (Ciel)
 
-Bertanya hanya untuk memastikan, dia kemudian menjawab dengan mengantuk Selamat pagi. Ciel.」
+aku Bertanya hanya untuk memastikan dan dia kemudian menjawab dengan mengantuk, "Selamat pagi. Ciel.".
+
 Suara mengantuk untuk Ain yang biasanya berkepala dingin. Hanya dari ini, Aku hampir tidak bisa menahan diri untuk tidak tersenyum.
 
-Fufufu. _ Sleepy Ain juga terlihat menggemaskan. Bagaimana kalau kita tidur hari ini?」
-Kedengarannya bagus juga. Entah bagaimana itu sangat nyaman, rasanya sangat menyenangkan.」
-Aku tahu aku yang menyarankannya, tapi kita tidak punya banyak waktu hari ini, jadi ayo bangun?」
-Mnn ……」
+"Fufufu. Ain yang mengantuk juga terlihat menggemaskan. Bagaimana kalau kita tidur hari ini?" (Ciel)
+
+"Kedengarannya bagus juga. Entah bagaimana itu benar-benar nyaman, rasanya sangat menyenangkan." (Ain)
+
+"Aku tahu aku yang menyarankannya, tapi kita tidak punya banyak waktu hari ini, jadi ayo bangun!" (Ciel)
+
+"Mnn......" (Ain)
 
 Ain perlahan bangkit ke posisi duduk tetapi tubuhnya tidak berhenti bergoyang dari sisi ke sisi.
+
 Matanya hampir tidak terbuka dan rambut hitamnya sangat menonjolkan kulit putih Ain.
+
 Ain memberitahuku bahwa kulitnya berwarna oranye terang tetapi hanya sedikit lebih gelap dibandingkan denganku dan ada kehangatan darinya yang sangat aku sukai.
 
-Memeluknya tadi juga terasa hangat. Tidak secara fisik, jika terasa hangat di tempat lain.
-Sejujurnya, aku benar-benar ingin memeluknya lebih sering. Aku bahkan ingin tidur memeluknya.
+Memeluknya tadi juga terasa hangat. Tidak secara fisik, tapi terasa hangat di tempat lain.
+
+Sejujurnya, aku benar-benar ingin memeluknya lebih lama. Aku bahkan ingin tidur memeluknya.
+
 Tapi, Ain hanya akan memiliki tubuh untuk hari ini. Jadi, akan sia-sia untuk terus tidur.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
-
 Tetap saja, bermalas-malasan dengan Ain sepanjang hari cukup menggoda.
-Tidak tidak. Sebaliknya, Aku kagum bahwa Aku bahkan berhasil menahan senyum bahagia Ain.
+
+Tidak tidak. Sebaliknya, Aku kagum bahwa Aku bahkan berhasil bertahan melihat senyum bahagia Ain.
+
 Cara Ain terombang-ambing dengan mata tertutup benar-benar menggemaskan, tapi aku ingin dia bangun sekarang.
 
 Ain, Ain. Apakah kamu sudah bangun sekarang?」
@@ -101,7 +118,7 @@ Aku merasa sangat bersemangat sekarang, tetapi tidak terasa intens sama sekali. 
 Saat aku sedang menikmati kebahagiaan, Ain tiba-tiba mendorongku menjauh.
 Aku benar-benar tidak ingin ini berakhir. Aku benar-benar sedih dan tidak puas tetapi setelah melihat wajah Ain, semua perasaan ini mencair.
 
-◇.
+🎵🎵🎵
 
 Bahkan ketika kami pergi untuk sarapan, Aku memastikan untuk tetap dekat dengan Ain.
 Aku berpikir sebentar tentang bagaimana melakukannya dan dengan mempertimbangkan kemudahan bergerak, Aku memutuskan untuk memegang tangannya.
@@ -113,7 +130,7 @@ Hanya bisa berjalan berdampingan dengan Ain sudah cukup bagiku.
 Dan saat sarapan, hanya dengan melihat wajah Ain saat makan, makanannya terasa jauh lebih enak dari biasanya.
 Sepertinya Ain juga sangat baik sebagai bumbu.
 
-◇.
+🎵🎵🎵
 
 Setelah sarapan, aku sedang memikirkan hal-hal yang ingin kulakukan dengan Ain ketika tiba-tiba Untuk saat ini, Ainsel-chan akan membutuhkan beberapa pakaian.」 Fii mengatakan itu.
 Melihat Ain, dia mengenakan pakaian yang sangat berenda untuk beberapa alasan.
@@ -181,7 +198,7 @@ begitu ayo cepat. Ke mana kita harus pergi?
 
 Karena Fii secara wajar mengatakan demikian, aku langsung bertanya kepada Fii apa yang harus dilakukan selanjutnya.
 
-◇.
+🎵🎵🎵
 
 Kami dibawa ke sebuah ruangan dengan banyak sekali pakaian.
 Ada sofa dan meja juga, dan sepertinya kita akan menunggu Ain di sini saat dia berganti pakaian.
