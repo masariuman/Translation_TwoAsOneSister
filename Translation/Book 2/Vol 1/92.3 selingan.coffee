@@ -83,102 +83,134 @@ Tidak tidak. Sebaliknya, Aku kagum bahwa Aku bahkan berhasil bertahan melihat se
 
 Cara Ain terombang-ambing dengan mata tertutup benar-benar menggemaskan, tapi aku ingin dia bangun sekarang.
 
-Ain, Ain. Apakah kamu sudah bangun sekarang?」
-Ya, selamat pagi.
-Selamat pagi, Ain. Uh-huh, kamu menggemaskan, Ain. Adorable.
-Lagipula aku terlihat seperti kamu, kamu yang menggemaskan, Ciel.
+"Ain, Ain. Apakah kamu sudah bangun sekarang?" (Ciel)
 
-Aku senang mendengar Ain menyebutku menggemaskan tapi, saat ini, mengagumi ketampanan Ain lebih penting.
+"Ya, selamat pagi." (Ain)
+
+"Selamat pagi, Ain. Uh-huh, kamu menggemaskan, Ain. Imut." (Ciel)
+
+"yaaah aku terlihat seperti kamu, jadi kamu yang menggemaskan, Ciel." (Ain)
+
+Aku senang mendengar Ain menyebutku menggemaskan tapi, saat ini, mengagumi Ain lebih penting.
+
 Penampilan kami mirip tetapi hanya mengetahui bahwa itu Ain memberikan kesan yang sama sekali berbeda.
-Padahal, itu mungkin juga karena perbedaan warna mata, rambut, dan kulitnya.
 
-"Tidak, tidak sama sekali! Hanya mengetahui bahwa itu Ain membuat Kamu lebih menggemaskan.
-Selain itu, rambut dan mata hitammu adalah hal yang tidak aku miliki.
+itu mungkin juga karena perbedaan warna mata, rambut, dan kulitnya.
+
+"Tidak, tidak sama sekali! Hanya mengetahui bahwa itu Ain membuatmu lebih menggemaskan. Selain itu, rambut dan mata hitammu adalah hal yang tidak aku miliki." (Ciel)
 
 Menatap Ain dari dekat, aku sekali lagi mulai mempertanyakan apakah dia benar-benar ada di depanku.
+
 Aku memeluknya sebelumnya tetapi Aku setengah tertidur saat itu, jadi bisakah Aku memeriksanya lagi?
+
 Bisakah aku merasakan kehangatan itu lagi?
 
 Sejak aku lahir, aku selalu ingin menyentuh Ain.
+
 Terlepas dari semua alasan, aku hanya ingin merasakan Ain.
+
 Akhirnya tak tahan, aku memeluk Ain.
 
 Hangat. Rasanya begitu nyaman.
+
 Memeluknya lebih erat, Ain melingkarkan tangannya di kepalaku.
+
 Ain membelai kepalaku.
+
 Saat Ain melakukannya, berbagai pikiran yang Aku miliki semua mencair dan Aku hanya dipenuhi dengan kebahagiaan.
 
-Aku selalu, selalu berharap bahwa hari ini akan datang dan sekarang akhirnya tiba. Jauh lebih hangat, baik, dan lembut dari yang kubayangkan, aku merasa seperti tenggelam di dalamnya.
+Aku selalu, selalu berharap bahwa hari ini akan datang dan sekarang akhirnya tiba. Jauh lebih hangat, nyaman, dan lembut dari yang kubayangkan, aku merasa seperti tenggelam di dalamnya.
+
 Jantungku berdegup kencang. Sedemikian rupa sehingga Aku bahkan tidak bisa mengerti mengapa.
-Sensasi dari rambut hitam legam Ain yang menggelitikku sangat berharga.
+
+Sensasi dari rambut hitam Ain yang menggelitikku sangat berharga.
+
 Ada banyak hal yang ingin kulakukan jika aku bisa bertemu Ain seperti ini. Aku sangat memikirkannya, tapi setelah dipeluk seperti ini, aku hanya ingin tetap seperti ini sekarang.
 
 Aku merasa sangat bersemangat sekarang, tetapi tidak terasa intens sama sekali. Ini seperti sinar matahari yang lembut di pagi hari, seperti angin sepoi-sepoi yang bertiup di kulitku, momen yang sangat damai.
 
-Saat aku sedang menikmati kebahagiaan, Ain tiba-tiba mendorongku menjauh.
+Saat aku sedang menikmati kebahagiaanku, Ain tiba-tiba mendorongku menjauh.
+
 Aku benar-benar tidak ingin ini berakhir. Aku benar-benar sedih dan tidak puas tetapi setelah melihat wajah Ain, semua perasaan ini mencair.
 
 🎵🎵🎵
 
 Bahkan ketika kami pergi untuk sarapan, Aku memastikan untuk tetap dekat dengan Ain.
-Aku berpikir sebentar tentang bagaimana melakukannya dan dengan mempertimbangkan kemudahan bergerak, Aku memutuskan untuk memegang tangannya.
+
+Aku berpikir sebentar tentang kemudahan bergerak, Aku memutuskan untuk memegang tangannya.
+
 Melakukan itu, jalan-jalan biasa melalui koridor mansion entah bagaimana menjadi sangat menyenangkan.
 
 Sepanjang jalan, Ain sepertinya memikirkan sesuatu, tapi aku tidak keberatan.
+
 Hanya bisa berjalan berdampingan dengan Ain sudah cukup bagiku.
 
 Dan saat sarapan, hanya dengan melihat wajah Ain saat makan, makanannya terasa jauh lebih enak dari biasanya.
-Sepertinya Ain juga sangat baik sebagai bumbu.
+
+Sepertinya Ain juga sangat enak seperti bumbu masakan.
 
 🎵🎵🎵
 
-Setelah sarapan, aku sedang memikirkan hal-hal yang ingin kulakukan dengan Ain ketika tiba-tiba Untuk saat ini, Ainsel-chan akan membutuhkan beberapa pakaian.」 Fii mengatakan itu.
+Setelah sarapan, aku sedang memikirkan hal-hal yang ingin kulakukan dengan Ain dan tiba-tiba, "Untuk saat ini, Ainsel-chan akan membutuhkan beberapa pakaian.", Fii mengatakan itu.
+
 Melihat Ain, dia mengenakan pakaian yang sangat berenda untuk beberapa alasan.
-Warna kuning muda memberikan kesan seperti bunga dan menurut Aku itu menggemaskan.
+
+Warna kuning muda memberikan kesan seperti bunga dan menurutku itu menggemaskan.
 
 Aku tidak ingin pergi ke luar mengenakan ini tetapi seharusnya tidak menjadi masalah di dalam ruangan.
+
 Ini jauh lebih baik daripada kain putih yang selalu Aku pakai dan tidak terasa buruk untuk disentuh juga.
+
 Secara pribadi, Aku suka bagaimana Aku bisa merasakan kehangatan tubuh Ain melewatinya.
 
 Ada banyak hal yang ingin aku lakukan dengan Ain hari ini, tapi saat aku mengeluh dalam pikiranku, percakapan terus berlanjut.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Benar, benar. Dalam hal ini, Aku sudah menyiapkan beberapa, jadi itu tidak masalah. Ciel juga akan terbiasa dengan pakaian yang pantas." (Fii)
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
-
-"Benar, benar. Dalam hal ini, Aku sudah menyiapkan beberapa, jadi itu tidak masalah.
-Ciel juga harus terbiasa dengan pakaian yang pantas.」
-Tidak. Aku memiliki Ain untuk diri Aku sendiri hari ini.
+"Tidak. Aku memiliki Ain untuk diriku sendiri hari ini." (Ciel)
 
 Seharusnya seperti itu.
+
 Bahkan jika itu Fii, aku tidak punya niat untuk memberikan waktu berharga ini.
+
 Tapi Fii tidak menunjukkan tanda-tanda mundur sama sekali, dia menunjukkan senyum licik.
 
-Ya ampun, apakah Kamu benar-benar yakin tentang itu? Hanya untuk hari ini, kamu bisa mendandani Ainsel-chan sesukamu, tahu?」
-Dan bagaimana dengan itu? Ain menggemaskan tidak peduli apa yang dia kenakan.
+"Ya ampun, apakah Kamu benar-benar yakin tentang itu? Hanya untuk hari ini, kamu bisa mendandani Ainsel-chan sesukamu, kau tahu?" (Fii)
+
+"Dan ada apa dengan itu? Ain menggemaskan tidak peduli apa yang dia kenakan." (Ciel)
 
 Jika itu Ain, aku yakin dia akan terlihat menggemaskan bahkan saat mengenakan kain putih itu.
-Aku tidak merasa perlu keluar dari jalan untuk mengganti pakaiannya.
 
-Tentu saja, tentu saja begitu. Ainsel-chan cukup menggemaskan. Tapi, dia akan menjadi lebih menggemaskan saat berdandan, kau tahu?」
-Apakah itu benar?」
+Aku tidak merasa perlu mengganti pakaiannya.
 
-Apakah menjadi lebih menggemaskan daripada dia sekarang? Apakah itu mungkin?
+"Tentu saja, tentu saja begitu. Ainsel-chan cukup menggemaskan. Tapi, tahukah kamu dia akan menjadi lebih menggemaskan saat didandan ?" (Fii)
 
-Aku menatap Fii dengan pemikiran itu, tapi Fii menjawab Ya, tentu saja. dengan penuh percaya diri.
+"Apakah itu benar?" (Ciel)
+
+Apakah menjadi lebih menggemaskan daripada yang sekarang? Apakah itu mungkin?
+
+Aku menatap Fii dengan pemikiran itu, tapi Fii menjawab "Ya, tentu saja." dengan penuh percaya diri.
+
 Segera setelah itu, Fii membuat gerakan dan salah satu pelayan berdiri di belakang Ain.
-Dan kemudian, setelah mengatakan Permisi. dia membantu Ain berdiri dan meletakkan kain hijau muda di atas bahu Ain.
 
-Jika Aku ingat dengan benar, itu pasti mencuri. Ini benar-benar nyaman dan berguna saat menari tetapi itu tidak masalah sekarang.
+Dan kemudian, setelah mengatakan "Permisi." dia membantu Ain berdiri dan meletakkan kain hijau muda di atas bahu Ain.
+
+Jika Aku ingat dengan benar, itu pasti stola. itu benar-benar nyaman dan berguna saat menari tetapi bukan itu masalahnya sekarang.
+
 Hanya dengan sepotong kain, udara di sekitar Ain benar-benar berubah.
 
-Ain hanya menggemaskan dengan gaun kuning sebelumnya tapi sekarang dia terlihat lebih seperti orang dewasa.
-Mungkin karena dia tidak terbiasa, Ain tampaknya sangat sadar tentang stola itu dan itu juga menggemaskan.
+Ain menggemaskan dengan gaun kuning sebelumnya tapi sekarang dia terlihat lebih seperti orang dewasa.
+
+Mungkin karena dia tidak terbiasa, Ain tampaknya sangat memikirkan tentang stola itu dan itu juga menggemaskan.
 
 Ini, ini sebenarnya luar biasa.
+
 Saat ini, aku bisa mengerti apa yang Fii bicarakan.
-Pakaian, bagaimana penampilan mereka sebenarnya tidak sepenting bagaimana mereka mempercantik orang yang memakainya.
+
+Pakaian, bagaimana itu terlihat sebenarnya tidak sepenting bagaimana mereka mempercantik orang yang memakainya.
+
 Saat ini, Ain hanya mengenakan pakaian berwarna terang tapi aku ingin tahu seperti apa dia dengan warna yang lebih gelap?
+
 Bukankah hitam akan terlihat bagus pada Ain dengan rambut dan matanya yang hitam?
 
 "Bagaimana tentang itu?"

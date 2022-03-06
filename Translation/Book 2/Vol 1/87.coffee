@@ -220,7 +220,7 @@ Kebetulan, Aku juga bisa menggunakan sirkuit Ciel dengan bebas. Dan aku curiga C
 
 Pada dasarnya, sirkuit kami digandakan, jadi itu saja yang membuat kondisi kami saat ini menjadi tidak normal.
 
-"Benar, benar. Dalam hal ini, Aku sudah menyiapkan beberapa, jadi itu tidak masalah. Ciel juga harus terbiasa dengan pakaian yang pantas." (Fii)
+"Benar, benar. Dalam hal ini, Aku sudah menyiapkan beberapa, jadi itu tidak masalah. Ciel juga akan terbiasa dengan pakaian yang pantas." (Fii)
 
 "Tidak. Aku memiliki Ain untuk diriku sendiri hari ini." (Ciel)
 
@@ -230,7 +230,7 @@ Mendengar penolakan tak terduga Ciel membuatku gugup tapi Fiiyanamia-sama sepert
 
 "Dan ada apa dengan itu? Ain menggemaskan tidak peduli apa yang dia kenakan." (Ciel)
 
-"Tentu saja, tentu saja begitu. Ainsel-chan cukup menggemaskan. Tapi, tahukah kamu dia akan menjadi lebih menggemaskan saat berdandan ?" (Fii)
+"Tentu saja, tentu saja begitu. Ainsel-chan cukup menggemaskan. Tapi, tahukah kamu dia akan menjadi lebih menggemaskan saat didandan ?" (Fii)
 
 "Apakah itu benar?" (Ciel)
 
