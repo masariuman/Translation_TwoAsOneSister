@@ -305,3 +305,14 @@ Ain berubah sangat berbeda hanya dengan stola di pundaknya. Hanya menunggu Ain m
 
 -------------------------------------------
 
+Hewroooo ~~
+
+kali ini kita lihat dari sisi ciel lagi ~~
+
+tidak banyak yang dapat saya sampaikan, perasaan masih sama dengan sebelumnya...
+
+hanya saja, WOW, akhirnya dedek ciel kita memikirkan penampilannya !!! akhirnya mulai ingin belajar berdandan !!
+
+dan, dengan chapter ini, seperti yang dipikiran ciel, ingin rasanya melihat ilustrasi dari ain!!! aaaaaaiiiiiinnnn !!!!
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
