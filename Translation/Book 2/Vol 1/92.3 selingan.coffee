@@ -213,75 +213,95 @@ Saat ini, Ain hanya mengenakan pakaian berwarna terang tapi aku ingin tahu seper
 
 Bukankah hitam akan terlihat bagus pada Ain dengan rambut dan matanya yang hitam?
 
-"Bagaimana tentang itu?"
+"Bagaimana?" (Fii)
 
-Dengan nada kemenangan, Fii memintaku begitu.
+Dengan nada kemenangan, Fii bertanya begitu.
+
 Ini membuat frustrasi, tetapi Aku tidak bisa mengatakan bahwa dia tidak benar.
 
-Begitu, kan...... Aku bisa mengerti maksud Kamu, Fii.
-Benar? Aku berharap begitu. Dengan mengatakan itu, mengapa kita tidak mencari pakaian untuk Ainsel-chan ?」
-Ya, tentu saja, mari kita lakukan. Tapi hanya untuk setengah hari, oke?
+"Begitu, benar...... aku bisa mengerti maksudmu, Fii." (Ciel)
+
+"benar kan? sudah kuduga. kalau begitu, mengapa kita tidak mencari pakaian untuk Ainsel-chan ?" (Fii)
+
+"Ya, tentu saja, mari kita lakukan. Tapi hanya untuk setengah hari, oke?" (Ciel)
 
 Aku ingin mendandani Ain tetapi Aku ingin bersama Ain lebih dari itu.
-Itu sebabnya hanya setengah hari. Ini, Aku tidak akan mundur. Lagi pula, mendandani Ain berarti dia akan berada agak jauh dariku.
 
-Itu Aku mengerti. Aku tidak punya niat untuk membuang-buang waktu Kamu bersama. Kalau
-begitu ayo cepat. Ke mana kita harus pergi?
+Itu sebabnya hanya setengah har dan Ini akan kupertahankan. Lagi pula, mendandani Ain berarti dia akan berada agak jauh dariku.
 
-Karena Fii secara wajar mengatakan demikian, aku langsung bertanya kepada Fii apa yang harus dilakukan selanjutnya.
+"aku mengerti. Aku tidak punya niat untuk membuang-buang waktu kalian." (Fii)
+
+"Kalau begitu ayo cepat. Ke mana kita harus pergi?" (Ciel)
+
+Karena Fii mengerti, aku langsung bertanya kepada Fii apa yang harus dilakukan selanjutnya.
 
 🎵🎵🎵
 
 Kami dibawa ke sebuah ruangan dengan banyak sekali pakaian.
-Ada sofa dan meja juga, dan sepertinya kita akan menunggu Ain di sini saat dia berganti pakaian.
+
+Ada sofa dan meja juga, dan sepertinya kami akan menunggu Ain di sini saat dia berganti pakaian.
+
 Ada tirai di dalam ruangan dan sepertinya Ain akan berganti pakaian di belakangnya.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Aku tidak tahu apa-apa tentang ini, jadi Aku hanya akan menonton saja kali ini." (Ciel)
 
-(Katakan tidak pada pencuri konten!)
-
-Aku tidak tahu apa-apa tentang ini, jadi Aku hanya akan menonton hari ini.
-Benar, benar. Itu mungkin yang terbaik.
+"Benar, benar. Itu mungkin yang terbaik." (Fii)
 
 Fii mengangguk pada kata-kataku.
+
 Sejujurnya, Aku sendiri sangat ingin memilih pakaian yang sempurna untuk Ain tetapi Aku membayangkan bahwa akan lebih baik untuk menyerahkan pemilihan kepada orang-orang yang telah melihat lebih banyak pakaian daripada yang pernah Aku miliki.
+
 Lagi pula, jika keegoisanku berakhir dengan kegagalan untuk memunculkan pesona Ain, maka ini hanya akan membuang-buang waktu.
 
 Jika Aku tahu ini akan terjadi, Aku seharusnya lebih berpikir untuk memilih pakaian.
-Sebagai laki-laki sebelumnya, Ain sepertinya juga tidak mengenal pakaian wanita.
-Aku akan belajar di sini, jadi Aku bisa menemukan pakaian yang sempurna untuk Ain di masa depan.
 
-Yang mengingatkan Aku, Ciel. Kamu akan berdandan juga, Kamu tahu?」
-Oh, benarkah?
-Mulai sekarang, suatu saat di masa depan, Kamu mungkin memiliki lebih banyak kesempatan untuk mengenakan gaun, Kamu mengerti?
-Jadi akan lebih baik jika Kamu sudah terbiasa dengan itu.
-Selain itu, tidakkah kamu ingin memakai pakaian lucu bersama dengan Ainsel-chan ?」
-Aku tidak terlalu peduli selama Ain itu menggemaskan…… Tetap saja, alangkah baiknya jika Ain menganggapku menggemaskan.」
+Sebagai laki-laki sebelumnya, Ain sepertinya juga tidak mengenal pakaian wanita.
+
+Aku akan belajar mulai sekarang, jadi Aku bisa menemukan pakaian yang sempurna untuk Ain di masa depan.
+
+"oh iya, Ciel, Kamu akan didandan juga" (Fii)
+
+"Oh, benarkah?" (Ciel)
+
+"Mulai sekarang, suatu saat di masa depan, Kamu mungkin memiliki lebih banyak kesempatan untuk mengenakan gaun, mengerti? Jadi akan lebih baik jika Kamu sudah terbiasa dengan itu. Selain itu, tidakkah kamu ingin memakai pakaian menggemaskan bersama dengan Ainsel-chan ?" (Fii)
+
+"Aku tidak terlalu peduli selama Ain itu menggemaskan...... Tetap saja, alangkah baiknya jika Ain menganggapku menggemaskan." (Ciel)
 
 Benar. Sampai sekarang, aku tidak punya waktu untuk mengkhawatirkannya tapi jika aku mulai berdandan, Ain mungkin akan menganggapku menggemaskan juga.
+
 Itu akan sangat bagus.
 
-Tetap saja, karena kita pemburu, aku tidak bisa memakai pakaian berenda sebanyak itu.
+Tetap saja, karena kami hunter, aku tidak bisa memakai pakaian berenda sebanyak itu.
 
-Yang mengingatkan Aku, izinkan Aku memperkenalkan Kamu.
+"izinkan Aku memperkenalkan kepadamu." (Fii)
 
 Walaupun aku berada dalam pikiranku sendiri, Fii berbicara kepadaku.
-Melihat lebih dekat, pelayan yang ada di belakang baru saja datang di depanku.
 
-Dia akan menjaga Kamu selama Kamu tinggal di sini.
-Aku dipanggil Saueluna. Silakan panggil Aku Luna.
+pelayan yang ada di belakang baru saja datang di depanku.
 
-Wanita yang memperkenalkan dirinya saat Saueluna membungkuk padaku tapi aku tidak tahu bagaimana menanggapi ini.
-Apakah Aku memperkenalkan diri Aku dalam situasi ini lagi?
+"Dia akan menjagamu selama Kamu tinggal di sini." (Fii)
 
-Cielmer. Senang bertemu denganmu.」
-Ya, senang bertemu denganmu juga. Cielmer-sama.
+"Aku dipanggil Saueluna. Silakan panggil Aku Luna." (Luna)
 
-Saueluna—Luna hanya mengatakan itu dan dengan cepat kembali ke posisi semula.
-Jika kami memulai percakapan saat itu, Aku benar-benar tidak tahu apa yang harus Aku bicarakan, jadi itu benar-benar menyelamatkan Aku.
-Aku tidak benar-benar berpikir dia akan memulai percakapan untuk memulai.
+Wanita yang memperkenalkan dirinya membungkuk padaku tapi aku tidak tahu bagaimana menanggapi ini.
 
-Ya ampun, sepertinya mereka akan segera selesai.」
-Aku akan melihat Ain segera berdandan, kalau begitu? Aku tidak sabar, Aku tidak sabar!
+Apakah Aku memperkenalkan diriku dalam situasi ini lagi?
 
-Ain berubah sangat berbeda dari stola di pundaknya. Hanya menunggu Ain muncul dari balik tirai membuatku merasa sangat bersemangat.
+"Cielmer. Senang bertemu denganmu." (Ciel)
+
+"Ya, senang bertemu denganmu juga. Cielmer-sama." (Luna)
+
+Saueluna, Luna, hanya mengatakan itu dan dengan cepat kembali ke posisi semula.
+
+Jika kami memulai percakapan saat itu, Aku benar-benar tidak tahu apa yang harus Aku bicarakan, jadi itu benar-benar menyelamatkanku.
+
+Aku tidak benar-benar berpikir dia akan memulai percakapan juga.
+
+"ara-ara~, sepertinya mereka akan segera selesai." (Fii)
+
+"Aku akan melihat Ain yang didandan sebentar lagi? Aku tidak sabar, Aku tidak sabar!" (Ciel)
+
+Ain berubah sangat berbeda hanya dengan stola di pundaknya. Hanya menunggu Ain muncul dari balik tirai membuatku merasa sangat bersemangat.
+
+-------------------------------------------
+
