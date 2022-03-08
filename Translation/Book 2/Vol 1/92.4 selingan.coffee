@@ -179,85 +179,129 @@ Tetap saja, Ain langsung bersemangat, jadi, dengan sangat enggan, aku melepaskan
 🎵🎵🎵
 
 Nah, di situlah masalah muncul.
+
 Karena jarang mendapatkan kesempatan ini, aku dengan ceroboh mengatakan bahwa aku akan memilih pakaian untuk Ain.
+
 Ini, dengan sendirinya, benar-benar mengasyikkan.
+
 Ain memakai pakaian yang Aku pilih untuknya, itu seperti mimpi. Tapi, itu juga merupakan tanggung jawab yang besar.
 
-Di sisi lain, Ain juga mengatakan bahwa dia akan memilihkan pakaian untukku, tapi sejujurnya aku berpikir bahwa aku akan senang tentang apa pun selama Ain memilihkannya untukku. Aku bahkan mungkin akan memakai kain putih itu selama Ain memilihnya.
+Di sisi lain, Ain juga mengatakan bahwa dia akan memilihkan pakaian untukku, tapi sejujurnya aku berpikir bahwa aku akan senang dengan apa pun selama Ain memilihkannya untukku. Aku bahkan mungkin akan memakai kain putih selama Ainlah yang memilihnya.
+
 Tetapi pada saat yang sama, Aku tahu betul bahwa Ain tidak akan melakukan itu.
 
 Dikelilingi oleh banyak pakaian, Aku mengalami kesulitan memilih tetapi kenyataannya, Aku benar-benar ingin memilih semuanya.
+
 Jika Aku harus memilih salah satu di antara ini, maka mungkin beberapa pakaian hijau.
-Stola hijau muda yang diberikan kepada Ain di meja makan. Aku pikir hal seperti itu sangat cocok untuk Ain.
+
+Stola hijau muda yang diberikan kepada Ain di meja makan, membuatku berpikir hal seperti itu sangat cocok untuk Ain.
+
 Bagaimana Aku menggambarkannya, itu adalah sesuatu yang tidak akan terlihat aneh di taman bunga dan juga terlihat santai.
 
 Hmm, gaun kuning kecokelatan dengan salah satu kardigan hijau itu mungkin bagus juga.
 
 Bersama dengan warna hitam Ain, itu akan memberikan perasaan yang menenangkan.
-Aku selalu menemukan Ain menggemaskan, dan Aku mengatakannya dengan lantang, tapi itu hanya satu bagian dari dirinya.
-Bagaimanapun, Ain lebih tua dan lebih dapat diandalkan, hanya bersamanya saja sudah membuat nyaman.
-Dia seperti sinar matahari yang hangat. Berada di dekatnya menyenangkan dan hangat, Kamu tidak pernah ingin pergi.
 
-Ain umumnya terdiri dan, Aku kira berpikiran luas adalah kata?
+Aku selalu menganggap Ain menggemaskan, dan Aku mengatakannya dengan lantang, tapi itu hanya satu bagian dari dirinya.
+
+Bagaimanapun juga, Ain lebih tua dan lebih dapat diandalkan, hanya bersamanya saja sudah membuat nyaman.
+
+Dia seperti sinar matahari yang hangat. Berada di dekatnya menyenangkan dan hangat, rasanya tidak pernah ingin pergi.
+
+Ain biasanya tenang dan, mungkin bisa dibilang pemikir?
+
 Dia jarang menunjukkan emosi yang intens tetapi hanya bersama Ain membuatku merasa lengkap.
 
 Karena itu, Aku pikir warna yang tenang dan lembut akan cocok untuk Ain.
+
 Selain itu, di antara lagu-lagu yang Ain suka nyanyikan, banyak yang memiliki melodi yang menenangkan.
+
 Pakaian biru mungkin terlihat bagus dengan suara nyanyian Ain yang jernih, tetapi Aku benar-benar ingin melihat Ain mengenakan warna yang tenang dan lembut.
 
-Dengan bantuan Luna, aku membawa pakaian yang berhasil aku selesaikan dengan memilih entah bagaimana dan menuju ke tempat Ain.
+Dengan bantuan Luna, aku membawa pakaian yang kupilih entah bagaimana dan menuju ke tempat Ain.
+
 Ain sepertinya sudah selesai memilih juga, jadi kami saling bertukar pakaian yang kami bawa.
 
-Apa yang Ain berikan padaku adalah gaun biru muda tanpa lengan. Ini memiliki banyak ornamen berenda tapi agak mudah untuk dipindahkan. Dan saat aku memutar-mutar dan melihat roknya terbentang dengan indah, aku mengerti bahwa Ain memilih ini dengan mengingatku menari.
-Asesoris yang datang juga tidak menghalangi tarian.
+Apa yang Ain berikan padaku adalah gaun biru muda tanpa lengan. Ini memiliki banyak ornamen berenda tapi agak mudah untuk digerakkan. Dan saat aku berputar-putar dan melihat roknya terbentang dengan indah, aku mengerti bahwa Ain memilih ini dengan mengingatku menari.
+
+Asesorisnya juga tidak menghalangi tarian.
+
 Fakta bahwa Ain memilih ini untukku membuatku cukup bahagia, mengetahui bahwa dia benar-benar memikirkanku ketika memilih ini, aku hanya bisa tersenyum.
 
-Ini sangat cocok untukmu.
-Benar, benar! Ain memilihnya untukku, kau tahu? Ainsel
--sama memahami Cielmer-sama dengan cukup baik.
-Dia benar-benar mengerti. Aku mungkin bisa menari dengan pakaian ini juga.」
-Menari…… kan?」
-Lagipula, aku adalah Putri Dansa.」
+"Itu sangat cocok untukmu." (Luna)
+
+"Benar, benar! Ain memilihnya untukku, kau tahu?" (Ciel)
+
+"Ainsel-sama memahami Cielmer-sama dengan cukup baik." (Luna)
+
+"Dia benar-benar mengerti. Aku mungkin bisa menari dengan pakaian ini juga." (Ciel)
+
+"Menari?" (Luna)
+
+"karena aku adalah Dance Princess." (Ciel)
 
 Mendengar Luna memuji Ain, aku sangat senang sampai tidak bisa menahan diri untuk tidak berbicara.
-Sangat senang, Aku akhirnya mengatakan bahwa Aku seorang Putri Dansa tetapi kita tidak perlu menyembunyikannya lagi, kan?
-Lagipula, ini bukan Estoque dan menurutku orang yang dipekerjakan Fii bukanlah tipe orang yang membicarakan Pekerjaan orang lain.
 
-Ain selesai berganti pakaian juga, dan sekarang dia datang ke sisi kita.
-Seperti yang kupikirkan, Ain menggemaskan tidak peduli apa yang dia kenakan. Aku kira cantik menggambarkan dia lebih baik sekarang?
-Penampilannya yang tenang sangat cocok untuknya menurutku.
-Tapi lebih dari segalanya, fakta bahwa dia mengenakan pakaian yang Aku pilih membuat Aku benar-benar bahagia.
+Sangat senang, Aku akhirnya mengatakan bahwa Aku seorang dance princess tetapi kami tidak perlu menyembunyikannya lagi, kan?
+
+Lagipula, ini bukan Estoque dan menurutku orang yang dipekerjakan Fii bukanlah tipe orang yang membicarakan Job orang lain.
+
+Ain selesai berganti pakaian juga, dan sekarang dia datang ke sisi kami.
+
+Seperti yang kupikirkan, Ain menggemaskan tidak peduli apa yang dia kenakan. sekarang dia terlihat lebih cantik.
+
+Penampilannya yang tenang sangat cocok untuknya.
+
+Tapi lebih dari segalanya, fakta bahwa dia mengenakan pakaian yang kupilih membuatku benar-benar bahagia.
 
 Aku tidak bisa menahan diri untuk tidak berlari ke arahnya dan menyatukan kedua tanganku.
 
-Ain, Ain, Kamu terlihat sangat hebat, sangat hebat!」
-Aku senang pakaian itu tidak terlihat aneh untukmu, Ciel. Lagi pula,
-Ain memilihnya untukku. Aku akan memakai bahkan hanya kain biasa selama Ain memilihnya untukku, kau tahu?」
-Ketika aku memberimu sesuatu yang aneh, jangan merasa berkewajiban untuk memakainya, oke?
+"Ain, Ain, Kamu terlihat sangat Bagus, sangat Bagus!" (Ciel)
+
+"Aku senang pakaian itu tidak terlihat aneh untukmu, Ciel." (Ain)
+
+"Karena Ain memilihnya untukku, Aku akan memakainya bahkan hanya kain biasa selama Ain memilihnya untukku, kau tahu?" (Ciel)
+
+"Ketika aku memberimu sesuatu yang aneh, jangan merasa berkewajiban untuk memakainya, oke?" (Ain)
 
 Ain menunjukkan senyum bermasalah.
-Mungkin bukan niat Ain untuk membuatku berpakaian aneh, jadi jika kebetulan saat itu tiba, aku harus memasukkan apa yang Ain pilih sambil membuat diriku terlihat bagus.
-Mempertimbangkan itu, Aku mungkin perlu berpikir lebih banyak tentang fashion sendiri juga.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Mungkin bukan niat Ain untuk membuatku berpakaian aneh, jadi jika kebetulan saat itu tiba, aku harus mencoba apa yang Ain pilih sambil membuat diriku terlihat bagus.
 
-(Katakan tidak pada pencuri konten!)
+Mempertimbangkan itu, Aku mungkin perlu berpikir lebih banyak tentang fashion juga.
 
-Tetap saja, Ain paling memikirkanku.
-Jadi bahkan jika itu benar-benar terjadi, aku tidak akan sepenuhnya mengabaikannya, kau tahu?」
-Benar, aku juga berpikir dengan hati-hati ketika memilih waktu ini, tapi… bagaimana aku mengatakan ini…… aku tidak percaya diri dengan selera fashionku, Kamu lihat?」
-Begitukah? Aku menyukainya, kau tahu?
-Menurutmu, apakah pakaian ini tidak cocok untukku, Ain?」
-Kamu terlihat hebat memakainya. Kamu terlihat lucu.」
-Kalau begitu, bukankah itu cukup bagus? Kamu tampak hebat juga, Ain. Kamu terlihat cantik."
+"Tetap saja, Ain paling memikirkanku. Jadi bahkan jika itu benar-benar terjadi, aku tidak akan sepenuhnya mengabaikannya, kau tahu?" (Ciel)
+
+"Benar, aku juga berpikir dengan hati-hati ketika memilih kali ini, tapi... aku tidak percaya diri dengan selera fashionku." (Ain)
+
+"Begitukah? Aku menyukainya, kau tahu? Menurutmu, apakah pakaian ini tidak cocok untukku, Ain?" (Ciel)
+
+"Kamu terlihat bagus memakainya. Kamu terlihat imut." (Ain)
+
+"Kalau begitu, bukankah itu cukup bagus? Kamu tampak bagus juga, Ain. Kamu terlihat cantik." (Ciel)
 
 Meskipun aku mengatakan kalimat yang agak kurang ajar itu, aku tidak bisa menyembunyikan senyum setelah dipanggil imut.
+
 Pipiku mungkin kendur.
+
 Tapi aku senang, jadi aku tidak bisa menahannya.
 
-Dipuji oleh Ain membuatku bahagia, bagaimanapun juga.
+Dipuji oleh Ain membuatku bahagia.
 
-Kalau dipikir-pikir, apakah tidak apa-apa untuk tetap memakai ini?」
+"Apakah tidak apa-apa untuk tetap memakai ini?" (Ain)
 
-Memainkannya, Ain bertanya pada pelayan di dekatnya tetapi pipinya sedikit memerah.
+Ain bertanya pada pelayan di dekatnya tetapi pipinya sedikit memerah.
+
 Seperti yang Aku pikirkan, Ain benar-benar menggemaskan!
+
+------------------------------------------
+
+HEWWROOOOOO~~!!
+
+kali ini kita melihat keimutan AINSEL-CHUAAANN !!!! UWOOOORRGGGHHHH AIN IMUT IMUT WANGYY IMUUTT !!!! BAYANGKAN DENGAN SENYUMAN HANGATNYA !!! UWOOORRGGHHHH !!
+
+kali ini kita dapat melihat bahwa ciel sudah mulai berbicara dengan orang selain ain tidak sesulit sebelumnya.... tapi, luna agak mencurigakan... uhh jangan sampai si luna ini yang jadi sumber masalah bocornya informasi kedepannya... apalagi ciel kita keceplosan hanya dengan dipancing omongan tentang ain saja...
+
+yaah tapi untuk kali ini, kita bisa menikmati pertukaran yang manis antara ainciel kita... saling memberikan baju yang dipilih, tentu saja ain akan berpikir serius baju apa yang cocok dipake ciel serta yang cocok digunakan untuk menari... tapi untuk ciel yang memikirkan apa yang cocok dengan kepribadian ain, untuk ciel yang belum terlalu mengetahui tentang fashion, bisa dibilang pilihan yang cukup bagus !!! dan akhirnya ciel kita mulai memikirkan bagaimana berdandan dengan baik, uh dan juga memikirkan untuk berkonsultasi agar dapat berinteraksi dengan orang lain !!! AKHIRNYA !! CHARACTER DEVELOPMENT !! PERKEMBANGAN KARAKTER UNTUK DEDEK CIEL KITA !! YANG MULAI BERANJAK DEWASA !!!!!!
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
