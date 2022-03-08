@@ -56,95 +56,122 @@ Setelah mengagumi Ain, Aku merasa puas dan Ain sekali lagi pergi ke balik tirai 
 
 🎵🎵🎵
 
-Ain dalam gaun hitam juga bagus.
-Bagaimana Aku mengatakannya, dia terlihat keren.
-Dengan mempertimbangkan kehidupan masa lalunya, Aku tidak begitu tahu usia Ain tetapi berdasarkan penampilan, dia harus seusia dengan Aku. Tapi, mengenakan gaun hitam, Ain terlihat sangat dewasa.
+Ain dengan gaun hitam juga bagus.
+
+dia terlihat keren.
+
+Dengan mempertimbangkan kehidupan masa lalunya, Aku tidak begitu tahu usia Ain tetapi berdasarkan penampilan, dia yang seusia denganku, dengan mengenakan gaun hitam, terlihat sangat dewasa.
 
 Kemudian, Aku tiba-tiba penasaran dengan aksesoris yang bukan bagian dari pakaian seperti kalung hitam dan pita dari gaun putih tadi.
-Jadi Aku meminta Ain untuk melepasnya tapi, begitu. Tampaknya agak kesepian sekarang.
-Di sisi lain, sesuatu yang terlalu mencolok akan menarik perhatian terlalu banyak......kupikir.
 
-Bagaimanapun, Ain lebih menarik daripada perhiasan apa pun. Menghadap Ain tidak mungkin.
+Jadi Aku meminta Ain untuk melepasnya, tapi, begitu ya... Tampaknya agak kurang sekarang.
+
+dan juga, sesuatu yang terlalu mencolok akan terlalu menarik perhatian......
+
+Bagaimanapun juga, Ain lebih menarik daripada perhiasan apa pun.
+
 Selain itu, perhiasan yang mencolok mungkin akan terlihat bagus di Ain, tapi menurutku itu tidak seperti Ain.
 
-Juga, aku senang melihat Ain menikmati dandanannya juga.
-Tidak baik jika hanya aku yang bersenang-senang. Tidak ada gunanya kecuali kita berdua bersenang-senang.
-Ada saat-saat ketika Aku adalah satu-satunya yang menikmati situasi saat ini, tetapi Aku mencoba untuk sedikit menahan diri.
+Juga, aku senang melihat Ain menikmati dandanannya.
+
+Tidak baik jika hanya aku yang bersenang-senang. Tidak ada gunanya kecuali kami berdua bersenang-senang.
+
+Ada saat-saat ketika Akulah satu-satunya yang menikmati situasi saat ini, tetapi Aku mencoba untuk sedikit menahan diri.
+
 Itu sebabnya jika Ain terlihat tidak nyaman atau kelelahan setelah beberapa kali berganti pakaian, aku berencana untuk bertanya pada Fii apakah kita bisa berhenti.
 
 Tapi sepertinya tidak perlu khawatir tentang itu.
-Aku ingin tahu apa yang akan dia kenakan selanjutnya. Saat aku mulai bersemangat, Sudah waktunya bagimu untuk bergabung dengan mereka, bukan begitu?」 Fii menanyakan itu padaku.
 
-(Bab ini disediakan untuk Anda oleh Re:Library)
+Aku ingin tahu apa yang akan dia kenakan selanjutnya. Saat aku mulai bersemangat, Fii bertanya "bukankah Sudah waktunya bagimu untuk bergabung dengan mereka?".
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Anda kepada penerjemah dan berhenti mendukung pencuri konten!)
+"Tapi aku ingin melihat baju ganti Ain sekarang." (Ciel)
 
-Tapi aku ingin melihat baju ganti Ain sekarang.
-Aku mengerti, tetapi jika Anda bergabung dengan mereka, Anda akan bersama dengan Ainsel-chan, Anda tahu? 」
+"Aku mengerti, tetapi, tahukah kamu jika Kamu bergabung dengan mereka, Kamu akan bersama dengan Ainsel-chan?" (Fii)
 
 Aku tidak memikirkan itu sama sekali.
-Jika Aku berdandan bersama dengan Ain, kita akan memiliki lebih banyak waktu bersama dan Aku akan dapat melihat Ain berdandan lebih cepat. Dan, mungkin saja, ada kemungkinan Ain akan memanggilku imut.
-Menunggu di sini dengan penuh semangat untuk Ain juga menyenangkan, tetapi kebersamaan dengan Ain benar-benar sulit untuk dilewatkan.
 
-"Dipahami. Apa yang harus Aku lakukan?」
-Cukup pergi ke sana bersama Saueluna dan Anda akan dibantu di sana. Begitu
-.
+Jika Aku berdandan bersama dengan Ain, kami akan memiliki lebih banyak waktu bersama dan Aku akan dapat melihat Ain berdandan lebih cepat. Dan, mungkin saja, ada kemungkinan Ain akan memanggilku imut.
 
-Setelah membalas Fii, Tolong perlakukan Aku dengan baik. Aku kemudian menyapa Luna.
-Luna menjawab Tentu saja. dengan membungkuk, menungguku berdiri, dan memimpin jalan.
-Luna tidak memiliki perasaan yang mirip dengan Carol atau Viviana, tetapi dia lebih seperti Celia atau Fii. Aku memiliki kewaspadaan Aku, tetapi dia tidak merasa tidak enak.
+Menunggu di sini dengan penuh semangat juga menyenangkan, tetapi kebersamaan dengan Ain benar-benar sulit untuk dilewatkan.
 
-Seperti yang Aku pikir, bergaul dengan orang-orang benar-benar sulit.
+"Baiklah. Apa yang harus Aku lakukan?" (Ciel)
+
+"Cukup pergi ke sana bersama Saueluna dan Kamu akan dibantu di sana." (Fii)
+
+"Baiklah..." (Ciel)
+
+Setelah membalas Fii,  Aku kemudian menyapa Luna dengan "Tolong perlakukan Aku dengan baik.".
+
+Luna menjawab "Tentu saja." dengan membungkuk, menungguku berdiri, dan memimpin jalan.
+
+Luna tidak memiliki aura yang mirip dengan Carol atau Viviana, tetapi dia lebih seperti Celia atau Fii. Aku tetap waspada, tetapi dia tidak merasa tidak enak.
+
+Sudah kuduga, bergaul dengan orang-orang benar-benar sulit.
+
 Aku mengerti bahwa tidak semua orang seperti Rispelgia tetapi pasti ada beberapa orang yang seperti dia.
-Aku pikir Aku hanya bisa terbuka pada Fii karena dia merasa berbeda dari orang lain. Jika Aku tidak membawa Ain, kemungkinan besar Aku akan mengunci diri di suatu tempat sendirian.
+
+Aku pikir Aku hanya bisa terbuka pada Fii karena dia terasa berbeda dari orang lain. Jika Aku tidak bersama Ain, kemungkinan besar Aku akan mengunci diri di suatu tempat sendirian.
 
 Mengenai cara berinteraksi dengan orang, Aku akan berkonsultasi dengan Ain dalam waktu dekat.
+
 Tapi tidak sekarang. Lagi pula, menikmati waktu bersama Ain lebih penting sekarang.
 
-Di balik tirai, Ain ada di sana mengenakan pakaian dari sebelumnya.
+Di balik tirai, Ain ada di sana mengenakan pakaian sebelumnya.
+
 Di sekelilingnya ada pelayan seperti Luna, menatap Ain sambil tampak memikirkan sesuatu.
+
 Ain segera menyadari bahwa aku datang dan melambai padaku.
 
 Dari situ saja, Aku sudah merasa senang datang ke sini.
 
-Anda di sini juga, Ciel?」
-Lagipula, aku diberitahu bahwa aku bisa bersama dengan Ain.」
-Begitu. Aku juga senang bisa bersamamu, Ciel.
+"Kamu di sini juga, Ciel?" (Ain)
+
+"iya, aku diberitahu bahwa aku bisa bersama dengan Ain." (Ciel)
+
+"Begitu ya... Aku juga senang bisa bersamamu, Ciel." (Ain)
 
 Mendengar kata-kataku, pipi Ain memerah.
+
 Untuk beberapa alasan, sepertinya dia malu mengatakan itu tapi meski begitu, Ain menatapku langsung dan tersenyum.
+
 Itu sangat berharga, sangat menggemaskan, aku hanya bisa memeluk Ain. Ain benar-benar menggemaskan. Setelah mengatakan itu, Ain menjadi lebih merah tetapi dia juga terlihat sangat bahagia.
 
-Kami tidak bisa terus berpelukan terlalu lama, jadi aku segera melepaskan Ain dan berbaris untuk ganti baju.
+Kami tidak bisa terus berpelukan terlalu lama, jadi aku segera melepaskan Ain dan menunggu untuk ganti baju.
 
-Meminta orang lain mengganti pakaianku terasa agak aneh— tentu saja karena orang selain Ain menyentuhku—tapi karena aku tahu bahwa Ain ada di dekatku, itu sudah cukup untuk meredakan ketidaknyamanan.
-Aku kewalahan oleh bagaimana pelayan menelanjangi Aku dalam sekejap dan mendandani Aku dalam waktu singkat, yang mungkin membantu Aku dari merasa terlalu banyak ketidaknyamanan juga.
+Meminta orang lain mengganti pakaianku terasa agak aneh, tentu saja karena orang selain Ain menyentuhku, tapi karena aku tahu bahwa Ain ada di dekatku, itu sudah cukup untuk meredakan ketidaknyamanan.
 
-Setelah itu selesai, Aku melihat Ain dan Aku tercermin di cermin dan Aku... mengenakan pakaian yang sama dengan Ain.
+Aku kaget oleh bagaimana pelayan menelanjangiku dalam sekejap dan mendandaniku dalam waktu singkat, yang mungkin membantuku meredakan rasa ketidaknyamanan juga.
+
+Setelah itu selesai, Aku melihat Ain dan Aku yang ada dicermin dan Aku... mengenakan pakaian yang sama dengan Ain.
+
 Lebih tepatnya, pakaian dan aksesoris kami memiliki desain yang sama tetapi berbeda warna.
+
 Ain memakai baju putih, sedangkan Aku memakai baju hitam.
-Gaya rambut kami juga mencerminkan satu sama lain. Kami juga memiliki anting-anting, masing-masing hanya satu, lagi-lagi mencerminkan posisi dan warna yang berbeda.
 
-Fakta bahwa kami entah bagaimana mencocokkan pakaian membuatku senang, aku meraih lengan kanan Ain dan menunjuk ke cermin.
+Gaya rambut kami juga mencerminkan satu sama lain. Kami juga memiliki anting-anting, masing-masing hanya satu, dan mencerminkan posisi dan warna yang berbeda.
 
-Kami cocok, cocok!」
-Benar, kami cocok. Selain itu, itu terlihat bagus untukmu, Ciel. Begitukah
-? Anda juga terlihat menggemaskan, Ain.
+Fakta bahwa kami entah bagaimana pakaian kami cocok membuatku senang, aku meraih lengan kanan Ain dan menunjuk ke cermin.
 
-Hanya kami yang memiliki pakaian yang sama sudah memiliki perasaan yang agak khusus untuk itu, tetapi anting-anting tunggal yang kami miliki masing-masing yang terlihat seperti pasangan yang tidak lengkap pada pandangan pertama, entah bagaimana menjadi pasangan yang lengkap ketika Ain dan aku bersama-sama berdampingan.
-Ini seperti menunjukkan bahwa Ain dan aku adalah dua sebagai satu.
+"kita cocok Ain, pakaian kita sangat cocok!" (Ciel)
 
-Entah bagaimana… sulit untuk diungkapkan dengan kata-kata, tapi itu benar-benar luar biasa.
+"Benar, pakaian kita cocok. dan Juga, itu terlihat bagus untukmu, Ciel." (Ain)
 
-Sementara Aku sedang menikmati emosi Aku, Luna berbicara kepada Aku jadi Aku berbicara dengannya.
+"Begitukah ? Kamu juga menggemaskan, Ain." (Ciel)
+
+Hanya dengan kami memiliki pakaian yang sama sudah memiliki perasaan yang agak spesial, tetapi anting-anting tunggal yang kami miliki yang terlihat seperti pasangan yang tidak lengkap, entah bagaimana menjadi pasangan yang lengkap ketika Ain dan aku bersama-sama berdampingan.
+
+Ini seperti menunjukkan bahwa Ain dan aku adalah dua sebagai satu. (TLN : Lihat Judul, Ba-Dum-Tess...)
+
+Entah bagaimana... sulit untuk diungkapkan dengan kata-kata, tapi itu benar-benar luar biasa.
+
+ketika Aku sedang menikmati emosiku, Luna berbicara kepadaku jadi Aku berbicara dengannya.
+
 Kemudian menatap Ain, sepertinya dia menggembungkan pipinya sedikit karena suatu alasan.
+
 Dia terlihat sangat menggemaskan, aku tidak bisa menahan tawa.
 
-(Bab ini disediakan untuk Anda oleh Re:Library)
-
-(Jika Anda membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
-
 Wajah Ain kemudian berubah menjadi cemberut penuh ketidaksenangan, jadi aku dengan lembut menepuk kepalanya.
+
 Rambut hitamnya yang halus terasa sangat enak untuk disentuh, itu membuatku ingin terus melakukannya selamanya.
 
 Tetap saja, Ain langsung bersemangat, jadi, dengan sangat enggan, aku melepaskan kepalanya.
@@ -169,7 +196,7 @@ Hmm, gaun kuning kecokelatan dengan salah satu kardigan hijau itu mungkin bagus 
 Bersama dengan warna hitam Ain, itu akan memberikan perasaan yang menenangkan.
 Aku selalu menemukan Ain menggemaskan, dan Aku mengatakannya dengan lantang, tapi itu hanya satu bagian dari dirinya.
 Bagaimanapun, Ain lebih tua dan lebih dapat diandalkan, hanya bersamanya saja sudah membuat nyaman.
-Dia seperti sinar matahari yang hangat. Berada di dekatnya menyenangkan dan hangat, Anda tidak pernah ingin pergi.
+Dia seperti sinar matahari yang hangat. Berada di dekatnya menyenangkan dan hangat, Kamu tidak pernah ingin pergi.
 
 Ain umumnya terdiri dan, Aku kira berpikiran luas adalah kata?
 Dia jarang menunjukkan emosi yang intens tetapi hanya bersama Ain membuatku merasa lengkap.
@@ -203,7 +230,7 @@ Tapi lebih dari segalanya, fakta bahwa dia mengenakan pakaian yang Aku pilih mem
 
 Aku tidak bisa menahan diri untuk tidak berlari ke arahnya dan menyatukan kedua tanganku.
 
-Ain, Ain, Anda terlihat sangat hebat, sangat hebat!」
+Ain, Ain, Kamu terlihat sangat hebat, sangat hebat!」
 Aku senang pakaian itu tidak terlihat aneh untukmu, Ciel. Lagi pula,
 Ain memilihnya untukku. Aku akan memakai bahkan hanya kain biasa selama Ain memilihnya untukku, kau tahu?」
 Ketika aku memberimu sesuatu yang aneh, jangan merasa berkewajiban untuk memakainya, oke?
@@ -212,17 +239,17 @@ Ain menunjukkan senyum bermasalah.
 Mungkin bukan niat Ain untuk membuatku berpakaian aneh, jadi jika kebetulan saat itu tiba, aku harus memasukkan apa yang Ain pilih sambil membuat diriku terlihat bagus.
 Mempertimbangkan itu, Aku mungkin perlu berpikir lebih banyak tentang fashion sendiri juga.
 
-(Bab ini disediakan untuk Anda oleh Re:Library)
+(Bab ini disediakan untuk Kamu oleh Re:Library)
 
 (Katakan tidak pada pencuri konten!)
 
 Tetap saja, Ain paling memikirkanku.
 Jadi bahkan jika itu benar-benar terjadi, aku tidak akan sepenuhnya mengabaikannya, kau tahu?」
-Benar, aku juga berpikir dengan hati-hati ketika memilih waktu ini, tapi… bagaimana aku mengatakan ini…… aku tidak percaya diri dengan selera fashionku, Anda lihat?」
+Benar, aku juga berpikir dengan hati-hati ketika memilih waktu ini, tapi… bagaimana aku mengatakan ini…… aku tidak percaya diri dengan selera fashionku, Kamu lihat?」
 Begitukah? Aku menyukainya, kau tahu?
 Menurutmu, apakah pakaian ini tidak cocok untukku, Ain?」
-Anda terlihat hebat memakainya. Anda terlihat lucu.」
-Kalau begitu, bukankah itu cukup bagus? Anda tampak hebat juga, Ain. Anda terlihat cantik."
+Kamu terlihat hebat memakainya. Kamu terlihat lucu.」
+Kalau begitu, bukankah itu cukup bagus? Kamu tampak hebat juga, Ain. Kamu terlihat cantik."
 
 Meskipun aku mengatakan kalimat yang agak kurang ajar itu, aku tidak bisa menyembunyikan senyum setelah dipanggil imut.
 Pipiku mungkin kendur.

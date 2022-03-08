@@ -240,7 +240,7 @@ Rambut Fiiyanamia-sama juga putih.
 
 "Bagaimanapun juga, Ain melindungiku." (Ciel)
 
-"Sangar dapat diandalkan." (Martha)
+"Sangat dapat diandalkan." (Martha)
 
 Melihat Ciel berbicara secara normal dengan pelayan itu... cukup mengharukan.
 
