@@ -258,31 +258,46 @@ kami akan mandi bersama, kan ?
 
 Menanyakannya dengan pemikiran itu, Ain terkejut dan berkata "Umm, baiklah. Jika Kamu tidak keberatan, maka Aku akan menemanimu ke kamar mandi.".
 
-Viviana membuat Ain pertama kali bersama dengan seseorang di kamar mandi tetapi dia mengatakan bahwa Aku akan menjadi orang pertama yang mencuci tubuhnya. Aku sangat senang berbagi pengalaman pertama kali dengan Ain.
+Viviana adalah yang pertama mandi dengan ain tetapi dia mengatakan bahwa Aku akan menjadi orang pertama yang menggosok tubuhnya. Aku sangat senang berbagi pengalaman pertama kali dengan Ain.
 
 Setelah Ain mendapat izin Fii, seorang pelayan yang bukan Luna memberi kami pakaian ganti dan handuk saat kami sedang dalam perjalanan ke kamar mandi.
+
 Sepertinya dia ingin membantu kami di kamar mandi tapi Ain menolak dan itu membuatku senang.
+
 Karena itu membuatku berpikir bahwa Ain juga ingin menghargai waktu berduaan denganku juga.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Dia membimbing kami sampai ruang ganti tapi setelah itu, hanya aku dan Ain.
 
-(Katakan tidak pada pencuri konten!)
-
-Dia membimbing kami sampai ruang ganti tapi sejak saat itu, hanya aku dan Ain.
-Aku memiliki banyak kesempatan untuk masuk ke kamar mandi, jadi Aku melepas pakaian Aku tanpa ragu-ragu tetapi untuk beberapa alasan, mata Ain berkedip gelisah.
+Aku memiliki banyak kesempatan untuk masuk ke kamar mandi, jadi Aku melepas pakaianku tanpa ragu-ragu tetapi untuk beberapa alasan, mata Ain berkedip gelisah.
 
 Apakah Ain gugup?
+
 Aku tidak benar-benar berpikir bahwa ada alasan untuk itu?
 
 Tetap saja, Ain yang terlihat gugup memiliki kemanisan yang membuatku ingin menjaga dan melindunginya, jadi aku diam-diam mengamatinya.
-Ain memunggungiku tapi itu membuatnya terlihat sangat rendah hati......Kurasa itulah kata yang tepat.
+
+Ain memunggungiku tapi itu membuatnya terlihat sangat rendah hati...... Kurasa itulah kata yang tepat.
 
 Tubuh Ain memiliki penampilan yang sama denganku.
-Aku tidak pernah memiliki kesempatan untuk mengamati tubuh Aku sendiri secara objektif, jadi mau tidak mau Aku melakukannya.
-Tetap saja, Aku tidak benar-benar tahu bagaimana ukuran tubuh Aku sebagai tubuh wanita.
 
-Jika Aku harus mengatakan sesuatu, Aku kira Aku memiliki kurva yang relatif lebih sedikit daripada Viviana.
+Aku tidak pernah memiliki kesempatan untuk mengamati tubuhku sendiri secara objektif, jadi mau tidak mau Aku melakukannya.
+
+Tetap saja, Aku tidak benar-benar tahu bagaimana ukuran tubuhku sebagai tubuh wanita.
+
+kurasa Aku memiliki lekukan yang relatif lebih sedikit daripada Viviana.
 
 Tiba-tiba, Aku menyadari bahwa Ain melakukan gerakan tersentak-sentak karena malu.
+
 Sedikit rona merah di wajah Ain tidak buruk sama sekali.
-Karena aku gadis nakal, aku menikmati rasa malu Ain sebentar sebelum berkata Jadi beginilah tubuhku terlihat. dan mengakhiri pengamatanku.
+
+Karena aku gadis nakal, aku menikmati rasa malu Ain sebentar sebelum berkata "Jadi beginilah bentuk tubuhku.", dan mengakhiri pengamatanku.
+
+-----------------------------------------------------------------------
+
+Hewroo~!~!!~~!~
+
+tidak ada komentar, hanya sisi ciel, yang sangat imut dan manis. dan kita bisa melihat kemanisan ain juga dari sisi pandang ciel.. dan tentu saja ciel suka mengerjai ain dan melihat reaksi ain... aaaaaaa sungguh manis chapter ini..
+
+katanya tidak ada komentar kok malah ngomen ? entahlah ~~ biar ga kosong aja di bagian komentar ini hahaha....
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!

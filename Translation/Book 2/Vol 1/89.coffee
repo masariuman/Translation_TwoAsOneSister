@@ -204,7 +204,7 @@ Kami tidak bisa tetap seperti ini selamanya, jadi Aku membantu Ciel berdiri saat
 
 "Kita akan mandi bersama, kan?" (Ciel)
 
-"Umm, baaiklah. Jika Kamu tidak keberatan, maka Aku akan menemanimu ke kamar mandi." (Ain)
+"Umm, baiklah. Jika Kamu tidak keberatan, maka Aku akan menemanimu ke kamar mandi." (Ain)
 
 Aku tidak tahu apakah kami bisa masuk sendiri, jadi Aku meminta izin Fiiyanamia-sama sebelum kembali ke dalam mansion.
 
