@@ -1,29 +1,38 @@
 INTERLUDE: THE DAY WISHES CAME TRUE 3 ※CIEL POV
 
 Setelah mereka selesai mendandani Ain (dan Aku), kami makan siang dan kembali ke kamar kami.
-Kami bertiga makan, termasuk Fii, tapi bukankah aku satu-satunya yang benar-benar membutuhkan makanan di sini?
-Selain itu, makan tiga kali sehari seharusnya tidak biasa.
 
-Jadi, kami kembali ke kamar kami tetapi pada akhirnya, kami benar-benar belum memutuskan apa yang harus dilakukan untuk hari ini.
-Dengan itu, hanya ada satu hal yang harus dilakukan. Bukannya kami tidak bisa melakukannya di kamar kami, tetapi akan lebih bagus jika kami memiliki ruang yang lebih terbuka. Saat aku memikirkan itu, Mengapa kita tidak mencoba bertanya apakah kita bisa menggunakan taman itu?」 Ain berkata begitu.
+Kami makan siang termasuk Fii, tapi bukankah aku satu-satunya yang benar-benar membutuhkan makanan di sini?
+
+Selain itu, makan tiga kali sehari terasa tidak biasa.
+
+kami kembali ke kamar kami tetapi pada akhirnya, kami benar-benar belum memutuskan apa yang harus dilakukan untuk hari ini.
+
+hanya ada satu hal yang harus dilakukan. Bukannya kami tidak bisa melakukannya di kamar kami, tetapi akan lebih bagus jika kami memiliki ruang yang lebih terbuka. Saat aku memikirkan itu, "Mengapa kita tidak mencoba bertanya apakah kita bisa menggunakan taman itu?", Ain berkata begitu.
+
 Fakta bahwa Ain dan aku memikirkan hal yang sama membuatku sangat bahagia.
 
-"Aku melihat. Itu akan menyenangkan. Aku tidak sabar.
+"Begitu ya. Itu akan menyenangkan. Aku tidak sabar untuk itu." (Ciel)
 
-Kalau begitu, kita harus pergi mencari Fii. Aku kemudian meraih tangan Ain tetapi untuk beberapa alasan, Ain tampaknya tidak memiliki niat untuk pindah dari sini.
+Kalau begitu, kami harus pergi mencari Fii. Aku kemudian meraih tangan Ain tetapi untuk beberapa alasan, Ain tampaknya tidak memiliki niat untuk bergerak.
 
-Aku akan bertanya padanya sekarang, jadi tolong tunggu sebentar.
-......? Ah, itu benar. Ain bisa menghubungi Fii kapan saja, kan? Aku akan menyerahkannya padamu kalau begitu. Semoga beruntung."
+"Aku akan bertanya padanya sekarang, jadi tolong tunggu sebentar." (Ain)
 
-Aku melihat. Jika hanya percakapan ringan, maka Ain dapat berbicara dengan Fii dari mana saja selama kita berada di dalam Central, kan?
+"......? Ah, itu benar. Ain bisa menghubungi Fii kapan saja, kan? Aku akan menyerahkannya kepadamu, semoga berhasil." (Ciel)
+
+begitu ya. Jika hanya percakapan ringan, maka Ain dapat berbicara dengan Fii dari mana saja selama kami berada di dalam Central, kan?
 
 Itu agak... membuat frustrasi. Aku ingin dapat berbicara dengan Ain dari mana saja juga.
+
 Tapi, bukankah itu berarti aku mungkin berada di suatu tempat yang jauh dari Ain?
+
 Kalau begitu, aku tidak keberatan jika aku tidak bisa melakukannya. Lagipula, aku tidak berencana untuk berpisah dari Ain.
+
 Dan karena bahkan Fii tidak bisa menghubungi Ain ketika dia berada di alam dewa, itu tidak masalah.
 
 Saat aku merenungkan ini, sepertinya Ain telah selesai bertanya.
-Sepertinya kita bisa meminjam taman, jadi aku mengambil tangan Ain lagi dan menuju ke taman.
+
+Sepertinya kami bisa meminjam taman, jadi aku mengambil tangan Ain lagi dan menuju ke taman.
 
 🎵🎵🎵
 

@@ -10,7 +10,7 @@ Dengan kasus ini, secara alami hanya ada satu hal yang harus kami lakukan, tetap
 
 "Mengapa kita tidak mencoba bertanya apakah kita bisa menggunakan taman?" (Ain)
 
-"Begitu. Itu akan menyenangkan. Aku tidak sabar." (Ciel)
+"Begitu ya. Itu akan menyenangkan. Aku tidak sabar untuk itu." (Ciel)
 
 Hanya dari beberapa kata itu, Ciel sepertinya mengerti maksudku, membuatnya berdiri dengan kegembiraan yang sesuai dengan usianya.
 
