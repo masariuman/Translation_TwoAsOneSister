@@ -37,26 +37,37 @@ Sepertinya kami bisa meminjam taman, jadi aku mengambil tangan Ain lagi dan menu
 🎵🎵🎵
 
 Taman mansion Fii agak istimewa bagiku.
-Selama tiga hari Ain pergi, meskipun Aku benar-benar mengunci diri pada hari pertama, pemandangan taman... atau lebih tepatnya, roh-roh yang ada di taman memberi Aku penghiburan.
-Tapi hari ini, Aku tidak melihat roh-roh ini.
 
-Mungkin mereka sedang perhatian, membiarkan Ain dan aku berdua saja.
+Selama tiga hari Ain pergi, meskipun Aku benar-benar mengunci diri pada hari pertama, pemandangan taman... atau lebih tepatnya, roh-roh yang ada di taman memberiku hiburan.
+
+Tapi hari ini, Aku tidak melihat roh-roh disini.
+
+Mungkin mereka paham, membiarkan Ain dan aku berdua saja.
+
 Aku sedikit penasaran tapi sekarang, aku sangat senang bisa berduaan dengan Ain.
+
 Lagipula aku tidak ingin ada orang yang mengganggu waktuku dengannya.
 
 Alasan kami datang ke sini adalah untuk melakukan apa yang dulunya merupakan rutinitas harian kami.
-Di masa lalu, Aku menari setiap hari dengan lagu-lagu Ain. Mungkin tidak berlebihan untuk menyebut ini asal kami.
-Seperti biasa, Aku menyerahkan waktu kepada Ain. Menari mengikuti lagu yang ingin dinyanyikan Ain adalah hal yang paling Aku nikmati.
 
-Apakah kita sudah mulai, sudahkah kita mulai? Aku gelisah menunggunya tapi Ain belum mulai bernyanyi sama sekali.
+Di masa lalu, Aku menari setiap hari dengan lagu-lagu Ain. Mungkin tidak berlebihan untuk menyebut ini asal muasal kami.
+
+Seperti biasa, Aku menyerahkan timingnya kepada Ain. Menari mengikuti lagu yang ingin dinyanyikan Ain adalah hal yang paling Aku nikmati.
+
+Apakah sudah dimulai, apakah sudah mulai? Aku gelisah menunggunya tapi Ain belum mulai bernyanyi sama sekali.
+
 Saat aku mulai khawatir tentang Ain, dia akhirnya bernyanyi.
 
 Suaranya seperti angin sepoi-sepoi yang jernih dan sinar matahari yang lembut mengintip melalui pepohonan. Itu adalah sesuatu yang belum pernah aku dengar darinya sebelumnya.
-Aku telah mendengar banyak lagu Ain pada saat ini tetapi sementara Aku tidak tahu apa arti kata-katanya, Aku agak memahami pola bahasa Ain.
+
+Aku telah mendengar banyak lagu Ain pada saat ini tetapi walaupun Aku tidak tahu apa arti kata-katanya, Aku agak memahami pola bahasa Ain.
+
 Namun, lirik lagu yang dinyanyikan Ain sekarang benar-benar berbeda dari yang dia gunakan sebelumnya.
 
 Tetap saja, itu adalah lagu yang dinyanyikan Ain.
+
 Ain bersenang-senang menyanyikannya, jadi hanya ada satu hal yang harus kulakukan.
+
 Aku hanya perlu menari mengikuti irama lagu ini.
 
 Tidak, tubuhku sudah mulai bergerak.
