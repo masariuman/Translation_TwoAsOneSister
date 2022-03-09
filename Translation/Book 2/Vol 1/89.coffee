@@ -202,7 +202,7 @@ Kami tidak bisa tetap seperti ini selamanya, jadi Aku membantu Ciel berdiri saat
 
 "Begitu. Kalau begitu, silakan mandi-....." (Ain)
 
-"Kita mandi bersama, kan?" (Ciel)
+"Kita akan mandi bersama, kan?" (Ciel)
 
 "Umm, baaiklah. Jika Kamu tidak keberatan, maka Aku akan menemanimu ke kamar mandi." (Ain)
 
