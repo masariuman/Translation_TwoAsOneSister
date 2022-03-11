@@ -1,7 +1,8 @@
 INTERLUDE: THE DAY WISHES CAME TRUE 4 ※CIEL POV
 
-Tubuh Ciel cantik, jadi cukup bagus untukku.」
-Lalu, apakah Ain pernah melihat banyak tubuh wanita lain selain tubuhku?」
+"Tubuh Ciel cantik, jadi cukup bagus untukku." (Ain)
+
+"Lalu, apakah Ain pernah melihat banyak tubuh wanita lain selain tubuhku?" (Ciel)
 
 Sedikit sisi nakalku keluar, membuatku bertanya pada Ain pertanyaan ini.
 Karena Ain dulunya laki-laki, tidak aneh jika dia penasaran dengan tubuh perempuan.

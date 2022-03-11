@@ -242,7 +242,7 @@ Saat aku menahan rasa malu, "Jadi beginilah bentuk tubuhku.", Ciel berkata begit
 
 "Tubuh Ciel cantik, jadi cukup bagus untukku." (Ain)
 
-"Lalu, apakah Ain pernah melihat banyak tubuh wanita lain selain tubuhku?" (CIel)
+"Lalu, apakah Ain pernah melihat banyak tubuh wanita lain selain tubuhku?" (Ciel)
 
 Mendengar Ciel terkikik saat dia bertanya, aku bingung bagaimana aku harus menjawabnya.
 
