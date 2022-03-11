@@ -4,22 +4,30 @@ INTERLUDE: THE DAY WISHES CAME TRUE 4 ※CIEL POV
 
 "Lalu, apakah Ain pernah melihat banyak tubuh wanita lain selain tubuhku?" (Ciel)
 
-Sedikit sisi nakalku keluar, membuatku bertanya pada Ain pertanyaan ini.
+sisi nakalku sedikit keluar dan membuatku bertanya pada Ain pertanyaan ini.
+
 Karena Ain dulunya laki-laki, tidak aneh jika dia penasaran dengan tubuh perempuan.
-Mungkin dia bahkan memiliki orang seperti itu dalam hidupnya.
+
+Mungkin dia bahkan memiliki wanita seperti itu dalam hidupnya.
 
 Aku ingin tahu seperti apa rupa Ain ketika dia masih laki-laki?
+
 Aku sedikit penasaran tapi aku tidak keberatan jika Ain memiliki seorang wanita dalam hidupnya.
-Lagi pula, bahkan jika ini menjadi alasan bagi Ain untuk ingin kembali ke dunianya yang dulu, aku hanya harus ikut dengannya, bukan masalah.
+
+Lagi pula, bahkan jika ini menjadi alasan bagi Ain untuk ingin kembali ke dunianya yang dulu, aku hanya perlu ikut dengannya, bukan masalah.
 
 Itu sebabnya, Aku hanya ingin melihat Ain terlihat agak bermasalah.
+
 Cara dia dengan hati-hati mencoba membaca ekspresiku benar-benar menggelitik kepuasanku, tapi aku hanya menjawab dengan senyuman.
 
 Sayangnya, Aku belum cukup melihat untuk membuat perbandingan apa pun.
-Satu-satunya gadis yang pernah kulihat telanjang kurang lebih adalah Viviana-san dan ibuku. Namun, sejujurnya Aku pikir tubuh Ciel itu cantik. Jadi secara pribadi, Aku merasa istimewa.」
-Begitukah? Begitu, Aku sangat senang Ain menyukainya.
 
-Ain jelas berusaha menghindari pertanyaan itu, jadi aku membiarkannya pergi begitu saja.
+"Sayangnya, Aku belum cukup melihat untuk membuat perbandingan apa pun. Satu-satunya gadis yang pernah kulihat telanjang kurang lebih adalah Viviana-san dan ibuku. tapi, sejujurnya Aku pikir tubuh Ciel itu cantik. Jadi secara pribadi, Aku merasa istimewa." (Ain)
+
+"Begitukah? Begitu, Aku sangat senang Ain menyukainya." (Ciel)
+
+Ain jelas berusaha menghindari pertanyaan itu, jadi aku membiarkannya begitu saja.
+
 Meskipun aku tidak terlalu keberatan jika dia memilikinya, aku tidak bisa tidak merasa sedikit senang karena dia tidak melakukannya, kau tahu.
 
 Setelah itu, Ain mendesakku untuk pergi ke kamar mandi, jadi aku meraih tangannya dan masuk ke dalam.
