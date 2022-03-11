@@ -28,23 +28,29 @@ Sayangnya, Aku belum cukup melihat untuk membuat perbandingan apa pun.
 
 Ain jelas berusaha menghindari pertanyaan itu, jadi aku membiarkannya begitu saja.
 
-Meskipun aku tidak terlalu keberatan jika dia memilikinya, aku tidak bisa tidak merasa sedikit senang karena dia tidak melakukannya, kau tahu.
+Meskipun aku tidak terlalu keberatan jika dia sering melihatnya, tapi aku merasa sedikit senang dia berkata sebaliknya.
 
 Setelah itu, Ain mendesakku untuk pergi ke kamar mandi, jadi aku meraih tangannya dan masuk ke dalam.
 
 🎵🎵🎵
 
 Sudah beberapa hari sejak kami datang ke sini tetapi kami belum banyak mandi.
-Ain suka mandi, jadi dia mandi secara teratur, yang membuatku secara bertahap menyukainya juga, tapi mandi bukanlah sesuatu yang kamu lakukan setiap hari.
-Selain itu, Ain segera pergi setelah kami tiba, jadi bukanlah situasi untuk memikirkan mandi.
+
+Ain suka mandi, jadi dia mandi secara teratur, yang membuatku secara bertahap menyukainya juga, tapi mandi bukanlah sesuatu yang di lakukan setiap hari.
+
+Selain itu, Ain segera pergi setelah kami tiba, jadi itu bukanlah situasi untuk memikirkan mandi.
+
 Meski begitu, Fii membawaku ke kamar mandi sehari sebelum Ain kembali, jadi aku familiar dengan tempat itu.
 
-Sekarang, ke masalah utama. Ain dan aku akan saling mencuci. Tapi, Aku tidak tahu apa-apa selain itu.
+Sekarang, ke masalah utama. Ain dan aku akan saling menyikat. Tapi, Aku tidak tahu apa-apa selain itu.
+
 Aku bisa menebak bahwa ini mungkin berarti saling membasuh tubuh, tapi Aku tidak begitu yakin.
 
-Saling membasuh berarti kita hanya perlu saling membasuh tubuh, kan?」
-Benar. Padahal, untuk rambut, kita bisa membilas kotoran seperti biasa. Begitu
-. Aku hanya perlu mencuci Ain dulu, kan?
+"Saling mencuci berarti kita hanya perlu saling menyikat tubuh, kan?" (Ciel)
+
+"Benar. walaupun untuk rambut, kita bisa membilas kotoran seperti biasa." (Ain)
+
+"Begitu... Aku hanya perlu mencuci Ain dulu, kan?" (Ciel)
 
 Sepertinya aku tidak salah. Sekarang saatnya melakukan yang terbaik untuk membersihkan Ain.
 Mengisi baskom dengan air panas, Aku menyabuni sabun seperti yang diajarkan Ain kepada Aku sebelumnya.
