@@ -53,69 +53,87 @@ Aku bisa menebak bahwa ini mungkin berarti saling membasuh tubuh, tapi Aku tidak
 "Begitu... Aku hanya perlu mencuci Ain dulu, kan?" (Ciel)
 
 Sepertinya aku tidak salah. Sekarang saatnya melakukan yang terbaik untuk membersihkan Ain.
-Mengisi baskom dengan air panas, Aku menyabuni sabun seperti yang diajarkan Ain kepada Aku sebelumnya.
-Padahal, daripada benar-benar mengajariku, itu lebih seperti menghafal cara Ain menggerakkan tubuhku. Bagaimanapun, akhir-akhir ini Aku sekarang dapat menyabuni sabun yang cukup untuk menutupi dan membasuh seluruh tubuh Aku.
 
-Namun, milikku masih tidak sebanding dengan milik Ain.
-Sungguh, aku bertanya-tanya bagaimana Ain bisa membuat busa halus dalam jumlah besar.
+Mengisi baskom dengan air panas, Aku membuat busa sabun seperti yang diajarkan Ain kepadaku sebelumnya.
 
-Adapun kenapa tubuhku terasa hangat saat menyabuni sabun, itu pasti karena sihir Ain. Lagipula, aku mendengarnya sedikit bernyanyi.
+bukan maksudnya mengajari, itu lebih seperti menghafal cara Ain menggerakkan tubuhku. Bagaimanapun juga, akhir-akhir ini Aku dapat membuat busa sabun yang cukup untuk menutupi dan membasuh seluruh tubuhku.
 
-Pada saat Aku selesai menyabuni, Ain sedang duduk menunggu Aku dengan punggung menghadap Aku.
-Melihat punggung yang tak berdaya, sisi nakalku mengintip kepalanya.
+Tapi, milikku masih tidak sebanding dengan milik Ain.
+
+aku bertanya-tanya bagaimana Ain bisa membuat busa halus dalam jumlah besar.
+
+Adapun kenapa tubuhku terasa hangat saat membuat busa sabun, itu pasti karena sihir Ain. aku mendengarnya sedikit bernyanyi.
+
+Pada saat Aku selesai membuat busa, Ain sedang duduk menungguku dengan punggung menghadapku.
+
+Melihat punggung yang tak berdaya, sisi nakalku muncul.
 
 Aku diam-diam mendekati Ain dan menggosokkan jari-jariku yang berbuih ke punggungnya.
 
-...... hiya-...
+"......hiya-..." (Ain)
 
-Ain mengeluarkan suara lucu sedikit lebih tinggi dari biasanya.
-Suara Putri Lagu Ain indah dan tetap di telinga Kamu, tetapi suaranya yang sangat lucu dalam situasi ini adalah curang.
+Ain mengeluarkan suara imut sedikit lebih tinggi dari biasanya.
 
-Suara Ain benar-benar menggemaskan.」
-...... Suara kita seharusnya sama.」
-Menurutmu begitu? Ain adalah Putri Lagu. Bukankah wajar jika Ain memiliki suara yang lebih menggemaskan?」
-Sekarang setelah kamu menyebutkannya, itu mungkin benar.
+Suara song princess Ain indah dan menetap di telingamu, tetapi suaranya yang sangat imut dalam situasi ini sunggguh hal yang curang.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Suara Ain benar-benar menggemaskan." (Ciel)
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+"...... Suara kita seharusnya sama." (Ain)
 
-Kadang-kadang, sisi Ain yang sedikit bebal keluar.
-Kami sudah memastikan bahwa Ain tidak bisa menari seperti Aku, jadi tidak sulit membayangkan kebalikannya.
-Pekerjaan kita kemungkinan besar memiliki pengaruh dalam hal ini.
+"Menurutmu begitu? Ain adalah song princess. Bukankah wajar jika Ain memiliki suara yang lebih menggemaskan?" (Ciel)
 
-Itu pasti sesuatu yang Ain bisa pahami dengan sedikit pemikiran. Alasan mengapa dia tidak menyadarinya, Aku pikir, karena banyak pemikiran dan perhatian Ain dialokasikan untuk perlindungan Aku.
-Pada saat yang sama, itu berarti dia lalai tentang dirinya sendiri.
+"...itu mungkin benar." (Ain)
+
+Kadang-kadang, sisi Ain yang sedikit keras kepala keluar.
+
+Kami sudah memastikan bahwa Ain tidak bisa menari sepertiku, jadi tidak sulit membayangkan kebalikannya.
+
+job kami kemungkinan besar memiliki pengaruh dalam hal ini.
+
+Itu pasti sesuatu yang bisa Ain pahami dengan sedikit pemikiran. Alasan mengapa dia tidak menyadarinya, mungkin karena banyak pemikiran dan perhatian Ain dialokasikan untuk perlindunganku.
+
+Pada saat yang sama, itu berarti dia lalai terhadap dirinya sendiri.
 
 Aku merasa itu sangat manis tetapi Aku juga ingin Ain lebih memperhatikan dirinya sendiri.
 
 Selain itu, Ain yang sedikit kesal dengan ejekanku juga cukup bagus.
+
 Mengapa Ain begitu berharga?
 
 Aku terus membasuh tubuh Ain bahkan saat kami berbicara tetapi Ain benar-benar terasa menyenangkan untuk disentuh.
-Aku sudah memeluknya begitu banyak hari ini dan aku telah menjaga diriku tetap dekat dengannya sebanyak yang aku bisa, tapi menyentuh kulit Ain secara langsung seperti ini adalah hal yang sangat berbeda.
-Aku tidak tahu apakah itu karena Ain atau memang begitulah orang.
 
-Tapi, menurutku, seharusnya karena itu Ain. Bahkan jika itu adalah orang lain yang merasakan hal yang sama untuk disentuh, sepertinya aku tidak akan merasakan kenyamanan sebanyak ini jika bukan Ain.
+Aku sudah memeluknya begitu banyak hari ini dan aku telah menjaga diriku tetap dekat dengannya sebanyak yang aku bisa, tapi menyentuh kulit Ain secara langsung seperti ini adalah hal yang sangat berbeda.
+
+Aku tidak tahu apakah itu karena Ain atau memang hal lain.
+
+Tapi, menurutku, seharusnya karena itu Ain. Bahkan jika itu adalah orang lain, sepertinya aku tidak akan merasakan kenyamanan sebanyak ini jika bukan Ain.
 
 Kulit Ain benar-benar memberikan banyak kenyamanan.
+
 Bahkan setelah menyentuhnya begitu banyak, Aku tidak merasa sedikit pun lelah. Sebaliknya, Aku ingin menyentuhnya lebih banyak lagi.
+
 Aku ingin memeluknya erat sekarang.
 
 Kulit yang begitu menggoda.
+
 Begitu hangat, begitu lembut. Begitu menyenangkan, begitu lembut.
 
-Kulit Ain sangat lembut.」
-Seharusnya tidak berbeda dengan milikmu, Ciel. Aku pikir.
-Itu benar. Tapi kalau begitu, apakah ukuran kita di sini juga sama?
+"Kulit Ain sangat lembut." (Ciel)
 
-Saat sisi nakalku mengangkat kepalanya, tanganku meraih dada Ain. Hiuu-Mendengar suara Ain ini, gadis nakal di dalam diriku kembali dengan kepuasan tetapi karena kelembutan yang aneh, aku tidak bisa berhenti menyentuh.
+"Seharusnya tidak berbeda dengan milikmu, Ciel. harusnya." (Ain)
+
+"Itu benar. Tapi kalau begitu, apakah ukuran kita di sini juga sama?" (Ciel)
+
+Saat sisi nakalku keluar, tanganku meraih dada Ain. "Hiuu-", dengan Mendengar suara Ain ini, gadis nakal di dalam diriku kembali puas tetapi karena kelembutan yang aneh, aku tidak bisa berhenti menyentuh.
+
 Ini cukup misterius, rasanya berbeda dari saat aku menyentuh milikku.
 
-Ini tidak besar tapi cukup lembut. Bagaimana Aku harus mengatakan ini? Ini agak membuat ketagihan.」
-A-sebagai satu-satunya, tersentuh, aku lebih suka kamu tidak kecanduan itu ......」
+"Ini tidak besar tapi cukup lembut. Bagaimana Aku harus mengatakan ini? Ini agak membuat ketagihan." (Ciel)
+
+"Se-sebagai satu-satunya, tersentuh, aku lebih suka kamu tidak kecanduan itu......" (Ain)
 
 Aku mungkin telah berlebihan.
+
 Aku juga masih belum selesai mencuci, jadi Aku harus kembali mencuci Ain.
 
 🎵🎵🎵
@@ -132,7 +150,7 @@ Dengan gerakan yang terlatih, Ain menyabuni tangannya dan menyebarkannya ke tubu
 Tempat yang disentuh tangan Ain terasa agak hangat, sungguh menyenangkan.
 Dan karena Aku tidak perlu bergerak, Aku bisa menyerahkan diri pada sentuhan yang menenangkan ini, membuat Aku merasa mengantuk.
 
-Namun, jika aku tidur terlalu banyak, waktuku bersama Ain akan semakin singkat.
+Tapi, jika aku tidur terlalu banyak, waktuku bersama Ain akan semakin singkat.
 Bahkan saat aku tidur di pangkuan Ain, aku sedikit menyesalinya.
 Meskipun Aku dapat dengan yakin mengatakan bahwa itu adalah tidur terbaik yang pernah Aku alami, bagi Aku rasanya waktu berlalu begitu saja ketika tidur.
 
@@ -153,7 +171,7 @@ Kalau begitu, aku memutuskan untuk membiarkan Ain memandikanku sampai dia puas d
 
 Rambut kami menyebar di dalam bak mandi, membentuk pola di atas air.
 Kalau diingat-ingat, sebenarnya tidak baik merendam rambut di air panas seperti ini karena akan rusak atau apalah.
-Namun, setiap helai rambutku ditutupi oleh penghalang Ain, jadi seharusnya tidak apa-apa.
+Tapi, setiap helai rambutku ditutupi oleh penghalang Ain, jadi seharusnya tidak apa-apa.
 
 Padahal menurutku itu tidak normal.
 Paling tidak, Aku tidak bisa melakukannya.
