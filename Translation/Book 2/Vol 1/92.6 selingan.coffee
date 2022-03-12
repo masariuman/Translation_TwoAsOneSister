@@ -138,82 +138,109 @@ Aku juga masih belum selesai mencuci, jadi Aku harus kembali mencuci Ain.
 
 🎵🎵🎵
 
-Aku kira-kira selesai mencuci Ain tetapi Aku belum ingin berpisah dengan sensasinya dulu, jadi Aku tidak bisa menahan diri untuk bermain-main dengan kulitnya.
-Aku menghindari payudara Ain karena dia tidak akan menyukainya, tapi lengan atas dan khususnya terasa enak untuk disentuh.
-Dalam semua keseriusan, Aku bisa terus menyentuh kelembutan ini selamanya.
+Aku selesai mencuci Ain tetapi Aku belum ingin berpisah dengan sensasinya, jadi Aku tidak bisa menahan diri untuk bermain-main dengan kulitnya.
+
+Aku menghindari payudara Ain karena dia tidak akan menyukainya, tapi lengan atas entah mengapa terasa enak untuk disentuh.
+
+Aku bisa terus menyentuh kelembutan ini selamanya.
 
 Juga, Aku benar-benar mulai merindukan kontak fisik.
+
 Hanya mengetahui bahwa itu Ain, Aku sudah merasa puas berada begitu dekat dengannya, tetapi pada saat yang sama, Aku benar-benar tidak ingin berpisah dengan sentuhan Ain lagi.
 
 Tetap saja, itu tidak akan saling mencuci jika hanya aku yang melakukannya, jadi aku menyuruh Ain mencuciku sekarang.
+
 Dengan gerakan yang terlatih, Ain menyabuni tangannya dan menyebarkannya ke tubuhku.
+
 Tempat yang disentuh tangan Ain terasa agak hangat, sungguh menyenangkan.
-Dan karena Aku tidak perlu bergerak, Aku bisa menyerahkan diri pada sentuhan yang menenangkan ini, membuat Aku merasa mengantuk.
 
-Tapi, jika aku tidur terlalu banyak, waktuku bersama Ain akan semakin singkat.
+Dan karena Aku tidak perlu bergerak, Aku bisa menyerahkan diri pada sentuhan yang menenangkan ini, membuatku merasa mengantuk.
+
+Tapi, jika aku tidur, waktuku bersama Ain akan semakin singkat.
+
 Bahkan saat aku tidur di pangkuan Ain, aku sedikit menyesalinya.
-Meskipun Aku dapat dengan yakin mengatakan bahwa itu adalah tidur terbaik yang pernah Aku alami, bagi Aku rasanya waktu berlalu begitu saja ketika tidur.
 
-Untuk menyimpan lebih banyak kenangan saat ini dengan Ain, bahkan untuk sesaat lebih lama, aku tidak bisa kehilangan kenyamanan.
+Meskipun Aku dapat dengan yakin mengatakan bahwa itu adalah tidur terbaik yang pernah Aku alami, bagiku rasanya waktu berlalu begitu saja ketika tidur.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Untuk menyimpan lebih banyak kenangan saat ini dengan Ain, bahkan untuk sesaat lebih lama, aku tidak bisa kalah dengan kenyamanan ini.
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"Kau sangat jago mencuci, Ain." (Ciel)
 
-Kau juga pandai mencuci, Ain.
-Kurasa bukan itu masalahnya. Ya, tidak sama sekali.
+"Kurasa bukan itu masalahnya. Ya, bukan sama sekali." (Ain)
 
-Sementara tangan Ain terasa nyaman, saat aku berbicara dengannya, dia terdengar agak tidak senang.
+walaupun tangan Ain terasa nyaman, saat aku berbicara dengannya, dia terdengar agak tidak senang.
+
 Sepertinya Ain memusatkan semua perhatiannya untuk memandikanku.
+
 Kalau begitu, aku memutuskan untuk membiarkan Ain memandikanku sampai dia puas dan menyerahkan tubuhku padanya.
 
 🎵🎵🎵
 
 Rambut kami menyebar di dalam bak mandi, membentuk pola di atas air.
-Kalau diingat-ingat, sebenarnya tidak baik merendam rambut di air panas seperti ini karena akan rusak atau apalah.
-Tapi, setiap helai rambutku ditutupi oleh penghalang Ain, jadi seharusnya tidak apa-apa.
 
-Padahal menurutku itu tidak normal.
+Kalau diingat-ingat, sebenarnya tidak baik merendam rambut di air panas seperti ini karena akan merusak rambut atau sejenisnya.
+
+Tapi, setiap helai rambutku ditutupi oleh barrier Ain, jadi seharusnya tidak apa-apa.
+
+aku tidak pikir itu normal juga.
+
 Paling tidak, Aku tidak bisa melakukannya.
 
-Rambut kami yang menyebar tumpang tindih dan hampir seperti terjalin.
-Jika itu tidak dibatalkan, maka Aku tidak akan pernah terpisah dari Ain lagi.
+Rambut kami yang menyebar saling menimpa seperti terhubung.
+
+Jika itu dibiarkan, maka Aku tidak akan pernah terpisah dari Ain lagi.
+
 Tapi kurasa itu akan merepotkan Ain sekarang, bukan?
 
-Aku akan puas dengan sensasi tangan kita yang menyatu dan bahu yang bersentuhan untuk saat ini.
+Aku akan puas dengan sensasi tangan kami yang menyatu dan bahu yang bersentuhan untuk saat ini.
 
 Duduk diam di samping satu sama lain itu bagus, tetapi kemudian Aku ingat ketika Viviana meletakkan Ain di pangkuannya.
+
 Aku melepaskan tangan Ain dan mengangkatnya ke atasku.
-Sementara Aku tidak menganggap Ain berat, berat keseluruhan orang adalah apa adanya.
+
+aku tidak menganggap ain berat.
+
 Aku akan menggunakan penguatan fisik jika Aku kelelahan.
 
 Terselip di antara lenganku, Ain sangat imut.
-Rambut geli nya menggemaskan juga.
+
+Rambut gelinya menggemaskan juga.
+
 Dan yang terpenting, kami sangat dekat di posisi ini, Aku menyukainya.
 
-Aku baik-baik saja tetap seperti itu tapi Ain kemudian duduk di antara kedua kakiku.
+Aku merasak tidak masalah tetap seperti ini tapi Ain kemudian duduk di antara kedua kakiku.
+
 Aku tidak terlalu menyukainya karena itu mengurangi luas permukaan Ain yang bisa kurasakan, tapi aku tahu itu diluar pertimbanganku. Gestur itu membuatku senang.
 
-Di salah satu lengan yang Aku miliki di sekitar Ain yang memeluknya, dia dengan lembut membelai.
-Hanya interaksi sepele. Tapi hal kecil ini menggelitik hatiku.
+Di salah satu lengan yang Aku miliki di sekitar Ain, dia dengan lembut membelainya.
 
-Kemudian menyandarkan kepalaku di bahu Ain.
+walau hal ini sepele, Tapi hal kecil ini menggelitik hatiku.
+
+aku Kemudian menyandarkan kepalaku di bahu Ain.
+
 Tulangnya keras tetapi kulit lembut yang menutupinya memiliki sensasi yang menawan.
-Tangan Ain terulur ke kepalaku, jadi aku tidak bisa menghentikan seringai di wajahku.
+
+Tangan Ain terulur ke kepalaku, jadi aku tidak bisa menghentikan senyum di wajahku.
 
 Aku merasa sangat senang sekarang tapi kemudian Ain mulai berbicara dengan nada formal.
 
-Sejujurnya, masih ada sesuatu yang belum kukatakan padamu, Ciel.
-Benarkah? Selain sebelumnya laki-laki, datang dari dunia lain, dan sedang dalam perjalanan untuk menjadi dewa, masih ada sesuatu yang ingin Ain katakan?
+"Sejujurnya, masih ada sesuatu yang belum kukatakan padamu, Ciel." (Ain)
+
+"Benarkah? Selain sebelumnya laki-laki, datang dari dunia lain, dan sedang dalam perjalanan untuk menjadi dewa, masih ada sesuatu yang ingin Ain katakan?" (Ciel)
 
 Apakah Ain belum selesai menceritakan hal-hal yang dia sembunyikan, atau lebih tepatnya hal-hal yang dia khawatirkan?
-Aku tidak berpikir dia perlu formal lagi pada saat ini, meskipun.
+
+Aku tidak berpikir dia perlu formal lagi pada saat ini.
+
 Mungkin untuk mengalihkan dirinya dari topik yang sulit, Ain menyisir rambutku.
 
-Asal usul Ainsel.」
-Kau akan memberitahuku?」
-Ya. Lagipula, aku tidak punya alasan untuk merahasiakan ini lagi. Begitu
-. Lalu bisakah kamu memberitahuku sekarang, Ain?
+"Asal usul Ainsel." (Ain)
+
+"Kau akan memberitahuku?" (Ciel)
+
+"Ya. Lagipula, aku tidak punya alasan untuk merahasiakan ini lagi." (Ain)
+
+"Begitu. Lalu bisakah kamu memberitahuku sekarang, Ain?" (Ciel)
 
 Itu benar, Ain tidak akan memberitahuku asal usul namanya.
 Meskipun dia langsung mengajariku tentang milikku. Aku benar-benar bertanya-tanya mengapa, tetapi sepertinya itu memiliki arti khusus.
