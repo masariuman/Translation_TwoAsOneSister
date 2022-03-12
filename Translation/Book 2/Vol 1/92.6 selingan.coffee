@@ -242,78 +242,90 @@ Mungkin untuk mengalihkan dirinya dari topik yang sulit, Ain menyisir rambutku.
 
 "Begitu. Lalu bisakah kamu memberitahuku sekarang, Ain?" (Ciel)
 
-Itu benar, Ain tidak akan memberitahuku asal usul namanya.
-Meskipun dia langsung mengajariku tentang milikku. Aku benar-benar bertanya-tanya mengapa, tetapi sepertinya itu memiliki arti khusus.
+Itu benar, Ain tidak memberitahuku asal usul namanya.
+
+Meskipun dia langsung memberitahuku arti namaku. Aku benar-benar tidak mengetahui arti namanya. tetapi sepertinya itu memiliki arti khusus.
 
 Dari sana, Ain bercerita tentang sebuah cerita di dunia lamanya.
+
 Kisah peri Ainsel, asal usul namanya.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Aku mengerti asal usul nama Ain. Tapi kenapa kamu merahasiakannya?" (Ciel)
 
-(Katakan tidak pada pencuri konten!)
+"Itu karena Ainsel telah menjadi saklar bagiku untuk menghilang." (Ain)
 
-Aku mengerti asal usul nama Ain. Tapi kenapa kamu merahasiakannya?」
-Itu karena Ainsel telah menjadi saklar bagiku untuk menghilang.
+Ain menghilang? Apa? Mengapa?
 
-Ain untuk, menghilang? Apa? Mengapa?
-
-Kamu tidak bisa menghilang, Ain. Kamu berjanji untuk tidak melakukannya!
+"Kamu tidak boleh menghilang, Ain. Kamu berjanji untuk tidak melakukannya!" (Ciel)
 
 Berpikir bahwa Ain benar-benar akan menghilang, aku memeluknya erat-erat.
+
 Ain dengan lembut membelai lenganku, seolah menenangkanku.
 
-"Ya. Karena tidak perlu bagiku untuk menghilang lagi, aku memutuskan untuk membicarakannya.」
-Benarkah? Itu bukan bohong, kan?」
-Tentu saja.
+"Ya. Karena tidak perlu bagiku untuk menghilang lagi, aku memutuskan untuk membicarakannya." (Ain)
 
-Saat Aku merasa agak lega, ketegangan meninggalkan tubuh Aku.
+"Benarkah? Itu bukan bohong, kan?" (Ciel)
+
+"Tentu saja." (Ain)
+
+Saat Aku merasa agak lega, ketegangan meninggalkan tubuhku.
+
 Kulit Ain terasa sangat enak.
+
 Aku hanya ingin bermalas-malasan seperti ini selamanya.
 
-Setelah itu, Aku mendengarkan penjelasan Ain. Sepertinya Ain bermaksud untuk memberikan semua keterampilan sihirnya kepadaku dan kemudian menghilang.
+Setelah itu, Aku mendengarkan penjelasan Ain. Sepertinya Ain bermaksud untuk memberikan semua skillnya kepadaku dan kemudian menghilang.
+
 Sampai menghapus dirinya dari ingatan semua orang.
+
 Ain mengatakan bahwa dia tidak yakin itu akan berhasil, tetapi Aku pikir Ain sudah memikirkan kemungkinan itu sejak dia menyebut dirinya Ainsel.
 
-Lagipula, Ain sudah menggunakan sihir pada saat aku sadar diri.
+Lagipula, Ain sudah menggunakan sihir pada saat aku sudah mulai sadar akan dunia.
 
 Ain benar-benar putus asa.
+
 Kenapa dia malah ingin menghilang?
 
-Lalu, bahkan sekarang, Ain masih dalam keadaan di mana sihir itu bisa digunakan, kan?
-Apa yang bisa kita lakukan untuk membuat sihir itu tidak dapat digunakan?」
-Jika aku diberi nama yang berbeda dan disebut demikian, sihir itu akan menjadi tidak dapat digunakan.」
-...... Itu meresahkan, benar-benar meresahkan. Bagi Aku, Ain adalah Ain, yang lain akan terasa sangat aneh.
+"Lalu, bahkan sekarang, Ain masih dalam keadaan di mana sihir itu bisa digunakan, kan? Apa yang bisa kita lakukan untuk membuat sihir itu tidak dapat digunakan?" (Ciel)
 
-Bukan menjadi Ainsel lagi saja, bagaimana menggambarkannya, terasa aneh.
+"Jika aku diberi nama yang berbeda dan disebut demikian, sihir itu akan menjadi tidak dapat digunakan." (Ain)
+
+"...... Itu meresahkan, benar-benar meresahkan. Bagiku, Ain adalah Ain, yang lain akan terasa sangat aneh." (Ciel)
+
+tidak menjadi Ainsel lagi, bagaimana ya, terasa aneh.
+
 Tentu saja, nama tidak sepenting keberadaan Ain itu sendiri tetapi harus memberi nama yang pas untuk Ain cukup merepotkan.
+
 Tidak mungkin aku bisa memikirkan nama yang imut, keren, dan indah yang cocok untuk Ain.
 
-Tetap saja, Aku perlu membuat sihir yang akan membuat Ain menghilang tidak dapat digunakan.
+Tetap saja, Aku perlu membuat sihir yang akan membuat ain tidak dapat menghilang.
+
 Dan saat aku terus memikirkannya, Ain punya saran.
 
-Kalau begitu, bahkan sekali ini saja, tolong panggil aku Yume.
+"Kalau begitu, bahkan sekali ini saja, tolong panggil aku Yume." (Ain)
 
 Yume? Apa itu?
+
 Saat aku memiringkan kepalaku dengan bingung, Ain menepuk kepalaku.
 
-Apakah itu nama lama Ain?」
-Sebuah nama panggilan yang dibuat dari nama lama Aku...... Aku kira. Aku pikir yang ini paling cocok dengan penampilan Aku saat ini, Kamu tahu. Begitu
-.
-...... Katakan, Yume. Aku suka Yume. Aku sangat menyukai Yume. Jadi tolong, jangan menghilang, oke?」
-Ya, tentu saja.
+"Apakah itu nama lama Ain?" (Ciel)
+
+"Sebuah nama panggilan yang dibuat dari nama lamaku...... Aku pikir yang ini paling cocok dengan penampilanku saat ini." (Ain)
+
+"Begitu...... hey, Yume. Aku suka Yume. Aku sangat menyukai Yume. Jadi tolong, jangan menghilang, oke?" (Ciel)
+
+"Ya, tentu saja." (Ain)
 
 Menjawab permohonanku, Ain menyandarkan kepalanya padaku.
-Kepala kami bertabrakan, dan aku bisa merasakan kehadiran Ain di balik semua rambut.
-Saat aku bertanya-tanya apakah ini menghilangkan sihir, aku melihat ke arah Ain dan dia berbisik Aku tidak bisa menggunakannya lagi」 dengan suara yang menggelitik telinga.
 
-SebelumnyaSelanjutnya
-Indeks
-Hai~! Kami kembali ke jalurnya sekali lagi! Bab selanjutnya akan menjadi yang terakhir dari bab selingan, tetapi untuk saat ini, ke kebiasaan lamaku~
+Kepala kami bertabrakan, dan aku bisa merasakan kehadiran Ain di balik rambut.
 
-Jadi, sementara bab ini sebagian besar merupakan sisi b dari cerita utamanya, cukup lucu melihat pikiran Ciel saat dia mendapat dorongan untuk menggoda Ain. Itu juga cukup bagus untuk melihat Ciel membaca garis yang tidak boleh dilanggar karena Ain menjadi sangat tidak nyaman, seperti ketika dia mengamati jika Ain tidak nyaman selama bab berdandan. Bagian kecil dengan Ain yang sedikit bebal juga bagus. Juga, secara umum sangat menyenangkan melihat detail kecil dari skinship mereka (akhirnya aku ingat kata itu sekarang setelah aku selesai menerjemahkan, ya), seperti Ciel bersandar di bahu Ain, Ain menyentuh lengan Ciel saat Ciel memeluknya, dan bagian di mana Ciel baru saja meletakkan Ain di pangkuannya, lol.
+Saat aku bertanya-tanya apakah ini bisa membuat ain tidak dapat menghilang lagi, aku melihat ke arah Ain dan dia berbisik "Aku tidak bisa menggunakannya lagi." dengan suara yang menggelitik telinga.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+--------------------------------------------------------
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+HEWWROOOOOO~~!!
 
-Sekarang, Aku harap Kamu menikmati bab ini. Silahkan berkomentar. Tetap bersih, tetap aman, dan semoga harimu menyenangkan~!
+ah... itu.. anu...
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
