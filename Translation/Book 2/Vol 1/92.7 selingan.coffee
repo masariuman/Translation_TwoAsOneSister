@@ -167,88 +167,116 @@ Dan meskipun tidak seperti yang Aku pikirkan dengan jelas, dalam 12 tahun ini, A
 "Dengan menggunakan banyak kekuatan dewa. Pada dasarnya, hanya mencampurkan beberapa saja ke dalam barrier akan mempercepatnya." (Ain)
 
 Dengan lembut mendorongku menjauh, Ain mulai berbicara tentang pendewaan.
-Karena Ain membicarakannya dengan benar seperti ini, apakah ini berarti Ain juga ingin memiliki tubuhnya sendiri?
+
+Karena Ain membicarakannya dengan serius seperti ini, apakah ini berarti Ain juga ingin memiliki tubuhnya sendiri?
+
 Kalau begitu, aku tidak akan ragu-...... adalah apa yang ingin aku katakan tetapi dari kedengarannya, akan sulit bagiku untuk membantu.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Ain berbicara tentang pertumbuhanku.
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+Pertumbuhanku akan berhenti karena aku akan abadi. Aku pribadi tidak keberatan bahkan jika Aku berhenti menua sekarang.
 
-Menyampaikan ini padanya, Ain berbicara tentang pertumbuhan Aku.
-Pertumbuhan Aku akan berhenti ketika Aku mendapatkan masa muda yang kekal. Aku pribadi tidak keberatan bahkan jika Aku berhenti menua sekarang.
 Selama Aku bisa berinteraksi secara fisik dengan Ain lagi.
 
 Lagipula, Ain sendiri yang mengatakannya, bahwa dia ingin melakukan kontak fisik denganku.
 
-Ain, apakah menurutmu aku tidak sebaik sekarang?」
-Tidak. Kamu lucu seperti kamu sekarang. Kamu sudah lucu sejak itu.
-Kalau begitu, aku tidak keberatan. Aku ingin melakukan yang terbaik untuk menjadi dewa secepat mungkin.
+"Ain, apakah menurutmu aku kurang bagus sekarang?" (Ciel)
+
+"Tidak. Kamu imut sekarang. Kamu sudah imut dari dulu." (Ain)
+
+"Kalau begitu, aku tidak keberatan. Aku ingin melakukan yang terbaik untuk menjadi dewa secepat mungkin." (Ciel)
 
 Ain tiba-tiba memanggilku imut, jadi pipiku terbakar.
-Tetap saja, itu tidak nyaman. Mendengar Ain memanggilku imut membuatku sangat senang.
 
-Bagaimanapun, itu yang kamu inginkan, Ain.
-Aku ingin cepat dan bisa bebas berinteraksi dengan Ain juga. Karena itu, tidak ada alasan untuk ragu-ragu.」
-Aku mengerti. Aku akan menggunakan energi ilahi sebanyak yang Aku bisa.」
-Dan selain itu, Aku tidak tahu berapa banyak yang dapat dilakukan dewa, tetapi dewa yang ditemui Ain dapat mengubah penampilannya dengan bebas, kan?
-Kalau begitu, bukankah kita setidaknya mampu mengubah usia kita?」
-Sekarang setelah kamu menyebutkannya, mungkin itu masalahnya.
+Tetap saja, itu nyaman. Mendengar Ain memanggilku imut membuatku sangat senang.
 
-Itu hanya kemungkinan tetapi selama ini membantu Ain mempercepat pendewaan tanpa ragu-ragu demi Aku, itu cukup baik.
-Setelah itu, kami juga berbicara tentang menemukan monster yang kemungkinan diciptakan oleh Rispelgia untuk mempercepat pendewaan tetapi masih ada satu acara terakhir yang tersisa untuk hari ini.
+"Bagaimanapun juga, itu yang kamu inginkan, Ain. Aku ingin cepat dan bisa bebas berinteraksi dengan Ain juga. Karena itu, tidak ada alasan untuk ragu." (Ciel)
 
-Dengan keputusan itu, Aku akan menjadikan Ain sebagai bantal peluk hari ini, Aku akan melakukannya!」
+"Aku mengerti. Aku akan menggunakan energi dewa sebanyak yang Aku bisa." (Ain)
+
+"Dan selain itu, Aku tidak tahu berapa banyak yang dapat dilakukan dewa, tetapi dewa yang ditemui Ain dapat mengubah penampilannya dengan bebas, kan? Kalau begitu, bukankah kita setidaknya mampu mengubah usia kita?" (Ciel)
+
+"Sekarang setelah kamu menyebutkannya, mungkin itu bisa." (Ain)
+
+Itu hanya kemungkinan tetapi selama ini bisa membantu Ain mempercepat pendewaan tanpa ragu-ragu demi Aku, itu cukup bagus.
+
+Setelah itu, kami juga berbicara tentang menemukan monster yang kemungkinan diciptakan oleh Rispelgia untuk mempercepat pendewaan tetapi masih ada satu hal terakhir yang tersisa untuk hari ini.
+
+"Dengan keputusan itu, Aku akan menjadikan Ain sebagai guling hari ini, Aku akan melakukannya!" (Ciel)
 
 Aku menikmati bantal pelukan Ain yang tidak bisa Aku nikmati pagi ini.
 
 🎵🎵🎵
 
 Tubuh manusia tidak cocok untuk dijadikan bantal peluk.
-Teguh dalam menginginkan Ain sebagai bantal pelukku, kami berbaring saat aku memeluknya tapi tangan yang aku miliki di bawah tubuh Ain selalu mulai mati rasa.
-Meskipun ada ruang di bawah leher kita, hanya satu dari kita yang bisa memanfaatkannya. Saat kami mencoba membuat kami berdua bergandengan tangan, kali ini cara kami menyilangkan tangan terasa tidak enak.
 
-Hal-hal tidak berubah sebaik yang Aku bayangkan.
-Itu benar. Lagi pula, saat kamu ringan, Ciel, berat badan tetap menjadi masalah.
+dengan rasa sangat ingin menjadikan Ain sebagai bantal pelukku, kami berbaring dan aku memeluknya tapi tangan yang aku miliki di bawah tubuh Ain mulai mati rasa.
 
-Hmn...... Aku memeras kepalaku. Tetap saja, berbicara dengan Ain selama uji coba lanjutan itu menyenangkan.
-Mampu menyentuh tubuh dengan Ain dalam berbagai posisi adalah hal yang luar biasa.
+Meskipun ada ruang di bawah leher kami, hanya satu dari kami yang bisa memanfaatkannya. Saat kami mencoba membuat kami berdua bergandengan tangan, kali ini cara kami menyilangkan tangan terasa tidak enak.
+
+"ini tidak berjalan seperti yang aku bayangkan." (Ciel)
+
+"Itu benar. Lagi pula, walaupun kamu ringan, Ciel, berat badan tetap menjadi masalah." (Ain)
+
+Hmn...... Aku memeras kepalaku. Tetap saja, berbicara dengan Ain selama percobaan ini menyenangkan.
+
+Mampu menyentuh tubuh Ain dalam berbagai posisi adalah hal yang luar biasa.
+
 Dan tawa yang kami miliki ketika mata kami tiba-tiba bertemu, membuat jantungku berdebar kencang.
 
 Tetap saja, tidur sambil berpelukan sebenarnya agak sulit.
+
 Juga, saat kami berpelukan, aku tidak bisa melihat wajah Ain, yang sedikit sia-sia.
 
 Pada akhirnya, kami menyimpulkan bahwa tidur sambil berpegangan tangan adalah cara yang paling tidak melelahkan bagi kami untuk tidur.
 
-Kami bergandengan tangan dan saling berhadapan. Tanpa ada yang perlu dibicarakan secara khusus, waktu berlalu tanpa kita melakukan apa-apa.
+Kami bergandengan tangan dan saling berhadapan. Tanpa ada yang perlu dibicarakan secara khusus, waktu berlalu tanpa kami melakukan apa-apa.
+
 Tetap saja, Ain tidak diragukan lagi ada di depanku.
+
 Kami telah melakukan banyak hal hari ini tetapi Aku merasa itu adalah bagian terpenting dari semuanya.
 
 Tatapan kami terjalin dan kami berdua tersenyum.
 
 Hatiku terasa hangat.
+
 Rasanya begitu melegakan.
 
 Tapi, kenyamanan ini membuatku mengantuk.
-Jika aku tertidur, hari ini akan berakhir. Untuk bersama dengan Ain selama yang aku bisa, aku harus tetap terjaga selama mungkin,
+
+Jika aku tertidur, hari ini akan berakhir. Untuk bersama dengan Ain selama yang aku bisa, aku harus tetap bangun selama mungkin,
 Mengedipkan mataku lagi dan lagi, aku mencoba yang terbaik untuk mempertahankannya tapi sepertinya aku sudah mendekati batasku.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"hei, Ain?" (Ciel)
 
-(Katakan tidak pada pencuri konten!)
+"Ya, ada apa?" (Ain)
 
-Katakan, Ain?」
-Ya, ada apa?」
+walaupun Aku merasa enggan, Aku masih meminta Ain permintaan terakhirku untuk hari ini.
 
-Sementara Aku merasa enggan, Aku masih meminta Ain permintaan terakhir Aku untuk hari ini.
+"Maukah kamu bernyanyi untukku? Aku ingin mendengar lagu-lagu Ain sambil merasakan kehadiranmu sekarang." (Ciel)
 
-Maukah kamu bernyanyi untukku? Aku ingin mendengar lagu-lagu Ain sambil merasakan kehadiran Kamu sekarang.」
-Bisakah Aku duduk? Sulit untuk bernyanyi sambil berbaring.
-Maukah kamu memegang tanganku?」
-Tentu saja.
+"Bisakah Aku duduk? Sulit untuk bernyanyi sambil berbaring." (Ain)
+
+"Maukah kamu memegang tanganku?" (Ciel)
+
+"Tentu saja." (Ain)
 
 Itu permintaanku sendiri tapi melepaskan tangan Ain membuatku merasa kesepian.
+
 Dan Ain mengambil tangan kiriku setelah duduk di tempat tidur membuatku bahagia.
+
 Sambil menepuk pundakku, Ain mulai bernyanyi.
 
 Mencocokkan ritmenya, dia mengetuk, mengetuk, menepuk bahuku, membuatku lebih mengantuk dengan setiap ketukan.
-Saat mendengar suara terindah di dunia, sambil menggendong orang yang paling berharga di dunia, saat diawasi oleh orang yang paling Aku percayai di dunia, Aku tertidur lelap.
+
+Saat mendengar suara terindah di dunia, sambil memegang orang yang paling berharga di dunia, saat diawasi oleh orang yang paling Aku percayai di dunia, Aku tertidur lelap.
+
+---------------------
+
+Hewrooo~~!!
+
+kali ini selesai juga, untuk sisi dedek ciel kita............... dan saya tidak memiliki banyak komentar..
+
+hanya silahkan nikmati chapter kali ini !!
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
