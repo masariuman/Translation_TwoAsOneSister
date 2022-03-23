@@ -60,12 +60,13 @@ Di meja makan, Ciel menundukkan kepalanya dan berterima kasih kepada Fiiyanamia-
 
 melihat Ciel secara alami menunjukkan rasa terima kasih, melihat pertumbuhannya, itu membuatku bahagia.
 
-Sebaliknya, Aku sendiri perlu ​​menunjukkan rasa terima kasih.
-Di masa lalu, sangat umum bagi mereka untuk merasa sangat canggung dan malu sehingga Aku tidak bisa dengan jujur ​​mengucapkan terima kasih.
+Sebaliknya, Aku sendiri perlu ​​menunjukkan rasa terima kasih dengan benar.
+
+dulu, sangat umum bagi untuk merasa sangat canggung dan malu sehingga Aku tidak bisa dengan jujur ​​mengucapkan terima kasih.
 
 Tetap saja, bahkan beberapa tahun tidak akan mengganggunya?
 
-Sekarang, sekarang, apa yang akan kalian berdua lakukan hari ini?」
+"baiklah, apa yang akan kalian berdua lakukan hari ini?" (Fii)
 
 Seperti orang dewasa yang bertanya kepada seorang anak apa yang ingin mereka lakukan, Fiiyanamia-sama bertanya kepada Ciel tapi kami mungkin tidak punya rencana untuk hari ini.
 Setidaknya aku tidak bisa memikirkan apa pun untuk dilakukan.
