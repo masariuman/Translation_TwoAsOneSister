@@ -112,152 +112,208 @@ Setelah Ciel menyampaikan kata-kataku, "Baiklah, kalau begitu.." Fiiyanamia-sama
 
 "Tidak masalah, kata Ain." (Ciel)
 
-Sementara aku tidak benar-benar tahu siapa Saueluna-san ini, dia mungkin seorang pelayan yang ditugaskan untuk Ciel, seperti bagaimana Mohsasan bagiku.
+aku tidak benar-benar tahu siapa Saueluna-san ini, dia mungkin seorang pelayan yang ditugaskan untuk Ciel, seperti bagaimana Mohsa-san bagiku.
+
 Ciel tidak menunjukkan reaksi negatif, jadi mereka mungkin sudah bertemu.
 
-Baiklah, mari kita lanjutkan ini nanti. Mari kita makan.
+"Baiklah, mari kita lanjutkan ini nanti. Mari kita makan." (Fii)
 
 Didesak oleh Fiiyanamia-sama, Ciel dengan senang hati mulai sarapan.
 
 🎵🎵🎵
 
 Karena Fiiyanamia-sama mengatakan kami akan membahas masa depan, Aku berharap ini menjadi diskusi yang agak serius tapi setelah sarapan, kami dibawa ke balkon menghadap taman biasa.
-Ada teh yang disiapkan juga, suasananya benar-benar "bersenang-senang mengobrol".
-Pemandangan taman dari sini enak dipandang mata seperti biasa, sedangkan makhluk halus yang bermain di taman sesekali mencuri pandang sangat menggemaskan untuk dilihat.
+
+Ada teh yang disiapkan juga, suasananya benar-benar seperti berbicara santai.
+
+Pemandangan taman dari sini enak dipandang mata seperti biasa, sedangkan roh yang bermain di taman sesekali memandang kesini sangat menggemaskan untuk dilihat.
 
 Dan Liessyl-san sedang duduk di pangkuan Fiiyanamiya-sama hari ini.
-Apakah dia suka duduk di atas orang?
-Sebaliknya, Fiiyanamia-sama seharusnya agak seperti "rekan bosku" dalam hubungannya dengan dia, apakah itu tidak terlalu penting bagi Liessyl-san ?
+
+Apakah dia suka duduk di atas orang-orang?
+
+Sebaliknya, Fiiyanamia-sama agak seperti "rekan bos" dibandingkan dengannya, apakah itu tidak terlalu penting bagi Liessyl-san ?
+
 Tunggu, dalam hal itu, aku mungkin juga setara dengan Fiiyanamiya-sama, kan? Aku tidak mengerti.
 
-Sekarang, sekarang, Ciel, Ainsel-chan, bisakah kamu mengingat apa posisimu saat ini?」
-Tamu Fiiyanamia-sama, kan?』
-Tamu Fii, kan?」
-Benar. Saat ini, kalian berdua adalah satu-satunya tamu yang Aku miliki di sini di Central.
-Tidak banyak orang yang menyapa Aku sebelum mereka masuk, Kamu tahu?
+"baiklah, Ciel, Ainsel-chan, bisakah kamu mengingat apa posisimu saat ini?" (Fii)
 
-Betapa merepotkan, seolah-olah ini tertulis di wajahnya, tetapi Aku tidak berpikir ada orang yang akan memperhatikan secara normal. Bahkan Ciel tidak bisa menyadarinya, jadi bukankah ada kurang dari beberapa orang di dunia ini yang bisa menyapa Fiiyanamia-sama ?
-Atau mungkin Fiiyanamia-sama tidak punya niat untuk bertemu dengan siapa pun kecuali mereka berada di level itu? Ya, itu sepertinya lebih masuk akal.
+[Tamu Fiiyanamia-sama, kan?] (Ain)
+
+"Tamu Fii, kan?" (Ciel)
+
+"Benar. Saat ini, kalian berdua adalah satu-satunya tamu yang Aku miliki di sini di Central. Tidak banyak orang yang menyapaku sebelum mereka masuk ke central, Kamu tahu?" (Fii)
+
+'merepotkan', tertulis di wajahnya tetapi Aku tidak berpikir ada orang yang akan menyadarinya secara normal. Bahkan Ciel tidak bisa menyadarinya, jadi bukankah tidak banyak orang di dunia ini yang bisa menyapa Fiiyanamia-sama ?
+
+Atau mungkin Fiiyanamia-sama tidak punya niat untuk bertemu dengan siapa pun kecuali mereka berada di level tersebut? Ya, itu sepertinya lebih masuk akal.
 
 Lagipula dia bukan utusan dewa yang akan membimbing orang-orang, tujuannya adalah untuk menjaga dunia.
-Jadi untuk memulainya, dia tidak perlu berinteraksi dengan orang-orang.
 
-Karena itu, pada dasarnya, kalian berdua adalah orang nomor 2 di sini di ibukota.
-Umm, jadi apakah itu membuat kita menjadi orang penting?」
-Ya, benar. Kalian berdua adalah orang-orang terhormat di sini. Padahal, bukan karena Aku berada di posisi Aku karena Aku ingin menjadi sangat terkenal.
-Jika seseorang di sini di Central mengganggu Kamu, Aku tidak keberatan jika Kamu menyingkirkan mereka.
-Benarkah?
+Jadi pada dasarnya, dia tidak perlu berinteraksi dengan orang-orang.
 
-Fiiyanamia-sama ternyata sangat ekstrim tapi aku hanya berkata pada diriku sendiri bahwa dia tidak di sini untuk membimbing orang, bukan?
+"Karena itu, pada dasarnya, kalian berdua adalah orang nomor 2 di sini." (Fii)
 
-Meskipun, dengan itu, batasi pada orang yang bisa Kamu tangani.
-Itu masuk akal. Lagipula, tidak baik memaksakan diri.
-Tidak mungkin ada orang di sini yang bisa membuatmu kalah.」
-Begitukah? Tidak, itu benar. Lagipula, menurutku tidak ada orang yang mampu menembus penghalang Ain.
-Bahkan Fii tidak bisa melakukannya.
+"Umm, jadi apakah itu membuat kami menjadi orang penting?" (Ciel)
 
-Ciel berkata dengan sangat bangga, bagaimana dia bisa begitu percaya diri tentang itu? Sebenarnya, tolong jangan bersaing dengan Fiiyanamia-sama.
-Meskipun mungkin seberapa besar kepercayaan Ciel padaku, Fiiyanamia-sama juga mengatakan bahwa tanah akan menyerah terlebih dahulu atau lebih.
+"Ya, benar. Kalian berdua adalah orang-orang terhormat di sini. walaupun, bukan aku yang membuat posisiku kalau aku ingin menjadi orang terkenal. Jika seseorang di sini di Central mengganggumu, Aku tidak keberatan jika Kamu menyingkirkan mereka." (Fii)
+
+"Benarkah?" (Ciel)
+
+Fiiyanamia-sama ternyata sangat ekstrim tapi aku baru saja berfikir bahwa dia tidak di sini untuk membimbing orang, bukan?
+
+"Meskipun, dengan itu, batasi pada orang yang bisa Kamu tangani saja." (Fii)
+
+"Itu masuk akal. Lagipula, tidak baik memaksakan diri." (Ciel)
+
+"Tidak mungkin ada orang di sini yang bisa membuatmu kalah." (Fii)
+
+"Begitukah? Tidak, itu benar. Lagipula, menurutku tidak ada orang yang mampu menembus barrier Ain. Bahkan Fii tidak bisa melakukannya." (Ciel)
+
+Ciel berkata dengan sangat bangga, bagaimana dia bisa begitu percaya diri tentang itu? tolong jangan bersaing dengan Fiiyanamia-sama.
+
+Meskipun itu menunjukkan seberapa besar kepercayaan Ciel padaku, Fiiyanamia-sama juga mengatakan bahwa tanah akan menyerah terlebih dahulu.
 
 Bagaimana Aku bereaksi dalam situasi ini? Aku benar-benar tidak tahu.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Fufu, benar, bahkan aku harus berkeringat. Dalam beberapa tahun, mungkin akan menjadi terlalu kuat bagiku untuk bersaing dengannya." (Fii)
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"Ain luar biasa, Kamu tahu?" (Ain)
 
-Fufu, benar, bahkan aku harus berkeringat.
-Dalam beberapa tahun, bahkan mungkin tumbuh terlalu kuat bagi Aku untuk bersaing dengan.」
-Ain luar biasa, Kamu tahu?」
-Ya, ya, dia luar biasa.」
-Umm...... Bisakah kita melanjutkan percakapan...... kan
+"Ya, ya, dia luar biasa." (Fii)
+
+[Umm...... Bisakah kita melanjutkan percakapan......] (Ain)
 
 Aku merasa déjà vu. Tetap saja, itu akan menjadi masalah jika mereka hanya terus membicarakanku.
-Mendengar kata-kataku, Ciel terkikik senang.
-Apakah ini yang dimaksud Ciel ketika dia bilang dia suka melihatku bingung?
-Jika itu masalahnya, maka aku merasa mungkin aku akan memaafkannya hanya dengan senyuman masam.
 
-Jadi, apa yang sebenarnya kita bicarakan? Bukan hanya itu, kan?」
-Oh, benar. Ciel, Ainsel-chan, jika kalian berdua baik-baik saja dengan itu, maukah kalian berdua menjadi anakku?」
-Anak Fii?」
-Di mataku, aku sudah melihatmu sebagai keluarga, kau tahu? Menjadi saudara kandung sebagai adik perempuan Aku juga baik-baik saja, tetapi ada perbedaan usia yang cukup jauh.
+Mendengar kata-kataku, Ciel terkikik senang.
+
+Apakah ini yang dimaksud Ciel ketika dia bilang dia suka melihatku kewalahan?
+
+Jika memang itu maksudnya, maka aku merasa mungkin aku akan memaafkannya hanya dengan senyuman masam.
+
+"Jadi, apa yang sebenarnya kita bicarakan? Bukan hanya itu, kan?" (Ciel)
+
+"Oh, benar. Ciel, Ainsel-chan, jika kalian berdua tidak masalah, maukah kalian berdua menjadi anakku?" (Fii)
+
+"Anak Fii?" (Ciel)
+
+"Di mataku, aku sudah melihatmu sebagai keluarga, kau tahu? Menjadi saudara kandung sebagai adik perempuanku juga tidak masalah, tetapi ada perbedaan usia yang cukup jauh." (Fii)
 
 Fiiyanamia-sama berkata demikian dengan senyum lebar, itu benar-benar mengejutkanku.
+
 Meskipun dia mengatakan bahwa kami seperti keluarga, Aku tidak berharap itu benar-benar terjadi.
-Namun, Aku tidak berpikir itu tawaran yang buruk. Bagaimanapun, kita akan mendapatkan perlindungan dari figur utama Central. Faktanya, bahkan jika beberapa insiden terjadi, dia mungkin akan membiarkannya untuk kita tangani.
+
+Tapi, Aku tidak berpikir itu tawaran yang buruk. Bagaimanapun juga, kami akan mendapatkan perlindungan dari figur utama Central. 
+
+Faktanya, bahkan jika beberapa insiden terjadi, dia mungkin akan membiarkannya untuk kami tangani.
 
 Aku ingin tahu apa jawaban Ciel? Saat aku menunggu jawabannya, Ciel memanggilku dengan cara yang hanya bisa aku dengar.
 
-Ain, Ain. Apa yang dia maksud dengan "menjadi anaknya"?』
-Mari kita lihat. Mungkin maksudnya dia akan mengadopsi kita.
-Adopsi?』
+[Ain, Ain. Apa yang dia maksud dengan 'menjadi anaknya'?] (Ciel)
+
+[Mungkin maksudnya dia akan mengadopsi kita.] (Ain)
+
+[Adopsi?] (Ciel)
 
 Benar, Ciel mungkin tidak terlalu memahaminya.
-Untuk memulainya, dia juga tidak memiliki banyak pemahaman tentang keluarga. Jika harus kukatakan, keluarga Ciel adalah aku......mungkin. Hubungan kami agak membingungkan akhir-akhir ini.
+
+pada dasarnya, dia juga tidak memiliki banyak pemahaman tentang keluarga. Jika harus kukatakan, keluarga Ciel adalah aku......mungkin. Hubungan kami agak membingungkan akhir-akhir ini.
+
 Aku bermaksud untuk bertindak sebagai wali Ciel tetapi karena Ciel sangat berkepala dingin dan dewasa, kadang-kadang sangat sulit untuk mengatakan siapa orang dewasa di antara kami berdua.
 
-Adopsi adalah ketika seseorang mengambil anak keluarga lain sebagai anak mereka sendiri, kurasa.
-Kamu dapat menganggapnya sebagai hubungan orang tua-anak tanpa hubungan darah langsung.』
-...... Begitu. Akan menjadi masalah bagi bangsawan jika mereka tidak dapat memiliki anak.』
-Benar. Publik akan mengenali ini juga, jadi kamu bisa mengatakan bahwa itu adalah posisi yang lebih tegas dibandingkan dengan menjadi tamu Fiiyanamia-sama.』
-Bagaimana menurutmu tentang tawaran Fii, Ain?』
-Ini bukan tawaran yang buruk tapi mungkin Aku berbicara dengan Fiiyanamia-sama sebentar?』
-Tentu, Aku tidak keberatan.
+[Adopsi adalah ketika seseorang mengambil anak keluarga lain sebagai anak mereka sendiri. Kamu dapat menganggapnya sebagai hubungan orang tua-anak tanpa hubungan darah langsung.] (Ain)
 
-Dengan izin Ciel, kami beralih.
+[...... Begitu. Akan menjadi masalah bagi bangsawan jika mereka tidak dapat memiliki anak.] (Ciel)
+
+[Benar. Publik akan mengenali ini juga, jadi kamu bisa mengatakan bahwa itu adalah posisi yang lebih tegas dibandingkan dengan menjadi tamu Fiiyanamia-sama.] (Ain)
+
+[Bagaimana menurutmu tentang tawaran Fii, Ain?] (Ciel)
+
+[Ini bukan tawaran yang buruk tapi bolehkah mungkin Aku berbicara dengan Fiiyanamia-sama sebentar?] (Ain)
+
+[Tentu, Aku tidak keberatan.] (Ciel)
+
+Dengan izin Ciel, kami bertukar.
+
 Tampaknya menyadari hal ini, Fiiyanamia-sama mengedipkan mata beberapa kali sebelum tersenyum padaku.
 
-Aku tidak berpikir itu tawaran yang buruk. Namun, bolehkah Aku mengajukan beberapa pertanyaan?」
-Ya, silakan. Seperti yang diharapkan, Ainsel-chan akan lebih baik untuk hal-hal semacam ini, kan?」
-Aku ingin tahu? Ciel seharusnya bisa membuat penilaian semacam ini dalam waktu dekat.
-Sekarang untuk pertanyaannya, Fiiyanamia-sama, Kamu tidak terlalu khawatir tentang penerus, bukan?」
-Tidak, Aku tidak khawatir. Bagaimanapun, peran Aku adalah milik Aku sendiri untuk dimainkan.
-Itu sebabnya bahkan jika kamu menjadi anakku, itu tidak akan mengubah apapun. Seperti yang Aku katakan sebelumnya, Aku sudah melihat kalian berdua sebagai keluarga.
-Bagi Aku, ini hanya akan membuat perkenalan menjadi lebih mudah. Ini akan menyebabkan beberapa gangguan berkerumun, tetapi kalian berdua harus bisa mengatasi ini, ya? kan
-Fiiyanamia-sama, Jika apa yang kamu katakan sebelumnya benar, maka Central akan hancur sebelum sesuatu terjadi padaku.
+"Aku tidak berpikir itu tawaran yang buruk. tapi, bolehkah Aku mengajukan beberapa pertanyaan?" (Ain)
 
-Dalam hal ini, tidak apa-apa untuk menerimanya. Tidak ada tangkapan di belakangnya juga. Jika ada, maka itu mungkin sesuatu yang tidak siap kita tangani sejak awal.
-Kurasa itu melegakan, saat aku memberikan jawaban yang tidak berbahaya, Fiiyanamia-sama menatapku dengan tidak puas karena suatu alasan.
+"Ya, silakan. Seperti yang diharapkan, Ainsel-chan akan lebih baik untuk hal-hal semacam ini, kan?" (Fii)
 
-Dan seolah-olah dia memikirkan sesuatu yang baik, ekspresinya berubah total.
+"entahlah? Ciel seharusnya bisa membuat penilaian semacam ini dalam waktu dekat. Sekarang untuk pertanyaannya, Fiiyanamia-sama, Kamu tidak terlalu khawatir tentang penerusmu, bukan?" (Ain)
 
-"Benar, benar. Aku tidak keberatan membawa kalian berdua sebagai anak Aku tetapi dengan satu syarat.
-Dan syaratnya adalah?」
-Aku ingin Kamu memanggil Aku dengan Fii. Paling tidak, kamu tidak bisa langsung menggunakan sama saat menyebutku, bagaimanapun juga kita adalah keluarga.
-Juga, Aku ingin memanggil Kamu Ain juga.
+"Tidak, Aku tidak khawatir. Bagaimanapun juga, peranku adalah milikku sendiri. Itu sebabnya bahkan jika kamu menjadi anakku, itu tidak akan mengubah apapun. Seperti yang Aku katakan sebelumnya, Aku sudah melihat kalian berdua sebagai keluarga. Bagiku, ini hanya akan membuat perkenalan menjadi lebih mudah. Ini akan menyebabkan orang akan mengerumuni kalian, tetapi kalian bisa mengatasi ini, kan?" (Fii)
+
+"Fiiyanamia-sama, Jika apa yang kamu katakan benar, maka Central akan hancur sebelum sesuatu terjadi padaku." (Ain)
+
+kalau begitu, tidak apa-apa untuk menerimanya. Tidak ada maksud di belakangnya juga. Jika ada, maka itu mungkin sesuatu yang tidak siap kami tangani sejak awal.
+
+Kurasa itu melegakan. saat aku memberikan jawaban yang tidak berbahaya, Fiiyanamia-sama menatapku dengan tidak puas karena suatu alasan.
+
+Dan seolah-olah dia memikirkan sesuatu, ekspresinya berubah total.
+
+"Benar, benar. Aku tidak keberatan membuat kalian berdua sebagai anakku tetapi dengan satu syarat." (Fii)
+
+"Dan syaratnya?" (Ain)
+
+"Aku ingin Kamu memanggilku dengan Fii. Paling tidak, kamu tidak boleh menggunakan 'sama' saat menyebutku, bagaimanapun juga kita adalah keluarga. Juga, Aku ingin memanggilmu Ain juga." (Fii)
 
 Fiiyanamia-sama menatapku dengan senyum lebar. Apa yang dia katakan sama sekali tidak salah, kurasa.
-Aku sebenarnya tidak tahu apa itu akal sehat di dunia ini, jadi aku tidak bisa berkomentar terlalu banyak tapi setidaknya, kamu tidak langsung menggunakan sama dengan orang tuamu.
-Ini adalah tawaran yang murah tapi mau tak mau aku merasa ragu untuk memanggil Fiiyanamia-sama hanya dengan Fii. Aku enggan untuk memanggil seseorang dari posisi yang lebih tinggi dengan nama panggilan mereka.
 
-Jika Kamu tidak suka itu, maka mungkin Aku harus memanggil Kamu Ainsel-sama mulai sekarang.」
-Tolong jangan. Juga, tolong beri Aku waktu untuk berdiskusi dengan Ciel.」
-Tentu saja. Aku tak sabar untuk itu."
+Aku sebenarnya tidak tahu apa itu normal di dunia ini, jadi aku tidak bisa berkomentar terlalu banyak tapi setidaknya, kamu tidak menggunakan 'sama' dengan orang tuamu.
 
-Ain, apa yang sangat mengganggumu? Fii bisa dipercaya, menurutku.』
-Bukannya aku tidak mempercayai Fiiyanamia-sama.
-Hanya saja, aku merasa enggan memanggilnya hanya dengan Fii. Begitukah
-? Jika kamu tidak menyukainya, maka aku tidak keberatan untuk tetap seperti sekarang ini.』
-...... Tidak, ini hanya masalah membiasakanku, jadi aku berpikir untuk menerimanya.
-Apakah kamu keberatan, Ciel?』
-Karena ini Fii, tidak apa-apa.
+Ini adalah tawaran yang murah tapi aku merasa ragu untuk memanggil Fiiyanamia-sama hanya dengan Fii. Aku enggan untuk memanggil seseorang dari posisi yang lebih tinggi dengan nama panggilan mereka.
 
-Dalam hal ini, Aku harus menyelesaikan sendiri. Juga, Ciel memanggilnya dengan nama panggilan, jadi akan sangat bodoh bagiku untuk tidak melakukan itu juga.
+"Jika Kamu tidak suka itu, mungkin Aku akan memanggilmu Ainsel-sama mulai sekarang." (Fii)
+
+"Tolong jangan. Juga, tolong beri Aku waktu untuk berdiskusi dengan Ciel." (Ain)
+
+"Tentu saja. Aku tak sabar untuk itu." (Fii)
+
+[Ain, apa yang sangat mengganggumu? Menurutku Fii bisa dipercaya.] (Ciel)
+
+[Bukannya aku tidak mempercayai Fiiyanamia-sama. Hanya saja, aku merasa enggan memanggilnya hanya dengan Fii.] (Ain)
+
+[Begitukah? Jika kamu tidak menyukainya, maka aku tidak keberatan untuk tetap seperti sekarang ini.] (Ciel)
+
+[...... Tidak, ini hanya masalah membiasakanku, jadi aku berpikir untuk menerimanya. Apakah kamu keberatan, Ciel?] (Ain)
+
+[Karena ini Fii, tidak masalah.] (Ciel)
+
+Dalam hal ini, Aku harus menyelesaikan sendiri. Ciel juga memanggilnya dengan nama panggilan, jadi akan sangat bodoh bagiku untuk tidak melakukan itu juga.
+
 Tapi, yah, keluarga, ya.
 
-Kami telah memutuskan, kami menerima tawaran itu.
-Kalau begitu, mengapa Kamu tidak mencoba memanggil Aku dengan nama sekarang?」
-Aku mengerti. Fii-kaasama.
-Yah, yah, itu tidak seperti yang Aku harapkan.」
+"Kami telah memutuskannya, kami menerima tawaran itu." (Ain)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Kalau begitu, mengapa Kamu tidak mencoba memanggilku dengan nama panggilan sekarang?" (Fii)
 
-(Katakan tidak pada pencuri konten!)
+"Aku mengerti. Fii-kaasama." (Ain)
 
-Fiiyanamia-sama —— Fii-kaasama menunjukkan ekspresi yang sangat terkejut.
-Melihat Fiikaasama, yang sepertinya tahu hampir segalanya, membuat ekspresi semacam ini cukup menyegarkan, rasanya seolah-olah aku berhasil mengalahkannya.
+"Yah, yah, itu tidak seperti yang Aku harapkan." (Fii)
 
-Tapi kita adalah keluarga, jadi seharusnya tidak menjadi masalah, kan?」
-Itu benar. Selain itu, dipanggil itu cukup menarik dan menyegarkan.
+Fiiyanamia-sama, Fii-kaasama menunjukkan ekspresi yang sangat terkejut.
+
+Melihat Fii-kaasama, yang sepertinya tahu hampir segalanya, membuat ekspresi semacam ini cukup menyegarkan, rasanya seolah-olah aku berhasil mengalahkannya.
+
+"Tapi kita adalah keluarga, jadi seharusnya tidak menjadi masalah, kan?" (Ain)
+
+"Itu benar. Selain itu, dipanggil seperti itu cukup menarik dan menyegarkan." (Fii)
 
 Sepertinya Fii-kaasama sangat menyukainya.
-Jadi Ciel tidak menyadarinya, aku menghela nafas lega dalam pikiranku.
+
+ciel sepertinya tidak menyadarinya, aku menghela nafas lega dalam pikiranku.
+
+-----------------------------------------------
+
+Yaaaay akhirnya dapata emak baru ~~~
+
+ainciel kita mendapatkan emak baru yaaaaayy ~~~
+
+diawal waktu ekpresi fii berubah saya kira fii kecewa dgn respon ain.. ternyata hanya kecewa dengan ain yang masih memanggilnya secara formal.. dan wow, ternyata fii-kaasama diterima.... hahaha tapi tetap aja ada 'sama' nya... tapi tidak masalah selama Fiiynamia puas... dan ain sungguh berusaha ingin menjadi figur orang tual ciel.. walau pada akhirnya kalah dewasa dengan ciel ... kamu telah berjuang keras, ain... tapi sekarang kalian punya ibu baru... fii-kaasama ~ dan jgn lupa ain juga punya ibu dewa pencipta :) 
+
+saya penasaran apa yang akan dibicarakan karena juga mengikutsertakan kedua maid tersebut... apa mungkin ada hal yang menarik ? yng besar ?? apakah ainciel kita akan bertemu celia, carol, atau orang orang central lain yang dulunya pernah mereka temui sebelumnya ? aaaa penasaraaan...
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
