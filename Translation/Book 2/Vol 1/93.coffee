@@ -80,35 +80,37 @@ Aku hanya ingin tenggelam lebih lama dalam kenangan kemarin. Jika Aku melakukann
 
 [Ada yang ingin ditanyakan?] (Ain)
 
-"Ya, seperti, sekarang kita sudah keluar dari Estoque, bagaimana cara aku berinteraksi dengan orang-orang? Dan tempat seperti apa duniamu? Mengenai yang terakhir, Aku tidak akan memaksa apabila kamu tidak ingin membicarakannya, Ain. Selain itu, bagaimana dengan keadaan Kamu saat ini?" (Ciel)
+[Ya, seperti, sekarang kita sudah keluar dari Estoque, bagaimana cara aku berinteraksi dengan orang-orang? Dan tempat seperti apa duniamu? Mengenai yang terakhir, Aku tidak akan memaksa apabila kamu tidak ingin membicarakannya, Ain. Selain itu, bagaimana dengan keadaan Kamu saat ini?] (Ciel)
 
-Benar, sekarang setelah kita keluar dari Estoque, seharusnya tidak ada masalah dengan berhubungan dengan orang.
-Sebaliknya, bahkan ketika kami berada di Estoque, kami berinteraksi dan terhubung dengan orang-orang dari Central, jadi Aku kira melakukan perpanjangan itu harus bekerja untuk saat ini?
+Benar, sekarang setelah kami keluar dari Estoque, seharusnya tidak ada masalah dengan berinteraksi dengan orang.
+
+bahkan ketika kami berada di Estoque, kami berinteraksi dan terhubung dengan orang-orang dari Central, jadi Aku kira melanjutkan hal itu ?
+
 Dan mengenai Bumi, jika Aku membicarakannya, maka akan lebih baik untuk meluangkan waktu dengan benar untuk membicarakannya.
 
-Aku akan menjawab yang pertama setelah memikirkannya terlebih dahulu. Dan mengenai dunia tempat Aku berasal, Aku akan menjelaskannya secara bertahap.
-Untuk hari ini, jika ada sesuatu yang Fiiyanamia-sama ingin kita bantu, maka itu mungkin bagus juga.
-Juga, keadaanku saat ini?』
-Jika kamu belum menyadarinya, mari kita bicarakan nanti.
+[Aku akan menjawab yang pertama setelah memikirkannya terlebih dahulu. Dan mengenai dunia tempatku berasal, Aku akan menjelaskannya secara bertahap. Untuk hari ini, jika ada sesuatu yang Fiiyanamia-sama ingin kita bantu, maka itu mungkin bagus juga. dan, keadaanku saat ini?] (Ain)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+[Jika kamu belum menyadarinya, mari kita bicarakan nanti.] (Ciel)
 
 Apa ada yang aneh denganku?
-Aku penasaran tapi seperti yang Ciel katakan, percakapan saat ini dengan Fiiyanamia-sama harus diprioritaskan.
 
-Dengan itu, kami juga tidak memiliki apa pun yang perlu dilakukan.
-Fii, apakah Kamu memiliki sesuatu yang Kamu ingin Aku lakukan?
+Aku penasaran tapi seperti yang Ciel katakan, percakapan dengan Fiiyanamia-sama saat ini harus diprioritaskan.
 
-Setelah Ciel menyampaikan kata-kataku, Baiklah, kalau begitu. Fiiyanamia-sama memiringkan kepalanya.
+"kami juga tidak memiliki apa pun yang perlu dilakukan.Fii, apakah Kamu memiliki sesuatu yang Kamu ingin Aku lakukan?" (Ciel)
 
-Kalau begitu, akankah kita membahas tentang masa depan?」
-Mengerti.
-Tapi sebelum itu, sarapan. Aku akan memanggil Mohsa dan Saueluna untuk hadir dalam diskusi, apakah itu baik-baik saja?」
-Ain, apakah tidak apa-apa?」
-Umm, ya. Seharusnya tidak apa-apa.
-Tidak apa-apa, kata Ain.
+Setelah Ciel menyampaikan kata-kataku, "Baiklah, kalau begitu.." Fiiyanamia-sama memiringkan kepalanya.
+
+"Kalau begitu, bagaimana kalai kita membahas masa depan kalian?" (Fii)
+
+"Baiklah." (Ciel)
+
+"Tapi sebelum itu, sarapan. Aku akan memanggil Mohsa dan Saueluna untuk ikut dalam pembicaraan nantinya, apakah itu tidak masalah?" (Fii)
+
+"Ain, apakah itu tidak masalah?" (Ciel)
+
+[Umm, ya. Seharusnya tidak apa-apa.] (Ain)
+
+"Tidak masalah, kata Ain." (Ciel)
 
 Sementara aku tidak benar-benar tahu siapa Saueluna-san ini, dia mungkin seorang pelayan yang ditugaskan untuk Ciel, seperti bagaimana Mohsasan bagiku.
 Ciel tidak menunjukkan reaksi negatif, jadi mereka mungkin sudah bertemu.
