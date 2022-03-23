@@ -69,14 +69,18 @@ Tetap saja, bahkan beberapa tahun tidak akan mengganggunya?
 "baiklah, apa yang akan kalian berdua lakukan hari ini?" (Fii)
 
 Seperti orang dewasa yang bertanya kepada seorang anak apa yang ingin mereka lakukan, Fiiyanamia-sama bertanya kepada Ciel tapi kami mungkin tidak punya rencana untuk hari ini.
-Setidaknya aku tidak bisa memikirkan apa pun untuk dilakukan.
-Karena kemarin, Aku kehilangan motivasi untuk melakukan apapun.
-Aku hanya ingin berjemur lebih lama dalam kenangan kemarin. Jika Aku melakukannya, Aku mungkin akan berlebihan, itulah sebabnya Aku mendesak Ciel untuk datang ke sini dan sarapan.
 
-Tidak ada yang khusus dalam pikiran. Aku memiliki beberapa hal yang ingin Aku tanyakan Ain tetapi seharusnya tidak memakan banyak waktu, Aku pikir?」 Ada
-yang ingin ditanyakan?』
-Ya, seperti, sekarang kita keluar dari Estoque, bagaimana cara berinteraksi dengan Aku ? orang-orang? Dan tempat seperti apa duniamu?
-Mengenai yang terakhir, Aku tidak akan bertanya apakah Kamu tidak ingin membicarakannya, Ain. Selain itu, bagaimana dengan keadaan Kamu saat ini?
+Setidaknya aku tidak bisa memikirkan apa pun untuk dilakukan.
+
+Karena hal kemarin, Aku kehilangan motivasi untuk melakukan apapun.
+
+Aku hanya ingin tenggelam lebih lama dalam kenangan kemarin. Jika Aku melakukannya, Aku mungkin akan berlebihan, itulah sebabnya Aku mendesak Ciel untuk datang ke sini dan sarapan.
+
+"tidak ada yang terlintas di pikiranku. Aku memiliki beberapa hal yang ingin Aku tanyakan ke Ain tetapi seharusnya tidak memakan banyak waktu, mungkin?" (Ciel)
+
+[Ada yang ingin ditanyakan?] (Ain)
+
+"Ya, seperti, sekarang kita sudah keluar dari Estoque, bagaimana cara aku berinteraksi dengan orang-orang? Dan tempat seperti apa duniamu? Mengenai yang terakhir, Aku tidak akan memaksa apabila kamu tidak ingin membicarakannya, Ain. Selain itu, bagaimana dengan keadaan Kamu saat ini?" (Ciel)
 
 Benar, sekarang setelah kita keluar dari Estoque, seharusnya tidak ada masalah dengan berhubungan dengan orang.
 Sebaliknya, bahkan ketika kami berada di Estoque, kami berinteraksi dan terhubung dengan orang-orang dari Central, jadi Aku kira melakukan perpanjangan itu harus bekerja untuk saat ini?
