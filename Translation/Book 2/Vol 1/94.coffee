@@ -168,85 +168,105 @@ Sejujurnya Aku tidak tahu detailnya, jadi Aku memutuskan untuk bertanya kepada k
 
 "Kaasama, apakah ada masalah dengan caraku berbicara barusan?" (Ain)
 
-"Tidak perlu khawatir tentang itu, Ain. Lagipula, tidak ada seorang pun disini yang akan salah menilai posisi mereka dari sesuatu yang sekecil itu. Orang yang meremehkanmu karena itu hanya menunjukkan kedangkalannya sendiri. Mereka berdua mungkin hanya akan bersamamu selama kamu tinggal disini, jadi kurasa kamu tidak perlu terlalu mengkhawatirkannya. Untuk memastikan, memanggil mereka tanpa gelar kehormatan mungkin akan memudahkanmu di masa depan." (Fii)
-
-Untuk beberapa alasan, ada beberapa yang rewel dengan penggunaan gelar kehormatan, Kamu mengerti?
-Meskipun, paling buruk, Kamu memiliki kekuatan yang menjamin Kamu mengabaikan ini sama sekali.
+"Tidak perlu khawatir tentang itu, Ain. Lagipula, tidak ada seorang pun disini yang akan salah menilai posisi mereka dari sesuatu yang sekecil itu. Orang yang meremehkanmu karena itu hanya menunjukkan kedangkalannya sendiri. Mereka berdua mungkin hanya akan bersamamu selama kamu tinggal disini, jadi kurasa kamu tidak perlu terlalu mengkhawatirkannya. Untuk memastikan, memanggil mereka tanpa gelar kehormatan mungkin akan memudahkanmu di masa depan. Untuk beberapa alasan, ada beberapa yang rewel dengan penggunaan gelar kehormatan, Kamu mengerti? Meskipun terjadi sesuatu paling buruk, Kamu memiliki kekuatan yang menjaminmu mengabaikan ini sama sekali." (Fii)
 
 Dengan kata lain, panggil saja mereka Mohsa dan Saueluna.
+
 Di Jepang, menambahkan – san ke orang yang baru Kamu temui, atau lebih tepatnya orang yang tidak Kamu kenal, adalah pilihan yang aman tetapi ini adalah dunia yang berbeda. Ada kelas sosial yang berbeda, dan kami bergabung dengan apa yang disebut kelas atas, jadi akan ada lebih sedikit gesekan mengikuti aturan ini.
-Seperti yang mereka katakan, ketika di Roma, lakukan seperti yang dilakukan orang Romawi.
+
+Seperti yang mereka katakan, ketika di Roma, lakukan seperti yang dilakukan orang roma.
 
 Namun, kami juga telah menyimpang dari kerangka kemanusiaan.
-Hidup dalam harmoni dengan orang-orang tidak lagi menjadi kebutuhan yang lengkap, dan tidak perlu terikat oleh aturan fana.
-Aku kira kita harus mempertimbangkan keseimbangan ini saat kita melanjutkan hidup kita juga.
-Itu sangat mengganggu. Selama tidak ada salahnya untuk Ciel, mungkin lebih mudah untuk hanya hidup sesuai dengan orang-orang dari posisi yang lebih tinggi.
 
-Aku akan menghabiskan waktu untuk memikirkan topik itu.
-Untuk saat ini, Mohsa, Saueluna, Aku membayangkan bahwa kami mungkin mengganggu kalian berdua, tetapi tolong perlakukan kami dengan baik.
+Hidup dalam harmoni dengan orang-orang tidak lagi menjadi kebutuhan kami, dan tidak perlu terikat oleh aturan manusia.
+
+Aku kira kami harus mempertimbangkan keseimbangan ini saat kami melanjutkan hidup kami juga.
+
+ini sangat mengganggu. Selama tidak mengganggu Ciel, mungkin lebih mudah untuk hanya hidup sesuai dengan orang-orang dari kalangan atas.
+
+"Aku akan menghabiskan waktu untuk memikirkan ini. Untuk saat ini, Mohsa, Saueluna, Aku membayangkan bahwa kami mungkin mengganggu kalian berdua, tetapi tolong perlakukan kami dengan baik." (Ain)
 
 Mengatakan itu, Aku beralih dengan Ciel.
-Warna kembali ke Ciel dan aku berubah menjadi bentuk humanoid.
-Ya, jadi ini benar-benar wujud asliku sekarang. Dengan kata lain, Ciel berambut hitam.
 
-Aku tidak percaya Kamu tidak memperhatikan ini, Aku.
+Warna tubuh kembali ke Ciel dan aku berubah menjadi bentuk humanoid.
+
+Ya, jadi ini wujud asliku sekarang. Dengan kata lain, Ciel berambut hitam.
+
+Aku tidak percaya Kamu tidak memperhatikan ini, diriku.
 
 Saat aku mengamati tubuhku sendiri dengan cermat, aku melihat Liessyl-san menatapku dari sudut mataku. Dan saat aku menatapnya, dia melambai padaku, jadi aku balas melambai.
-Bahkan saat aku masih menjadi sebuah orb, para arwah bereaksi seolah-olah mereka bisa mendengar percakapan kami, jadi aku yakin mereka juga bisa melihatku.
+
+Bahkan saat aku masih menjadi sebuah bola cahaya, para arwah bereaksi seolah-olah mereka bisa mendengar percakapan kami, jadi aku yakin mereka juga bisa melihatku.
 
 Ciel berbicara kepada keduanya, menyelesaikan topik kita saat ini. Fii-kaasama kemudian pindah ke topik berikutnya.
 
-Benar, itu benar. Ciel, apakah kamu akan terus menjadi pemburu?」
-Kami mungkin akan melakukannya. Lagi pula, Aku tidak tahu cara lain untuk mendapatkan uang.
-Itu akan diperlukan saat bepergian, kan?」
-Kalau begitu, akan lebih baik untuk mengunjungi Guild Hunter. Katakan kepada mereka bahwa Kamu adalah putri Aku dan mereka harus memperlakukan Kamu dengan baik.
-Selain itu, apakah Kamu ingat personel guild yang ingin mengeksploitasi Kamu sebelumnya?
+"Benar, itu benar. Ciel, apakah kamu akan terus menjadi hunter?" (Fii)
 
-Aku tidak tahu apa yang sedang dibicarakan Fii-kaasama untuk sesaat tapi, benar, ketua guild yang bertindak di Capital City Estoque.
+"Kami mungkin akan melakukannya. Lagi pula, Aku tidak tahu cara lain untuk mendapatkan uang. Itu akan diperlukan saat bepergian, kan?" (Ciel)
+
+"Kalau begitu, akan lebih baik untuk mengunjungi Guild Hunter. Katakan kepada mereka bahwa Kamu adalah anakkku dan mereka harus memperlakukanmu dengan baik. Selain itu, apakah Kamu ingat personel guild yang ingin mengeksploitasi Kamu sebelumnya?" (Fii)
+
+Aku tidak tahu apa yang sedang dibicarakan Fii-kaasama untuk sesaat tapi, benar, ketua guild sementara di Capital City Estoque.
+
 Meskipun hanya beberapa hari, begitu banyak yang telah terjadi sejak kami datang ke sini, jadi aku benar-benar melupakannya.
+
 Dan kalau boleh jujur, aku juga lupa tentang elf, Yunmika-san, dwarf, Bajo-san, dan beast-kin, Wangwan-san.
 
-Pengganti, kan? Ada seseorang seperti itu, sekarang aku ingat.
+"si pengganti, kan? sekarang aku ingat Ada seseorang seperti itu." (Ciel)
 
-Dan sepertinya itulah satu-satunya kesan Ciel tentang dia. Sebenarnya, berapa banyak orang yang membuatnya mudah terpengaruh? Meskipun itu mungkin ide Aku untuk memulai, mungkin akan lebih baik baginya untuk berinteraksi dan bergaul dengan orang lain.
-Dan seolah-olah mereka hanya berbicara tentang cuaca kemarin, mereka terus berbicara tentang guildmaster yang bertindak.
+Dan sepertinya itulah satu-satunya kesan Ciel tentang dia. Sebenarnya, berapa banyak orang yang terpengaruh oleh ciel? 
 
-Orang itu, Kamu tahu, sudah ditangkap oleh Guild Hunter.
-Mempertimbangkan beratnya apa yang terjadi, Aku telah diberitahu bahwa dia akan menerima hukuman berat. Hm~nh, begitu.
-」
+Meskipun itu mungkin ideku pada dasarnya, mungkin akan lebih baik baginya untuk berinteraksi dan bergaul dengan orang lain.
+
+Dan seolah-olah mereka hanya berbicara tentang cuaca kemarin, mereka terus berbicara tentang guildmaster tersebut.
+
+"Orang itu, sudah ditangkap oleh Guild Hunter. Mempertimbangkan beratnya apa yang terjadi, Aku telah diberitahu bahwa dia akan menerima hukuman berat." (Fii)
+
+"Hm~nh, begitu." (Ciel)
 
 Kurangnya minat Ciel sungguh luar biasa. Seolah-olah mengatakan bahwa kue yang dia makan sekarang lebih penting dari itu.
-Aku berbagi sentimen dia sekalipun.
+
+Aku juga sama seperti itu sih.
+
 Meskipun rasanya sederhana, tepung terigu, gula, dan mentega memiliki rasa yang dalam, Aku bisa terus makan selamanya.
 
-Sekarang, apa hubungannya ini dengan apa pun, Kamu bertanya? Guild Hunter sepertinya tidak ingin ada gesekan denganmu.
-Aku mendengar bahwa bahkan tanpa campur tangan Aku, mereka bermaksud untuk memperlakukan Kamu dengan ramah.
-Itu akan membuat pekerjaan jauh lebih mudah. Apakah mungkin karena Celia dan Carol?」
-Ya ampun, itu mengingatkanku, kalian berdua berkenalan dengannya.
+"Sekarang, apa hubungannya ini denganmu? Guild Hunter sepertinya tidak ingin ada gesekan denganmu. Aku dengar bahwa bahkan tanpa campur tanganku, mereka bermaksud untuk memperlakukanmu dengan ramah." (Fii)
 
-Yang menyiratkan bahwa kaasama mengenal Ceila-san atau Carol-san, ya.
+"Itu akan membuat semuanya jauh lebih mudah. Apakah mungkin karena Celia dan Carol?" (Ciel)
+
+"ara ara~ itu mengingatkanku, kalian berdua berkenalan dengannya." (Fii)
+
+Yang menyiratkan bahwa kaasama mengenal Ceila-san atau Carol-san.
+
 Tidak akan mengejutkan jika itu adalah Carol-san.
-Sekarang, kami agak dekat dengan para pemburu Pusat. Menurut Aku. Jadi Aku kira aman untuk mengatakan bahwa informasi yang benar telah diedarkan?
-Atau mungkin itu jelas karena kekuatan kita.
 
-Dan, benar, untuk mencari Utusan Ilahi Buatan, kurasa tinggal di Persekutuan Pemburu bukanlah ide yang buruk.
-Utusan Ilahi Buatan...... Ah, yang itu. Palsu buatan manusia itu.
-Jika Aku tidak salah, mengalahkan itu membuat Ain menyerap divine power. Dengan kata lain, kalian berdua siap untuk datang ke sisi ini, kalau begitu?
-Ya, bagaimanapun juga, Aku menginginkan tubuh Ain. 」
+Sekarang, kami agak dekat dengan para Hunter Pusat. Jadi Aku kira aman untuk mengatakan bahwa informasi yang benar telah diedarkan?
+
+Atau mungkin itu jelas karena kekuatan kami.
+
+"benar, untuk mencari Utusan dewa Buatan, kurasa tinggal di guild hunter bukanlah ide yang buruk." (Ciel)
+
+"Utusan dewa Buatan...... Ah, itu ya. Palsu buatan manusia itu. Jika Aku tidak salah, mengalahkan itu membuat Ain menyerap energi dewa. Dengan kata lain, kalian berdua siap untuk datang ke sisi dewa?" (Fii)
+
+"Ya, bagaimanapun juga, Aku menginginkan tubuh Ain." (Ciel)
 
 Mendengar jawaban Ciel, Fii-kaasama terkikik.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+"Kalian berdua benar-benar dekat." (Fii)
 
-(Katakan tidak pada pencuri konten!)
+"Lagipula, aku sudah bersama Ain sejak lama. Dan kami akan bersama selamanya." (Ciel)
 
-Kalian berdua benar-benar dekat.」
-Lagipula, aku sudah bersama Ain sejak lama. Dan kita akan bersama selamanya.」
-Dalam hal ini, Kamu juga memerlukan informasi dari luar Central. Tentu saja, untuk mengumpulkan jenis informasi ini, Guild Hunter harus menjadi pilihan terbaik.
-Juga, memiliki pangkat tinggi benar-benar membuat melintasi perbatasan negara menjadi mudah.」
-Apakah sulit bahkan sebagai putrimu, Fii?」
-Menurutku apa yang terjadi setelah memasuki perbatasan lebih menyebalkan, tahu? Aku biasanya tidak pergi dari sini dan Aku tidak bisa mengundang orang dengan mudah. Tetap saja, ada banyak yang ingin menjalin hubungan denganku, kau tahu?」
+"Dalam hal ini, Kamu juga memerlukan informasi dari luar Central. Tentu saja, untuk mengumpulkan jenis informasi ini, Guild Hunter bisa menjadi pilihan terbaik. Juga, memiliki rank tinggi benar-benar membuat melintasi perbatasan negara menjadi mudah." (Fii)
 
-Dengan kata lain, setelah memasuki negara itu, ada kemungkinan mereka akan berinteraksi dengan kita untuk menjadi penengah bagi kaasama.
-Jika, misalnya, kita mungkin ingin meminta sesuatu, maka mungkin ada beberapa yang akan melakukan segalanya untuk membuat kita berhutang budi kepada mereka.
-Setelah secara kasar menjelaskan hal ini kepada Ciel, dia terlihat kesal Itu merepotkan. Dan bergumam begitu.
+"Apakah sulit bahkan sebagai anakmu, Fii?" (Ciel)
+
+"Menurutku apa yang terjadi setelah memasuki perbatasan lebih menyebalkan. Aku biasanya tidak pergi dari sini dan Aku tidak bisa mengundang orang dengan mudah. Tetap saja, ada banyak yang ingin menjalin hubungan denganku, kau tahu?" (Fii)
+
+Dengan kata lain, setelah memasuki negara itu, ada kemungkinan mereka akan berinteraksi dengan kami untuk menjadi penengah bagi kaasama.
+
+Jika, misalnya, kami mungkin ingin meminta sesuatu, maka mungkin ada beberapa yang akan melakukan segalanya untuk membuat kami berhutang budi kepada mereka.
+
+Setelah secara garis besar menjelaskan hal ini kepada Ciel, dia terlihat kesal dan berkata "Itu merepotkan.".
+
+-----------------------------------------------------------------------
+
