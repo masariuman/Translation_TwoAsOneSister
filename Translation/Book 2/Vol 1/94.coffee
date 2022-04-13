@@ -54,98 +54,121 @@ Siapapun mungkin bisa menggunakan semacam teknik membaca pikiran pada saat itu.
 
 Dan jika ada cara untuk melakukannya dengan sihir, aku mungkin akan menyadari penggunaannya. Jika pengguna memiliki skill yang cukup untuk melewati deteksi-ku, mereka seharusnya dapat mengetahui kapan pun Ciel dan Aku akan bertukar posisi.
 
-Tetap saja, bahkan mempertimbangkan ini, itu tidak seperti aku bisa secara otomatis memakai pita atau sesuatu begitu kita beralih.
-Mengapa kita harus peka? Dan saat pemikiran ini langsung muncul di benakku, sepertinya aku terlalu terpengaruh oleh kebrutalan dunia.
+Tetap saja, bahkan mempertimbangkan ini, ini tidak seperti aku bisa secara otomatis memakai pita atau sesuatu begitu kami berganti.
+
+apa yang harus kami lakukan? Dan saat pemikiran ini muncul di benakku, sepertinya aku terlalu terpengaruh oleh kebrutalan dunia.
+
 Mungkin, dalam hal kewaspadaan terhadap orang, aku mungkin jauh lebih buruk dibandingkan dengan Ciel.
 
-Katakan, Ain.
-Apa itu?』
+[hey, Ain.] (Ciel)
 
-Sejak Ciel menelepon Aku, Aku berhenti berpikir dan fokus pada percakapan.
+[iya?] (AIn)
 
-Tidak bisakah kamu membuat tubuhku terlihat seperti penampilan Ain?』
-Seperti menghitamkan rambutmu dan sebagainya?』
-Ya! Aku pikir itu harus mungkin!
+karena ciel memanggilku, Aku berhenti berpikir dan fokus pada percakapan.
 
-Ciel terdengar sangat bersemangat, jadi sulit untuk menegurnya dengan ringan.
-Dengan Ciel menyarankan ini, Aku harus setidaknya mencoba sebelum memberikan penilaian.
-Padahal, dengan mengatakan itu, di mana Aku harus mulai?
+[Tidak bisakah kamu membuat tubuhku terlihat seperti penampilan Ain?] (Ciel)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+[Seperti menghitamkan rambutmu?] (Ain)
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+[Ya! Aku pikir itu bisa dilakukan!] (Ciel)
 
-Tuhan Pencipta mengatakan kepada Aku bahwa bentuk itu adalah bentuk jiwa Aku, jadi mungkin itu akan berhasil dengan sendirinya jika Aku membiarkan jiwa melakukan pekerjaan itu.
-Saat aku memikirkan itu, kekuatan suci dalam diriku tiba-tiba mulai menyelimuti tubuh Ciel.
+Ciel terdengar sangat bersemangat, jadi sulit untuk menolaknya dengan ringan.
 
-Fufu, seperti yang Aku pikirkan! Itu berhasil, itu berhasil!
+Dengan Ciel menyarankan ini, Aku setidaknya harus mencoba sebelum memberikan pendapatku.
 
-Mendengar suara bersemangat Ciel, aku melihat kulitku dan melihat bahwa itu berubah menjadi kulit yang lebih hangat daripada miliknya.
+tapi, dari mana Aku harus memulainya?
+
+dewa Pencipta mengatakan kepadaku bahwa bentuk itu adalah bentuk jiwaku, jadi mungkin itu akan berhasil dengan sendirinya jika Aku membiarkan jiwa melakukan pekerjaan itu.
+
+Saat aku memikirkan itu, energi dewa dalam diriku tiba-tiba mulai menyelimuti tubuh Ciel.
+
+[Fufu, seperti yang Aku pikirkan! Itu berhasil, itu berhasil!] (Ciel)
+
+Mendengar suara bersemangat Ciel, aku melihat kulitku dan melihat bahwa itu berubah menjadi kulit yang lebih gelap daripada miliknya.
+
 Rambut yang mengalir dari bahu ke dadaku juga hitam sekarang.
 
-Kaasama, apakah Aku sudah berubah?」
-Ya, ya. Dengan ini, jauh lebih mudah untuk mengetahuinya. Namun, bukankah bentuk itu membuatmu lelah?」
-Itu memang menggunakan kekuatan suci, jadi bukannya tidak, tapi aku akan baik-baik saja untuk sementara waktu.
+"Kaasama, apakah Aku sudah berubah?" (Ain)
 
-Jika Aku bisa mengubah penampilan Aku seperti ini, maka mungkin Aku bisa berubah menjadi bentuk lain yang berbeda. Dengan itu, Aku mencoba melakukannya tetapi sepertinya ini yang paling bisa dilakukan.
-Bisa dibilang itu hanya mungkin karena itu adalah bentuk jiwaku.
+"Ya, ya. Dengan ini, jauh lebih mudah untuk mengetahuinya. tapi, bukankah bentuk itu membuatmu lelah?" (Fii)
+
+"Itu memang menggunakan energi dewa, jadi bukannya tidak lelah, tapi aku akan baik-baik saja untuk sekarang." (Ain)
+
+Jika Aku bisa mengubah penampilanku seperti ini, maka mungkin Aku bisa berubah menjadi bentuk lain yang berbeda. Aku mencoba melakukannya tetapi sepertinya hanya ini yang paling bisa dilakukan.
+
+Bisa dibilang itu mungkin karena itu adalah bentuk jiwaku.
+
 Tetap saja, aku benar-benar bingung.
 
-Bagaimana Kamu menyadari hal ini, Ciel?』
-Jadi Kamu benar-benar tidak menyadarinya, Ain. Bahkan tanpa kita beralih, Ain sekarang selalu terlihat seperti Ain, tahu?』
+[Bagaimana Kamu menyadari hal ini, Ciel?] (Ain)
 
-Apakah penampilan Aku stabil setelah memiliki tubuh Aku sendiri?
-Selain alasan, sekarang aku memikirkannya, ini mengingatkanku pada sesuatu dari pagi ini.
+[Jadi Kamu benar-benar tidak menyadarinya, Ain. Bahkan tanpa kita bertukar, Ain sekarang selalu terlihat seperti Ain, kau tahu?] (Ciel)
 
-...... Kalau dipikir-pikir, ketika Aku mencoba menyentuh pipi Kamu, tangan Aku melewati.』
-Ain, Kamu berharap untuk menyentuh Aku? Kamu benar?"
+Apakah penampilanku stabil setelah memiliki tubuh sendiri?
 
-Aku sudah mengatakan sesuatu yang tidak perlu lagi. Sebaliknya, Aku merasa malu karena tidak menyadari hal ini sebelumnya.
+sekarang aku memikirkannya, ini mengingatkanku pada sesuatu dari pagi ini.
+
+[...... Kalau dipikir-pikir, ketika Aku mencoba menyentuh pipi Kamu, tangan Aku melewati.] (Ain)
+
+[Ain, Kamu berharap untuk menyentuhku? benaran?] (Ciel)
+
+Aku mengatakan sesuatu yang tidak perlu lagi. Sebaliknya, Aku merasa malu karena tidak menyadari hal ini sebelumnya.
+
 Aku tahu bahwa Aku seharusnya hanya terlihat seperti bola cahaya dari sudut pandang Ciel.
-Begitu cerobohnya Aku. Apa kesalahan besar.
-Tetap saja, mendengar suara senang Ciel, Aku harus menjawab, terlepas dari rasa malu Aku.
 
-Aku tidak bisa melupakan kemarin...... jadi, um...... Aku merasa kesepian.
-Ya, ya. Aku juga, Ain.
-Aku senang mendengar ini tetapi Aku benar-benar berpikir Kamu harus lebih memperhatikan diri sendiri.
-Aku tahu, bukan? Sejujurnya……"
+Begitu cerobohnya Aku. sungguh kesalahan besar.
 
-Seperti, sejak kita tiba di Central, bukankah aku terlalu linglung? Yah, ya, kurasa aku sudah seperti itu sejak Estoque. Lagipula, Ciel memang mengetahui jenis kelaminku, dan fakta bahwa aku berasal dari dunia lain.
+Tetap saja, mendengar suara senang Ciel, Aku harus menjawab, terlepas dari rasa maluku.
+
+[Aku tidak bisa melupakan kemarin...... jadi, um...... Aku merasa kesepian.] (Ain)
+
+[Ya, ya. Aku juga, Ain. Aku senang mendengar ini tetapi Aku benar-benar berpikir Kamu harus lebih memperhatikan diri sendiri.] (Ciel)
+
+[benar, kan? haa~] (Ain)
+
+Seperti, sejak kami tiba di Central, bukankah aku terlalu linglung? Yah, kurasa aku sudah seperti itu sejak Estoque. Lagipula, Ciel memang mengetahui jenis kelaminku, dan fakta bahwa aku berasal dari dunia lain.
 
 Saat aku merasa sedih, Fii-kaasama menatap mataku.
-Untuk beberapa alasan, dia memiliki tatapan yang sangat lembut. Sebenarnya, aku dengan santai mengabaikan mereka sangat buruk.
+
+Untuk beberapa alasan, dia memiliki tatapan yang sangat lembut. Sebenarnya, aku yang dengan santai mengabaikannya sangat buruk.
+
 Jadi aku segera menundukkan kepalaku.
 
-Maaf, kaasama.
-Tidak apa-apa, tidak apa-apa. Aku sudah tahu betapa kalian berdua saling menghargai.
-Pasti sulit bagi kalian berdua untuk berbicara dengan bebas di depan umum, jadi jangan ragu untuk berbicara di sini di mansion.
-Um, terima kasih banyak.
+"Maaf, kaasama." (Ain)
 
-Aku mengungkapkan rasa terima kasih yang jujur ​​atas pertimbangan kaasama. Aku seharusnya tidak menahan diri untuk berbicara dengan Ciel mulai sekarang.
+"Tidak apa-apa, tidak apa-apa. Aku sudah tahu betapa kalian berdua saling menghargai. Pasti sulit bagi kalian berdua untuk berbicara dengan bebas di depan umum, jadi jangan ragu untuk berbicara di sini di mansion." (Fii)
+
+"Um, terima kasih banyak." (Ain)
+
+Aku mengungkapkan rasa terima kasih ​​atas pertimbangan kaasama. Aku seharusnya tidak menahan diri untuk berbicara dengan Ciel mulai sekarang.
+
 Kedua pelayan juga memiliki senyum yang menyenangkan untuk beberapa alasan.
+
 ...... Aku seharusnya tidak menahan diri untuk berbicara mulai sekarang.
 
-Sekarang, bagaimanapun, tidak apa-apa jika Kamu muncul seperti itu di sini di manor.
-Benar.
-Kalau begitu, waktunya untuk perkenalan formal. Karena kalian berdua sekarang adalah putriku, Mohsa dan Saueluna akan membantu dan merawat kalian berdua sebagai pelayan pribadi kalian.
+"Sekarang, tidak masalah jika Kamu muncul seperti itu di sini." (Fii)
+
+"Benar." (Ain)
+
+Kalau begitu, waktunya untuk perkenalan formal. Karena kalian berdua sekarang adalah anakku, Mohsa dan Saueluna akan membantu dan merawat kalian berdua sebagai pelayan pribadi kalian.
+
 Kamu seharusnya sudah tahu, tetapi Saueluna akan ditugaskan ke Ciel dan Mohsa ke Ain. Tetap saja, Aku tidak bisa mengatakan apakah perbedaan ini memiliki arti tertentu.
 
 Saat Fii-kaasama memperkenalkan kembali para pelayan, keduanya menundukkan kepala.
-Hanya menatap mereka diam-diam terasa tidak nyaman, jadi Aku berkata Senang bersama Kamu mulai sekarang. sebagai balasan.
+
+Hanya menatap mereka diam-diam terasa tidak nyaman, jadi Aku berkata "Senang bersama Kamu mulai sekarang." sebagai balasan.
+
 Tiba-tiba, Aku ingat bahwa mereka, pada kenyataannya, adalah pelayan kami.
 
 Aku tidak begitu tahu pasti tetapi bukankah bangsawan harus memperhatikan bagaimana mereka berinteraksi dengan pelayan mereka juga?
+
 Seperti harus mempertahankan sikap yang teguh, atau sesuatu seperti itu.
+
 Sejujurnya Aku tidak tahu detailnya, jadi Aku memutuskan untuk bertanya kepada kaasama yang berkedip dan terkejut.
 
-Kaasama, apakah ada masalah dengan cara Aku berbicara barusan?」
-Tidak perlu khawatir tentang itu, Ain. Lagipula, tidak ada seorang pun di manor ini yang akan salah menilai posisi mereka dari sesuatu yang sekecil itu.
-Orang yang meremehkanmu karena itu hanya menunjukkan kedangkalannya sendiri.
-Mereka berdua mungkin hanya akan bersamamu selama kamu tinggal di manor ini, jadi kurasa kamu tidak perlu terlalu mengkhawatirkannya. Untuk memastikan, memanggil mereka tanpa gelar kehormatan mungkin akan memudahkanmu di masa depan.
+"Kaasama, apakah ada masalah dengan caraku berbicara barusan?" (Ain)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
-
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+"Tidak perlu khawatir tentang itu, Ain. Lagipula, tidak ada seorang pun disini yang akan salah menilai posisi mereka dari sesuatu yang sekecil itu. Orang yang meremehkanmu karena itu hanya menunjukkan kedangkalannya sendiri. Mereka berdua mungkin hanya akan bersamamu selama kamu tinggal disini, jadi kurasa kamu tidak perlu terlalu mengkhawatirkannya. Untuk memastikan, memanggil mereka tanpa gelar kehormatan mungkin akan memudahkanmu di masa depan." (Fii)
 
 Untuk beberapa alasan, ada beberapa yang rewel dengan penggunaan gelar kehormatan, Kamu mengerti?
 Meskipun, paling buruk, Kamu memiliki kekuatan yang menjamin Kamu mengabaikan ini sama sekali.
