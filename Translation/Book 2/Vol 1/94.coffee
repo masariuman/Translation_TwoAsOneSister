@@ -38,18 +38,21 @@ Sementara Mohsa-san segera menundukkan kepalanya sebagai penegasan, Saueluna-san
 
 "Apakah ada masalah, Saueluna?" (Fii)
 
-"Maafkan Aku. Aku memikirkan tentang bagaimana membedakan antara dua wanita, Ainsel-sama dan Cielmer-sama." (Saueluna)
+"Maafkan Saya. Saya memikirkan tentang bagaimana membedakan antara kedua nyonya, Ainsel-sama dan Cielmer-sama." (Saueluna)
 
-Itu poin yang bagus. Meskipun akan mudah untuk membedakan dari perilaku mereka, mereka memiliki wajah yang sama persis ketika menilai hanya dari pandangan sekilas.
+"Itu poin yang bagus. Meskipun akan mudah untuk membedakan dari perilaku mereka, mereka memiliki wajah yang sama persis ketika menilai hanya dari pandangan sekilas." (Fii)
 
-Tapi kaasama, itu saja adalah sesuatu yang kita tidak bisa lakukan apa-apa ...
+"Tapi kaasama, itu adalah sesuatu yang tidak bisa kami lakukan apa-apa ..." (Ain)
 
-Begitu, karena kami adalah putri Fii-kaasama sekarang, kami dipanggil oleh "Nyonya" dan "-sama " sekarang, ya.
-Meskipun kami telah dipanggil "wanita kecil" beberapa kali di masa lalu, dipanggil sebagai "wanita" terasa berbeda kali ini, aku tidak bisa terbiasa dengan itu.
+Begitu, karena kami adalah anak Fii-kaasama sekarang, kami dipanggil oleh "Nyonya" dan "-sama " sekarang, huh.
+
+Meskipun kami telah dipanggil "nyonya kecil" beberapa kali di masa lalu, dipanggil sebagai "nyonya" terasa berbeda kali ini, aku tidak bisa terbiasa dengan itu.
 
 Selain itu, bahkan pelayan terbaik pun tidak akan bisa membedakan kami saat kami duduk diam.
-Siapapun yang mungkin bisa menggunakan semacam teknik membaca pikiran pada saat itu.
-Dan jika ada cara untuk melakukannya dengan sihir atau sihir, aku mungkin akan memperhatikan penggunaannya. Jika pengguna memiliki keterampilan yang cukup untuk melewati deteksi Aku, mereka seharusnya dapat mengetahui kapan pun Ciel dan Aku akan beralih.
+
+Siapapun mungkin bisa menggunakan semacam teknik membaca pikiran pada saat itu.
+
+Dan jika ada cara untuk melakukannya dengan sihir, aku mungkin akan menyadari penggunaannya. Jika pengguna memiliki skill yang cukup untuk melewati deteksi-ku, mereka seharusnya dapat mengetahui kapan pun Ciel dan Aku akan bertukar posisi.
 
 Tetap saja, bahkan mempertimbangkan ini, itu tidak seperti aku bisa secara otomatis memakai pita atau sesuatu begitu kita beralih.
 Mengapa kita harus peka? Dan saat pemikiran ini langsung muncul di benakku, sepertinya aku terlalu terpengaruh oleh kebrutalan dunia.
