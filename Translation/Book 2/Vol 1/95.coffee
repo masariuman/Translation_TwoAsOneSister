@@ -62,33 +62,46 @@ Apakah jenis penyiksaan baru?
 
 "Kaasama, tolong berhenti mencoba menghilangkan barrierku." (Ain)
 
-Fufufu. Setiap helai benar-benar ditutupi oleh penghalang terpisah. Itu tidak normal, jika Kamu bertanya kepada Aku.」
-Kaasama, bukankah Kamu juga mampu melakukan ini jika Kamu mau?」
-Kamu biasanya tidak berpikir untuk mencoba itu. Untuk seorang anak fana yang hanya berusia sedikit lebih dari satu dekade untuk mencapai tingkat ini, sulit dipercaya. Lagi pula,
-aku telah meminjam kekuatan Dewa Pencipta. Selain itu, Aku sudah ada selama lebih dari tiga puluh tahun, Kamu tahu?」
-Dari sudut pandang Aku, hampir tidak ada bedanya. Tapi Aku kira kita akan berhenti di situ. kan
+"Fufufu. Setiap helai benar-benar ditutupi oleh barrier terpisah. juka kamu bertanya kepadaku, Itu tidak normal." (Fii)
 
-Fii-kaasama berhenti menyisir rambutku dengan jarinya dan menunjukkan senyuman lembut.
+"Kaasama, bukankah Kamu juga mampu melakukan ini jika Kamu mau?" (Ain)
+
+"Kamu biasanya tidak berpikir untuk mencoba itu. Untuk seorang anak manusia yang hanya berusia sedikit lebih dari satu dekade untuk mencapai tingkat ini, sulit dipercaya. " (Fii)
+
+"yah, aku telah meminjam kekuatan Dewa Pencipta. Selain itu, Aku sudah ada selama lebih dari tiga puluh tahun, Kamu tahu?" (Ain)
+
+"Dari sudut pandangku, hampir tidak ada bedanya. Tapi Aku kira kita akan berhenti di situ." (Fii)
+
+Fii-kaasama berhenti menyisir rambutku dan menunjukkan senyuman lembut.
+
 Itu benar, dari matanya, 10 dan 30 tahun tidak jauh berbeda, tapi tolong hentikan dengan senyuman yang tahu segalanya itu.
+
 Muu....... Meskipun menang itu tidak perlu, aku merasa aku tidak bisa menang melawannya. Yang mungkin karena aku melepaskan semua yang membebani hatiku padanya.
 
-Aku mengerti, Aku mengerti! Jadi itulah seberapa tua Ain!
+[Aku mengerti, Aku mengerti! Jadi Ain setua itu!] (Ciel)
 
 Ciel, sementara itu, dalam semangat yang sangat tinggi.
+
 Ini cukup menggemaskan. Aku juga tidak merasa bisa menang melawan Ciel.
 
-Apakah Aku belum memberi tahu Kamu usia Aku sebelumnya?』
-Aku punya firasat bahwa Ain mungkin lebih tua, tetapi ini adalah pertama kalinya Aku mendengar angka sebenarnya, Kamu tahu?』
-Kalau begitu, Aku akan memberi tahu Kamu detail persis yang ada dalam ingatanku, oke Ciel?
-Di planet bernama Bumi, di negara bernama Jepang, Aku meninggal dalam kecelakaan pada usia 20 tahun.』
-Seperti yang Aku pikir, Kamu sudah dewasa, kan?』
-Aku tidak bisa mengatakannya. Soalnya, di negara Aku, Kamu dianggap dewasa pada usia 20. Tapi, Aku masih seorang pelajar ketika Aku meninggal. Aku belum pergi ke dunia, mendapatkan pengalaman kerja yang sebenarnya.』
-Lalu itu berarti Ain mulai bekerja pada waktu yang sama seperti yang Aku lakukan, kan?』
-Itulah masalahnya. Sebelum Aku menyadarinya, kami mendapat banyak uang.
+[Apakah Aku belum memberi tahu Kamu usiaku sebelumnya?] (Ain)
 
-Setelah menjawab begitu kepada Ciel, Ehehehe dia tertawa terbahak-bahak.
+[Aku punya firasat bahwa Ain mungkin lebih tua, tetapi ini adalah pertama kalinya Aku mendengar dalam angka, Kamu tahu?] (Ciel)
 
-Apakah kita sudah selesai sekarang? Kami akan pergi ke Guild Hunter, tetapi untuk kompensasi atas pelanggaran yang dilakukan oleh orang bodoh yang kami bicarakan sebelumnya, Kamu harus bernegosiasi sendiri, oke?」
+[Kalau begitu, Aku akan memberi tahumu detail persis yang ada dalam ingatanku, oke Ciel? Di planet bernama Bumi, di negara bernama Jepang, Aku meninggal dalam kecelakaan pada usia 20 tahun.] (Ain)
+
+[Sudah kuduga, Kamu sudah dewasa, kan?] (Ciel)
+
+[Aku tidak bisa mengatakannya. karena, di negaraku, Kamu dianggap dewasa pada usia 20. Tapi, Aku masih seorang pelajar ketika Aku meninggal. Aku belum menghadapi dunia, mendapatkan pengalaman kerja yang sebenarnya.] (Ain)
+
+[Lalu itu berarti Ain mulai bekerja pada waktu yang sama seperti yang Aku lakukan, kan?] (Ciel)
+
+[Sepertinya begitu. tanpa kusadari, kita mendapat banyak uang.] (Ain)
+
+Setelah menjawab begitu kepada Ciel, dia tertawa girang.
+
+"Apakah kita sudah selesai sekarang? kita akan pergi ke Guild Hunter, tetapi untuk kompensasi atas pelanggaran yang dilakukan oleh orang bodoh yang kita bicarakan sebelumnya, Kamu harus bernegosiasi sendiri, oke?" (Fii)
+
 Apakah ada yang harus kami ingat sebagai putri Kamu ? ?」
 Selama Kamu puas dengan penyelesaiannya, itu tidak masalah.
 Dalam hal ini, Aku akan meminta Ciel melakukan negosiasi. Lagipula, akulah yang bertanggung jawab secara umum sampai sekarang.」
