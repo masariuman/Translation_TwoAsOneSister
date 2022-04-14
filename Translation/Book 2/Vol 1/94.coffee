@@ -270,3 +270,8 @@ Setelah secara garis besar menjelaskan hal ini kepada Ciel, dia terlihat kesal d
 
 -----------------------------------------------------------------------
 
+heywrooooo ~~~
+
+kali ini perkenalannya lebih formal antara ainciel dan kedua pelayannya... dan entah mengapa untuk ain diberikan pelayan yang serius dan ciel yang agak santai, kebetulan ? entahlah mengapa kebetulan dan berasa cocok...
+
+ouuu sepertinya kita akan memasuki arc baru / volume baru dari buku 2 ketika ainciel kita kembali ke guild... apakah akan bertemu carol dan celia lagi ?? jadi penasaran bagaimana reaksi mereka berdua ketika tahu ainciel sudah rank-b ...
