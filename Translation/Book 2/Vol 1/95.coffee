@@ -102,110 +102,144 @@ Setelah menjawab begitu kepada Ciel, dia tertawa girang.
 
 "Apakah kita sudah selesai sekarang? kita akan pergi ke Guild Hunter, tetapi untuk kompensasi atas pelanggaran yang dilakukan oleh orang bodoh yang kita bicarakan sebelumnya, Kamu harus bernegosiasi sendiri, oke?" (Fii)
 
-Apakah ada yang harus kami ingat sebagai putri Kamu ? ?」
-Selama Kamu puas dengan penyelesaiannya, itu tidak masalah.
-Dalam hal ini, Aku akan meminta Ciel melakukan negosiasi. Lagipula, akulah yang bertanggung jawab secara umum sampai sekarang.」
-Kalau begitu, aku akan membantu sedikit, kurasa? Bagaimanapun, ini adalah momen besar bagi anak Aku yang berharga.
+"Apakah ada yang harus kami ingat sebagai anakmu ?" (Ain)
 
-Kaasama langsung berubah pikiran. Seperti yang kupikirkan, bukankah dia terlalu manis pada kita?
+"Selama Kamu puas dengan penyelesaiannya, itu tidak masalah." (Fii)
+
+"Dalam hal ini, Aku akan meminta Ciel melakukan negosiasi. Lagipula, akulah yang selalu melakukannya sampai sekarang." (Ain)
+
+"Kalau begitu, aku akan membantu sedikit, kurasa? Bagaimanapun juga, ini adalah momen besar bagi anakku yang berharga." (Fii)
+
+Kaasama langsung berubah pikiran. Seperti yang kupikirkan, bukankah dia terlalu baik pada kami?
+
 Aku bersyukur, jadi Aku tidak keberatan sama sekali. Tetap saja, Aku tidak berpikir itu momen yang besar.
 
-"Aku melakukannya? Aku akan melakukan yang terbaik!』
-Secara umum, tidak apa-apa selama Kamu puas dengan hasilnya, jadi tolong anggap ini sebagai latihan.』
-Dimengerti.
+[Aku yang akan melakukannya? Aku akan melakukan yang terbaik!] (Ciel)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+[Secara umum, tidak apa-apa selama Kamu puas dengan hasilnya, jadi tolong anggap ini sebagai latihan.] (Ain)
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+[Baiklah.] (Ciel)
 
-Nah, Aku bertanya-tanya bagaimana Ciel akan pergi? Dia tampaknya tidak terlalu tertarik pada guildmaster akting, jadi mungkin saja dia akan mengakhirinya begitu saja tanpa banyak berpikir. Di sisi lain, dia telah melihat bagaimana Aku bernegosiasi di masa lalu, jadi dia mungkin meminta beberapa tuntutan buruk.
-Memikirkan kembali sekarang, sebagian besar negosiasi Aku cukup tinggi.
+sekarang Aku bertanya-tanya bagaimana Ciel akan melakukannya? Dia tampaknya tidak terlalu tertarik pada master guild itu, jadi mungkin saja dia akan mengakhirinya begitu saja tanpa banyak berpikir. Di sisi lain, dia telah melihat bagaimana Aku bernegosiasi di masa lalu, jadi dia mungkin meminta beberapa tuntutan buruk.
+
+setelah kupikirkan lagi, sebagian besar negosiasi yg kulakukan cukup tinggi.
+
 Tetap saja, Aku tidak memiliki satu penyesalan pun tentang itu.
 
-Sekarang, akankah kita pergi?
+"Sekarang, bisakah kita pergi?" (Fii)
 
-Fii-kaasama memimpin, jadi aku bertukar dengan Ciel dan, untuk pertama kalinya setelah beberapa saat, kami meninggalkan mansion.
+Fii-kaasama mengajak kami, jadi aku bertukar dengan Ciel dan, untuk pertama kalinya setelah beberapa saat, kami meninggalkan mansion.
 
-◇
+🎵🎵🎵
 
 Saat berjalan melalui jalan-jalan Central, mata Ciel mengembara dari satu tempat ke tempat lain.
-Kalau dipikir-pikir, ini praktis pertama kalinya kami berjalan melalui jalan-jalan ini.
-Bagaimanapun, kami dikelilingi oleh tentara ketika kami tiba dan kemudian setelah itu, Fii-kaasama —— Fiyanamia-sama membimbing kami dan tidak ada kesempatan untuk melihat sekeliling dengan tenang.
+
+Kalau dipikir-pikir, ini pertama kalinya kami berjalan melalui jalan-jalan ini.
+
+kami dikelilingi oleh tentara ketika kami tiba dan kemudian setelah itu, Fii-kaasama, Fiyanamia-sama membimbing kami dan tidak ada kesempatan untuk melihat sekeliling dengan tenang.
 
 Bahkan sekarang, kami dipandu oleh Fii-kaasama tapi kami sekarang berada di posisi yang berbeda dibandingkan saat kami memasuki mansion.
-Sekarang kami adalah putri kaasama, kami mungkin akan dimaafkan karena melihat-lihat dan sesekali berhenti di jalur kami sebentar.
+
+Sekarang kami adalah anak kaasama, kami mungkin akan dimaafkan karena melihat-lihat dan sesekali berhenti di jalur kami sebentar.
+
 kaasama menatap Ciel dengan tatapan hangat.
 
-Kota Central, berdasarkan kesan Aku, seperti daerah perumahan yang tenang...... Aku pikir?
-Jalannya cukup lebar untuk menampung gerbong yang menggunakannya dan di kedua sisi jalan terdapat pepohonan yang ditanam di pinggir jalan.
-Dibandingkan dengan kota-kota lain, kerapihannya meninggalkan kesan yang baik.
+Kota Central, berdasarkan kesanku, seperti daerah perumahan yang tenang...... mungkin?
+
+Jalannya cukup lebar untuk menampung kereta kuda yang menggunakannya dan di kedua sisi jalan terdapat pepohonan yang ditanam di pinggir jalan.
+
+Dibandingkan dengan kota-kota lain, kerapiannya meninggalkan kesan yang baik.
 
 Awannya cukup tinggi, matahari terasa lembut hangat, dan dedaunan yang berubah warna membuatnya terasa seperti musim gugur, benar-benar membangkitkan semangat.
 
-Ciel yang melihat sekeliling dengan gelisah mungkin juga merasakan hal ini.
+Ciel yang melihat sekeliling dengan damai mungkin juga merasakan hal ini.
 
-Mengambil banyak waktu, kami mencapai Guild Hunter.
+dengan memakan banyak waktu, kami akhirnya mencapai Guild Hunter.
+
 Fii-kaasama, tampaknya tidak terlalu terganggu, dengan santai membuka pintu dan masuk ke dalam.
+
 Sementara ada hunter yang mengangkat alis mereka saat melihat seorang wanita mekar —— kaasama —— yang sama sekali tidak terlihat seperti seorang hunter yang tiba-tiba datang, personel guild bingung begitu kaasama masuk.
 
-A-apa tujuan kunjungan Kamu hari ini?」
-Apakah Rhavelt masuk?」
-Ya, Aku akan menunjukkan jalannya segera.」
+"A-apa tujuan kunjunganmu hari ini?" 
+
+"Apakah Rhavelt ada?" (Fii)
+
+"Ya, akan saya beritahu segera."
 
 Resepsionis berkata begitu dan membawa kami ke sebuah ruangan dengan perlengkapan yang cukup berkualitas untuk Hunter Guild.
-Resepsionis berkata Aku akan meneleponnya, jadi tolong tunggu di sini sebentar. sebelum membungkuk dan pergi.
 
-Ditinggalkan dengan Fii-kaasama, Ciel bergumam Aku ingin tahu mengapa kita dibawa ke sini?」 sambil memiringkan kepalanya.
+Resepsionis berkata "saya akan memanggilnya, jadi tolong tunggu di sini sebentar." sebelum membungkuk dan pergi.
 
-Benar, benar, aku bertanya-tanya mengapa diriku sendiri. Akan baik-baik saja bagiku jika kami segera dituntun ke tempat Rhavelt berada.
-Tapi, sepertinya tidak baik bagiku untuk menjadi orang yang pergi. Sungguh, masyarakat fana sangat merepotkan.
-Memang benar. Tapi Fii selalu terlibat di dalamnya, kan?」
-Meskipun aku mungkin terlibat, aku tidak terlalu mengaitkan diriku dengannya.」
-Begitukah?」
+Ditinggalkan dengan Fii-kaasama, Ciel bergumam "Aku ingin tahu mengapa kita dibawa ke sini?" sambil memiringkan kepalanya.
+
+"Benar, benar, aku juga penasaran. Seharusnya tidak masalah jika kita segera dibawa ke tempat Rhavelt berada. Tapi, ini sepertinya tidak bagus untukku juga. Sungguh, manusia sangat merepotkan." (Fii)
+
+"Memang benar. Tapi Fii selalu terlibat di dalamnya, kan?" (Ciel)
+
+"Meskipun aku mungkin terlibat, aku tidak terlalu mengaitkan diriku dengannya." (Fii)
+
+"Begitukah?" (Ciel)
 
 Ciel menjawab sambil memiringkan kepalanya.
+
 Dia mungkin tidak mengerti sama sekali, tapi, sejujurnya, aku juga tidak merasa bisa mengartikulasikan kepekaan Fii-kaasama.
+
 Setelah itu, obrolan harmonis berlanjut hingga pintu diketuk.
 
-Rhavelt, kan? Kamu boleh masuk.
+"Rhavelt, kan? Kamu boleh masuk." (Fii)
 
-Seolah-olah Fii-kaasama adalah pemilik ruangan ini, tapi sekarang setelah kupikir-pikir, itu miliknya untuk memulai, ya.
-Jika dia menginginkannya, dia bisa mengusir semua orang di tanah Central.
-Dan jika kamu tahu itu, kamu tidak bisa memperlakukannya dengan enteng, jadi perilaku kaasama tidak terlalu salah.
+ini Seolah-olah Fii-kaasama adalah pemilik ruangan ini, tapi sekarang setelah kupikir-pikir, pada dasarnya ini memang miliknya.
 
-Sementara cara kaasama bertindak mungkin tampak berbeda dari orang ke orang, dia tidak fana untuk memulai. Jadi dia mungkin tidak peduli tentang persepsi fana.
+Jika dia menginginkannya, dia bisa mengusir semua orang di Central.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Dan kamu tidak bisa memperlakukannya dengan enteng, jadi perilaku kaasama tidak terlalu salah.
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+Sementara cara kaasama bertindak mungkin tampak berbeda dari orang lain, pada dasarnya dia bukan manusia. Jadi dia mungkin tidak peduli tentang persepsi manusia.
 
-Memasuki ruangan dengan izin kaasama adalah seorang lelaki tua. Tapi, dia bukan yang lemah dari tipe usia melainkan tampaknya menjadi salah satu tipe ahli seni bela diri.
+yang Memasuki ruangan dengan izin kaasama adalah seorang lelaki tua. Tapi, dia bukan yang lemah karena usia melainkan tampaknya menjadi salah satu tipe ahli seni bela diri.
+
 Dia seperti orang tua yang sangat kuat yang muncul dalam cerita.
 
-Aku merasa terhormat untuk memiliki Kamu di sini hari ini.
-Cukup itu. Aku hanya datang ke sini hari ini untuk memberitahu Kamu tentang sesuatu.
-Apakah itu tentang gadis itu?」
-Ya. Aku telah memutuskan untuk memiliki anak ini —— Cielmer menjadi putri Aku.」
+"Aku merasa terhormat karena kamu di sini hari ini." (Rhavelt)
+
+"Cukup. Aku hanya datang ke sini hari ini untuk memberitahu Kamu tentang sesuatu." (Fii)
+
+"Apakah itu tentang gadis itu?" (Rhavelt)
+
+"Ya. Aku telah memutuskan untuk memiliki anak ini —— Cielmer menjadi anakku." (Fii)
 
 Mendengar kata-kata kaasama, alis Rhavelt berkedut dan tatapannya beralih ke Ciel.
-Pergeseran ini sangat alami dan dia tidak merasa sedang menatap sama sekali.
-Tapi, sepertinya dia mengamati kita dengan cermat.
 
-Gadis ini adalah ……」
-Ya, anak yang telah berulang kali diganggu oleh Guild Hunter.」
+Pergeseran ini sangat alami dan dia tidak merasa sedang menatap sama sekali.
+
+Tapi, sepertinya dia mengamati kami dengan cermat.
+
+"Gadis ini adalah ..." (Rhavelt)
+
+"Ya, anak yang telah berulang kali diganggu oleh Guild Hunter." (Fii)
 
 Senyum Fii-kaasama membutakan.
-Senyum yang cukup, memang.
+
+sungguh senyum yang berbahaya.
+
 Yang mungkin hanya menimbulkan kerusakan pada perut Rhavelt.
 
-"Aku mengerti. Aku minta maaf atas masalah besar ini.
+"Aku mengerti. Aku minta maaf atas masalah besar ini." (Rhavelt)
 
 Rhavelt menundukkan kepalanya.
+
 Memiliki seseorang yang jelas-jelas lebih tua dariku menundukkan kepala mereka secara pribadi terasa agak tidak nyaman, jadi aku mungkin akan mengatakan Tolong angkat kepalamu. jika aku yang bernegosiasi. Sayangnya, baik Ciel dan Fii-kaasama sepertinya tidak tertarik untuk mengatakan hal yang sama.
 
-Jadi, apa yang akan dilakukan Guild Hunter tentang hal itu?」
-Selama tulang tua ini mampu melakukannya, apa saja.
+"Jadi, apa yang akan dilakukan Guild Hunter tentang hal itu?" (Ciel)
+
+"Selama tulang tua ini mampu melakukannya, apa saja." (Rhavelt)
 
 Mendengar pertanyaan angkuh Ciel, sepertinya dia benar-benar ternoda oleh metodeku.
-Berpendidikan khusus memang. Dengan posisi Ciel saat ini, dia setidaknya harus mampu melakukan ini, jadi kurasa ini adalah hal yang baik.
-Di sisi lain, Guild Hunter tampaknya secara mengejutkan setuju dengan hal ini. Pada kenyataannya, mungkin saja mereka akan mengelak tentang ini, tetapi, sungguh, Aku bertanya-tanya apa yang akan diminta Ciel?
+
+sungguh Berpendidikan spesial. Dengan posisi Ciel saat ini, dia setidaknya mampu melakukan ini, jadi kurasa ini adalah hal yang baik.
+
+Di sisi lain, Guild Hunter tampaknya secara mengejutkan setuju dengan hal ini. Pada kenyataannya, mungkin saja mereka akan mengelak tentang ini, tetapi, sungguh, Aku penasaran apa yang akan diminta Ciel?
+
+-----------------------------------------------------------------------------------
+
+heywrooooo ~~~~~~!!
