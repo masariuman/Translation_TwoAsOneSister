@@ -122,7 +122,7 @@ Aku tidak tahu bagaimana kaasama akan menjawab.
 
 Mendengar Fii-kaasama berkata setara, Rhavelt menatap dengan pandangan yang jauh.
 
-+Biar kutebak, dia adalah penderita bijak lainnya. Aku tidak memiliki citra yang baik tentang Guild hunter, tetapi Aku telah melihat banyak penderita bijaksana yang mendapatkan ujung tongkat yang pendek.
+Biar kutebak, dia adalah orang yang menjadi penanggung jawab dalam menyelesaikan semua masalah yang terjadi. Aku tidak memiliki citra yang baik tentang Guild hunter, tetapi Aku telah melihat banyak orang seperti dia yang berakhir terkena sialnya.
 
 Itu sebabnya, sejujurnya, dia tidak memiliki kesan yang baik padaku secara pribadi.
 
@@ -190,22 +190,34 @@ hmmm......
 
 "Dan meskipun mungkin tidak dibutuhkan, kami telah menyiapkan untukmu sejumlah tertentu sebagai ganti rugi, jadi terimalah." (Rhavelt)
 
-Uang tidak diperlukan. Kami mungkin akan mendapatkan lebih banyak pula.
-Jadi, gunakan itu untuk mengumpulkan informasi.」
-Dengan informasi, maksudmu?」
-Tentang Utusan Ilahi Buatan. Tidak masalah di mana. Jika Kamu menemukannya, kami akan mengalahkannya.」
-Cielmer-sama , apakah Kamu mengatakan bahwa Kamu akan terlibat secara pribadi?」
-Untuk tujuan kami.」
-Aku mengerti, baiklah kalau begitu.
+"Uang tidak diperlukan. Kami mungkin akan mendapatkan lebih banyak pula. Jadi, gunakan itu untuk mengumpulkan informasi." (Ciel)
+
+"informasi?" (Rhavelt)
+
+"Tentang Utusan dewa Buatan. Tidak masalah di mana. Jika Kamu menemukannya, kami akan mengalahkannya." (Ciel)
+
+"Cielmer-sama, apakah Kamu mengatakan bahwa Kamu akan terlibat secara pribadi?" (Rhavelt)
+
+"Untuk tujuan kami." (Ciel)
+
+"Aku mengerti, baiklah kalau begitu." (Rhavelt)
 
 Untuk beberapa alasan Rhavelt tampak sangat tersentuh, yang kurasa itu karena kami mengambil inisiatif untuk mengalahkan monster yang diperkirakan berada di Rank-A.
+
 Ini yang disebut berbagi kepentingan bersama.
-Meskipun kami tidak berencana untuk digunakan oleh Persekutuan hunter, kami masih akan memprioritaskan melibatkan Utusan Ilahi Buatan. Dan sekarang melawan monster yang tidak dikenal, Guild Hunter telah mengamankan potensi perang yang dijamin setidaknya 1.
 
-Sementara Aku katakan dijamin, terakhir kali Aku tidak berguna sama sekali, sebenarnya ...... Aku mulai kehilangan kepercayaan sekarang.
-Aku benar-benar lupa karena banyak yang terjadi di manor tetapi akhir-akhir ini, Aku terus-menerus kalah.
-Jika Aku menurunkan kewaspadaan Aku terlalu banyak hanya karena Aku memiliki kekuatan suci sekarang, Aku mungkin akan menarik permadani di bawah Aku.
+Meskipun kami tidak berencana untuk digunakan oleh guild hunter, kami masih akan memprioritaskan melibatkan Utusan dewa Buatan. Dan sekarang melawan monster yang tidak dikenal, Guild Hunter telah mengamankan potensi perang yang terjamin setidaknya 1 orang.
 
-Setelah itu, dengan tugas kami yang selesai, Fii-kaasama dengan cepat pergi dan Ciel mengikuti di belakangnya.
-Jika memungkinkan, akan menyenangkan mengetahui di mana semua orang yang telah membantu kita di Estoque, tapi kurasa kita punya waktu besok, atau bahkan lusa, untuk bertanya.
+Sementara Aku bilang terjamin, kasus terakhir kali Aku tidak berguna sama sekali, sebenarnya ...... Aku mulai kehilangan kepercayaan diri sekarang.
+
+Aku benar-benar lupa karena banyak yang terjadi di rumah fii tetapi akhir-akhir ini, Aku terus-menerus kalah.
+
+Jika Aku menurunkan kewaspadaanku terlalu banyak hanya karena Aku memiliki kekuatan dewa sekarang, Aku mungkin akan terjatuh.
+
+Setelah itu, dengan urusan kami yang selesai, Fii-kaasama dengan cepat pergi dan Ciel mengikuti di belakangnya.
+
+Jika memungkinkan, akan menyenangkan mengetahui di mana semua orang yang telah membantu kami di Estoque, tapi kurasa kami punya waktu besok, atau bahkan lusa, untuk bertanya.
+
 Lagi pula, tanpa ada yang mengejar kami, kami sekarang memiliki begitu banyak waktu luang di tangan kami.
+
+------------------------------
