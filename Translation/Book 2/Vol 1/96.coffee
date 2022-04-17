@@ -38,41 +38,51 @@ Tapi Ciel belum mengatakan apa-apa.
 
 "rank-S, adalah apa yang ingin Aku katakan, Tapi pada rank-A para hunter memiliki lebih banyak kebebasan. Di rank-S, Kamu menjadi mencolok. Mempertimbangkan keseimbangan kenyamanan dan kebebasan bergerak di dalam negeri." (Rhavelt)
 
-Kalau begitu pertama-tama , jadikan Aku hunter Rank-A.
-Itu bisa segera dilakukan, jika Kamu mau.
-...... Sebuah Kewajiban hunter Rank-A adalah?
+"Kalau begitu, jadikan Aku hunter Rank-A." (Ciel)
+
+"Itu bisa segera dilakukan, jika Kamu mau." (Rhavelt)
+
+"...... apa Kewajiban hunter Rank-A ?" (Ciel)
 
 Mungkin karena ini diterima lebih mudah daripada yang dia perkirakan, Ciel dengan hati-hati memintanya.
+
 Jika Aku yang bernegosiasi, Aku mungkin akan berhati-hati juga. Lagi pula, cukup sulit untuk membaca ekspresinya.
-Jika penerimaan ini berhasil, yaitu meskipun negara-negara tidak dapat melakukan intervensi, Guild Hunter malah akan memegang erat-erat kita, itu tidak akan ada artinya.
 
-Selama Kamu menyelesaikan sejumlah permintaan, itu sudah cukup.
-Ini adalah contoh ekstrim, tetapi dalam kasus permintaan Rank-A, menyelesaikan satu per tahun sudah cukup. Setelah itu, silakan lakukan sesuka Kamu.
-Tapi, Cielmer-sama , jika Kamu menjadi Rank-A, Kamu kemungkinan akan mengalami banyak pertemuan yang merepotkan.」
-Ketika itu terjadi, Aku akan menghajar mereka.」
-Kami ingin meminta Kamu untuk menahan diri dalam pertemuan itu . , Tapi ……」
-Bukankah itu tanggung jawab diri sendiri?」
+Jika penerimaan ini diterima begitu saja, meskipun negara-negara tidak dapat melakukan intervensi, Guild Hunter malah akan memegang erat-erat kami, itu tidak akan ada artinya.
 
-Karena penampilan Ciel, tidak dapat dihindari bagi orang-orang untuk memilihnya dan karenanya, juga tidak terhindarkan bagi mereka untuk dipukuli sebagai akibat dari itu.
+"Selama Kamu menyelesaikan sejumlah permintaan, itu sudah cukup. Ini adalah contoh ekstrim, tetapi dalam kasus permintaan Rank-A, menyelesaikan satu per tahun sudah cukup. Setelah itu, silakan lakukan sesukamu. Tapi, Cielmer-sama, jika Kamu menjadi Rank-A, Kamu kemungkinan akan mengalami banyak pertemuan yang merepotkan." (Rhavelt)
+
+"Ketika itu terjadi, Aku akan menghajar mereka." (Ciel)
+
+"Kami ingin memintamu untuk menahan diri dalam hal itu, Tapi......" (Rhavelt)
+
+"Bukankah itu tanggung jawab diri sendiri?" (Ciel)
+
+Karena penampilan Ciel, tidak dapat dihindari lagi orang-orang akan menargetnya, juga tidak terhindarkan lagi kalau mereka akan dipukuli sebagai akibat dari itu.
+
 Seorang hunter harus bertanggung jawab atas keselamatannya sendiri. Saat seseorang salah menilai kemampuan sebenarnya Ciel, mereka sudah gagal sebagai hunter. Ini menyesatkan, tapi kami hanya bisa mengatakan itu.
-Dan, jika perlu, aku memasang penghalang secara normal mungkin akan cukup mengancam.
 
-Bagaimanapun, bahkan penghalang ceroboh yang dibuat dengan setengah upaya harus memiliki kekuatan pertahanan yang cukup.
+Dan, jika perlu, dengan aku memasang barrier secara normal saja mungkin akan cukup mengancam.
 
-Jika kita ingin membatasi korban, maka kita harus menyelesaikannya sendiri, ya ...... itu pasti seperti yang Kamu katakan.
-Aku mungkin tidak akan membunuh. Selain itu, Aku tidak tahu.
-Kondisi lain. Jangan promosikan Aku secara acak ke rank-S.」
+Bagaimanapun juga, bahkan barrier ceroboh yang dibuat dengan setengah upaya memiliki kekuatan pertahanan yang cukup.
+
+"Jika kita ingin membatasi korban, maka kita harus menyelesaikannya sendiri, huh ...... itu pasti seperti yang Kamu katakan." (Rhavelt)
+
+"Aku mungkin tidak akan membunuh. Selain itu, Aku tidak tahu. Kondisi lain. Jangan promosikan Aku secara tiba-tiba ke rank-S." (Ciel)
 
 Rhavelt membuka mulutnya dan hendak mengatakan sesuatu, tapi dia tetap diam dan sedikit meringis.
-Dilihat dari reaksinya, dia mungkin akan mengatakan bahwa kenaikan pangkat sewenang-wenang tidak akan terjadi.
+
+Dilihat dari reaksinya, dia mungkin akan mengatakan bahwa kenaikan rank sembarangan tidak akan terjadi.
+
 Biasanya itu akan terjadi, tapi sayangnya kami tidak memiliki kepercayaan dalam masalah ini.
-Lagi pula, kami diblokir untuk mencapai Rank-B hanya karena usia kami.
+
+Lagi pula, kami ditahan untuk mencapai Rank-B hanya karena usia kami.
 
 Sangat mudah untuk membayangkan mereka tiba-tiba menaikkan kita ke Rank-S ketika mereka merasa nyaman bagi mereka.
 
 Kondisi selanjutnya. Izinkan Aku untuk dengan bebas menyatakan bahwa Rank Aku lebih rendah dari Rank-A.
 Dan izinkan ini untuk Ain juga.」
-Untuk menyatakan bahwa peringkatmu lebih rendah dari A…… kan?」
+Untuk menyatakan bahwa peringkatmu lebih rendah dari A...... kan?」
 
 Meskipun bagus bahwa babak pertama menarik perhatian Rhavelt, Ciel benar-benar menyebut namaku barusan. Meskipun, karena kita sekarang dapat mengubah warna dan Ainsel sekarang dapat bertindak di tempat terbuka, mungkin ada situasi di mana kita dapat menggunakannya.
 Dalam hal ini, mungkin lebih baik bagi Aku untuk mendaftar secara terpisah. Tapi karena kita mengenal seseorang dari atas, kurasa kita bisa mengatakan Harap verifikasi dengan Rhavelt. setiap kali sesuatu terjadi.
@@ -158,7 +168,7 @@ Ciel dengan riang menyatakan tujuannya. Jadi seperti yang kupikirkan......
 Sejak kami tiba di Central, aku berpikir bahwa akan lebih baik untuk mengurangi frekuensi meminjam tubuh Ciel tapi sepertinya Ciel yang membuatnya bergerak lebih dulu.
 Tetap saja, mengingat kita pada akhirnya akan kehilangan umur kita, mungkin aku tidak perlu terlalu memikirkan waktu Ciel」 lagi.
 
-hmmm……
+hmmm......
 
 Dan meskipun mungkin tidak dibutuhkan, kami telah menyiapkan untuk Kamu sejumlah tertentu sebagai ganti rugi, jadi terimalah.」
 Uang tidak diperlukan. Kami mungkin akan mendapatkan lebih banyak pula.
