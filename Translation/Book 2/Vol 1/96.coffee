@@ -78,51 +78,60 @@ Biasanya itu akan terjadi, tapi sayangnya kami tidak memiliki kepercayaan dalam 
 
 Lagi pula, kami ditahan untuk mencapai Rank-B hanya karena usia kami.
 
-Sangat mudah untuk membayangkan mereka tiba-tiba menaikkan kita ke Rank-S ketika mereka merasa nyaman bagi mereka.
+Sangat mudah untuk membayangkan mereka tiba-tiba menaikkan kami ke Rank-S ketika mereka merasa nyaman bagi mereka.
 
-Kondisi selanjutnya. Izinkan Aku untuk dengan bebas menyatakan bahwa Rank Aku lebih rendah dari Rank-A.
-Dan izinkan ini untuk Ain juga.」
-Untuk menyatakan bahwa peringkatmu lebih rendah dari A...... kan?」
+"Kondisi selanjutnya. Izinkan Aku untuk dengan bebas menyatakan bahwa Rankku lebih rendah dari Rank-A. Dan izinkan ini untuk Ain juga." (Ciel)
 
-Meskipun bagus bahwa babak pertama menarik perhatian Rhavelt, Ciel benar-benar menyebut namaku barusan. Meskipun, karena kita sekarang dapat mengubah warna dan Ainsel sekarang dapat bertindak di tempat terbuka, mungkin ada situasi di mana kita dapat menggunakannya.
-Dalam hal ini, mungkin lebih baik bagi Aku untuk mendaftar secara terpisah. Tapi karena kita mengenal seseorang dari atas, kurasa kita bisa mengatakan Harap verifikasi dengan Rhavelt. setiap kali sesuatu terjadi.
+"Untuk menyatakan bahwa peringkatmu lebih rendah dari A...... kan?" (Rhavelt)
 
-Nah, permintaan pertama Ciel juga cukup besar.
-Cukup besar untuk menjamin mengabaikan keberadaanku, setidaknya.
+untung saja yang pertama menarik perhatian Rhavelt. Ciel benar-benar menyebut namaku barusan. Meskipun, karena kami sekarang dapat mengubah warna dan Ainsel sekarang dapat bertindak di tempat terbuka, mungkin ada situasi di mana kami dapat menggunakannya.
+
+Dalam hal ini, mungkin lebih baik bagiku untuk mendaftar secara terpisah. Tapi karena kami mengenal seseorang dari atas, kurasa kami bisa mengatakan "Tolong verifikasi dengan Rhavelt." setiap kali sesuatu terjadi.
+
+permintaan pertama Ciel juga cukup besar.
+
+Cukup besar setidaknya untuk menjamin mengabaikan keberadaanku.
+
 Mengizinkan kami untuk menyatakan bahwa Rank kami lebih rendah sama dengan guild yang mengizinkan pemalsuan Rank kami.
-Meskipun Aku tidak ingat apakah akuisisi duplikat kartu dilarang, itu pasti tidak didukung dan jika peringkatnya lebih rendah, maka itu lebih buruk daripada duplikat.
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Meskipun Aku tidak ingat apakah duplikasi kartu dilarang, itu pasti tidak didukung dan jika peringkatnya lebih rendah, maka itu lebih buruk daripada duplikat.
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Perspektif Ciel di sini adalah bahwa memiliki Rank yang sesuai dengan penampilan kami seharusnya mengurangi kemungkinan orang menargetkan kami.
 
-Perspektif Ciel di sini adalah bahwa memiliki Rank yang sesuai dengan penampilan kita seharusnya mengurangi kemungkinan orang memilih kita.
-Rhavelt kemungkinan juga mengenalinya.
+Rhavelt kemungkinan juga menaydarinya.
+
 Meskipun mudah untuk menyalahgunakan ini, Aku tidak berpikir Ciel akan menyalahgunakannya.
 
-Padahal, jika Aku terlibat, Aku merasa dia mungkin akan melakukannya sebanyak yang diperlukan.
+Padahal, jika Aku terlibat, Aku merasa ciel mungkin akan melakukannya sebanyak yang diperlukan.
+
 Jika itu akan membantu Ciel, aku yakin aku juga tidak akan ragu untuk menyalahgunakan kekuatan ini.
 
-Diakui. Tapi, tolong jangan menerima permintaan Rank-C dan di bawahnya.」
-Dimengerti. Lalu bagaimana dengan Ain, Ainsel?
+"baiklah. Tapi, tolong jangan menerima permintaan Rank-C dan di bawahnya." (Rhavelt)
 
-Mendengar kata-kata Ciel, Rhavelt memandang Fii-kaasama , seolah meminta bantuan.
-Ciel saat ini dalam mode pendiam, atau lebih tepatnya aku tidak ingin mengatakan apa-apa selain mode minimal , jadi hampir tidak mungkin untuk bertanya padanya tentang aku.
-Itu sebabnya dia benar dalam meminta bantuan kaasama .
+"Baiklah. Lalu bagaimana dengan Ain, Ainsel?" (Ciel)
+
+Mendengar kata-kata Ciel, Rhavelt memandang Fii-kaasama, seolah meminta bantuan.
+
+Ciel saat ini dalam mode pendiam, atau lebih tepatnya mode 'aku tidak ingin mengatakan apa-apa selain yang diperlukan', jadi hampir tidak mungkin untuk bertanya padanya tentangku.
+
+Itu sebabnya dia benar dalam meminta bantuan kaasama.
 
 Aku tidak tahu bagaimana kaasama akan menjawab.
 
-"Benar, benar. Guild belum mendapatkan kepercayaan yang cukup bagi mereka untuk mengajarimu tentang hal ini dengan mudah.
-Tapi, Kamu dapat menganggapnya sebagai putri baru Aku yang lain. Sementara kemampuannya hanya terspesialisasi dalam aspek tertentu, dia setara denganku.
+"Benar, benar. Guild belum mendapatkan kepercayaan yang cukup untuk mengetahui tentang hal ini dengan mudah. Tapi, Kamu dapat menganggapnya sebagai anakku yang lain. Sementara kemampuannya hanya terspesialisasi dalam aspek tertentu, dia setara denganku." (Fii)
 
-Mendengar Fii-kaasama berkata sama , Rhavelt menatap cakrawala yang jauh.
-Biar kutebak, dia adalah penderita bijak lainnya. Aku tidak memiliki citra yang baik tentang Persekutuan hunter, tetapi Aku telah melihat banyak penderita bijaksana yang mendapatkan ujung tongkat yang pendek.
-Itu sebabnya, sejujurnya, dia tidak memiliki kesan yang baik pada Aku secara pribadi.
+Mendengar Fii-kaasama berkata setara, Rhavelt menatap dengan pandangan yang jauh.
 
-Selain itu, Aku pikir satu-satunya guildmaster yang benar-benar mengerikan adalah yang ada di Guild Royal Capital Estoque.
++Biar kutebak, dia adalah penderita bijak lainnya. Aku tidak memiliki citra yang baik tentang Guild hunter, tetapi Aku telah melihat banyak penderita bijaksana yang mendapatkan ujung tongkat yang pendek.
+
+Itu sebabnya, sejujurnya, dia tidak memiliki kesan yang baik padaku secara pribadi.
+
+Selain itu, Aku pikir satu-satunya guildmaster yang benar-benar parah adalah yang ada di Guild Royal Capital Estoque.
+
 Guild yang berbeda di kota-kota sebelumnya pada akhirnya menguntungkan Ciel.
 
-...... Selama dia selalu berada di party yang sama dengan Cielmer-sama , kami akan menerima ini sebagai pengecualian.」
+"...... Selama dia selalu berada di tim yang sama dengan Cielmer-sama , kami akan menerima ini sebagai pengecualian." (Rhavelt)
+
 Ya ampun, Rhavelt. Betapa masuk akalnya Kamu.
 Tanah ini adalah tanah yang Kamu pinjamkan kepada kami. Terlepas dari penampilan Aku, Aku tahu di mana Aku berdiri.
 Di negeri ini, apapun yang kau nyatakan hitam, bahkan warna putih pun akan berubah menjadi hitam.」
