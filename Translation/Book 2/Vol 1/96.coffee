@@ -126,60 +126,70 @@ Mendengar Fii-kaasama berkata setara, Rhavelt menatap dengan pandangan yang jauh
 
 Itu sebabnya, sejujurnya, dia tidak memiliki kesan yang baik padaku secara pribadi.
 
-Selain itu, Aku pikir satu-satunya guildmaster yang benar-benar parah adalah yang ada di Guild Royal Capital Estoque.
+Selain itu, Aku pikir satu-satunya ketua guild yang benar-benar parah adalah yang ada di Guild Royal Capital Estoque.
 
 Guild yang berbeda di kota-kota sebelumnya pada akhirnya menguntungkan Ciel.
 
 "...... Selama dia selalu berada di tim yang sama dengan Cielmer-sama , kami akan menerima ini sebagai pengecualian." (Rhavelt)
 
-Ya ampun, Rhavelt. Betapa masuk akalnya Kamu.
-Tanah ini adalah tanah yang Kamu pinjamkan kepada kami. Terlepas dari penampilan Aku, Aku tahu di mana Aku berdiri.
-Di negeri ini, apapun yang kau nyatakan hitam, bahkan warna putih pun akan berubah menjadi hitam.」
-Tidak, tidak. Itu salah. Jika Aku menyebut hal tertentu hitam dan Kamu mengatakan itu putih, Kamu akan dikeluarkan begitu saja.」
-Tidak diragukan lagi.
+"ara, Rhavelt. Betapa masuk akalnya Kamu." (Fii)
 
-Entah bagaimana, keduanya tampak berhubungan baik.
-Bagaimana Aku menggambarkannya, itu seperti pertukaran seorang siswa yang merasa berhutang budi kepada gurunya bahkan setelah mencapai kebesaran.
-Bagaimanapun, sepertinya aku dikenali sebagai Hunter sekarang.
+"Tanah ini adalah tanah yang Kamu pinjamkan kepada kami. Terlepas dari penampilanku, Aku tahu di mana Aku berdiri. Di negeri ini, apapun yang kau nyatakan hitam, bahkan warna putih pun akan berubah menjadi hitam." (Rhavelt)
 
-Kamu menerimanya dengan mudah, mengapa?」
+"Tidak, tidak. Itu salah. Jika Aku menyebut hal tertentu hitam dan Kamu mengatakan itu putih, Kamu akan dikeluarkan begitu saja." (Fii)
+
+"Tidak diragukan lagi." (Rhavelt)
+
+Entah bagaimana, keduanya tampak akrab.
+
+Bagaimana Aku menggambarkannya, itu seperti pertukaran seorang siswa yang merasa berhutang budi kepada gurunya bahkan setelah dewasa.
+
+Bagaimanapun juga, sepertinya aku dikenali sebagai Hunter sekarang.
+
+"Kamu menerimanya dengan mudah, mengapa?" (Ciel)
 
 Seperti yang dia katakan, atau mungkin tidak, dengan betapa mudah dan cepatnya permintaannya diterima, mau tak mau aku penasaran dengan apa yang ada di balik semua ini.
-Meskipun dapat dijelaskan hanya sebagai mereka yang menebus masalah, itu masih terasa terlalu murah hati mengingat itu.
+
+Meskipun dapat dijelaskan bahwa sebagai menebus masalah sebelumnya, itu masih terasa terlalu murah hati.
+
 Rhavelt kemudian menatap Ciel, seolah menilai dia.
 
-Karena dia diadopsi oleh Fiiyanamia-sama , dia seharusnya cukup mampu. Selain itu, Aku tidak dapat menolak individu yang dianggap Fiiyanamia-sama dapat diterima.
-Selain itu, resolusi tanpa bantuan dari penyerbuan yang diinduksi secara artifisial, penaklukan tanpa bantuan dari monster yang tidak dikenal, dan pemusnahan wyvern selama penyerbuan yang terjadi secara alami; perbuatan ini sudah melampaui Rank-A.
-Akan ada orang yang keberatan dengan itu mengingat usia Kamu, tetapi dengan semua masalah yang telah kami sebabkan sejauh ini, itu pasti akan disetujui.
+"Karena dia diadopsi oleh Fiiyanamia-sama, dia seharusnya cukup mampu. Selain itu, Aku tidak dapat menolak individu yang bahkan Fiiyanamia-sama saja menerimanya. Selain itu, penyelesaian tanpa bantuan dari penyerbuan yang direncanakan, penaklukan tanpa bantuan dari monster yang tidak dikenal, dan pemusnahan wyvern selama penyerbuan yang terjadi secara alami; perbuatan ini sudah melampaui Rank-A. Akan ada orang yang keberatan dengan itu mengingat usiamu, tetapi dengan semua masalah yang telah kami sebabkan sejauh ini, itu pasti akan disetujui." (Rhavelt)
 
-Dengan kata lain, kontribusi kami sudah jauh melampaui promosi Rank-A. Sekarang dia menghitungnya, ya, Aku pikir kami telah melakukan lebih banyak pekerjaan daripada Rank-A biasa. Karena itulah penyebabnya, maka kurasa kita bisa mempercayainya untuk saat ini.
-Selain itu, seperti yang Aku pikirkan, Fii-kaasama memiliki pengaruh yang sangat besar. Bagaimanapun, kami diterima berkat pengakuan Fiika-sama dan, selain Ciel dan aku, aku yakin dia tidak akan mengkhianati kepercayaan kaa-sama.
-Dan jika, secara hipotetis, ada tangkapan untuk ini, karena kaasama terlibat, bergerak di dalam Central tidak hanya berisiko tetapi juga sangat berisiko.
+Dengan kata lain, kontribusi kami sudah jauh melampaui promosi Rank-A. Aku pikir kami telah melakukan lebih banyak pekerjaan daripada Rank-A umumnya. Karena itulah, maka kurasa kami bisa mempercayainya untuk saat ini.
 
-Sebenarnya, jika mereka punya semacam rencana, kaasama seharusnya sudah mengetahuinya.
+Selain itu, seperti yang Aku pikirkan, Fii-kaasama memiliki pengaruh yang sangat besar. kami diterima berkat pengakuan Fii-kaasama dan, selain Ciel dan aku, aku yakin dia tidak akan mengkhianati kepercayaan kaasama.
 
-"Aku mengerti. Juga, temukan orang-orang di manajemen atas Guild Hunter yang ingin menggunakan Aku dan menghukum mereka.」
-Itu pasti akan beres.
+Dan jika, secara hipotetis, ada sesuatu untuk ini, karena kaasama terlibat, bergerak di dalam Central tidak hanya berisiko tetapi juga sangat amat berisiko.
 
-Aku menduga ini bisa terjadi. Bagaimanapun, para guildmaster sampai sekarang sepertinya telah meminta izin atau menerima instruksi dari beberapa petinggi.
+Sebenarnya, jika mereka punya semacam rencana, kaasama juga seharusnya sudah mengetahuinya.
+
+"Aku mengerti. dan Juga, temukan orang-orang dari manajemen atas Guild Hunter yang ingin menggunakanku dan hukum mereka." (Ciel)
+
+"Pasti." (Rhavelt)
+
+Aku menduga ini bisa terjadi. Bagaimanapun juga, para ketua guild sampai sekarang sepertinya telah meminta izin atau menerima instruksi dari beberapa petinggi.
+
 Sebenarnya, ini akan menjadi kesempatan besar untuk mereformasi seluruh organisasi. Jika itu terjadi, kemungkinan Ciel akan dapat memiliki waktu yang lebih damai. Selain itu, menurutku itu juga bukan hal yang buruk bagi Guild Hunter.
 
-Sepertinya ini akan selesai tanpa masalah.』
-Bagaimana Aku mengatakan ini, ini diselesaikan jauh lebih mudah daripada yang Aku kira.
-Meskipun mungkin anti-iklim, hal-hal diselesaikan seperti yang Kamu inginkan , jadi bukankah itu bagus Ciel?』
-Itu benar. Dengan ini, Ain sekarang bisa keluar dengan bebas.
+[Sepertinya ini akan selesai tanpa masalah.] (Ain)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+[Bagaimana ya, ini diselesaikan jauh lebih mudah daripada yang Aku kira.] (Ciel)
 
-(Jika Kamu membaca ini dari situs lain, itu berarti konten ini dicuri. Mohon dukung kami dengan mengunjungi situs kami.)
+[Meskipun mungkin anti-klimaks, semua diselesaikan seperti yang Kamu inginkan , jadi bukankah itu bagus Ciel?] (Ain)
 
-Ciel dengan riang menyatakan tujuannya. Jadi seperti yang kupikirkan......
-Sejak kami tiba di Central, aku berpikir bahwa akan lebih baik untuk mengurangi frekuensi meminjam tubuh Ciel tapi sepertinya Ciel yang membuatnya bergerak lebih dulu.
-Tetap saja, mengingat kita pada akhirnya akan kehilangan umur kita, mungkin aku tidak perlu terlalu memikirkan waktu Ciel」 lagi.
+[Itu benar. Dengan ini, Ain sekarang bisa keluar dengan bebas.] (Ciel)
+
+Ciel dengan riang menyatakan tujuannya. sudah kuduga......
+
+Sejak kami tiba di Central, aku berpikir bahwa akan lebih baik untuk mengurangi frekuensi meminjam tubuh Ciel tapi sepertinya Ciel bergerak lebih dulu.
+
+Tetap saja, mengingat kami pada akhirnya akan kehilangan umur kami, mungkin aku tidak perlu terlalu memikirkan 'waktu Ciel' lagi.
 
 hmmm......
 
-Dan meskipun mungkin tidak dibutuhkan, kami telah menyiapkan untuk Kamu sejumlah tertentu sebagai ganti rugi, jadi terimalah.」
+"Dan meskipun mungkin tidak dibutuhkan, kami telah menyiapkan untukmu sejumlah tertentu sebagai ganti rugi, jadi terimalah." (Rhavelt)
+
 Uang tidak diperlukan. Kami mungkin akan mendapatkan lebih banyak pula.
 Jadi, gunakan itu untuk mengumpulkan informasi.」
 Dengan informasi, maksudmu?」
