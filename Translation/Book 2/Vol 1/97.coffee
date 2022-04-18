@@ -1,20 +1,28 @@
 CHAPTER 97: RELATIONSHIP, TOUGH WORLD, AND SOCIAL INTERACTIONS
 
-Bahkan saat makan malam nanti, Fiikaasama tidak memberitahu kami tentang apa yang dia rencanakan.
+Bahkan saat makan malam, Fii-kaasama tidak memberitahu kami tentang apa yang dia rencanakan.
+ 
 Selain itu, mengatakan bahwa kami berdua sepertinya memiliki sesuatu untuk dibicarakan, dia mendesak kami untuk kembali ke kamar kami, jadi kami kembali tanpa mendapat kesempatan untuk menginterogasinya.
-Kamar memiliki kualitas interior yang lebih baik daripada penginapan kelas atas dan menurut Aku Ciel sangat menyukai kamar ini.
+
+ruangan ini memiliki kualitas interior yang lebih baik daripada penginapan kelas atas dan menurutku Ciel sangat menyukai kamar ini.
 
 Lagipula, tempat tidurnya sangat empuk.
-Hal yang sama dapat dikatakan tentang makanan, tetapi ini mungkin hanya efek samping dari kehidupan kita di rumah Rispeliga.
+
+Hal yang sama dapat dikatakan untuk makanan, tetapi ini mungkin hanya efek samping dari kehidupan kami di rumah Rispeliga.
+
 Melihat Ciel sekarang, orang mungkin berpikir bahwa dia adalah tipe orang yang mudah senang dengan hal-hal sepele.
+
 Aku yakin mereka tidak akan pernah mengerti betapa berharganya itu.
 
 Dan sejujurnya, Aku tidak bisa mengatakan bahwa Aku sendiri sepenuhnya memahami hal ini.
 
-Kurasa inilah yang Ciel maksudkan dengan kita hanya bahagia dengan diri kita sendiri.
+Kurasa inilah yang Ciel maksudkan dengan kita hanya bahagia dengan cara diri kita sendiri.
 
-Aku tidak memiliki keluhan dalam hal kamar, memiliki perabotan yang sangat bagus di sekelilingnya, tetapi Mohsa dan Saueluna berada di sini seperti alami sedikit mengganggu Aku.
-Padahal, aku mungkin harus membiasakannya sebagai bagian dari putri Fiikaasama .
+Aku tidak memiliki keluhan dalam hal kamar, memiliki perabotan yang sangat bagus, tetapi Mohsa dan Saueluna berada di sini sedikit menggangguku.
+
+Padahal, aku mungkin harus membiasakannya sebagai bagian dari anak Fii-kaasama .
+
+----------------------------------
 
 Keduanya cukup baik dalam meminimalkan kehadiran mereka tetapi karena Aku terus-menerus mengaktifkan deteksi, ini tidak berarti banyak bagi Aku.
 Ciel sepertinya tidak diganggu oleh mereka sama sekali, jadi kurasa tidak apa-apa.
@@ -55,7 +63,7 @@ Dan aku yakin Ciel juga menganggapku sebagai orang penting.
 Tanpa satu sama lain, kita tidak bisa tetap sehat secara mental.
 Hubungan saling ketergantungan kita saat ini, Aku kira, apa yang Aku kenal sebagai ketergantungan bersama.
 Namun, ini mungkin bukan jawaban yang diminta Ciel. Ini lebih pada garis hubungan interpersonal, seperti orang tua-anak atau saudara kandung.
-Mempertimbangkan Fiikaasama , kukira kita akan menjadi saudara perempuan tapi, sejujurnya, itu tidak terasa benar. Rasanya seperti renungan dalam hal itu.
+Mempertimbangkan Fii-kaasama , kukira kita akan menjadi saudara perempuan tapi, sejujurnya, itu tidak terasa benar. Rasanya seperti renungan dalam hal itu.
 
 Sayangnya, Aku tidak tahu kata-kata yang tepat untuk menggambarkan hubungan kami.』
 Oh ...... Aku melihat ...』
@@ -159,7 +167,7 @@ Lebih dari itu, orang suci yang akan menghujani siapa pun dan semua orang dengan
 Itu, bisakah Aku melakukannya?』
 Itu adalah sesuatu yang harus kita latih. Apa pun itu, kami cukup aman sehingga apa pun yang terjadi, kami dapat melewatinya.
 Jika ada saatnya kamu tidak tahan lagi berinteraksi dengan orang lain, tetap tinggal di manor dan menolak interaksi di luar bukanlah pilihan yang buruk.
-Selama kita membantu di mansion, kupikir Fiikaasama akan mengizinkannya. Paling buruk, ide yang kamu miliki beberapa waktu lalu, hidup tersembunyi di tengah hutan, mungkin bagus juga.
+Selama kita membantu di mansion, kupikir Fii-kaasama akan mengizinkannya. Paling buruk, ide yang kamu miliki beberapa waktu lalu, hidup tersembunyi di tengah hutan, mungkin bagus juga.
 Apakah kamu baik-baik saja dengan itu, Ain?』
 Jika itu bersamamu Ciel, aku tidak keberatan tinggal di mana pun .』
 Fufu, aku juga. Selama Ain ada di sana, Aku bisa tinggal di mana saja.
@@ -184,7 +192,7 @@ Interaksi sosial, benar. Kalau begitu, kenapa kita tidak pergi ke Guild Hunter b
 Lagipula, kami bahkan belum mendapatkan kartu A-Rank kami sejak kami mengikuti Fii.
 
 Sekarang dia menyebutkannya, itu benar.
-Sementara Aku terkesan dengan betapa riangnya Fiikaasama sebenarnya, Aku mulai menikmati ketidakhadiran Aku sendiri.
+Sementara Aku terkesan dengan betapa riangnya Fii-kaasama sebenarnya, Aku mulai menikmati ketidakhadiran Aku sendiri.
 
 Lalu, kenapa kita tidak mencari Celia- san dulu? Celia adalah anggota serikat, jadi Aku pikir dia akan menjadi yang paling mudah untuk ditemukan.』
 Apakah lebih baik bagi Kamu untuk berbicara dengannya ketika kita menemukan mereka, Ain?
