@@ -260,3 +260,12 @@ Saat aku hendak mengatakan itu, Ciel mulai terkantuk-kantuk, jadi percakapan kam
 
 ------------------------------------
 
+hewroo ~~~!
+
+kali ini, ainciel kita dengan serius mempertanyakan status mereka... ain kita yang dulunya ingin menjadi sosok orang tua ciel karena dia merasa lebih dewasa, sekarang dengan mereka memiliki ibu yaitu fii, tentu status ain yang ingin menjadi orang tua ciel diragukan lagi... dan mengingat semakin lama ciel lebih terlihat dewasa daripada ain entah mengapa... saya setuju dengan ain yang mengatakan kalau mereka ini seperti saling membutuhkan... dimana ada ain, harus ada ciel, begitu pula sebaliknya...
+
+ain akhirnya akan mulai perlahan bercerita tentang dunianya dan kehidupannya di masa lalu... awalnya ciel tidak tertarik, tapi saya yakin ciel akan tertarik dengan apa yang ada di bumi seperti televisi dan lainnya... apakah nanti di masa depan ada chapter dimana mereka akan berkunjung ke bumi / jepang ? dan kalau memang ada, saya yakin dengan kecantikan ainciel, mungkin bisa langsung jadi idol...
+
+dan ciel mulai berusaha untuk mengetahui bagaimana cara berinteraksi dengan manusia dengan benar... akhirnya perlahan-lahan tapi pasti, dedek ciel kita akan resmi menjadi dewasa... dan, ya, saya penasaran bagaimana dengan carol dan celia bahkan viviana atau yang lainnya yang pernah baik dengan ainciel kita... apakah mereka akan bertemu kembali nantinya ? dan apakah ciel dan celia akan mengetahui rahasia dibalik kebenaran ain dan ciel ? entahlah...
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!

@@ -221,3 +221,7 @@ Jika memungkinkan, akan menyenangkan mengetahui di mana semua orang yang telah m
 Lagi pula, tanpa ada yang mengejar kami, kami sekarang memiliki begitu banyak waktu luang di tangan kami.
 
 ------------------------------
+
+hewroo~~~!!
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!

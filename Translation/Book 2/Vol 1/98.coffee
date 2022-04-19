@@ -106,3 +106,10 @@ Kedua pelayan itu menundukkan kepala mereka dan berkata "Selamat malam." dan kel
 
 catatan author : karena beberapa alasan kecepatan penulisan, chapter ini lebih sedikit daripada setengah dari chapter biasanya. untuk alasan ini mungkin kedepannya akan ada selingan lagi.
 
+hewrooo~~!
+
+untuk kali ini kita bisa melihat interaksi singkat antara ain dan mohsa dan luna... walau sangat singkat, kita bisa mengetahui bahwa apa yang dilakukan ainciel kita sudah dalam batas wajar sebagai sikap bangsawan... dan sama seperti ain, ada rasa lega juga mengetahui bahwa apa yang dilakukan ciel kita tidaklah dianggap aneh oleh orang dunia ini. mungkin yang aneh hanya usia dan tubuh mungilnya saja... dan mulai dari sini mungkin ciel akan mulai belajar bagaimana bersikap dan berinteraksi agar menjadi lebih baik... mungkin kedepannya ain hanya keluar apabila menghadapi yang sulit saja...
+
+ain berusaha untuk tidak cemburu karena ada yang melihat wajah ciel selain dia yaitu mohsa dan luna, pasti walaupun tidak menampilkan di wajahnya, agak sedikit memerah karenanya... mengingat dengan penampilan ciel dengan warna kulit asia, tentu jadi imut... dan benar misal saya jadi luna saya tidak akan bosa melihat wajah dedek ciel kita yang imuuuutttt >_< ////
+
+sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
