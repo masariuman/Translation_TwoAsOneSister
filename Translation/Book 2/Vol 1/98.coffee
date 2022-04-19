@@ -46,51 +46,63 @@ Jadi Aku berpikir bahwa mereka berdua mungkin memiliki hal-hal yang mereka lebih
 
 Bukankah dia terdengar sedikit antusias?
 
-Benar, Ciel itu imut saat dia berbicara denganku. Ekspresinya banyak berubah dan dia praktis lengah.
+Benar, Ciel imut saat dia berbicara denganku. Ekspresinya banyak berubah dan dia sangat lengah.
+
 Ekspresi yang hanya aku lihat sampai sekarang, untuk dilihat orang lain... itu sedikit...... Tidak, aku tidak bisa cemburu hanya karena ini.
 
-Aku tidak cemburu. Tidak semuanya.
+Aku tidak cemburu. Tidak.
 
 Kembali ke akal sehatku, aku melihat Luna dan, untuk beberapa alasan, dia menatapku dengan tatapan yang sangat lembut.
-Sementara Aku merasa ingin menyembunyikan diri, Aku menahannya dan melanjutkan percakapan.
 
-Aku mengerti bahwa Aku tidak perlu membicarakannya dengan kaasama.
-Ngomong-ngomong, dari matamu, apa pendapatmu tentang sikap umum Ciel?」
-Sikap Cielmer-sama ?」
-Ya. Aku membayangkan bahwa kita harus memperhatikannya mulai dari sini.」
-Tidak bisakah hal yang sama diterapkan pada Kamu juga, Ainselojousama ?」
+walaupun Aku merasa ingin menyembunyikan diri, Aku menahannya dan melanjutkan percakapan.
 
-Saat Mohsa-san menanyakan itu, aku menutup ritsleting mulutku.
-Benar, itu mungkin juga perlu bagi Aku tetapi secara umum, itu harus lebih penting bagi Ciel.
-Dan sejujurnya, dalam kasus Ciel, mungkin ada kesempatan baginya untuk memanfaatkan Putri Dansa.
+"Aku mengerti bahwa Aku tidak perlu membicarakannya dengan kaasama. Ngomong-ngomong, dari matamu, apa pendapatmu tentang sikap umum Ciel?" (Ain)
+
+"Sikap Cielmer-sama ?" (Luna)
+
+"Ya. Aku membayangkan bahwa kita harus memperhatikannya mulai dari sini." (Ain)
+
+"Tidak bisakah hal yang sama diterapkan pada Kamu juga, Ainsel-ojou-sama ?" (Mohsa)
+
+Saat Mohsa-san menanyakan itu, aku menutup mulutku.
+
+Benar, itu mungkin juga perlu bagiku tetapi secara umum, itu lebih penting bagi Ciel.
+
+Dan sejujurnya, dalam kasus Ciel, mungkin ada kesempatan baginya untuk memanfaatkan dance princess.
 
 Juga, Aku benar-benar tidak bisa terbiasa dengan ojousama.
 
-Dengan itu, bagaimanapun, dari perkiraan Aku, seharusnya tidak terlalu penting dalam hal Kamu berdua.
-Apakah itu karena kita adalah anak-anak Fii-kaasama sekarang?」
-Itu adalah bagian dari itu, tentu saja. Tapi, bahkan tanpa itu, kalian berdua sudah mampu melakukan perilaku minimum yang dituntut untuk bangsawan.
-Mari kita bahkan tidak memulai dengan sopan santun, itu bervariasi berdasarkan lokasi dan, mengenai sopan santun di Central, itu bukan sesuatu yang kalian berdua harus khawatirkan untuk memulai.」
-Karena itu adalah aturan yang dibuat oleh freeloader, kan ?」
-Tepat sekali.
+"bagaimanapun juga, dari perkiraanku, seharusnya tidak terlalu penting dalam hal kalian berdua."
 
-Sehubungan dengan etiket dan hal-hal lain, Aku sudah mencoba mengajari Ciel semua yang Aku tahu yang mungkin juga berguna di sini, tetapi itu mungkin tidak cukup untuk menjamin reaksi ini.
+"Apakah itu karena kami adalah anak Fii-kaasama sekarang?" (Ain)
+
+"Itu adalah salah satu bagian dari itu, tentu saja. Tapi, bahkan tanpa itu, kalian berdua sudah mampu melakukan perilaku minimum sebagai bangsawan. Mari kita tidak memulai dengan sopan santun, hal itu bervariasi berdasarkan lokasi dan, mengenai sopan santun di Central, itu bukan sesuatu yang kalian berdua harus khawatirkan." (Mohsa)
+
+"Karena itu adalah aturan yang dibuat oleh penumpang, kan ?" (Ain)
+
+"Tepat sekali." (Mohsa)
+
+Sehubungan dengan aturan sopan santun dan hal-hal lain, Aku sudah mencoba mengajari Ciel semua yang Aku tahu yang mungkin juga berguna di sini, tetapi itu mungkin tidak cukup untuk menjamin reaksi ini.
+
 Dengan kata lain, usaha Ciel ternyata membuahkan hasil. Entah bagaimana, itu membuatku merasa bahagia.
-Lagi pula, sebagai Putri Tari, Ciel selalu memperhatikan gerakannya dari hari ke hari.
 
-Aku hanya belajar bagaimana melakukannya secara alami karena Ciel bisa melakukannya.
-Jika kita berdua melakukannya dengan serius, Aku yakin gerakan Ciel akan jauh lebih indah.
+Lagi pula, sebagai dance princess, Ciel selalu memperhatikan gerakannya dari hari ke hari.
 
-Tapi, ya. Pada akhirnya, aspek terpenting dari itu, jika harus Aku katakan, adalah bagaimana Kamu menampilkan diri.
-Oleh karena itu, menggunakan bantalan Fiiyanamia-sama sebagai referensi seharusnya cukup baik, bukan?
+Aku hanya belajar bagaimana melakukannya karena Ciel bisa melakukannya.
+
+Jika kami berdua melakukannya dengan serius, Aku yakin gerakan Ciel akan jauh lebih indah.
+
+"Tapi, ya. Pada akhirnya, aspek terpenting dari itu, jika harus Aku katakan, adalah bagaimana Kamu menampilkan diri. Oleh karena itu, menggunakan Fiiyanamia-sama sebagai referensi seharusnya cukup baik, bukan?" (Mohsa)
 
 Tentu saja, setelah berumur panjang, gerakan Fii-kaasama disempurnakan bahkan dari sudut pandang seorang amatir.
 
-"Aku mengerti. Terima kasih banyak.
-Kalau begitu, selamat malam.
+"Aku mengerti. Terima kasih banyak. Kalau begitu, selamat malam." (Ain)
 
-(Bab ini disediakan untuk Kamu oleh Re:Library)
+Untuk mengistirahatkan tubuh Ciel, Aku menghentikan pembicaraan.
 
-(Silakan kunjungi Re:Library untuk menunjukkan apresiasi Kamu kepada penerjemah dan berhenti mendukung pencuri konten!)
+Kedua pelayan itu menundukkan kepala mereka dan berkata "Selamat malam." dan keluar dari kamar.
 
-Untuk mengistirahatkan tubuh Ciel, Aku memotong pembicaraan di sana.
-Kedua pelayan itu menundukkan kepala mereka Selamat malam. dan keluar dari kamar.
+----------------------------------
+
+catatan author : karena beberapa alasan kecepatan penulisan, chapter ini lebih sedikit daripada setengah dari chapter biasanya. untuk alasan ini mungkin kedepannya akan ada selingan lagi.
+
