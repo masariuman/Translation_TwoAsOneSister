@@ -224,4 +224,6 @@ Lagi pula, tanpa ada yang mengejar kami, kami sekarang memiliki begitu banyak wa
 
 hewroo~~~!!
 
+kali ini kita bisa melihat dedek ciel kita beraksi... dan ya, siapa dulu gurunya, tentu saja tingkah lakunya jadi mirip seperti ain... cara berbicara dan bernegoisasi, bahkan sikapnya ketika menghadapi orang lain... dan ya sepertinya berjalan lancar... saya bisa membayangkan betapa tidak tenangnya hati si Rhavelt menghadapi ainciel didepan Fiiyanamia... dan seeprtinya ainciel kita juga akan langsung menjadi rank-A .... dan bagus juga ain dianggap sebagai orang yg berbeda sekarang... bisa dibayangkan Rhavelt berasa bermain roller coster disini... untung aja tidak jantungan... tapi pada akhirnya dia juga senang bahwa ainciel akan langsung terlibat dalam utusan dewa palsu...
+
 sekian untuk chapter kali ini, semoga kalian menikmatinya, kalau ada saran silahkan coret-coret di komentar ~ tetap sehat ya, tetap semangat, dan terima kasih !!
